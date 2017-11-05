@@ -1,0 +1,15 @@
+---
+author: Ben Yakas
+date: May 18, 2011 4:04 pm
+title: Get Your Obama Birth Certificate Mugs And T-Shirts While They're Hot!
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2011_05_obamamug.jpg" src="https://web.archive.org/web/20140805060722im_/http://gothamist.com/attachments/jen/2011_05_obamamug.jpg" width="365" height="272" class="image-left"> </span>What&apos;s the best way for President Obama to commemorate banishing <a href="https://web.archive.org/web/20140805060722/http://gothamist.com/tags/donaldtrump">The Donald</a> and his R-rated birther rhetoric to the outer reaches of network TV syndication hell? Merchandising, of course! After all, that&apos;s where the real money <a href="https://web.archive.org/web/20140805060722/http://www.youtube.com/watch?v=xvmZ9SPcTzU">is made</a>.</p>
+
+<p>If you donate $15 or more to Obama&apos;s reelection campaign, you can receive your own limited edition 2012 Made In The USA <a href="https://web.archive.org/web/20140805060722/https://donate.barackobama.com/page/contribute/o2012-made-in-the-usa-mug?source=20110518_js_m_misc">mug</a>, featuring Obama&apos;s birth certificate on the back. If you donate $25 or more, you can get a 2012 Made In The USA <a href="https://web.archive.org/web/20140805060722/https://donate.barackobama.com/page/contribute/o2012-made-in-the-usa-shirt-z">t-shirt</a>, also featuring the birth certificate. It&apos;s nice to see Obama&apos;s team having some fun with the whole <a href="https://web.archive.org/web/20140805060722/http://gothamist.com/2011/04/27/obama_to_give_statement_confirming.php">birth certificate nonsense</a> which had given them such a headache a month ago. We hope they keep going with the idea&#x2014;it doesn&apos;t take much of a leap to go from mugs and t-shirts to coloring books, breakfast cereal, and flame throwers! But don&apos;t expect a birth certificate on a mug to satisfy everyone.</p>
+
+<p>Obama For America Deputy Campaign Manager Julianna Smoot points us to Jerome Corsi, whose new book is &quot;Where&apos;s the Birth Certificate?&quot;&#x2014;it is a &quot;greatest-hits reel of delusions, ranging from 9/11 conspiracies to claiming that there is an infinite supply of oil in the Earth&apos;s core. In 2008, he published a book about Barack Obama claiming, among other things, that he (a) is a secret Muslim; (b) is secretly anti-military; (c) secretly dealt drugs; and (d) secretly supported terrorist actions when he was eight years old. So many secrets!&quot; She says the new merchandising is the best way to mock such conspiracy theorists&#x2014;at least until science finds a way to stamp a birth certificate <a href="https://web.archive.org/web/20140805060722/http://www.newser.com/story/99297/obama-i-cant-plaster-birth-certificate-to-my-forehead.html">on a man&apos;s forehead</a>.</p>					
+										
+									
+				

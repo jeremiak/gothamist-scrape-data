@@ -1,0 +1,17 @@
+---
+author: Ben Yakas
+date: Aug 12, 2012 3:15 pm
+title: Soggy Jet Skier Inadvertently Thwarts $100 Million JFK Security
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left"> <img alt="81212lifejacket.jpg" src="https://web.archive.org/web/20150502161801im_/http://gothamist.com/attachments/byakas/81212lifejacket.jpg" width="220" height="300"> <br> <i style=" width:220px; ;display:block"> Casillo was wearing a bright yellow life jacket like the one above (<a href="https://web.archive.org/web/20150502161801/http://www.shutterstock.com/cat.mhtml?people_number=&amp;commercial_ok=&amp;search_cat=&amp;searchterm=yellow+life+jacket&amp;people_ethnicity=&amp;anyorall=all&amp;searchtermx=&amp;color=&amp;photographer_name=&amp;search_source=search_form&amp;lang=en&amp;version=llv1&amp;search_group=&amp;orient=&amp;people_gender=&amp;show_color_wheel=1&amp;people_age=&amp;safesearch=1&amp;prev_sort_method=popular&amp;sort_method=relevance2&amp;page=1#id=58391728&amp;src=8f8d4bce0582fb144d17f82a9cefaa3c-1-6">Shutterstock/greenland</a>)</i></div> <a href="https://web.archive.org/web/20150502161801/http://gothamist.com/2012/07/27/jfk_1_us_airport_for_diseases_looki.php">Diseases</a> and <a href="https://web.archive.org/web/20150502161801/http://gothamist.com/2012/08/09/heroin_hair_treatment_products_make.php">heroin hair treatment products</a> aren&apos;t the only thing that can slip into JFK Airport undetected&#x2014;so can soggy, bright-yellow life jacket-wearing jet skiers from Howard Beach! <a href="https://web.archive.org/web/20150502161801/http://www.nypost.com/p/news/local/queens/beach_of_security_oLGkvicnaDyzVXCUQZGi5H">According to the Post</a>, Daniel Casillo, 31, inadvertently walked through two runways and into a terminal at JFK, bypassing all of their state-of-the-art security systems. <p></p>
+
+<p>It all started when Casillo went jet skiing with friends in Jamaica Bay around 7:45 p.m. Friday. &#x201C;They were trying to see who had the fastest jet skis, like idiots,&#x201D; noted Casillo&apos;s girlfriend, Deanna Cowan. While his friends rode off, Casillo&apos;s 1997 Sea-Doo broke down, leaving him stranded and calling friends for help. He ended up swimming three miles toward the only thing he could see &#x2014; the lights of Runway 4-Left. &#x201C;He didn&#x2019;t want to go that way, because you&#x2019;re not allowed to go over there,&#x201D; Cowan said.</p>
+
+<p>Once on land, Casillo climbed the eight feet high perimeter fence, and walked across that runway and the intersecting Runway 31L until he made it inside of Terminal 3, unspotted by the airport&apos;s $100 million Perimeter Intrusion Detection System (PIDS). Finally he was arrested near Gate 10&#x2014;but only after he approached a Delta Airlines worker looking for help. &#x201C;All his IDs, his money, his car keys &#x2014; they&#x2019;re all gone. They sunk with the jet ski,&#x201D; Cowan said. </p>
+
+<p>Casillo was charged with criminal trespassing, but that doesn&apos;t solve the problem of the faulty security system. &#x201C;The Port Authority PBA has been concerned about the failure of the PIDS system for quite some time. We have brought this to the attention of former Executive Director Chris Ward, who failed to act,&#x201D; said Robert Egbert, spokesman for the PA PBA.</p>					
+										
+									
+				

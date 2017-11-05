@@ -1,0 +1,23 @@
+---
+author: Jen Chung
+date: Apr 15, 2014 11:07 am
+title: Liam Neeson's Very Particular Set Of Skills Includes Writing Pro-Carriage Horse Op-Eds
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2014_04_liamneeson1.jpg" src="https://web.archive.org/web/20140419042401im_/http://gothamist.com/attachments/jen/2014_04_liamneeson1.jpg" width="640" height="385" class="image-none"> </span></p>
+
+<p>Liam Neeson doesn&apos;t know who you are or what you want, but he does have a very particular sets of skills; skills he has acquired over a very long career. Skills that make him a pain the neck for people like Mayor Bill de Blasio. But all de Blasio has to do is abandon his plan to ban carriage horses, and that&apos;ll be the end of it. Until that happens, Neeson&apos;s staying in his face&#x2014;today he&apos;s got a cameo in the NY Times, where he <a href="https://web.archive.org/web/20140419042401/http://www.nytimes.com/2014/04/15/opinion/carriages-belong-in-central-park.html?ref=opinion&amp;_r=1">writes in an op-ed</a>, &quot;Horses have been pulling from the beginning of time. It is what they have been bred to do.&quot;</p>
+
+<p>De Blasio <a href="https://web.archive.org/web/20140419042401/http://gothamist.com/2013/04/13/carriage_horse_debate_rears_head_at.php">said in a mayoral forum a year ago</a>, &quot;I would ban the horse carriages in Central Park within the first week on the job. I think it&apos;s horrible what <a href="https://web.archive.org/web/20140419042401/http://gothamist.com/2011/11/01/carriage_horse_that_died_had_painfu.php">happens to the horses</a>. I think it&apos;s unnecessary and doesn&apos;t do anything for our economy, much to the chagrin of the mayor who thinks it&apos;s at the center of our tourism economy.&quot; Of course, now that&apos;s he&apos;s actually mayor, de Blasio admitted last week that he&apos;s setting his eyes on shutting down the carriage horse industry <a href="https://web.archive.org/web/20140419042401/http://gothamist.com/2014/04/12/de_blasio_promises_to_ban_nyc_carri.php">by the end of the year</a>. </p>
+
+<p>Neeson has publicly invited de Blasio to visit the stables where the carriage horses live, to show how well-cared they are, <a href="https://web.archive.org/web/20140419042401/http://gothamist.com/2014/03/09/de_blasio_wont_tour_carriage_horse.php">but de Blasio had passed on being TAKEN</a> on a tour. In today&apos;s op-ed, the actor invites the mayor once again, insisting:</p><blockquote>Horses and their caretakers work together to earn a decent livelihood in New York, as they have for hundreds of years. New York&#x2019;s horse-carriage trade is a humane industry that is well regulated by New York City&#x2019;s Departments of Health and Mental Hygiene and Consumer Affairs. Harry W. Werner, a past president of the American Association of Equine Practitioners, has visited the stables and &#x201C;found no evidence whatsoever of inhumane conditions, neglect or cruelty in any aspect.&#x201D;<p></p>
+
+<p>Every horse must be licensed and pass a physical examination by a veterinarian twice a year; typically, the horses spend about six hours per day in the park. They cannot work in excessive cold or heat, and must also be furloughed for five weeks a year on a pasture in the country.</p>
+
+<p>New York&#x2019;s horse carriages have made an estimated six million trips in traffic over the last 30 years. In that time, just four horses have been killed as a result of collisions with motor vehicles, with no human fatalities. In contrast to the terrible toll of traffic accidents generally on New Yorkers, the carriage industry has a remarkable safety record.</p></blockquote>Who cares that our <a href="https://web.archive.org/web/20140419042401/http://gothamist.com/2013/09/26/photo_spooked_horse_knocks_his_carr.php">horrible traffic spooks carriage horses</a>?<p></p>
+
+<p>Neeson has previously told the Post&apos;s Andrea Peyser <a href="https://web.archive.org/web/20140419042401/http://gothamist.com/2014/01/10/liam_neeson_has_very_strong_feeling.php">that de Blasio&apos;s promised ban</a> is &quot;criminal! This is an iconic, historic part of New York&quot; and <a href="https://web.archive.org/web/20140419042401/http://gothamist.com/2014/02/27/video_liam_neeson_brings_pro-carria.php">said to Jon Stewart</a> that carriage horse drivers &quot;made the roads of New York,&quot; prompting Stewart to say, &quot;What, are the roads made out of horse shit?&quot;</p>					
+										
+									
+				

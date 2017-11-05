@@ -1,0 +1,15 @@
+---
+author: Ben Yakas
+date: March 10, 2011  5:09 PM
+title: Video: What Happens When Refs Stop Officiating?
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="31011stjohns.jpg" src="https://web.archive.org/web/20130410210034im_/http://gothamist.com/attachments/byakas/31011stjohns.jpg" width="640" height="338" class="image-none"> </span></p>
+
+<p>Last night, St John&apos;s narrowly <a href="https://web.archive.org/web/20130410210034/http://gothamist.com/2011/03/10/last_nights_action_st_johns_holds_o.php">defeated</a> Rutgers 65-63 in the second round of the Big East tournament, but even that is an understatement. During the final minute of the wild game, there were two big lead changes, two missed free throws, and most problematically, two huge <a href="https://web.archive.org/web/20130410210034/http://newyork.cbslocal.com/2011/03/09/st-johns-squeaks-past-rutgers-65-63/">missed calls</a> by the refs, who seemed to just give up officiating with less than two seconds left in the game. See the video below:</p>
+
+<div style="text-align: center;"><iframe title="YouTube video player" width="640" height="390" src="https://web.archive.org/web/20130410210034if_/http://www.youtube.com/embed/YlOWkNBxlTo" frameborder="0" allowfullscreen></iframe></div>
+
+<p>As you can see above, and hear from the commentators,  Justin Brownlee of St. John&#x2019;s took a couple of extra steps and stepped out of bounds before throwing the ball into the stands while the final 1.7 seconds ticked off the clock. Big East commissioner John Marinatto issued a statement afterwards acknowledging the errors:  &#x201C;Both missed violations should have caused the game clock to stop and a change of possession to occur prior to the end of the game. Neither error is reviewable or correctable under NCAA rules.&#x201D; John Adams, the national coordinator of men&apos;s basketball officiating, <a href="https://web.archive.org/web/20130410210034/http://sports.espn.go.com/ncb/news/story?id=6198753">called</a> not officiating to the end of a game &quot;unacceptable.&quot; </p>
+
+<p>It seems those refs agreed: the three officials, Jim Burr, Tim Higgins and Earl Walton, all <a href="https://web.archive.org/web/20130410210034/http://sports.espn.go.com/new-york/news/story?id=6201265">withdrew themselves</a> from the rest of the tournament after the errors. It may have been questionable circumstances, but the seventeenth-ranked and fifth-seeded Red Storm (21-10) advanced to the tournament quarterfinals for the 20th time overall and first since 2003. They are playing Syracuse today, and you can follow the game, which is currently in progress in the second half, <a href="https://web.archive.org/web/20130410210034/http://scores.espn.go.com/ncb/boxscore?gameId=310690183">here.</a></p>

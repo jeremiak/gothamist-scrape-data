@@ -1,0 +1,25 @@
+---
+author: Ben Yakas
+date: Nov 10, 2012 5:00 pm
+title: Hurricane Sandy Roundup: Mold Menace, Dentists Crane Lawsuit, Rihanna Relief
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="111012sandy.jpg" src="https://web.archive.org/web/20170701063202im_/http://gothamist.com/attachments/byakas/111012sandy.jpg" width="640" height="427"> <br> <i> <a href="https://web.archive.org/web/20170701063202/http://www.flickr.com/photos/leprechaunspade/8170962391/in/pool-gothamist">Bklynraised&apos;s flickr</a></i></div> <p></p>
+
+<p>It&apos;s been almost two weeks since <a href="https://web.archive.org/web/20170701063202/http://gothamist.com/tags/hurricanesandy">Hurricane Sandy</a> hit the city with storm surges and massive flooding, leaving lots of power outages, transit woes, housing destruction and more problems we&apos;re still dealing with now. Below, check out a roundup of Sandy-related links, from the problem of mold to Rihanna lending a hand to another Sandy death.</p>
+
+<ul>
+	<li>Thick green mold <a href="https://web.archive.org/web/20170701063202/http://www.nypost.com/p/news/local/manhattan/merchants_battling_growing_mold_C9YfFCRUBZ6CTXHqFOSRHO?utm_medium=rss&amp;utm_content=Manhattan">is growing around the South Street Seaport</a> after flooding from Sandy. &#x201C;Fungus is everywhere. There was bad mold&#x2014;it was green, an inch thick...I lost everything,&#x201D; said Shawn Makani, owner of Cafe on the Pier. &#x201C;We have to wear masks to protect ourselves. It&#x2019;s dangerous,&#x201D; said a worker who hauled moldy debris from the Abercrombie &amp; Fitch on Water Street.</li>
+	<li>A 64-year-old man <a href="https://web.archive.org/web/20170701063202/http://www.nydailynews.com/new-york/death-s-man-hurricane-sandy-related-article-1.1199883">was found dead in the living room</a> of his flooded Staten Island home yesterday. If officials confirm it was a Sandy-related death, it&apos;ll be the 42nd death because of the storm in the city.</li>
+	<li>Rihanna <a href="https://web.archive.org/web/20170701063202/http://www.nydailynews.com/new-york/rihanna-brings-star-power-news-sandy-relief-effort-article-1.1199804">donated 1,000 sleeping bags</a> to the Daily News&apos; Sandy relief efforts; she also turned a release party at the 40/40 Club last night into a rally to collect donations and supplies from fans. Also: Rihanna emails the Daily News?</li>
+	<li><a href="https://web.archive.org/web/20170701063202/http://www.nydailynews.com/new-york/dentists-sue-owner-sandy-damaged-crane-article-1.1199839">Two dentists are suing</a> the owner of the West 57th Street crane that was stuck dangling over midtown after Hurricane Sandy. They&apos;re suing for damages incurred from losing a week&apos;s worth of business while they were evacuated, and the street below was closed.</li>
+	<li>A 64-year-old Gambino associate <a href="https://web.archive.org/web/20170701063202/http://www.nypost.com/p/news/local/brooklyn/wiseguy_help_me_fema_aPjf5RFJJUbY9g4O4xinEI?utm_medium=rss&amp;utm_content=Brooklyn">claims his house was &quot;whacked&quot;</a> by Sandy, and now he needs FEMA aid: &#x201C;As a skilled operator of heavy machinery, Mr. Garofalo has been manning equipment&#x2014;such as a bulldozer&#x2014;to clear the streets and perform other critical tasks.&#x201D;</li>
+	<li>Freezing Long Islanders <a href="https://web.archive.org/web/20170701063202/http://www.nypost.com/p/news/local/frigid_furious_liers_turn_up_heat_WzSLmyAQ7BznchhPh79LeO?utm_medium=rss&amp;utm_content=Local">are raging at LIPA</a> for not turning the electricity and heat back on yet.</li>
+	<li>Some Sandy recovery workers who happened to be eating at Eno restaurant in Manhattan  when a fire broke out <a href="https://web.archive.org/web/20170701063202/http://www.nydailynews.com/new-york/sandy-recovery-workers-save-restaurant-employees-burning-fire-article-1.1199873">helped put out the flames on two employees</a>. Three people were taken to the hospital with burns altogether.</li>
+	<li>A big concert for Sandy relief, called &quot;12-12-12,&quot; <a href="https://web.archive.org/web/20170701063202/http://www.nydailynews.com/entertainment/music-arts/star-studded-show-planned-sandy-relief-article-1.1199570">is currently being planned</a> by the same people who organized &#x201C;The Concert For New York&#x201D; after 9/11. </li>
+	<li>Many NYCHA buildings around the city should get power back this weekend, officials promise&#x2014;<a href="https://web.archive.org/web/20170701063202/http://www.nydailynews.com/new-york/nycha-buildings-hit-hurricane-sandy-power-weekend-apartments-article-1.1199819">but that doesn&apos;t mean</a> they&apos;ll actually have power in their individual apartments. </li>
+</ul>					
+										
+									
+				

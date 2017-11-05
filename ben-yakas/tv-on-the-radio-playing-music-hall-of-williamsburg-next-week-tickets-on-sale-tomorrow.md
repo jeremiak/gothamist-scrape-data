@@ -1,0 +1,21 @@
+---
+author: Ben Yakas
+date: Apr 7, 2011 5:19 pm
+title: TV On The Radio Playing Music Hall Of Williamsburg Next Week, Tickets On Sale Tomorrow!
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="4711tvradio.jpg" src="https://web.archive.org/web/20150504142841im_/http://gothamist.com/attachments/byakas/4711tvradio.jpg" width="640" height="424"> <br> <i>Photo via <a href="https://web.archive.org/web/20150504142841/http://www.flickr.com/photos/sgoralnick/128410125/">sgoralnick&apos;s flickr</a></i></div> <p></p>
+
+<p><a href="https://web.archive.org/web/20150504142841/http://gothamist.com/tags/tvontheradio">TV On The Radio</a> have a brilliant brand new album, <em>Nine Types Of Light</em>, coming out next Tuesday. And to celebrate the occasion, they&apos;re bringing it all back home and playing a surprise release show at the comfy Music Hall Of Williamsburg <a href="https://web.archive.org/web/20150504142841/http://www.musichallofwilliamsburg.com/event/6298">that evening</a>.The band already <a href="https://web.archive.org/web/20150504142841/http://gothamist.com/2011/02/26/tv_on_the_radio_return_with_new_alb.php">announced</a> a show at Radio City Music Hall next Wednesday (tickets still available <a href="https://web.archive.org/web/20150504142841/http://www.ticketmaster.com/event/1D00464E9CC442E9?artistid=904793&amp;majorcatid=10001&amp;minorcatid=60">here</a>), but wouldn&apos;t you rather be able to move around all herky jerky-like and dance those cobwebs out of your beard? The Music Hall show goes on sale tomorrow at noon <a href="https://web.archive.org/web/20150504142841/http://www.ticketmaster.com/event/00004681F294C8C2?artistid=904793&amp;majorcatid=10001&amp;minorcatid=60">here</a>.</p>
+
+<p>The new release, their fourth official album, is filled with songs about longing and love, subjects they&apos;ve been hesitant to dive into head-on in the past. It was also the first album they&apos;ve recorded in LA, far from their natural confines of Greenpoint and Williamsburg, where they could take breaks from recording with BBQ and ping pong. </p>
+
+<p>Below you can see a trailer for the album-accompanying movie (&quot;a visual re-imagining of the record, [which] includes a music video for every song on the album&quot;), as well as the official video for first single &quot;Will Do.&quot; And if you haven&apos;t heard it yet, check <em>Nine Types Of Light</em> out <a href="https://web.archive.org/web/20150504142841/http://www.guardian.co.uk/music/musicblog/2011/apr/05/tv-radio-nine-types-light">here</a>&#x2014;it really might be their tightest, breeziest album yet. Even if they&apos;ve moved away from the rich sonic dankness of <em>Return To Cookie Mountain</em>, they more then make up for it with their most chiseled songwriting yet.</p>
+
+<div style="text-align: center;"><iframe title="YouTube video player" width="640" height="390" src="https://web.archive.org/web/20150504142841if_/http://www.youtube.com/embed/oMi6NVd6_aI" frameborder="0" allowfullscreen></iframe></div>
+
+<div style="text-align: center;"><object width="575" height="324"><param name="movie" value="http://www.vevo.com/VideoPlayer/Embedded?videoId=USUV71100402&amp;playlist=false&amp;autoplay=0&amp;playerId=62FF0A5C-0D9E-4AC1-AF04-1D9E97EE3961&amp;playerType=embedded&amp;env=0"><param name="wmode" value="transparent"><param name="bgcolor" value="#000000"><param name="allowFullScreen" value="true"><param name="allowScriptAccess" value="always"><embed src="https://web.archive.org/web/20150504142841oe_/http://www.vevo.com/VideoPlayer/Embedded?videoId=USUV71100402&amp;playlist=false&amp;autoplay=0&amp;playerId=62FF0A5C-0D9E-4AC1-AF04-1D9E97EE3961&amp;playerType=embedded&amp;env=0" type="application/x-shockwave-flash" allowfullscreen="true" allowscriptaccess="always" width="575" height="324" bgcolor="#000000" wmode="transparent"></object></div>					
+										
+									
+				

@@ -1,0 +1,21 @@
+---
+author: Jen Chung
+date: Sep 8, 2014 2:46 pm
+title: Rizzoli Rebirth: Beloved Bookstore Will Reopen In NoMad
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="040414_rizzoli2.jpg" src="https://web.archive.org/web/20160621005055im_/http://gothamist.com/attachments/nyc_benmiller/040414_rizzoli2.jpg" width="650" height="488"> <br> <i> The old Rizzoli on West 57th Street (Ben Miller/Gothamist)</i></div> <p></p>
+
+<p>After <a href="https://web.archive.org/web/20160621005055/http://gothamist.com/2014/04/04/everybody_has_been_bought_off_-_bre.php">shuttering its old, iconic West 57th Street location</a> earlier this year, Rizzoli will be coming back, with a new store next year just north of Madison Square Park.</p>
+
+<p>The bookseller and Kew Management announced that Rizzoli will take a 5,000 square foot space at 1133 Broadway by West 26th Street. <a href="https://web.archive.org/web/20160621005055/http://rizzolibookstore.com/2014/09/rizzoli-bookstore-will-reopen-new-york-citys-nomad-neighborhood/">Rizzoli explained in a press release</a>:</p><blockquote>A contract has been signed with Kew Management Corp. for a 5,000 square foot street level retail space on 26th Street and Broadway in the Beaux-Arts Saint James, an architecturally significant stone, brick, terra cotta and masonry building dating from 1896. The new space has 29&#x2019; of Broadway frontage, and 18&#x2019; ceilings which will permit the design of the new store to embrace the old-world flavor of the 57th Street location, seasoned with contemporary innovations that will reflect the needs and desires of today&#x2019;s refined customer.<p></p>
+
+<p>Kew Management, a family-owned company, has had landmark buildings in its portfolio for over 60 years, and has been one of the leading forces in the redevelopment of the NoMad area as a commercial, residential and entertainment hub. Leslie Spira Lopez, owner and CEO of Kew Management, views the alliance with Rizzoli as an significant development in the ongoing revitalization of the area, stating: &#x201C;We have had many opportunities to fill our retail space, but we were looking for a tenant that would reflect both the values of the community&#x2014;thoughtfulness, curiosity, and creativity&#x2014;and the area&#x2019;s Gilded Age heritage. In being able to bring Rizzoli to this location, we have exceeded our expectations.&#x201D;</p>
+
+<p>Addressing the question of why Rizzoli is opening a new bricks-and-mortar store when others have closed, Milan-based parent RCS Libri&#x2019;s book division CEO Laura Donnini states: &#x201C;While e-books and e-commerce is unquestionably forcing a re-examination of retail practices, the sophisticated consumer&#x2019;s desire for a personalized and tangible encounter has created a newly robust market for an elegant, intelligently curated, and customer-service-oriented bookstore experience.&#x201D; </p>
+
+<p>Further identifying the Rizzoli customer, Donnini adds: &#x201C;For fifty-plus years the Rizzoli bookstore in New York City has attracted the discerning consumer of erudite, beautifully produced volumes on art, design, interiors, fashion, as well as literature, and important non-fiction books. Based on extensive market research in advance of the re-opening, we expect this customer&#x2014;both New York-based, and visiting from all points national and international&#x2014;to embrace the 21st century version of their favorite bookstore.&#x201D;</p></blockquote>In other words: Stop buying your books on Amazon! President Marco Ausenda of Rizzoli International Publications also said, &quot;Our new flagship bookstore will embody the ambience our customers expect from Rizzoli while further enhancing their in-store experience.  A special salon for events, our trademark interior wrapped in an exciting modern envelope, and other new features will make Rizzoli an icon for the future of illustrated bookstores.&quot;<p></p>					
+										
+									
+				

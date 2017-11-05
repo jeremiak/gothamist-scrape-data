@@ -1,0 +1,11 @@
+---
+author: Ben Yakas
+date: June  5, 2011  1:36 PM
+title: Racist Idiot Attacks MTA Worker: "You Are The Brother Of Osama"
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:300px; "> <img alt="6511sikh.jpg" src="https://web.archive.org/web/20120602100910im_/http://gothamist.com/attachments/byakas/6511sikh.jpg" width="300" height="341"> <br> <i>Sikh Parade 2009 <a href="https://web.archive.org/web/20120602100910/http://www.flickr.com/photos/milo2000/3497843599/">milo-bot&apos;s flickr</a></i></div> There are three kinds of pests the city will never be lacking in: Yankees fans, bed bugs and racist morons. One particularly dumb racist <a href="https://web.archive.org/web/20120602100910/http://www.nydailynews.com/ny_local/2011/06/05/2011-06-05_im_not_osama_loses_3_teeth_to_hate_nuts_sucker_punch.html">attacked a Sikh MTA employee</a> in Brooklyn on an A train on Memorial Day, knocking out three of his teeth. &quot;He was saying, &apos;You are the brother of Osama.&apos; I said, &apos;I am not Osama. I have nothing to do with him!&apos;&quot; said Queens resident Jiwan Singh, an Indian immigrant who moved to the US over 30 years ago.<p></p>
+
+<p>The car was half-empty around 11:30 p.m. when Singh was riding to work and was approached by the attacker, whom he described as a black man in his late 20s. The man first demanded he give up his seat, despite plenty of open seats, and when Singh refused, the attacked grabbed him and threw him out: &quot;He said, &apos;Taliban, you sit there!&apos;&quot; Before getting off at Kingston Avenue, the attacker angrily sucker-punched him twice: &quot;He said, &apos;This is for you, Osama!&apos; It was so fast. I couldn&apos;t even defend myself.&quot;</p>
+
+<p>The NYPD hate crimes task force are investigating the incident as a bias attack. This wasn&apos;t the first misdirected attack on Singh&apos;s family: the father of five said his son Jasmir lost an eye after being stabbed by attackers in 2009 who targeted him because of his turban and traditional beard. &quot;I just wish people were not cruel,&quot; said his daughter, Piarry.</p>

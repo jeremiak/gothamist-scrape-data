@@ -1,0 +1,11 @@
+---
+author: Ben Yakas
+date: April 10, 2011  3:20 PM
+title: Police Arrest Suspect In 2009 Grandmother Murder
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:250px; "> <img alt="41011surman.jpg" src="https://web.archive.org/web/20111031140134im_/http://gothamist.com/attachments/byakas/41011surman.jpg" width="250" height="251"> <br> <i>Victim Anna Surman</i></div> Nearly two years ago, 87-year-old Anna Surman was <a href="https://web.archive.org/web/20111031140134/http://gothamist.com/2009/08/03/87-year-old_fatally_shot_in_coney_i.php">gunned down</a> by a stray bullet in the courtyard of her apartment at the Surfside Houses in Coney Island. Yesterday, police <a href="https://web.archive.org/web/20111031140134/http://www.nypost.com/p/news/local/brooklyn/gunman_busted_in_klyn_woman_stray_lZSy41ip8wwaajPILazgXL?CMP=OTC-rss&amp;FEEDNAME=">finally arrested</a> the ex-con who they believe fired the fatal shot. &quot;I didn&#x2019;t think they were ever going to catch this guy. I hope he spends the rest of his life in jail. He took her life,&quot; said the victim&#x2019;s grandson, Michael Surman. <p></p>
+
+<p>Malcolm Mitchell, 26, was arrested by police for shooting a gang rival in the left leg on Thursday. Police then connected him to the August 2nd, 2009 murder of Surman. Surman was shot in the neck and killed when a man fired three shots from a 9-mm. pistol during a foot chase. Mitchell has a long criminal record that goes back to 2002, including assault, gang assault, burglary and grand larceny. He&apos;s now been charged with murder and attempted murder.</p>
+
+<p>&quot;I want to see him in court. I want to see the face of the man that killed my grandmother. Let him have his fair trial. This is America. I hope he spends the rest of his life in jail,&quot; Surman&apos;s grandson <a href="https://web.archive.org/web/20111031140134/http://www.nydailynews.com/news/ny_crime/2011/04/09/2011-04-09_man_arrested_in_2009_straybullet_slay_of_anna_surman_87yearold_brooklyn_grandma_.html">told the News</a>.</p>

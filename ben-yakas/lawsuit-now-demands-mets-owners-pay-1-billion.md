@@ -1,0 +1,15 @@
+---
+author: Ben Yakas
+date: Mar 19, 2011 5:40 pm
+title: Lawsuit Now Demands Mets Owners Pay $1 Billion
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="31911mets.jpg" src="https://web.archive.org/web/20150426153000im_/http://gothamist.com/attachments/byakas/31911mets.jpg" width="240" height="238" class="image-left"> </span>It feels as though we start every day hoping against hope that maybe we&apos;ll read some good news about the <a href="https://web.archive.org/web/20150426153000/http://gothamist.com/tags/mets">Mets</a>; maybe Carlos Beltran will suddenly revert to his 2006 form! Or maybe Oliver Perez will have learned how to throw fastballs again! Or even better, maybe Bobby Valentine will be put in charge of the whole organization! Alas, these <em>are</em> the Mets, so none of those things will happen. But considering how terrible 2011 has been for the team so far, without having played a game of the season yet, how could it get any worse?</p>
+
+<p>Oh, this is how: the Madoff &quot;false profits&quot; lawsuit against the Mets owners&apos; company, Sterling Equities, <a href="https://web.archive.org/web/20150426153000/http://www.nypost.com/p/news/local/queens/mets_bigs_bernie_hit_now_bLEBJ9mFDtN53JRuEvMURI?CMP=OTC-rss&amp;FEEDNAME=">has been increased</a> from $300 million to $1 billion. The first $300 million stems from the alleged profits, while the $700 million stems from money they allegedly invested with Madoff and withdrew. &quot;The amended complaint sheds more light on the deep dependency of the Sterling business organization [owners of the Mets] on the continuation of the Madoff fraud and certain knowledge of indicia of fraud by the Sterling partners,&quot; said David Sheehan, legal counsel for Irving Picard, the trustee representing the group of Madoff victims. </p>
+
+<p>Among the <a href="https://web.archive.org/web/20150426153000/http://www.ny1.com/content/top_stories/135839/trustee-alleges-madoff-gave-mets-an-interest-free-loan">new complaints</a>, Picard claims that the Wilpons received an interest-free loan of $54 million from Madoff in 2004, to help their purchase of the team&apos;s broadcast rights from Cablevision. On the plus side, new first base coach Mookie Wilson was able <a href="https://web.archive.org/web/20150426153000/http://hardballtalk.nbcsports.com/2011/03/19/mookie-wilson-reclaims-his-old-number-after-castillo-release/">to reclaim</a> his jersey number (No. 1) after Luis Castillo was cut <a href="https://web.archive.org/web/20150426153000/http://gothamist.com/2011/03/18/mlb_approves_three_bidders_for_mets.php">yesterday</a>...and Wilson played for the &apos;86 Mets! And no lawsuit can take the &apos;86 team away from us. Except of course for a time traveling lawsuit. </p>					
+										
+									
+				

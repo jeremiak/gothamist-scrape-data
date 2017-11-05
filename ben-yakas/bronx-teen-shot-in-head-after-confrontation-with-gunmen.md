@@ -1,0 +1,11 @@
+---
+author: Ben Yakas
+date: June 12, 2011  7:00 PM
+title: Bronx Teen Shot In Head After Confrontation With Gunmen
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:260px; "> <img alt="61211bronxteen.jpg" src="https://web.archive.org/web/20110615051750im_/http://gothamist.com/attachments/byakas/61211bronxteen.jpg" width="260" height="194"> <br> <i>Yvette Marie Torres</i></div> A Bronx teen <a href="https://web.archive.org/web/20110615051750/http://www.nydailynews.com/news/ny_crime/2011/06/12/2011-06-12_teen_girl_shot_in_the_head_after_challenging_gunmen_for_shooting_in_the_air_is_i.html">has been hospitalized</a> after she confronted two men shooting guns in the air outside a party, and one of the gunmen shot her in the head. Yvette Marie Torres, 15, was <a href="https://web.archive.org/web/20110615051750/http://www.nbcnewyork.com/news/local/Bronx-Teenage-Girl-Shot-in-Head-123719244.html">at a party</a> in Fordham Heights on Saturday night when a fight spilled out into the street; she approached the men and asked why they were wantonly shooting into the air. &quot;She didn&apos;t know this kid. She turned around and he shot her in the back of the head. It was a sucker move,&quot; said her brother Jonathan Dimentel.<p></p>
+
+<p>Torres, who attends DeWitt Clinton High School in the Bronx, was showing &quot;good signs&quot; Sunday afternoon, but was still unconscious and breathing through a ventilator according to family.  But doctors warn that they have to wait for the swelling near her wound to go down before they can operate: &quot;There&apos;s a high risk of her passing away.&quot; Dimentel said their parents are devastated: &quot;My dad won&apos;t say a word. He is in a daze. I&apos;ve never seen him like this. All my mom does is cry.&quot; </p>
+
+<p>Police say there are differing accounts of what exactly happened at the party, though they noted that Torres wasn&apos;t part of the initial fight which led to the party spilling into the street; there have been no arrests, and police only have a vague description of the gunmen. Dimentel said he wasn&apos;t surprised she stood up to the gunmen: &quot;She has nothing but brothers. She has to be brave.&quot;</p>

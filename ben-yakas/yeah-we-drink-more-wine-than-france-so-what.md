@@ -1,0 +1,15 @@
+---
+author: Ben Yakas
+date: March 17, 2011  4:29 PM
+title: Yeah, We Drink More Wine Than France, So What?
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="31711wine.jpg" src="https://web.archive.org/web/20110412184929im_/http://gothamist.com/attachments/byakas/31711wine.jpg" width="640" height="433"> <br> <i><a href="https://web.archive.org/web/20110412184929/http://www.flickr.com/photos/michellerick/5467330414/">michelle rick&apos;s flickr</a></i></div> <p></p>
+
+<p>Just in case it hasn&apos;t been made <a href="https://web.archive.org/web/20110412184929/http://gothamist.com/tags/wine">abundantly clear</a>, NYers like their reds and their whites almost as much as they enjoy complaining about the <a href="https://web.archive.org/web/20110412184929/http://gothamist.com/tags/mta">MTA</a>. And <a href="https://web.archive.org/web/20110412184929/http://www.wineinstitute.org/resources/pressroom/03152011">according to</a> a new report by a California wine industry company, the U.S. surpassed France to become the world&apos;s largest wine consumers last year. </p>
+
+<p>Americans bought nearly 330 million cases of wine last year, coming to around $30 billion in retail sales. This would certainly be cause for national celebration, if only we hadn&apos;t blown our wad on <a href="https://web.archive.org/web/20110412184929/http://gothamist.com/2011/02/18/today_is_drink_wine_day.php">National Drink Wine Day</a>. There have been triumphant headlines in newspapers across the country, such as &quot;Put a Cork in it France,&quot; from the <a href="https://web.archive.org/web/20110412184929/http://blog.seattlepi.com/thebigblog/2011/03/15/put-a-cork-in-it-france-usa-first-in-wine-consumption/">Seattle Post-Intelligencer</a>, &quot;US: We&apos;re #Wine&quot; from <a href="https://web.archive.org/web/20110412184929/http://www.nypost.com/p/news/national/us_we_re_wine_gJ7DInVVM2ngkNN3TrGAFN?CMP=OTC-rss&amp;FEEDNAME=">the Post</a>, and &quot;We&apos;re #1&quot; from <a href="https://web.archive.org/web/20110412184929/http://www.drvino.com/">Dr. Vino</a>.</p>
+
+<p>So go forth and celebrate this day anyway America, with your trusty Starbucks <a href="https://web.archive.org/web/20110412184929/http://gothamist.com/2011/02/04/starbucks_terrifying_trenta_cups_ho.php">trenta cup</a> and a bottle of Two Buck Chuck. Or perhaps take to your stoop to enjoy some Pinot Grigio with <a href="https://web.archive.org/web/20110412184929/http://gothamist.com/2010/08/19/pairing_wine_with_fast_food.php">your KFC</a>. It&apos;s not like there&apos;s anything else <a href="https://web.archive.org/web/20110412184929/http://gothamist.com/2011/03/17/play_everyones_irish_bingo_before_y.php">going on today.</a></p>
+
+<div style="text-align: center;"><iframe title="YouTube video player" width="640" height="510" src="https://web.archive.org/web/20110412184929if_/http://www.youtube.com/embed/3BN1jSpiyIM" frameborder="0" allowfullscreen></iframe></div>

@@ -1,0 +1,25 @@
+---
+author: Ben Yakas
+date: Feb 3, 2013 2:15 pm
+title: Parents Outraged By Public Schools Offering Teens Morning-After Pill, Despite Results
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2313birthcontrol.jpeg" src="https://web.archive.org/web/20150406202350im_/http://gothamist.com/attachments/byakas/2313birthcontrol.jpeg" width="365" height="273" class="image-left"> </span>Last September, <a href="https://web.archive.org/web/20150406202350/http://gothamist.com/2012/09/23/some_nyc_public_schools_now_offerin.php">there was a report that</a> over a dozen public high schools around the city had begun to give out morning-after pills such as Plan B. Now, <a href="https://web.archive.org/web/20150406202350/http://www.nypost.com/p/news/local/city_secret_school_birth_control_39jedC7GufuBW20ps7nvZI">the Post reports that those numbers</a> are a lot bigger: about 40 separate &#x201C;school-based health centers&#x201D; have distributed 12,721 doses of Plan B in 2011-12, more than two-times the amount given out in 2009-10. This report comes just as the city Health Department <a href="https://web.archive.org/web/20150406202350/http://www.nydailynews.com/new-york/teen-pregnancy-27-nyc-report-article-1.1253933">released data showing that</a> teen pregnancy in the city has dropped by 27% over the last decade. </p>
+
+<p>&#x201C;Two things are happening here &#x2014; teens are using more contraceptives, and they&#x2019;re also delaying sexual activity,&#x201D; said Health Commissioner Tom Farley, who lauded the city&apos;s morning-after pill program as one of the keys to bringing down the pregnancy rate. &#x201C;It shows that when you make condoms and contraception available to teens, they don&#x2019;t increase their likelihood of being sexually active. But they get the message that sex is risky.&quot; </p>
+
+<p>Here are your stats, <a href="https://web.archive.org/web/20150406202350/http://www.nydailynews.com/new-york/teen-pregnancy-27-nyc-report-article-1.1253933">via the News</a>: there are about 19,080 teen pregnancies a year in the city now, down from 24,815 in 2001. For every 1,000 girls between the ages of 15 and 19, 72.6 got pregnant in 2010, down from 98.8 in 2001. The rate was 43.1 for girls 15 to 17, and 114.5 for 18- and 19-year-olds. Girls were using the Pill or other long-term birth control methods 26.9% in 2011, up from 17.3% in 2009.</p>
+
+<p>But some parents are still unhappy about the city&apos;s Plan B program: &#x201C;I&#x2019;m in shock,&#x201D; Mona Davids, president of the NYC Parents Union and mother of a 14-year-old, told the Post. &#x201C;What gives the mayor the right to decide, without adequate notice, to give our children drugs that will impact their bodies and their psyches? He has purposely kept the public and parents in the dark with his agenda.&#x201D; </p>
+
+<p>Of course, the initiative hasn&apos;t really been all that secretive: <a href="https://web.archive.org/web/20150406202350/http://gothamist.com/2012/09/25/bloomberg_supports_morning-after_pi.php">Mayor Bloomberg</a> and <a href="https://web.archive.org/web/20150406202350/http://newyork.cbslocal.com/2012/09/23/new-york-city-public-schools-offering-morning-after-pill/">Christine Quinn</a> have both commented on it, giving their full support to the pilot program. </p>
+
+<p>Davids, who is black, noted to the Post that most school-based health centers are in poor neighborhoods. &#x201C;This was population control on blacks and Latinos without our knowledge,&#x201D; she said. But as Estelle Raboni, director of Changing the Odds, an anti-teen pregnancy program at the Morris Heights Health Center, put it: &#x201C;The Bronx still has the highest teen pregnancy rate in the country.&#x201D; The News adds that Black girls have the highest pregnancy rate&#x2014;110.7 for every 1000 girls&#x2014;compared with just 16 for white girls.</p>
+
+<p>This news comes just as the White House <a href="https://web.archive.org/web/20150406202350/http://gothamist.com/2013/02/02/white_houses_second_birth_control_m.php">has proposed a compromise over</a> the so-called Birth Control Mandate&#x2014;a stipulation under the Affordable Care Act (ObamaCare, if you&apos;re a Patriot) requiring religious institutions to cover birth control through insurance&#x2014;that would allow more religiously-affiliated universities, hospitals and other agencies to opt out of paying for its employees&apos; birth control. </p>
+
+<p>It&apos;s as-yet unclear whether <a href="https://web.archive.org/web/20150406202350/http://gothamist.com/2011/07/21/when_men_demand_their_own_birth_con.php">male birth control pills</a>, once they&apos;re on the market, will be fully covered by insurance. But that would likely wipe out humanity just as a bowl of free condoms <a href="https://web.archive.org/web/20150406202350/http://gothamist.com/2011/08/04/video_colbert_warns_free_birth_cont.php">wiped out the dinosaurs.</a></p>					
+										
+									
+				

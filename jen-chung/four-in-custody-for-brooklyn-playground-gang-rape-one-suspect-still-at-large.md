@@ -1,0 +1,41 @@
+---
+author: Jen Chung
+date: Jan 11, 2016 9:17 am
+title: Four In Custody For Brooklyn Playground Gang Rape, One Suspect Still At Large
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="10915playground.jpg" src="https://web.archive.org/web/20160530063618im_/http://gothamist.com/attachments/byakas/10915playground.jpg" width="640" height="480"> <br> <i> <a href="https://web.archive.org/web/20160530063618/http://www.nycgovparks.org/parks/osborn-playground">via NYC Parks</a></i></div> <p></p>
+
+<p>Elected officials are decrying the gang rape of a young woman in a playground as police rushed to reassure the public that their response was not delayed. City Councilmember Laurie Cumbo said, &quot;When an 18-year-old girl can get raped while walking with her father in a park by five men in Brownsville, New York, we have hit an all-time moral low in the City of New York.&quot; </p>
+
+<p>Four of the suspects are now in police custody; two were apprehended by police, while the parents of two others <a href="https://web.archive.org/web/20160530063618/http://nypost.com/2016/01/11/teen-suspects-arrested-in-brutal-gang-rape-at-brooklyn-park/">brought them to the precinct</a>. These suspects are ages 14, 15, 15 and 17; the fifth suspect is still outstanding. </p>
+
+<p>The rape occurred on Thursday night, just after 9 p.m., when the victim and her father were in the Osborn Playground. <a href="https://web.archive.org/web/20160530063618/http://gothamist.com/2016/01/10/playground_rape_suspects_told_father.php">According to the NYPD</a>, &quot;they were approached by five black males, one of whom was armed with a gun. The male with the gun pointed it at them and told the father to leave the area.&quot;</p>
+
+<p>The father left, and while he was gone, each of the suspects allegedly raped the woman. When the father returned with police officers, the suspects had already fled. </p>
+
+<p><a href="https://web.archive.org/web/20160530063618/http://www.nytimes.com/2016/01/11/nyregion/parents-said-to-turn-in-2-teenagers-suspected-in-brooklyn-rape.html?rref=collection%2Fsectioncollection%2Fnyregion&amp;action=click&amp;contentCollection=nyregion&amp;region=rank&amp;module=package&amp;version=highlights&amp;contentPlacement=1&amp;pgtype=sectionfront">The NY Times reports</a>: &quot;Many questions about the assault and its aftermath remained difficult to account for. The father ran to get help, but the police official said it took him nearly 20 minutes to come upon two officers in a patrol car... The Fire Department said a call came in requesting medical help at 9:26 p.m., roughly 16 minutes after the attack started.&quot; </p>
+
+<p><a href="https://web.archive.org/web/20160530063618/http://www.nydailynews.com/new-york/brooklyn/nypd-fire-slow-response-rape-report-brooklyn-article-1.2491590">A deli worker told the Daily News</a> that the father asked to use his phone, but he refused, not believing the father&apos;s explanation, &quot;He looked normal. He didn&#x2019;t look nervous or desperate... A lot of people come here asking to use the phone. I feel bad now knowing why he needed the phone.&quot;</p>
+
+<p>Brooklyn Borough President Eric Adams said, &quot;The circumstances of this crime are particularly troubling to me, and I am calling on the NYPD to conduct a full investigation not only to identify all those responsible for this horrific attack, but also to determine if everything possible was done to protect the victim and the public.&quot; He suggested that the police would have been quicker to notify the public if the incident occurred in Manhattan. </p>
+
+<p>A police source claimed to the News that &quot;detectives were not immediately able to interview the victim... She first needed treatment for unspecified existing medical conditions, as well as the wounds she suffered during the sadistic attack, the source said. The woman was initially combative, refusing an EMS exam and hospital transport, the source said, adding she also tried to leave the ambulance and bit a police officer.&quot;</p>
+
+<p>Police released the surveillance video of the suspects on Saturday evening. Yesterday, the department released a statement, &quot;There was no delay in responding to the rape in the 73 Precinct.&quot;</p><blockquote>A patrol car from the 73 Precinct was approached on the street and told about the attack by the victim&#x2019;s father, who directed the officers to the scene. The police officers immediately responded and located the victim. The suspects had already fled. The police officers called for a supervisor and an ambulance, which responded and transported the victim to the hospital. There was no delay in the police response. There were no 911 calls associated with the attack, contrary to media reports.<br>
+ <br>
+There was no probative video in the immediate area of the attack. However, detectives in conducting an expanded canvas were able to find video in a bodega, after an extensive search around 2 p.m. on Saturday, January 9. After review, retrieval and copying, the video was distributed to the media around 8 p.m. on Saturday to help identity the five males. The commanding officer of the precinct  began contacting local community leaders preliminarily on Friday, January 8.</blockquote>Still, Councilmember Cumbo blasted Police Commissioner Bill Bratton&apos;s remarks that <a href="https://web.archive.org/web/20160530063618/http://www.wnyc.org/story/commissioner-bratton/">women use a &quot;buddy system&quot;</a> to prevent attacks, &quot;If a father cannot protect his own daughter in this day and age then it is obvious that the so called &apos;buddy system&apos; is sexist, antiquated and an insult to women throughout New York City. We do not need a buddy system. Every woman in New York City has the right to feel safe and protected at all times within the greatest City in the world.&quot;<p></p>
+
+<p>Instead, Cumbo said, &quot;What we need is a strategy, resources, manpower, enforcement and a plan to keep every single woman in the City of New York safe. We want and desperately need your support in apprehending these individuals that committed this heinous act. These individuals do not deserve to live amongst us in this society and should be captured and prosecuted to the fullest extent of the law.&quot;</p>
+
+<p>A worker at the deli where surveillance footage of the suspects was obtained told the Times he &quot;recognized the suspects as young men who came to the store most afternoons, sometimes stealing cakes and other snacks. &apos;They&#x2019;re bad boys,&apos; he said, shaking his head.&quot; </p>
+
+<p><iframe frameborder="0" width="640" height="360" src="//web.archive.org/web/20160530063618if_/http://www.dailymotion.com/embed/video/x3lo7rs" allowfullscreen></iframe><br><a href="https://web.archive.org/web/20160530063618/http://www.dailymotion.com/video/x3lo7rs_suspects-in-january-7-brooklyn-rape_news" target="_blank">Suspects in January 7 Brooklyn rape</a> <i>by <a href="https://web.archive.org/web/20160530063618/http://www.dailymotion.com/Gothamist" target="_blank">Gothamist</a></i></p>
+
+<p>Another issue that B.P. Adams brought up was &quot;better lighting and design of public spaces like Osborn Playground&quot;; apparently now the Department of Transportation, which oversees lighting, will inspect the space.</p>
+
+<p>Mayor Bill de Blasio said, &quot;I am disgusted and deeply saddened by the horrific attack that took place in Brownsville Thursday evening. We will take every step possible to find and swiftly prosecute the assailants of this vicious crime. Every New Yorker in every neighborhood deserves to feel safe and protected, and we will not stop until the perpetrators of this disturbing attack are held accountable for their actions. This administration has zero tolerance for sexual attacks, and we will work to ensure a crime of this nature never happens again.&quot;</p>					
+										
+									
+				

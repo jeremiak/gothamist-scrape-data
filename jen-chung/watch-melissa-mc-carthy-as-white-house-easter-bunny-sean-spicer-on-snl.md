@@ -1,0 +1,27 @@
+---
+author: Jen Chung
+date: Apr 16, 2017 8:30 am
+title: Watch Melissa McCarthy As White House Easter Bunny Sean Spicer On SNL
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2017_04_mmspicey.jpg" src="https://web.archive.org/web/20171004224327im_/http://gothamist.com/attachments/jen/2017_04_mmspicey.jpg" width="640" height="463"> <br> <i> Whee!</i></div> <p></p>
+
+<p>Melissa McCarthy will be <a href="https://web.archive.org/web/20171004224327/http://gothamist.com/2017/03/16/melissa_mccarthy_the_rock_jimmy_fal.php">hosting on May 13</a>, but she returned to the show last night&#x2014;for the first <em>Saturday Night Live</em> broadcast live across the country and Canada&#x2014;once again playing extremely beleaguered White House Press Secretary Sean Spicer. As Easter is a time for forgiveness, McCarthy&apos;s Spicer apologized for <a href="https://web.archive.org/web/20171004224327/http://www.newyorker.com/news/amy-davidson/sean-spicer-is-very-sorry-about-his-holocaust-comments">his Holocaust gaffe</a>, &quot;Spicey finally made a mistake. I know they&#x2019;re not really called the &#x2018;Holocaust centers&#x2019;&#x2026;I clearly meant to say &#x2018;concentration club,&#x2019; okay? Let it drop!&quot;</p>
+
+<p>McCarthy was appeared in an Easter Bunny costume, a nod to <a href="https://web.archive.org/web/20171004224327/http://www.silive.com/news/2017/04/as_prep.html">Spicer&apos;s actual White House history</a>, explaining that everyone needed to &quot;shut up&quot; because he was &quot;sweating [his] Easter eggs&quot; in the outfit. &quot;Spicer&quot; also mangled Bashar al-Assad&apos;s name during the apology, referring to him as &quot;Bazooka Phylicia Ahmad Rashad.&quot; </p>
+
+<div><iframe width="640" height="360" src="https://web.archive.org/web/20171004224327if_/https://www.youtube.com/embed/_RvfzFv3c6Y" frameborder="0" allowfullscreen></iframe></div><br>
+
+<p>&quot;It would be really great if the nitpickers could try and see the big picture and didn&#x2019;t solely focus on every little slur and lie I say,&quot; an exasperated &quot;Spicer&quot; said. &quot;P.S., I would like you to also know, that I am sensitive to the fact that they were sent there on trains but hey, at least they didn&#x2019;t have to fly United&#x2014;am I right?&quot; </p>
+
+<p>Then &quot;Spicey&quot; decided to educate all the &quot;goys&quot; about Passover&#x2014;and used <a href="https://web.archive.org/web/20171004224327/https://en.wikipedia.org/wiki/VeggieTales">Veggie Tales</a> dolls to do so. &quot;Pharoah, he is a bad, bad hombre, and he&apos;s doing bad stuff to the Jews.&quot; </p>
+
+<p>After casually mentioning, &quot;The President&apos;s probably going to bomb North Korea tonight,&quot; McCarthy said, &quot;Spicey&apos;s gotta hippity-hop... Just eat as much candy as you want because this is probably the last Easter on Earth.&quot;</p>
+
+<div><blockquote class="instagram-media" data-instgrm-captioned="" data-instgrm-version="7" style=" background:#FFF; border:0; border-radius:3px; box-shadow:0 0 1px 0 rgba(0,0,0,0.5),0 1px 10px 0 rgba(0,0,0,0.15); margin: 1px; max-width:658px; padding:0; width:99.375%; width:-webkit-calc(100% - 2px); width:calc(100% - 2px);"><div style="padding:8px;"> <div style=" background:#F8F8F8; line-height:0; margin-top:40px; padding:50.0% 0; text-align:center; width:100%;"> <div style=" background:url(data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAACwAAAAsCAMAAAApWqozAAAABGdBTUEAALGPC/xhBQAAAAFzUkdCAK7OHOkAAAAMUExURczMzPf399fX1+bm5mzY9AMAAADiSURBVDjLvZXbEsMgCES5/P8/t9FuRVCRmU73JWlzosgSIIZURCjo/ad+EQJJB4Hv8BFt+IDpQoCx1wjOSBFhh2XssxEIYn3ulI/6MNReE07UIWJEv8UEOWDS88LY97kqyTliJKKtuYBbruAyVh5wOHiXmpi5we58Ek028czwyuQdLKPG1Bkb4NnM+VeAnfHqn1k4+GPT6uGQcvu2h2OVuIf/gWUFyy8OWEpdyZSa3aVCqpVoVvzZZ2VTnn2wU8qzVjDDetO90GSy9mVLqtgYSy231MxrY6I2gGqjrTY0L8fxCxfCBbhWrsYYAAAAAElFTkSuQmCC); display:block; height:44px; margin:0 auto -44px; position:relative; top:-22px; width:44px;"></div></div> <p style=" margin:8px 0 0 0; padding:0 4px;"> <a href="https://web.archive.org/web/20171004224327/https://www.instagram.com/p/BS7tCnoAypB/" style=" color:#000; font-family:Arial,sans-serif; font-size:14px; font-style:normal; font-weight:normal; line-height:17px; text-decoration:none; word-wrap:break-word;" target="_blank">Spicey gone wild!!! #LiveFromLA #FallonStylesSNL @nbcsnl</a></p> <p style=" color:#c9c8cd; font-family:Arial,sans-serif; font-size:14px; line-height:17px; margin-bottom:0; margin-top:8px; overflow:hidden; padding:8px 0 7px; text-align:center; text-overflow:ellipsis; white-space:nowrap;">A post shared by Melissa McCarthy (@melissamccarthy) on <time style=" font-family:Arial,sans-serif; font-size:14px; line-height:17px;" datetime="2017-04-16T04:30:06+00:00">Apr 15, 2017 at 9:30pm PDT</time></p></div></blockquote> <script async defer src="//web.archive.org/web/20171004224327js_/http://platform.instagram.com/en_US/embeds.js"></script></div><br>
+
+<p>McCarthy, whose <a href="https://web.archive.org/web/20171004224327/http://gothamist.com/tags/melissamccarthy">Spicer impression</a> has become the breakout this season,  <a href="https://web.archive.org/web/20171004224327/http://www.philly.com/philly/blogs/real-time/SNL-Donald-Trump-Alec-Baldwin-Jimmy-Fallon-Melissa-McCarthy-Sean-Spicer.html">did the segment by satellite</a> from Los Angeles. She&apos;ll be in New York on May 13, to host the show, which will be another live event. </p>					
+										
+									
+				

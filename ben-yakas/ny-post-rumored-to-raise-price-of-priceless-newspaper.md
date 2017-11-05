@@ -1,0 +1,15 @@
+---
+author: Ben Yakas
+date: June 22, 2011  1:55 PM
+title: NY Post Rumored To Raise Price Of Priceless Newspaper
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="62211post.jpg" src="https://web.archive.org/web/20110629163440im_/http://gothamist.com/attachments/byakas/62211post.jpg" width="640" height="231"> <br> <i>Some classic NY Post covers</i></div> <p></p>
+
+<p>The price of perfection is about to be raised ever so higher: according <a href="https://web.archive.org/web/20110629163440/http://www.adweek.com/news/press/new-york-post-raise-newsstand-price-132776">to Adweek</a>, the NY Post is raising the newsstand price of the paper a quarter, to 75 cents, next Monday. The secret initiative came with its own mandate from the higher-ups to put out better stories to offset the change in price: &#x201C;The boss himself has put the order out that [the paper] will be even greater than usual. He&#x2019;ll be looking for what is there and what is lacking. So, please, pull some good ones out of your bags of tricks,&#x201D; said one memo to the reporters.</p>
+
+<p>It&apos;s understandable that the Post would be nervous about the shift&#x2014;after they gained a slight edge over the Daily News in terms of circulation in 2007, they <a href="https://web.archive.org/web/20110629163440/http://gothamist.com/2007/04/30/to_the_quarters.php">raised the price a quarter</a> only to have the News cut prices in half. That initiative only lasted ten days, but the Post eventually raised the daily price to 50 cents <a href="https://web.archive.org/web/20110629163440/http://gothamist.com/2008/05/19/get_out_that_ex.php">in 2008</a>. The Daily News, which has a slightly higher circulation (512,520), still costs 50 cents.</p>
+
+<p>In addition to that concern about competition, Adweek says the price increase is a surprise because of how much money and circulation the paper is bleeding&#x2014;the Post had a circulation of 667,119 <a href="https://web.archive.org/web/20110629163440/http://www.usatoday.com/tech/webguide/internetlife/2007-11-05-newspaper-circulation_N.htm">in 2007</a> (which already 5 percent from six months before that), and has a circulation of <a href="https://web.archive.org/web/20110629163440/http://nyjobsource.com/papers.html">501,501 today.</a> They also note that the Rupert Murdoch-owned paper &quot;reportedly loses tens of millions of dollars every year.&quot;</p>
+
+<p>Oh sure, you could spend $2 on the NY Times on a weekday (and over $5 on Sundays)...or you could just read the entire NY Post (and News) online. Or, if you really do want the physical paper, you can always fish a copy out of the trash on any street corner. Then, you could put that extra quarter toward good use, like buying a <a href="https://web.archive.org/web/20110629163440/http://www.makefive.com/categories/experiences/other/top-5-gums-and-flavors/winterfresh">stick of gum</a>!</p>

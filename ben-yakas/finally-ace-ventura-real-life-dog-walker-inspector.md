@@ -1,0 +1,11 @@
+---
+author: Ben Yakas
+date: December 26, 2010  2:39 PM
+title: Finally: Ace Ventura, Real Life Dog-Walker Inspector
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="122610ventura.jpg" src="https://web.archive.org/web/20110412173131im_/http://gothamist.com/attachments/byakas/122610ventura.jpg" width="240" height="180" class="image-left"> </span></p>
+
+<p>If you&apos;re like us, then you&apos;ve spent many a sleepless night wishing that Ace Ventura Pet Detective was a real thing. Well you can stop pinching yourself, because this is your lucky Boxing Day: the <a href="https://web.archive.org/web/20110412173131/http://www.nypost.com/p/news/local/manhattan/real_ace_ventura_laJM27zl8N5qgy97a456IN?CMP=OTC-rss&amp;FEEDNAME=">Post profiles</a> Brock Schwartz, a 29-year-old dog-walker inspector who investigates the dark and twisted world of dog walkers, like a character out of a Raymond Chandler story. Or um, Ace Ventura.</p>
+
+<p>Schwartz says he has a list of more than 20 regular affluent clients, and also performs many one-time $50 inspections. His background is torn from the biography of any classic outlaw gumshoe: he is a former dog walker who was disgusted by the &quot;unethical&quot; company he worked for, leaving them to start his own security business in 2008. He&apos;s paid to spy on walkers during their shifts, plant cameras in houses, and more. And his cases range from walkers spending less time walking the dogs than they should, to lazy walkers who made dogs go to the bathroom in the bath tub as to avoid a trip outside. We&apos;re just overjoyed that the promise of Ace Ventura has finally been fulfilled. Considering all his undercover work, we hope he doesn&apos;t out any <a href="https://web.archive.org/web/20110412173131/http://gothamist.com/2006/02/09/kitty_cat_helps.php">undercover animals</a>. As long as he remembers that <a href="https://web.archive.org/web/20110412173131/http://www.youtube.com/watch?v=QH4UL6btePY">Finkle is Einhorn</a>, he&apos;ll be OK. </p>

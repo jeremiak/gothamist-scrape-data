@@ -1,0 +1,23 @@
+---
+author: Jen Chung
+date: June  9, 2012  1:25 PM
+title: I'll Have Another To Have Ceremonial Retirement Before Belmont Stakes
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2012_06_illhaveanother2.jpg" src="https://web.archive.org/web/20120610091810im_/http://gothamist.com/attachments/jen/2012_06_illhaveanother2.jpg" width="640" height="512"> <br> <i> I&apos;ll Have Another this morning (via <a href="https://web.archive.org/web/20120610091810/https://twitter.com/BelmontStakes/status/211464890492264448">Belmont Stakes</a></i></div> <p></p>
+
+<p>After announcing that <a href="https://web.archive.org/web/20120610091810/http://gothamist.com/2012/06/08/no_triple_crown_ill_have_another_dr.php">hopes for a Triple Crown were over with his retirement</a>, the Kentukcy Derby and Preakness winner I&apos;ll Have Another will have a ceremonial retirement before today&apos;s Belmont Stakes. According to the Belmont Stakes, &quot;I&#x2019;ll Have Another&#x2019;s grooms will lead him to the paddock shortly after the conclusion of the Woodford Reserve Manhattan (5:37 p.m. post), and then walk him to the winner&#x2019;s circle where trainer Doug O&#x2019;Neill will remove his saddle. The ceremony will occur at approximately 5:53 p.m. and will be shown live on NBC.&quot;</p>
+
+<p>O&apos;Neill said, &quot;We felt that this would be a fitting ceremonial retirement for an incredible racehorse. There are many fans who traveled from near and far to see I&#x2019;ll Have Another today, and we wanted to give them a chance to help us send him off to retirement.&quot; The horse will <a href="https://web.archive.org/web/20120610091810/http://www.belmontstakes.com/story/2012/06/08/i%E2%80%99ll-have-another-out-of-belmont-stakes-retired-will-lead-saturday%E2%80%99s-post-parade-for-belmont-stakes/">also lead the post-parade</a>.</p>
+
+<p>The horse apparently developed a swelling in his left front tendon, a pre-development of tendonitis, and O&apos;Neill said, &quot;This is extremely tough for all of us. It&#x2019;s far from tragic but it&#x2019;s extremely disappointing... He has been a little quiet the last few days of galloping but his legs have been great. Yesterday he galloped great, but in the afternoon we noticed some loss of definition in his left front leg &#x2026; we prayed he kind of hit himself and that it was a little bit of skin irritation. We did him up in a special poultice, and this morning he looked great. We did just a little easy gallop with him this morning. I thought he looked great on the track.</p>
+
+<p><iframe width="640" height="480" src="https://web.archive.org/web/20120610091810if_/http://www.youtube.com/embed/DcQGEer_PuM" frameborder="0" allowfullscreen></iframe></p>
+
+<p>The Belmont Stakes is considered the longest and most gruel of the races.  However, some skeptics have said there were economic reasons to pulling out of the last leg of the Triple Crown.   <a href="https://web.archive.org/web/20120610091810/http://newyork.cbslocal.com/2012/06/08/ill-have-anothers-retirement-is-all-about-big-money/">CBS&apos;s Kevin Martin and Adam Wiener</a> point out, &quot;The last two horses to win the Kentucky Derby and Preakness Stakes, Smarty Jones in 2004 and Big Brown in 2008, both retired and had their stud fees set at $100,000. Simply put, for every mare they impregnated who gives birth to a live, healthy foal, the breeder received a $100,000 check from the mare&#x2019;s owner. The winner&#x2019;s share in this year&#x2019;s Belmont Stakes is $600,000.  An ambitious breeder could easily exceed that in one week with a Derby-winning colt like I&#x2019;ll Have Another.&quot;</p>
+
+<p>Race goes were upset.  One Long Island resident<a href="https://web.archive.org/web/20120610091810/http://www.nytimes.com/2012/06/09/sports/belmont-stakes-ill-have-anothers-injury-leaves-track-deflated.html?ref=sports"> told the NY Times</a> he&apos;s been coming every year since 1980 and called his reaction to the scratch as &quot;Shock and disappointment. It&#x2019;s like the air comes out of the balloon. I got here today, and I was in such good spirits... I&#x2019;m sure there will be 30,000 less people here tomorrow now.&#x201D;</p>
+
+<p>The Bleacher Report <a href="https://web.archive.org/web/20120610091810/http://bleacherreport.com/articles/1215086-belmont-stakes-2012-evaluating-new-favorites-with-ill-have-another-scratch">has a look the new favorites</a>, including Dullahan&#x2014;here&apos;s him galloping yesterday:</p>
+
+<p><iframe width="640" height="480" src="https://web.archive.org/web/20120610091810if_/http://www.youtube.com/embed/UK9y2D2Lv5k" frameborder="0" allowfullscreen></iframe></p>

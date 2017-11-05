@@ -1,0 +1,23 @@
+---
+author: Ben Yakas
+date: Dec 6, 2012 2:55 pm
+title: Subway Shoving Suspect Pleads Not Guilty: "He Attacked Me First"
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="12612shover.jpg" src="https://web.archive.org/web/20171026135621im_/http://gothamist.com/attachments/byakas/12612shover.jpg" width="640" height="427"> <br> <i> Naeem Davis in court yesterday (AP)</i></div> <p></p>
+
+<p>Yesterday, the homeless suspect <a href="https://web.archive.org/web/20171026135621/http://gothamist.com/tags/subwayshoving">who was arrested for allegedly fatally shoving a Queens man into the subway tracks</a> in Manhattan on Monday was formally charged with murder in the 2nd degree. Naeem Davis, 30, <a href="https://web.archive.org/web/20171026135621/http://gothamist.com/2012/12/05/subway_shoving_suspect_charged_with.php">pleaded not guilty</a> to shoving 58-year-old Ki-Suck Han onto the tracks at the 49th Street N/R/Q station. As he was leaving court, Davis went one further <a href="https://web.archive.org/web/20171026135621/http://www.cbsnews.com/8301-201_162-57557491/subway-death-suspect-naeem-davis-he-attacked-me-first/">telling reporters</a>, <strong>&quot;He attacked me first. He grabbed me.&quot;</strong></p>
+
+<p><a href="https://web.archive.org/web/20171026135621/http://www.nypost.com/p/news/local/manhattan/killer_blame_victim_E9Bvuskhmb7kKlOJXxxoZL">According to the Post</a>, Davis also claimed he shoved Han onto the tracks after seeing Han brandish something resembling a knife. His legal aid defense lawyer, Stephen Pokart, echoed that statement, saying Han was the aggressor during the confrontation, telling reporters outside court that his client reportedly &quot;was involved in an incident with a man who was drunk and angry.&quot; </p>
+
+<p>Han&apos;s wife has previously said that she had argued with her husband that morning and that he had a drinking problem. &#x201C;He was drunk. We had a fight before he left here at 11 a.m. I told him to leave,&#x201D; she <a href="https://web.archive.org/web/20171026135621/http://www.nypost.com/p/news/local/queens/subway_wife_wants_last_love_you_uowTl5OJYXkfmM2tO91zTN">told the Post Monday night.</a> Han <a href="https://web.archive.org/web/20171026135621/http://gothamist.com/2012/12/06/subway_shoving_victims_family_is_de.php#photo-1">was also found</a> with a bottle of vodka on him. Here&apos;s a video of Han and Davis in a confrontation before the deadly push:</p>
+
+<p><iframe src="https://web.archive.org/web/20171026135621if_/http://player.vimeo.com/video/54853116?title=0&amp;byline=0&amp;portrait=0&amp;badge=0" width="640" height="360" frameborder="0" webkitallowfullscreen="" mozallowfullscreen="" allowfullscreen></iframe> </p><p><a href="https://web.archive.org/web/20171026135621/http://vimeo.com/54853116">Video of altercation between alleged subway shover and victim</a> from <a href="https://web.archive.org/web/20171026135621/http://vimeo.com/gothamist">Gothamist</a> on <a href="https://web.archive.org/web/20171026135621/http://vimeo.com/">Vimeo</a>.</p><p></p>
+
+<p>Davis bumped into 58-year-old Han just after noon on Monday. &#x201C;He wouldn&#x2019;t leave me alone, so I pushed him,&#x201D; Davis allegedly told investigators. &#x201C;I saw him get hit by the train,&#x201D; he added, saying he stayed at the platform after he pushed Han onto the tracks. Prosecutor James Lin brought that up yesterday as well: &quot;The defendant never once offered any aid to the victim as the train approached the platform and in fact, this defendant watched the train hit the victim,&quot; Lin said.</p>
+
+<p><a href="https://web.archive.org/web/20171026135621/http://www.nypost.com/p/news/local/manhattan/killer_blame_victim_E9Bvuskhmb7kKlOJXxxoZL">The Post has</a> a few more details about Davis: he has more than a dozen arrests for minor offenses (including burglary, breaking into vehicles and peddling), he shaved his dreadlocks after the incident, and that he asked for a copy of the NY Post after seeing his face on it:  &#x201C;Look, I&#x2019;m on the front page of The Post,&#x201D; he reportedly said. &#x201C;Can I get that paper?&#x201D; They also spoke to Hell&#x2019;s Kitchen T-shirt vendor Cheikh Diakhate, whose kids often spent time with Davis: &#x201C;They liked him,&#x201D; Diakhate said. &#x201C;When I told them they caught him, they were crying. He&#x2019;d buy them ice cream; sometimes it was his last five bucks. He was so nice to my kids. I never think...he could do this. I never saw him angry.&#x201D;</p>					
+										
+									
+				

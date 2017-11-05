@@ -1,0 +1,26 @@
+---
+author: Jen Chung
+date: Jul 25, 2013 11:20 am
+title: New NYC Subway Map Elegantly Inspired By Concentric Circles
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2013-07_subwacircle2.jpg" src="https://web.archive.org/web/20150429053817im_/http://gothamist.com/attachments/jen/2013-07_subwacircle2.jpg" width="640" height="453"> <br> <i> NYC Subway Circles map, used with permission from Max Roberts</i></div> <p></p>
+
+<p>Debating the merits of various subway designs is a classic NYC pastime. There&apos;s <a href="https://web.archive.org/web/20150429053817/http://gothamist.com/2010/12/08/map_nerds_debate_relative_merits_of.php#photo-3">Massimo Vignelli&apos;s 1972 design</a>. There&apos;s the geographically accurate <a href="https://web.archive.org/web/20150429053817/http://gothamist.com/2010/12/08/map_nerds_debate_relative_merits_of.php#photo-1">current version</a> designed by <a href="https://web.archive.org/web/20150429053817/http://gothamist.com/2007/08/03/michael_hertz_d.php">Michael Hertz</a>. There&apos;s the Vignelli-inspired <a href="https://web.archive.org/web/20150429053817/http://gothamist.com/2007/04/23/kick_map_finds.php">2007 Kick Map from Eddie Jabbour</a>. And now, to blow everyone&apos;s minds, there&apos;s the Max Roberts&apos; Circles map.</p>
+
+<p>Roberts, a psychologist who lectures at the University of Essex in the U.K., focuses <a href="https://web.archive.org/web/20150429053817/http://privatewww.essex.ac.uk/~mjr/underground/tubemap.html">his studies on schematic mapping and wayfinding information</a>. He designs maps and conducts studies to see how usable they are (he&apos;s consulted for Transport for London, the transit agency that runs the Underground). He created a <a href="https://web.archive.org/web/20150429053817/http://londonist.com/2013/01/alternative-tube-maps-straight-lines-and-circles.php">London tube map based on concentric circles for fun</a> earlier this year and has now created one for NYC. </p>
+
+<p><a href="https://web.archive.org/web/20150429053817/http://mlkshk.com/r/SVPQ"><img src="https://web.archive.org/web/20150429053817im_/http://mlkshk.com/r/SVPQ" width="640"></a><br>
+<span class="photo_caption">Click for a larger version&#x2014;used with permission from Max Roberts</span>  </p>
+
+<p>Roberts, who has also created circular maps for other cities like Berlin, Paris, Tokyo, Washington DC, and Chicago, tells us, &quot;I don&apos;t think that these maps are particularly easy to use, and they do distort geography, but they force a city into an unprecedented level of organization, and people find them fresh and exciting (<strong>or horrific, but I feel that if I delight half the people and horrify the other half then I must be doing something right</strong>).</p>
+
+<p>&quot;New York shouldn&apos;t work in this style at all, it is a grid city, not a radial city, and you can see which parts I got into a fight with, but overall it is quite striking,&quot; Roberts adds. &quot;Diagram purists (such as Vignelli fans) will love it, geographical purists will be after my blood!&quot; But that&apos;s part of the fun, right?!</p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <a href="https://web.archive.org/web/20150429053817/http://gothamist.com/attachments/jen/1958map.jpg"> <img alt="1958map.jpg" src="https://web.archive.org/web/20150429053817im_/http://gothamist.com/assets_c/2013/07/1958map-thumb-563x682-800523.jpg" width="300" height="363" class="image-right"> </a> </span>Further, he says, &quot;I&apos;ve always liked the <a href="https://web.archive.org/web/20150429053817/http://2.bp.blogspot.com/_OBcBbXOBT-Y/S4Grb9OHwdI/AAAAAAAAA1w/QeEDh7PtcAw/s1600-h/NY1967A.jpg">1958 diagram by George Salomon</a> [pictured at right], it is tricky to work out what all the lines are doing, but very elegant.<strong> Salomon suggested to use more then three colors, but the MTA wasn&apos;t ready for that innovation. </strong><a href="https://web.archive.org/web/20150429053817/http://www.maround.com/mablog/tyler_askew/1972_mta.jpg">Vignelli&apos;s 1972 map</a> is much maligned and misunderstood. His original has a much more powerful shape than the new <a href="https://web.archive.org/web/20150429053817/http://gothamist.com/2011/09/16/mta_brings_1970s_vignelli_subway_ma.php#photo-1">reworked Weekender version</a>, but the chaotic line color-scheme of the original made it off-putting to use, even for people who like diagrams.&quot;</p>
+
+<p>&quot;Personally, I think that every large network should always issue two maps, a good geographical map and a good diagram so that people can choose which they prefer. Paris and Berlin offer both, London only a diagram, New York only a semi-geographical map,&quot; Roberts said. &quot;<strong>You just can&apos;t please all people with just one design, and the gulf between the desires for simple straight lines versus geographical precision is almost always impossible to resolve</strong>. That&apos;s probably why there are so many independent maps of the New York subway on the internet and that you can buy.&quot;</p>					
+										
+									
+				

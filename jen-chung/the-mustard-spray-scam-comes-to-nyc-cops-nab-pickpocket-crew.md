@@ -1,0 +1,21 @@
+---
+author: Jen Chung
+date: Dec 23, 2016 10:45 am
+title: The 'Mustard Spray Scam' Comes To NYC: Cops Nab Pickpocket Crew
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2016_12_pickpocket12.jpg" src="https://web.archive.org/web/20171016015749im_/http://gothamist.com/attachments/jen/2016_12_pickpocket12.jpg" width="640" height="431"> <br> <i> (istockphoto)</i></div> <p></p>
+
+<p>New Yorkers have had to navigate scams like &quot;<a href="https://web.archive.org/web/20171016015749/http://gothamist.com/2008/11/15/the_broken_glasses_scam_revisited.php">You broke my glasses</a>&quot; (also known as &quot;You broke my [medication]&quot;), the <a href="https://web.archive.org/web/20171016015749/http://gothamist.com/2015/09/16/another_pigeon_drop_con.php">pigeon drop</a>, the <a href="https://web.archive.org/web/20171016015749/http://gothamist.com/2006/10/27/revisiting_comm.php">&quot;help me out...&quot;</a> for decades. Now police say they&apos;ve arrested four people in Queens who used a confidence trick usually applied to tourists overseas&#x2014;the &quot;sprayed substance scam.&quot;</p>
+
+<p>Also known as the &quot;mustard spray scam&quot; or &quot;bird poop scam&quot; <a href="https://web.archive.org/web/20171016015749/https://www.lonelyplanet.com/thorntree/forums/americas-south-america/argentina/buenos-aires-spitting-mustard-trick">in South America</a>, the victim is sprayed with some sort of gross liquid, and then the scammer approaches, pretending to help clean off the tourist, but in reality picks the victim&apos;s pocket. The confidence trick is mentioned on various <a href="https://web.archive.org/web/20171016015749/https://www.tripadvisor.com/ShowTopic-g312741-i979-k7229522-Beware_the_Mustard_spray_scam_in_Buenos_Aires-Buenos_Aires_Capital_Federal_District.html">travel message boards</a>, <a href="https://web.archive.org/web/20171016015749/http://www.clark.com/hottest-scams-targeting-international-travelers">websites</a> and <a href="https://web.archive.org/web/20171016015749/http://www.dailymail.co.uk/travel/travel_news/article-2942564/Top-10-travel-scams-confidence-tricks-revealed-avoid-them.html">articles</a>.</p>
+
+<p>For the Queens incidents, the NYPD says the victims &quot;were approached after they withdrew money from a bank and were sprayed with an unknown substance. The members of the crew offered the victims assistance with removing the substance from their body or clothing but then removed the victim&apos;s money instead.&quot;</p><blockquote>Incident #1: It was reported to police that Thursday, September 8, 2016 at 1438 hours, the victim, a 52-year-old female, withdrew $3,000 in cash from a Chase Bank located at 39-01 Main Street, in the confines of the 109th Precinct. The victim exited the bank and was approached in front of 135-45 Roosevelt Avenue by a male and female who said the victim had a substance on her back. The male and female offered assistance to the victim, who shortly thereafter discovered that her bag was open and her cash had been removed. <br>
+ <br>
+Incident #2: On Tuesday, November 29, 2016 at 1250 hours in front of 254-05 Hillside Avenue, in the confines of the 105th Precinct, the victim, an 80-year-old female, who had just exited the Capital One Bank located at 257-03 Hillside Avenue, was approached in front of 254-05 Hillside Avenue by a male and female who told her she had a substance on her ear. The male and female offered assistance to the victim, who shortly thereafter discovered that $350 had been removed from her jacket pocket.</blockquote>Police arrested Claudria Londono Rodriguez, 40, who was charged with grand larceny in both incidents. Danny Guerrero Arbelaez, 35, was charged with grand larceny in the September incident and Francisco Puerta Baracaldo, 38, and Javier Rodriguez Velasco, 38, were both charged with grand larceny for the November incident. <p></p>
+
+<p><a href="https://web.archive.org/web/20171016015749/http://www.batips.com/need-to-know/scams/">A Buenos Aires travel tip site says</a>, &quot;To protect yourself, don&#x2019;t let anyone help you clean up or let them lead you to a place where they say you can clean up. If they touch you or get too close, get angry and yell at them.&quot;</p>					
+										
+									
+				

@@ -1,0 +1,11 @@
+---
+author: Ben Yakas
+date: January  5, 2011  3:30 PM
+title: Bronx "Bully" Stabbed With Scissors, In Critical Condition 
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="1511scissors.jpg" src="https://web.archive.org/web/20110323021713im_/http://gothamist.com/attachments/byakas/1511scissors.jpg" width="200" height="160" class="image-left"> </span></p>
+
+<p>A special needs Bronx teenager is in <a href="https://web.archive.org/web/20110323021713/http://online.wsj.com/article/AP9bf510e2f047463591fb88775b8495b7.html">critical condition</a> after he was stabbed in the neck today during a confrontation outside of his school. Police say that Negro Rivera, 16, was jumped while walking to PS 12 Lewis and Clark School early this morning, and was taken to Jacobi Medical Center where he underwent hours of surgery. &quot;They stabbed him in the jugular. Why didn&apos;t anyone step in? Why didn&apos;t anyone help?&quot; his grandmother Barbara Rivera asked.</p>
+
+<p>Rivera&apos;s classmates were not as sympathetic however: according to them, the 6-foot-2 Rivera, who has learning disabilities, is a notorious troublemaker:  &quot;Negro had it coming to him. He was the class bully. He slapped me yesterday in the face for no reason. Looks like he picked on the wrong person this time,&quot; Monique Jones, 16, told <a href="https://web.archive.org/web/20110323021713/http://www.nydailynews.com/news/ny_crime/2011/01/05/2011-01-05_student_16_stabbed_in_the_neck_outside_bronx_school_in_serious_condition.html">the News</a>. Another classmate, Harry Texidor, told <a href="https://web.archive.org/web/20110323021713/http://cityroom.blogs.nytimes.com/2011/01/05/boy-stabbed-outside-school-in-bronx/?partner=rss&amp;emc=rss">the Times</a>, &#x201C;He likes to bully on little kids. He threw a little kid&#x2019;s hat in the garbage because he said he was gay.&quot; And indeed, police believe Rivera was in a fight earlier this week, and was attacked by a group of kids looking for revenge. They found a pair of bloody scissors on the scene, but have yet to determine if the attackers were from PS 12, which is on the state&apos;s list of &quot;persistently dangerous&quot; schools, and boasts a high suspension rate of 24 percent of the school.</p>

@@ -1,0 +1,19 @@
+---
+author: Jen Chung
+date: Apr 15, 2014 12:07 pm
+title: East River Fireworks Are More Expensive Because NJ Isn't Sharing Costs
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2014_04_gpjuly4.jpg" src="https://web.archive.org/web/20150524003332im_/http://gothamist.com/attachments/jen/2014_04_gpjuly4.jpg" width="640" height="480"> <br> <i> Photograph of the 2008 Fireworks, as seen from a Greenpoint rooftop, by <a href="https://web.archive.org/web/20150524003332/https://www.flickr.com/photos/repose/2637434653">repose</a></i></div> <p></p>
+
+<p>Yesterday, Mayor de Blasio thrilled his Brooklyn base by <a href="https://web.archive.org/web/20150524003332/http://gothamist.com/2014/04/14/de_blasios_new_york_fireworks_comin.php">announcing the Macy&apos;s July 4th Fireworks would be returning to the East River </a>after a five year stint over the Hudson River. While he said he wanted to move the fireworks around from year to year, de Blasio did make his preference clear at a press conference, &quot;I favor this new location and we&#x2019;re going to do everything we can to make that as typical as possible&#x2014;as frequent as possible.&quot;</p>
+
+<p>But the fiscal reality of an East River fireworks display is something the de Blasio will have to contend with: Now the city will have to foot the entire $1.9 million security bill itself (<a href="https://web.archive.org/web/20150524003332/http://nypost.com/2014/04/14/july-4th-fireworks-move-to-east-river-will-cost-nyc-extra-500k/">NJ would kick in $500,000 for costs</a>). That&apos;s no big deal in de Blasio&apos;s Marxist New York: </p><blockquote>&quot;I think it&#x2019;s well worth it, considering that hundreds of thousands more New Yorkers will be able to benefit from this... In a world where few things are free, this is something that&#x2019;s free. It&#x2019;s something that&#x2019;s been valued for generations, people missed it when it was gone. So and obviously for generations, we did cover the security needs on both sides of the East River, and we&#x2019;ll go back to doing that. And we think this is something that will really benefit a lot of people in this city, particularly the folks who don&#x2019;t have the opportunity to go to the kind of entertainment that costs a lot of money. This is something they look forward to all year, and it&#x2019;s worth the investment.&quot;</blockquote>Also worth it: Listening to your coworkers who live in Brooklyn Heights bitch and moan about how crowded the Promenade will be.<p></p>
+
+<p>Macy&apos;s July 4th Fireworks executive producer Amy Kule said the move is &quot;not permanent. We&#x2019;ve got a 50-year history of doing the Macy&#x2019;s Fourth of July fireworks. We&#x2019;ve always been nomadic in nature. We&#x2019;ve moved from place to place. We were on the West Side for five years. We&#x2019;re extraordinarily pleased to be back on the East Side, but I&#x2019;m sure when there&#x2019;s something else to celebrate - or a reason to move&#x2014;we will look to do so. There&#x2019;s anniversaries to celebrate, there&#x2019;s important milestones to embrace, and very often that will require a move of the fireworks.&quot;</p>
+
+<p>And about those NJ residents who <a href="https://web.archive.org/web/20150524003332/http://www.nbcnewyork.com/news/local/Macys-July-4-Fireworks-East-River-Hudson-255138571.html?_osource=SocialFlowTwt_NYBrand">are sad about not seeing the fireworks</a> (&quot;I think that&apos;s awful... I think it takes some of the fun and excitement from the people of Jersey City and greater New York&quot;), de Blasio said, &quot;Folks from New Jersey will be more than welcome to join us on that special day.&quot;</p>					
+										
+									
+				

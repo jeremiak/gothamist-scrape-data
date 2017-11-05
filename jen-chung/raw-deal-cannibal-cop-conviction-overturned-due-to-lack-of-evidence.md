@@ -1,0 +1,23 @@
+---
+author: Jen Chung
+date: Jul 1, 2014 7:51 am
+title: Raw Deal: "Cannibal Cop" Conviction Overturned Due To Lack Of Evidence
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="031213cancop.jpg" src="https://web.archive.org/web/20171022135956im_/http://gothamist.com/attachments/nyc_arts_john/031213cancop.jpg" width="640" height="480" class="image-none"> </span></p>
+
+<p>The former police officer who was <a href="https://web.archive.org/web/20171022135956/http://gothamist.com/2013/03/12/cannibal_cop_guilty_on_all_counts.php">convicted of plotting to kidnap</a>, kill and eat women whose personal information he accessed on a law enforcement database may be free soon. A federal judge ruled that there wasn&apos;t enough evidence to support Gilberto Valle&apos;s conviction.</p>
+
+<p><a href="https://web.archive.org/web/20171022135956/http://www.nytimes.com/2014/07/01/nyregion/officers-conviction-in-cannibalism-case-overturned.html?ref=nyregion&amp;_r=0">The NY Times reports</a>, &quot;The judge, Paul G. Gardephe of Federal District Court in Manhattan, granted the former officer, Gilberto Valle, a verdict of acquittal on the most serious count that he faced, kidnapping conspiracy. He could have faced life in prison on that count. &apos;The evidentiary record is such that it is more likely than not the case that all of Valle&apos;s Internet communications about kidnapping are fantasy role-play,&apos; Judge Gardephe said in a 118-page opinion issued late Monday night.&quot;</p>
+
+<p><a href="https://web.archive.org/web/20171022135956/http://gothamist.com/2012/10/25/fbi_arrests_nypd_officer_for_attemp.php#photo-1">Valle was arrested in 2012</a>, when the FBI discovered he was plotting with other men to kidnap women and eat them&#x2014;but not before making them suffer. Here is an excerpt from Valle&apos;s online communication with a co-conspirator (at one point he asks, &quot;How big is your oven?&quot;):</p><blockquote>&quot;I was thinking of tying her body onto some kind of apparatus&amp;cook; her over a low heat, keep her alive as long as possible.&quot; &quot;I love that she is asleep right now not having the slightest clue of what we have planned. Her days are numbered. I&apos;m glad you&apos;re on board. She does look tasty doesn&apos;t she?&quot;</blockquote>However, his lawyers characterized it as thought crime, with the First Amendment giving him &quot;the right to fantasize about whatever and whomever they like, free from government interference,&quot; in spite of <a href="https://web.archive.org/web/20171022135956/http://gothamist.com/2013/03/06/cannibal_cop_lawyers_wrap_up_defens.php">Google searches for &quot;human meat recipes.&quot;</a> Well, as <a href="https://web.archive.org/web/20171022135956/http://gothamist.com/2012/10/25/photos_cannibal_cop_called_himself.php#photo-1">Valle&apos;s OKCupid&apos;s profile stated</a>, &quot;I&apos;ll try anything and am not picky.&quot;<p></p>
+
+<p>Valle was turned in by his wife, who discovered a <a href="https://web.archive.org/web/20171022135956/http://gothamist.com/2012/10/26/cannibal_cop_was_turned_in_by_horri.php">&quot;tactical plan&quot; for &quot;Abducting and Cooking&quot; women on the home computer.</a> Of one victim, <a href="https://web.archive.org/web/20171022135956/http://gothamist.com/2012/11/10/alleged_cannibal_cops_intended_vict.php">Valle allegedly fantasized</a>, &quot;It is going to be so hard to restrain myself when I knock her out, but I am aspiring to be a professional kidnapper and that&apos;s business. <strong>But I will really get off on knocking her out, tying her hands and bare feet and gagging her...I think I would rather not get involved in the rape.</strong> You paid for her. She is all yours and I don&apos;t want to be tempted the next time I abduct a girl.&quot;</p>
+
+<p><a href="https://web.archive.org/web/20171022135956/http://nypost.com/2014/07/01/cannibal-cop-expected-to-be-freed-if-conviction-is-overturned/">The Post explains</a>, &quot;Valle will likely have the major charge of conspiracy overturned and the sentence vacated with only a misdemeanor charge of using police computers to track down women, The Post has learned. The misdemeanor charge would leave Valle with only up to a year in jail &#x2014; which he has already served.&quot;</p>
+
+<p>While in prison, <a href="https://web.archive.org/web/20171022135956/http://gothamist.com/2014/05/08/cannibal_cop_is_jailhouse_cook.php">Valle has been a cook</a>.</p>					
+										
+									
+				

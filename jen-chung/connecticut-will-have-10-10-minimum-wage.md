@@ -1,0 +1,19 @@
+---
+author: Jen Chung
+date: Mar 27, 2014 9:45 am
+title: Connecticut Will Have $10.10 Minimum Wage
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2014_03_minwagect.jpg" src="https://web.archive.org/web/20150508124122im_/http://gothamist.com/attachments/jen/2014_03_minwagect.jpg" width="640" height="434"> <br> <i> Photo composite from Shutterstock</i></div> <p></p>
+
+<p>Yesterday, Connecticut&apos;s State Legislature approved making its minimum wage $10.10. With Governor Dan Malloy poised to sign the bill today, Connecticut will have the highest minimum wage in the country.</p>
+
+<p>The wage increase, from the current $8.70, will happen over three years. <a href="https://web.archive.org/web/20150508124122/http://www.governor.ct.gov/malloy/cwp/view.asp?A=4010&amp;Q=542374">Malloy said</a>, &quot;Increasing the minimum wage is not just good for workers, it&apos;s also good for business. This modest increase will give working families a boost, and it will contribute to our economy by getting just a little more money into the pockets of people who will spend it in their communities.&apos;&apos;</p>
+
+<p>President Obama has been pushing for the minimum wage to be raised&#x2014;he praised the Gap for its $10 minimum wage when <a href="https://web.archive.org/web/20150508124122/http://gothamist.com/2014/03/11/obama_does_normcore_president_shops.php">he was in New York City earlier this month</a>. The President said of Connecticut&apos;s move:</p><blockquote>Today, the Connecticut Legislature took an important step towards raising the state minimum wage to $10.10 an hour and giving more Connecticut workers the raise they deserve.  When I visited Connecticut earlier this month I was joined by Governor Malloy and three of his fellow New England governors, who represent just a few of the many states, cities, and counties across our country working to raise their minimum wages.  I support these efforts, and I commend Governor Malloy for his leadership.  But to truly make sure our economy rewards the hard work of every American, Congress must act.  I hope Members of Congress, governors, state legislators and business leaders across our country will follow Connecticut&#x2019;s lead to help ensure that no American who works full time has to raise a family in poverty, and that every American who works hard has the chance to get ahead.</blockquote>The Connecticut legislature vote was pretty much along party lines; <a href="https://web.archive.org/web/20150508124122/http://www.courant.com/news/connecticut/hc-minimum-wage-0327-20140326,0,2123516.story">the Hartford Courant reports</a>, &quot;The Senate passed the measure by 21 to 14, with all Republicans and one Democrat &#x2014; Sen. Joan Hartley of Waterbury &#x2014; voting no. One senator was absent. The House vote was 87 to 54, and all 87 supporters were Democrats. Four House Democrats, including Representatives John Hampton of Simsbury and Joe Diminico of Manchester, joined with Republicans against the measure.&quot; Here&apos;s a <a href="https://web.archive.org/web/20150508124122/http://www.courant.com/business/hc-map-of-minimum-wage-votes-20140326,0,518624.htmlstory">map of the votes</a>.<p></p>
+
+<p><a href="https://web.archive.org/web/20150508124122/http://www.reuters.com/article/2014/03/26/us-usa-minimum-wage-connecticut-idUSBREA2P28120140326">According to Reuters</a>, &quot;The Washington, D.C., city council late last year passed a measure raising its minimum wage to $11.50 per hour in 2016. Workers in Sonoma, California, have the highest entry pay rate, at $15.38 per hour.&quot; New York&apos;s minimum wage was <a href="https://web.archive.org/web/20150508124122/http://gothamist.com/2013/12/27/ny_state_raising_minimum_wage_to_8.php">recently raised to $8/hour</a>.</p>					
+										
+									
+				

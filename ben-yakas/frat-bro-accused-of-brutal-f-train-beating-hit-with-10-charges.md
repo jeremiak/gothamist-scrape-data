@@ -1,0 +1,29 @@
+---
+author: Ben Yakas
+date: Apr 5, 2013 3:16 pm
+title: Frat Bro Accused Of Brutal F Train Beating Hit With 10 Charges
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2013_03_aidanfolan2.jpg" src="https://web.archive.org/web/20150414020900im_/http://gothamist.com/attachments/byakas/2013_03_aidanfolan2.jpg" width="640" height="427"> <br> <i> Aidan Folan (<a href="https://web.archive.org/web/20150414020900/http://www.facebook.com/photo.php?fbid=545186108847736&amp;set=t.1406650248&amp;type=3&amp;theater">via Facebook</a>)</i></div> <p></p>
+
+<p>The 21-year-old disgraced frat member <a href="https://web.archive.org/web/20150414020900/http://gothamist.com/2013/04/03/21-year-old_arrested_for_brutal_f_t.php">who was arrested this week</a> in connection with the vicious attack against a woman <a href="https://web.archive.org/web/20150414020900/http://gothamist.com/2013/04/03/video_woman_brutally_beaten_at_f_tr.php">at an F train station in Borough Park</a> last month has been hit with 10 charges. Aidan Foley <a href="https://web.archive.org/web/20150414020900/http://www.nypost.com/p/news/local/fraternity_thug_slapped_with_charges_xhvjvPTUQKIU46SvMHtYSP">has been slapped with</a> 10 assault and robbery-related charges (including robbery, assault, grand larceny and menacing) for viciously beating 55-year-old Dina Perez as she exited the southbound F at the 18th Avenue subway station around 2:40 a.m. on March 9th. He is now out on $50K bail.</p>
+
+<p><iframe width="640" height="480" src="https://web.archive.org/web/20150414020900if_/http://www.youtube.com/embed/WYMIIi_l6ZY" frameborder="0" allowfullscreen></iframe></p>
+
+<p><a href="https://web.archive.org/web/20150414020900/http://gothamist.com/2013/04/04/frat_brother_called_cops_to_identif.php">Folan was recognized thanks to</a> the black hoodie he was wearing during the attack, which had &quot;Alpha Phi Delta&quot; on the front and &quot;Stugotz&quot; and the number 27 on the back. It turns out that one of Folan&apos;s frat brothers turned over information on him to police after seeing the surveillance video of the attack: &quot;Being human beings, we felt compelled to do that,&quot; the fraternity member <a href="https://web.archive.org/web/20150414020900/http://www.nypost.com/p/news/local/fraternity_thug_slapped_with_charges_xhvjvPTUQKIU46SvMHtYSP">told the Post</a>. &quot;I think any human being would feel compelled. We were just appalled.&quot;</p>
+
+<p>The frat member, who didn&apos;t give his name, called Folan &quot;a member in bad standing&quot; who received the hoodie during the one year he spent at St. Francis College in Brooklyn Heights. Folan, who was arrested on January 12, 2013 for &quot;unlawful possession of Marihuana,&quot; studied Broadcast Journalism at St. Francis, <strike>and works as a counselor at the Center for Family Life in Sunset Park. </strike> According to the Center for Family Life, Folan was a summer intern there through the City&apos;s Summer Youth Employment Program for six weeks only last summer and &quot;has NO current involvement with that program.&quot;</p>
+
+<p>The frat brother called Crime Stoppers and gave them all the info they had on Folan, including his Bay Ridge address, which directly led to his arrest. As for why it took police 24 days to get the surveillance video out to the public in the first place, Police Commissioner Ray Kelly said it was a matter of technology. &quot;There are lots of different systems out there you have to make it compatible with our system, so there are some challenges in putting out these videos as quickly as possible,&quot; Kelly said.</p>
+
+<p>Once the video was out there, &quot;There were some 40 calls to our tips hotline so people recognized right away and gave specific information,&quot; Kelly added. David Schwartz, a former Assistant District Attorney in Brooklyn, <a href="https://web.archive.org/web/20150414020900/http://abclocal.go.com/wabc/story?section=news/investigators&amp;id=9053236">told ABC that</a> wasn&apos;t good enough: &quot;So there were a lot of days there where the perpetrator was running around and could have been a danger to our city,&quot; Schwartz said. &quot;It&apos;s important that the people of this city question the police department as to why.&quot;</p>
+
+<p>TheHangNY, whose photo of Folan (which you can see above) has inspired thousands of angry message directed at Folan, contacted us to make it clear that they by no means promote any type of immoral behavior:</p>
+
+<blockquote>In regards to the brutal beating of Miss Perez by Aidan Folan, here at The Hang NY we would like to express our deepest condolences and our hopes and prayers go out to Miss Perez for a strong recovery and we hope justice is served. We would also like to take this time to say we do not condone or endorse such behavior nor do we have any affiliations with Aidan Folan, Alpha Phi Delta, or any fraternity. 
+
+<p>The Hang NY is meant as a source for college students in New York City to find out about events happening locally and at colleges throughout the metropolitan area. As such, we cover a few events and one of those was a pageant we were asked to cover on March 8th and take photographs of the event. One of those pictures we took happened to be of Mr. Folan. But to say that we here approve or encourage any of his behavior here at our establishment is absolutely not the case. This is a very unfortunate situation and we would not wish it on anyone.</p></blockquote><p></p>					
+										
+									
+				

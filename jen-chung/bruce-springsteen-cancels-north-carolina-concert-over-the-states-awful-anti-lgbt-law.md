@@ -1,0 +1,25 @@
+---
+author: Jen Chung
+date: Apr 8, 2016 4:53 pm
+title: Bruce Springsteen Cancels North Carolina Concert Over The State's Awful Anti-LGBT Law
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2016_04_theboss10.jpg" src="https://web.archive.org/web/20170626125003im_/http://gothamist.com/attachments/jen/2016_04_theboss10.jpg" width="640" height="490"> <br> <i> The Boss (Getty Images)</i></div> <p></p>
+
+<p>Bruce Springsteen stands for the every man or woman, so it&apos;s no surprise he&apos;s disgusted by North Carolina&apos;s law that invalidates rights for the LGBT community&#x2014;and so he&apos;s decided to cancel his concert in Greensboro this weekend. </p>
+
+<p>The Boss <a href="https://web.archive.org/web/20170626125003/https://www.facebook.com/notes/bruce-springsteen/a-statement-from-bruce-springsteen-on-north-carolina/10153539447566824">posted a note on Facebook</a> that reads:</p><blockquote>As you, my fans, know I&#x2019;m scheduled to play in Greensboro, North Carolina this Sunday. As we also know, North Carolina has just passed HB2, which the media are referring to as the &#x201C;bathroom&#x201D; law. HB2 &#x2014; known officially as the Public Facilities Privacy and Security Act &#x2014; dictates which bathrooms transgender people are permitted to use. Just as important, the law also attacks the rights of LGBT citizens to sue when their human rights are violated in the workplace. No other group of North Carolinians faces such a burden. To my mind, it&#x2019;s an attempt by people who cannot stand the progress our country has made in recognizing the human rights of all of our citizens to overturn that progress. Right now, there are many groups, businesses, and individuals in North Carolina working to oppose and overcome these negative developments. Taking all of this into account, I feel that this is a time for me and the band to show solidarity for those freedom fighters. As a result, and with deepest apologies to our dedicated fans in Greensboro, we have canceled our show scheduled for Sunday, April 10th. Some things are more important than a rock show and this fight against prejudice and bigotry &#x2014; which is happening as I write &#x2014; is one of them. It is the strongest means I have for raising my voice in opposition to those who continue to push us backwards instead of forwards.</blockquote>Tickets will be refunded.<p></p>
+
+<center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">I &#x2764;&#xFE0F; Bruce <a href="https://web.archive.org/web/20170626125003/https://twitter.com/springsteen">@Springsteen</a>.</p>&#x2014; Ellen DeGeneres (@TheEllenShow) <a href="https://web.archive.org/web/20170626125003/https://twitter.com/TheEllenShow/status/718544905023295488">April 8, 2016</a></blockquote> <script async src="//web.archive.org/web/20170626125003js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<p>Last month, Governor Cuomo <a href="https://web.archive.org/web/20170626125003/http://gothamist.com/2016/03/29/new_york_bans_non-essential_city_an.php">banned all &quot;non-essential&quot; travel</a> to the state and, earlier this week, PayPal <a href="https://web.archive.org/web/20170626125003/http://sfist.com/2016/04/05/paypal_kills_plan_for_charlotte_nc_hq.php">decided to kill plans to create a new operations center</a> in Charlotte due to the law, which in turns out has eliminated hundreds of jobs, with average pay of $51,000. </p>
+
+<p>Tony-Award winning composer Stephen Schwartz, who has written <em>Godspell</em>, <em>Pippin</em> and <em>Wicked</em>, has <a href="https://web.archive.org/web/20170626125003/http://www.charlotteobserver.com/news/politics-government/article69632432.html#storylink=cpyhttp://www.charlotteobserver.com/news/politics-government/article69632432.html">also responded</a> to the law, stating that &quot;I and my collaborators are acting to deny the right to any theatre or organization based in North Carolina to produce any of our shows. We have informed our licensing organizations and touring producers of this, and I&apos;m happy to say have met with compliance and approval from them.&quot;</p>
+
+<p><a href="https://web.archive.org/web/20170626125003/http://www.charlotteobserver.com/news/politics-government/article68401147.html">The Charlotte Observer</a> has an explainer about the law, which is known as &quot;House Bill 2&quot; (HB2); for instance, &quot;Does HB2 affect rights of people who aren&#x2019;t gay or transgender? <em>Yes. The law limits how people pursue claims of discrimination because of race, religion, color, national origin, biological sex or handicap in state courts. The law also means a city or county cannot set a minimum wage standard for private employers.</em>&quot;</p>
+
+<p>FWIW, N.C. police <a href="https://web.archive.org/web/20170626125003/http://www.businessinsider.com/nc-police-dont-know-how-to-enforce-hb2-2016-4">have no idea how to enforce HB2</a>.</p>					
+										
+									
+				

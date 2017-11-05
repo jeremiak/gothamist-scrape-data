@@ -1,0 +1,13 @@
+---
+author: Ben Yakas
+date: Apr 9, 2011 2:28 pm
+title: Family Ride To Support The PPW Bike Lane On Sunday
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="4911ppw.jpg" src="https://web.archive.org/web/20150427163020im_/http://gothamist.com/attachments/byakas/4911ppw.jpg" width="250" height="164" class="image-left"> </span>It would be a mighty understatement to say that the <a href="https://web.archive.org/web/20150427163020/http://gothamist.com/tags/ppw">Prospect Park West bike lane</a> has garnered a hearty amount of criticism and controversy in its young life. When anything can cause as many <a href="https://web.archive.org/web/20150427163020/http://gothamist.com/2011/03/07/park_slope_big_shots_sue_dot_over_p.php">lawsuits</a>, bile-filled <a href="https://web.archive.org/web/20150427163020/http://gothamist.com/2011/03/11/video_ppw_bike_lane_community_board.php#photo-1">community board meetings</a>, and Marty Markowitz <a href="https://web.archive.org/web/20150427163020/http://gothamist.com/2011/01/24/video_markowitz_bike_lane.php">conspiracy theories</a> as the PPW bike lane has, then the word controversy doesn&apos;t really do it justice. However, if you&apos;re the kind of person who wants to support the PPW bike lane and maybe isn&apos;t so into all the vitriol surrounding it, there is a decidedly non-controversial <a href="https://web.archive.org/web/20150427163020/http://www.bikeblognyc.com/family-bike-ride-prospect-park-west-bike-lane/">PPW family ride</a> in support of the bike lane scheduled for Sunday.</p>
+
+<p>The family bike ride to support the PPW bike lane <a href="https://web.archive.org/web/20150427163020/http://www.streetsblog.org/2011/04/08/sunday-moms-dads-and-kids-ride-the-prospect-park-west-bike-lane/">will happen</a> on Sunday from 10:30 am to 1:30 pm. It&apos;s organized by Ride Brooklyn, Transportation Alternatives, Bicycle Habitat, Bark, Blue Sky Bakery and Level2. Supporters will gather at Grand Army Plaza, then will ride (and walk) the entire length of the bike path to the Bartel-Pritchard entrance of Prospect Park at 15th Street. There will be free t-shirts at the start of the ride, and free hot dogs and cupcakes at the end of it.  You can RSVP at the &#x201C;We Ride the Lanes&#x201D; <a href="https://web.archive.org/web/20150427163020/http://www.facebook.com/event.php?eid=214201965263857">Facebook page</a>. And don&apos;t forget to brake at the stop signs if you don&apos;t want to <a href="https://web.archive.org/web/20150427163020/http://gothamist.com/2011/04/08/cops_also_ticketing_cyclists_for_ig.php">get a ticket</a>!</p>					
+										
+									
+				

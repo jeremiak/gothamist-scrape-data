@@ -1,0 +1,37 @@
+---
+author: Ben Yakas
+date: Oct 4, 2013 4:33 pm
+title: Louis C.K. Talks Upcoming Season Of Louie, Filming In NYC, And Diarrhea Humor
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="10413louis1.jpeg" src="https://web.archive.org/web/20150405204425im_/http://gothamist.com/attachments/byakas/10413louis1.jpeg" width="640" height="426"> <br> <i> Chloe Apple Seldman/Michael Priest for The Paley Center for Media</i></div>  <p></p>
+
+<p>Last night, <a href="https://web.archive.org/web/20150405204425/http://gothamist.com/tags/louisck">Louis C.K.</a> was the main attraction at Paley Center&#x2019;s &quot;Made In NY&quot; PaleyFest as he and <em>Louie</em> executive producer Blair Breard sat down with <em>Time&#x2019;s</em> television critic James Poniewozik to talk about the show. After the crowds in the various rooms (in addition to the main room with C.K., there were overflow rooms where people who paid the same price got stuck watching the proceedings live via uplink) watched two episodes from season three (&quot;Daddy&apos;s Girlfriend pt. 2&quot; and &quot;Barney/Never&quot;), C.K. and Breard discussed the fourth season of <em>Louie</em> (which <a href="https://web.archive.org/web/20150405204425/http://gothamist.com/2013/10/03/louie_louis_ck_photos.php#photo-1">just started shooting this week</a>), the complexities of filming in NYC, the MTA, ideas for movies, his feelings on cell phones on set, and of course, diarrhea. Check out some highlights below.</p>
+
+<p>-The new season includes a mix of first season-esque episodes (lots of snappy sketches, multiple stories in an episode) and some multi-episode arcs (ala &quot;Late Show&quot; or &quot;Daddy&apos;s Girlfriend&quot;): &#x201C;There&apos;s some episodes that are just like, let&apos;s really get some basic laughs with some of these. It was fun to go back to that. <strong>And then there&apos;s other stories that, it&apos;s just gonna piss you off</strong>.&#x201D; C.K. says that &#x201C;I have a stomach ache about&#x201D; one episode in the new season in particular, though he wouldn&apos;t go into specifics about the story. </p>
+
+<p>-C.K. opened up a bit about the long hiatus between season three and four, and how much energy he has going into a new season: &#x201C;It was for the good of the show. I didn&apos;t want to start making the show with diminishing returns, and I wanted more time to make it. I turned in some edits of the show that I knew weren&apos;t good enough yet, but we had to get it out. The year off was to kind of hit the reset button, take a couple months off to have a bit of a life and a reason to tell stories again.&#x201D;<br>
+ <br>
+-He also talked about how much more production time he&apos;s taking with this season:  &quot;We usually start shooting in February for that year&apos;s show, and we&apos;re four months ahead this time. So we have much, much more time.&quot; The whole fourth season will be done before it airs next spring: &quot;We have 60 shooting days this year; we usually do 48. I feel like we&apos;re doing it a lot smarter, besides finally having the luxury of time.&quot; </p>
+
+<p>-He briefly discussed why <em>Louie</em> would never make sense on a major network: &quot;We take very little money from these people, and nobody gives a shit about what we&apos;re doing. If you do a show on NBC at 8:30, it&apos;s gonna be sponsored by Nike and Microsoft and all these companies that are gonna want to know what they&apos;re advertising on. Naturally, they&apos;re paying millions of dollars. <strong>Our advertisers are like, Red Stripe Beer. They don&apos;t give a fuck.</strong>&#x201D;</p>
+
+<p>-He also is grateful he&apos;s found a niche audience who appreciates diarrhea humor: &#x201C;I don&apos;t think a show like mine belongs on a big network. I don&apos;t think a big network should be influenced by what I do, or by any of us in the cable networks. Because, 20 million people don&apos;t want to see this shit. <strong>This is for a few people. A few of us to get together and enjoy a tub of diarrhea. It&apos;s a perfectly placed TV show</strong>.&#x201D;</p>
+
+<p>-Several episodes of <em>Louie</em> started out as ideas for movies, including season two&apos;s &quot;Duckling&quot; and season one&apos;s &quot;God.&quot; About the latter, he said: &quot;That was gonna be a thing where this Jesus becomes kind of a Frankenstein, starts choking everybody. And everybody&apos;s like, who is that guy? And it&apos;s the same argument they had when he was around the first time. &#x2018;Jesus?&#x2019; &#x2018;No it&apos;s a fake.&#x2019; And then all the Jesus icons in the world would come to life and become monsters, and the little ones would get in your blood stream. It was crazy. I didn&#x2019;t write it.&#x201D;</p>
+
+<p>-C.K. doesn&apos;t care <a href="https://web.archive.org/web/20150405204425/http://gothamist.com/2013/10/03/louie_louis_ck_photos.php">when people take photos and video of him filming</a>...as long as they&apos;re not in the shot. &#x201C;It&#x2019;s like they all want to film it too and do their own show,&#x201D; he marveled. &#x201C;At first I thought, &#x2018;This is crazy.&#x2019; Then it was like, &#x2018;What do I care?&#x2019;&#x201D;</p>
+
+<p>-He also loves filming around NYC because &quot;the people really just don&#x2019;t give a shit. <strong>Even when you see people who are fans, they&#x2019;ve got somewhere to go, so they just keep moving.&quot; </strong> He also mentioned bike lanes: &quot;We try not to lock down our sidewalks too much, just let people, let stuff flow&#x2014;just don&apos;t stand in the Citi Bike path and piss them off.&quot; </p>
+
+<p>-He talked in length about &quot;Daddy&apos;s Girlfriend pt 2,&quot; and getting to film all around the Lower East Side late at night. He noted that he had wanted to work with Parker Posey, but that character was based on women he had dated in his 20s: &#x201C;There are a lot of crazy people [in NYC] who don&#x2019;t look crazy.&#x201D;</p>
+
+<p>-The hardest place to shoot in NYC is...the subway. C.K. spent some time bitching about the MTA&#x2014;it seems TV shows used to film subway scenes at an unused train on Randall&apos;s Island. &quot;There was a fire department training facility they had four subway cars and you can go back and forward, back and forward, and it was free!&quot; People would have to literally shake the train to make it seem like it was moving, but the MTA stopped letting them use it for some reason. And now it&apos;s much more difficult getting permission to film on the subway.</p>
+
+<p>-He talked about filming on Staten Island, which they used as a stand-in for Massachusetts. &quot;There are some parts of Queens that are beautiful, but Staten island you know, I&apos;ve never been anywhere in Staten Island, where I&apos;m like&quot;you know wow.&quot;  </p>
+
+<p>-He also discussed filming in China for the final episode of the third season: &quot;When we got to Beijing it was like, where is China? I want it to look like China. When we got there it looked like Columbus fucking Ohio. <strong>There is no trouble shooting in Beijing as far as people, because they have no rights</strong>. I really liked the people and we got great footage, it was really fun. Chinatown does not look anything like China, but when we got there it actually did, it kind of looked like Staten Island.&quot;  </p>					
+										
+									
+				

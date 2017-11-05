@@ -1,0 +1,19 @@
+---
+author: Ben Yakas
+date: Oct 10, 2010 3:22 pm
+title: Video: Yankees Bleacher Creatures' "Gay Man" Song
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2010_09_bleahercreatu.jpg" src="https://web.archive.org/web/20150429125147im_/http://gothamist.com/attachments/jen/2010_09_bleahercreatu.jpg" width="300" height="237" class="image-right"> </span>In the midst of several highly publicized suicides and attacks of gay men recently, as well as a <a href="https://web.archive.org/web/20150429125147/http://gothamist.com/2010/10/09/video_lgbt_flash_mob_stages_die-in.php">&quot;die-in&quot;</a> at Grand Central on Friday, a tipster sent in this account of the Yankees/Twins playoff game from last night:</p>
+
+<blockquote>I have proudly lived in New York City for over two years, and, unlike the often-heard stereotypes, have found this city&apos;s inhabitants to be kind, respectful, and even polite. This changed the night of Oct. 9, when I attended the New York Yankees game against the Minnesota Twins. As a Midwest native showing up to the game in my Twins regalia, I expected to be picked on. I expected to be heckled. What I did not expect was to hear homophobic and anti-gay cheers sung by the crowd. 
+
+<p>During the traditional singing of YMCA, when the grounds crew takes to the field, suddenly the crowd erupted into lyrics singing, &quot;Why are you gay, I saw you sucking some d-i-c-k.&quot; Other lyrics called people who are gay sinners and disease-ridden. I couldn&apos;t believe my ears. Whatever people may say about Minnesota or the Midwest, such hurtful and disgusting things would never be shouted at a Twins game. What an embarrassment for Yankees fans and New York City.</p></blockquote><p></p>
+
+<p>The tipster also suggests that the Yankees should hold an LGBT respect night. According to <a href="https://web.archive.org/web/20150429125147/http://www.gaybaseballdays.com/">this site</a> (which only goes up through 2008), more than half the teams in the league, including the Mets, have had such nights, and they&apos;ve been relatively <a href="https://web.archive.org/web/20150429125147/http://www.queerty.com/mlb-teams-hosting-gay-nights-and-nobody-went-home-with-a-baseball-bat-smashed-into-his-head-20100717/">successful</a>. The Cubs, <a href="https://web.archive.org/web/20150429125147/http://chicagoist.com/2009/11/04/cubs_welcome_first_openly_gay_mlb_o.php">who have an openly gay owner</a>, have held the event since 2001.</p>
+
+<p>The &quot;Gay Man&quot;/&quot;Why Are You Gay&quot; song seems to be a tradition of Section 39/Section 203, aka the <a href="https://web.archive.org/web/20150429125147/http://en.wikipedia.org/wiki/Bleacher_Creatures">Bleacher Creatures</a>, and is directed at fans of the opposing team sitting in or near the section. (You can see a 2007 video of it below, as well as <a href="https://web.archive.org/web/20150429125147/http://www.youtube.com/watch?v=iostRmxlixc&amp;feature=related">several</a> <a href="https://web.archive.org/web/20150429125147/http://www.youtube.com/watch?v=FOePY5vmJ9w&amp;feature=related">other</a> <a href="https://web.archive.org/web/20150429125147/http://www.youtube.com/watch?v=UA-C3cjt6OI&amp;feature=related">examples</a> <a href="https://web.archive.org/web/20150429125147/http://www.youtube.com/watch?v=ztPQieRucKE&amp;feature=related">here</a>.) However, just last month, an umpire <a href="https://web.archive.org/web/20150429125147/http://www.towleroad.com/2010/09/mlb-umpire-ejects-fan-after-anti-gay-slur-directed-at-catcher.html">ejected</a> a rowdy drunk fan who was yeling homophobic slurs at a player. </p>					
+										
+									
+				

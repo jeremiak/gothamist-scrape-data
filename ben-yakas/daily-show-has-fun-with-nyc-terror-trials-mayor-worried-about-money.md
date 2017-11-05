@@ -1,0 +1,17 @@
+---
+author: Ben Yakas
+date: Jan 27, 2010 4:36 pm
+title: Daily Show Has Fun with NYC Terror Trials, Mayor Worried About Money
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="012810Bloombergeag.jpg" src="https://web.archive.org/web/20160308153125im_/http://gothamist.com/attachments/nyc_arts_john/012810Bloombergeag.jpg" width="300" height="201" class="image-left"> </span>Mayor Bloomberg spoke out today against having the upcoming terror trials in NYC, although he seems more concerned about the expense than the safety issues. &#x201C;It would be great if the federal government could find a site that didn&#x2019;t cost a billion dollars, which using downtown will,&#x201D; Bloomberg <a href="https://web.archive.org/web/20160308153125/http://cityroom.blogs.nytimes.com/2010/01/27/a-growing-cry-to-move-a-terror-trial/">told reporters</a>. The Mayor said he&apos;d be <a href="https://web.archive.org/web/20160308153125/http://www.nypost.com/p/blogs/knickerbocker/terror_trials_could_cost_city_billion_IfVqe2tgg3aeoJPZOSaUHJ">&quot;very happy&quot;</a> if they could find another location for the trials, and joins an increasing number of people against having the trials here. Previously, the Mayor had been <a href="https://web.archive.org/web/20160308153125/http://gothamist.com/2009/11/15/giuliani_mistake_to_bring_911_trial.php">in support</a> of the trials, and even called the trials proximity to the WTC <a href="https://web.archive.org/web/20160308153125/http://gothamist.com/2009/11/18/arizona_rep_to_bloomberg_terrorists.php">&quot;fitting.&quot;</a></p>
+
+<p>Daily Show host John Stewart gave his made comic japes about the trials, and concluded last night,  &quot;Yes, when it comes to prosecuting the war on terror, Fox News agrees with Osama Bin Ladin.&quot; Correspondent Wyatt Cerac followed with his own report on these really inconvenient trials, and asked why we even need trials in the first place:</p>
+
+<center><object width="512" height="296"><param name="movie" value="http://www.hulu.com/embed/MsBkbVKGa8g-raTBXZqZhQ"><param name="allowFullScreen" value="true"><embed src="https://web.archive.org/web/20160308153125oe_/http://www.hulu.com/embed/MsBkbVKGa8g-raTBXZqZhQ" type="application/x-shockwave-flash" allowfullscreen="true" width="512" height="296"></object></center>
+
+<p>In case you missed it, a lot of other people are having very mixed feelings about the upcoming terror trials: Brooklyn Heights residents <a href="https://web.archive.org/web/20160308153125/http://gothamist.com/2009/12/16/brooklyn_heights_residents_split_ab.php">are split</a> about it, <a href="https://web.archive.org/web/20160308153125/http://gothamist.com/2010/01/21/community_board_challenges_obama_ov.php ">community board 1</a> is lobbying the President to relocate, others are <a href="https://web.archive.org/web/20160308153125/http://gothamist.com/2010/01/26/if_governors_island_cant_host_terro.php">demanding</a> it move to White Plains or Governor&apos;s Island. And Dick Cheney&apos;s sitting glumly somewhere <a href="https://web.archive.org/web/20160308153125/http://gothamist.com/2009/12/09/cheney_trashes_obama_on_terror_tria.php">grumbling to himself</a>. </p>					
+										
+									
+				

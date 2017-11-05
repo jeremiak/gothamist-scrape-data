@@ -1,0 +1,17 @@
+---
+author: Ben Yakas
+date: Oct 6, 2010 11:15 am
+title: ACS Admits Fault in Malnourished Girl's Death
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:235px; "> <img alt="9310pierce.jpg" src="https://web.archive.org/web/20170310015308im_/http://gothamist.com/attachments/byakas/9310pierce.jpg" width="235" height="179"> <br> <i>Pierce, mother of 4-year-old Marchella Pierce</i></div> In early September, police found four-year-old <a href="https://web.archive.org/web/20170310015308/http://gothamist.com/tags/marchellapierce">Marchella Pierce</a> dead in her squalid Brooklyn apartment, weighing just 18 pounds. An inquiry into the abuse of the girl ensued, and yesterday Administrative Children&apos;s Services (ACS) <a href="https://web.archive.org/web/20170310015308/http://www.nydailynews.com/ny_local/2010/10/06/2010-10-06_we_failed_to_protect_abused_tot_says_acs.html">admitted &quot;critical&quot; missteps</a> in handling Pierce&apos;s case, even as they shuffled the blame between several parties.<p></p>
+
+<p>Appearing before City Council, ACS head John Mattingly identified several warning signs the agency had missed in the case: Marchella&apos;s mother, Carlotta Brett-Pierce, was &quot;hostile&quot; to ACS workers who were following up on a report that she did not know how to properly operate Marchella&apos;s breathing tube. She also didn&apos;t follow through with her drug treatment program, and tested positive for marijuana. And there was no ACS visit to the household after June 2010, during the three months before the girl died.  </p>
+
+<p>Brett-Pierce was arrested and charged with assault and child endangerment; according to the ACS <a href="https://web.archive.org/web/20170310015308/http://www.nytimes.com/2010/10/06/nyregion/06acs.html?pagewanted=1">written report</a> on the case, Brett-Pierce&apos;s home care was &quot;grossly inadequate,&quot; she would beat the four-year-old girl with a videocassette case for punishment, and often tied her to a bed &#x201C;for substantial periods of time.&#x201D; ACS did not carry the blame alone though: they mercilessly attacked nonprofit organization Child Development Support Corporation (CDSC), who ACS hired to monitor the family with a fine-tooth comb, for a &quot;woefully inadequate&quot; handling of the case. Marcia Rowe-Riddick, executive director of CDSC, defended her company: &quot;It&#x2019;s unbelievable that they continue to throw us under the bus in this case when they had responsibility for it the last two months. The fact remains: when we were in the home there was nothing going on and the child was still alive.&#x201D;</p>
+
+<p>After the death of <a href="https://web.archive.org/web/20170310015308/http://gothamist.com/tags/nixzmarybrown">Nixzmary Brown</a>, the malnourished seven-year-old girl who was abused, tortured and killed by her parents in 2006, ACS vowed to improve services and set a <a href="https://web.archive.org/web/20170310015308/http://gothamist.com/2006/03/30/postnixzmary_ci_1.php">series of reforms</a> to make sure nothing like this happened again. According to doctor&apos;s reports, Marchella Pierce weighed less when she died than when she had been released from the hospital months earlier. </p>					
+										
+									
+				

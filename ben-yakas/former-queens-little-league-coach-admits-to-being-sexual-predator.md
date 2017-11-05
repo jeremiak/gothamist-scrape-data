@@ -1,0 +1,9 @@
+---
+author: Ben Yakas
+date: August 23, 2012  6:05 PM
+title: Former Queens Little League Coach Admits To Being "Sexual Predator"
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left"> <img alt="82312littleleague.jpg" src="https://web.archive.org/web/20130529010629im_/http://gothamist.com/attachments/byakas/82312littleleague.jpg" width="240" height="224"> <br> <i style=" width:240px; ;display:block"> (via Facebook)</i></div> A former little league coach from Queens <a href="https://web.archive.org/web/20130529010629/http://www.nypost.com/p/news/local/queens/little_league_coach_admits_court_fST0fIlhelnPopRFW216rM?utm_medium=rss&amp;utm_content=%20%20%20%20%20%20%20%20%20%20Queens">admitted in court today to being a &quot;sexual predator&quot;</a> who molested several young boys during sleepovers. David Hartshorn, 54, was busted in 2011, and accused of filming and having sex with five boys&#x2014;between the ages of 13 and 14&#x2014;inside his Rochdale Village home between July 2009 and August 2010. In exchange for his guilty plea, Hartshorn will get 18 years in prison and 20 years probation. <p></p>
+
+<p>Hartshorn, who ran the Rochdale Village Little League and was once coach of the year, pleaded guilty to three counts of criminal sex act and two counts of use of a child in a sexual performance. He was arrested in February 2011 after one of the boys told his mother what had been going on; he collapsed <a href="https://web.archive.org/web/20130529010629/http://gothamist.com/2011/02/09/little_league_coach_collapses_durin.php">during his arraignment</a> that month. Officials found decades worth of movies in Hartshorn&apos;s home, including VHS and DVD&apos;s showing young boys having sex with each other and other &quot;inappropriate sexual contact,&quot; according to Queens District Attorney Richard A. Brown.</p>

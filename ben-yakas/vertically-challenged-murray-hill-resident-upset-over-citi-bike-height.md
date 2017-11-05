@@ -1,0 +1,27 @@
+---
+author: Ben Yakas
+date: Sep 15, 2013 4:30 pm
+title: "Vertically Challenged" Murray Hill Resident Upset Over Citi Bike Height
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="4414citi.jpeg" src="https://web.archive.org/web/20150522084035im_/http://gothamist.com/attachments/byakas/4414citi.jpeg" width="640" height="480"> <br> <i> <a href="https://web.archive.org/web/20150522084035/https://www.flickr.com/photos/scottlynchnyc/9453141271/">scoboco&apos;s flickr</a></i></div> <p></p>
+
+<p>Most New Yorkers not named <a href="https://web.archive.org/web/20150522084035/http://gothamist.com/tags/dorothyrabinowitz">Dorothy Rabinowitz</a> seem pretty pleased overall with <a href="https://web.archive.org/web/20150522084035/http://gothamist.com/tags/citibike">the city&apos;s bike share program</a>, but of course it&apos;s got areas for improvement. People have complained about the proliferation of <a href="https://web.archive.org/web/20150522084035/http://gothamist.com/2013/08/22/drunk_citi_biking_is_the_coolest_wa.php">drunk biking</a>, <a href="https://web.archive.org/web/20150522084035/http://gothamist.com/2013/08/15/the_issue_of_citi_bike_dockblocking.php">distribution issues</a>, <a href="https://web.archive.org/web/20150522084035/http://gothamist.com/2013/08/01/citi_bike_1.php">lack of outer borough expansion</a>, <a href="https://web.archive.org/web/20150522084035/http://gothamist.com/2013/07/23/citi_bike_glitch_exposes_personal_i.php">personal information glitches</a>, and <a href="https://web.archive.org/web/20150522084035/http://gothamist.com/2013/06/11/dot_answers_a_citi_bike_question.php">day-pass time allotment issues</a>. But here&apos;s a complaint we haven&apos;t heard until now: 23-year-old Sarah M. is upset about the bikes being too big for short people. &quot;I can&#x2019;t fit on a Citi Bike well enough to use it,&quot; the 4&apos;10&quot; inch Murray Hill resident told us.</p>
+
+<p>Sarah M., who works in marketing and describes herself as &quot;vertically challenged&quot;, said that her height generally hasn&apos;t affected her negatively in her life (besides the odd pat on the head from a stranger, and getting called &quot;tiny&quot;). But this weekend, when her friends wanted to ride across lower Manhattan, she realized that she couldn&apos;t really ride a Citi Bike:</p>
+
+<blockquote>I stared at those bikes for a good two minutes, and then it came to me...I realized that I was just too damn short. I even got on one&#x2014;my feet just didn&#x2019;t reach the ground. I was probably only an inch or 2 from reaching the ground, but still. I COULD&#x2019;T reach the ground!
+
+<p>I rolled my eyes and we all laughed, but I was disappointed over the realization that I could NEVER partake in this fun, better-for-you experience...I was totally bummed. And I&#x2019;m 23-years-old&#x2014;I&#x2019;m certainly not going to get any taller.</p></blockquote><p></p>
+
+<p>According to Gothamist&apos;s own <a href="https://web.archive.org/web/20150522084035/http://gothamist.com/2013/09/12/citibike_israel_tel_aviv_guide.php">international cycling guru</a> Jake Dobkin, it&apos;s not necessary to be able to touch the ground when on a bike. &quot;When correctly sized, your feet shouldn&apos;t be able to touch the ground when your butt is on the seat, because optimal seat height is supposed to mean your leg is fully extended at the bottom of the pedal cycle,&quot; he said. Dobkin may be in the pocket of <a href="https://web.archive.org/web/20150522084035/http://gothamist.com/2013/06/21/in_defense_of_salmoning_on_a_bike.php">Big Salmon</a>, but we agree: as long as you can reach the pedals, you can always dismount by jumping off the bike (even if it is annoying and a little less safe). </p>
+
+<p>Fellow Gothamist staffer Rebecca Fishbein, who is 5&apos;0&quot;, says that she too has had serious problems biking because of her height: &quot;If you&apos;re small, it&apos;s really difficult to find a bike that&apos;s sized appropriately, especially if you have short legs. And if you aren&apos;t a super skilled cyclist, it&apos;s daunting to ride a bike you have to jump off of to stop.&quot; She added that she has tried using child-sized bikes, but &quot;the handlebars are usually too cramped.&quot;</p>
+
+<p>Sarah M. hopes that officials considers height in the next generation of Citi Bikes: &quot;There must be a solution. A smaller bike? One that kids and short people alike can utilize? A seat that goes 3-4 inches lower? Optional pads for the pedals?...I&apos;m going to be living in New York for the foreseeable future and I shouldn&apos;t have transportation options closed to me because of my height.&quot;</p>
+
+<p>She has at least three more months to appeal to our <a href="https://web.archive.org/web/20150522084035/http://gothamist.com/tags/bloomberg">current diminutive mayor</a> for some help in this matter&#x2014;if <a href="https://web.archive.org/web/20150522084035/http://gothamist.com/tags/billdeblasio">a certain progressive giant</a> ends up being his successor, she may find that he can&apos;t quite hear her pleas.</p>					
+										
+									
+				

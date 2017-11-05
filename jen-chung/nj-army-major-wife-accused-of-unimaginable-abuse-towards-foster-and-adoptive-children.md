@@ -1,0 +1,21 @@
+---
+author: Jen Chung
+date: May 1, 2013 9:18 am
+title: NJ Army Major, Wife Accused Of "Unimaginable" Abuse Towards Foster And Adoptive Children
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left"> <img alt="2013_04_johnsons2.jpg" src="https://web.archive.org/web/20150501171628im_/http://gothamist.com/attachments/jen/2013_04_johnsons2.jpg" width="380" height="269"> <br> <i style=" width:380px; ;display:block"> Army Maj. John E. Jackson and Carolyn Jackson (Facebook, via Star-Ledger)</i></div> An Army major who served in Iraq and Afghanistan and his wife <a href="https://web.archive.org/web/20150501171628/http://www.nj.com/news/index.ssf/2013/05/army_major_and_wife_charged_wi.html#incart_m-rpt-1">were arrested yesterday</a> for allegedly creating a horrifying abusive environment for their foster and adoptive children. U.S. Attorney Paul Fishman said, &quot;Carolyn and John Jackson are charged with unimaginable cruelty to children they were trusted to protect. The crimes alleged should not happen to any child, anywhere, and it is deeply disturbing that they would happen on a military installation.&quot;<p></p>
+
+<p>The abuse allegedly took place between 2005 and 2010, which was when the family was living on the Picatinny Arsenal in NJ. Federal prosecutors claim that Major John E. Jackson and Carolyn Jackson beat the children, as well as broke their bones, prohibited them from drinking water, ignored getting medical attention to their injuries, encouraged their biological children to participate in the abuse, and deprived them of food. Further, they forced the children to &quot;consume food that caused them pain and suffering, such as red pepper flakes, hot sauce, and/or raw onion.&quot;  </p>
+
+<p>When one of their biological children told a family friend about the abuse, the child was allegedly beaten by Carolyn Jackson. The feds claim that the biological children were told by their parents that they were training the foster/adoptive children &quot;to behave through a variety of methods, including physical assaults and the administration of inappropriate, neglectful and cruel disciplinary techniques&quot; and not to tell anyone about the abuse. You can read the indictment here (<a href="https://web.archive.org/web/20150501171628/http://media.nj.com/morris_impact/other/Jackson-Indictment.pdf">PDF</a>).</p>
+
+<p>In 2010, five of their children were taken away from NJ&apos;s protective services. A <a href="https://web.archive.org/web/20150501171628/http://www.wnd.com/2011/01/253365/">WorldNetDaily article</a>, titled, &quot;Father: &apos;My Children Are Being Held Hostage,&apos;&quot; describes the Johnsons as &quot;devout Christian homeschoolers with a history of serving as adoptive and foster parents&quot; and adds, &quot;According to the Jacksons, DYFS employees, contractors and foster parents alike have demonstrated anti-religious bias, including one case supervisor who refused to allow the Jacksons to pray with their children as they wished, for the reunification of the family.&quot;</p>
+
+<p>The couple has three biological children and two foster/adoptive children, who are all in protective custody now. A third adoptive child died while in the Jacksons&apos; care; <a href="https://web.archive.org/web/20150501171628/http://www.nbcnewyork.com/news/local/Army-Major-Wife-Child-Abuse-Arrest-Federal-Military-Base-New-Jersey-Jackson-205396341.html">the feds don&apos;t think</a> they caused the child&apos;s death but do say the couple didn&apos;t give medical care. The Jacksons face 17 counts, including endangering the welfare of a child and assault. </p>
+
+<p>A neighbor told the Star-Ledger, &quot;It&#x2019;s sad because you live next door to them and you have no idea. They seem like really nice people, but I&#x2019;ve never had a conversation with them. The dad is in the Army and that&#x2019;s all I know. You have no idea who you live around.&quot;</p>					
+										
+									
+				

@@ -1,0 +1,15 @@
+---
+author: Ben Yakas
+date: May 27, 2011  6:02 PM
+title: Mets Gamble On Professional Gambler For Minority Stake
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="2011_05_einhorn.jpg" src="https://web.archive.org/web/20110629194430im_/http://gothamist.com/attachments/jen/2011_05_einhorn.jpg" width="640" height="439"> <br> <i>David Einhorn at a poker event in 2006 (Getty Images)</i></div> <p></p>
+
+<p>Yesterday, the <a href="https://web.archive.org/web/20110629194430/http://gothamist.com/tags/mets">Mets</a> announced that the team was <a href="https://web.archive.org/web/20110629194430/http://gothamist.com/2011/05/26/mets_4.php">exclusively negotiating</a> with 42-year-old hedge fund manager David Einhorn to buy a minority share of the financially beleaguered club. With it looking incredibly likely that Einhorn will spend $200 million to buy less than 49 percent of the team, Mets players gave their decidedly blah reactions to the probable new owner: <strong>&#x201C;I don&#x2019;t pay too much attention. I just try to stay focused on my job</strong>...The thing that I hope for is that things get better for the organization. I don&#x2019;t know what&#x2019;s going to happen,&#x201D; shortstop Jose Reyes <a href="https://web.archive.org/web/20110629194430/http://blogs.wsj.com/metropolis/2011/05/26/mets-react-to-einhorns-bid-for-stake-in-team/?mod=WSJBlog">told WSJ</a>.</p>
+
+<p>Coach Terry Collins, and left fielder Jason Bay had similar &quot;whatever, man&quot; reactions to the off-the-field deal. Pitcher Chris Capuano sounded politely supportive, but implied a certain doubt in the competency of the Mets management: &quot;<strong>I think the financial health of the franchise is a little above our level of expertise down here on the field.</strong> If that&#x2019;s the decision that Fred is making, I&#x2019;m sure it&#x2019;s well thought-out...You hope that people are making informed, smart decisions about the future of the franchise. As a player, you kind of expect that that&#x2019;s what&#x2019;s going on.&#x201D;</p>
+
+<p>Pitcher Mike Pelfrey was the only one who seemed mildly interested in the potential new owner, and his interest mainly lied in the fact that Einhorn finished 18th in the 2006 World Series of Poker: &#x201C;Tell him to come to the back of the plane &#x2014; bring his wallet,&quot; although he wasn&apos;t as sure of himself when he found out how well he did: &#x201C;He can play with Reyes then.&#x201D; </p>
+
+<p>The Times has <a href="https://web.archive.org/web/20110629194430/http://www.nytimes.com/2011/05/27/sports/baseball/a-hedge-fund-managers-latest-bet-the-mets.html?_r=1&amp;hp">more background info</a> on Einhorn, who started his own wildly successful hedge fund, and became well-known for publicly warning about Lehman Brothers&apos; financial health months before the bank declared bankruptcy.</p>

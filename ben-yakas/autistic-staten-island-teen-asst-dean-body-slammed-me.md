@@ -1,0 +1,11 @@
+---
+author: Ben Yakas
+date: March 24, 2011 10:58 AM
+title: Autistic Staten Island Teen: Asst. Dean Body Slammed Me
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="32411teen.jpg" src="https://web.archive.org/web/20110612094938im_/http://gothamist.com/attachments/byakas/32411teen.jpg" width="250" height="213" class="image-left"> </span>A &quot;mildly autistic&quot; Staten Island teen says that he was body slammed by an assistant dean at his school, leaving his left leg broken in several places. Brian Shane said he got into a fight with two other boys during gym class earlier this week at South Richmond High School when assistant dean James McKeon intervened. <a href="https://web.archive.org/web/20110612094938/http://www.silive.com/southshore/index.ssf/2011/03/parents_say_son_fractured_leg.html">His parents said that</a> the dean &quot;grabbed Brian around the chest and wrapped his leg around Brian&#x2019;s leg. They both flew backward in what my son said was like an Ultimate Wrestling move.&quot; We suppose this is one way to guarantee a spot on the dean&apos;s list.</p>
+
+<p>The Shane family is now suing the city for $5 million. <a href="https://web.archive.org/web/20110612094938/http://abclocal.go.com/wabc/story?section=news/local/new_york&amp;id=8031026">They claim</a> this isn&apos;t the first incident that Brian has had there: they claim this is the fifth time their son has been bullied or injured in an incident at the school, and that they&apos;ve asked the district numerous times before for a safety transfer. But this was the final straw for the family: &quot;First of all, he shouldn&apos;t have been touching my son. There&apos;s no reason for him to touch my son,&quot; said David Shane, Brian&apos;s father.</p>
+
+<p>Now Brian, who is &quot;highly functioning autistic,&quot; is in &quot;extreme pain,&quot; will miss hockey season, and will likely be confined to a wheelchair for the next few months. &quot;There&apos;s really no excuse for what the teacher did here. We send our kids to school to be educated and to be safe, not to be body slammed like pro wrestlers,&quot; said Jonathan D&apos;Agostino, the family&apos;s attorney. The family is now considering moving to Canada, where the health insurance flows like manna from heaven, and people really, really care about hockey.</p>

@@ -1,0 +1,11 @@
+---
+author: Ben Yakas
+date: October  8, 2010  4:32 PM
+title: Bloomberg Plans Yanks Parade Route, Angers Jinx Gods
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:600px; "> <img alt="10810yanks.jpg" src="https://web.archive.org/web/20110412160650im_/http://gothamist.com/attachments/byakas/10810yanks.jpg" width="600" height="462"> <br> <i>Last year&apos;s trophy (Bloomberg on the left, Girardi on the right) (Photograph by Jason DeCrow/AP)</i></div> <p></p>
+
+<p>Did Mayor Bloomberg jinx the <a href="https://web.archive.org/web/20110412160650/http://gothamist.com/tags/yankees">Yankees</a> this morning? On his weekly radio program, <a href="https://web.archive.org/web/20110412160650/http://www.nypost.com/p/news/local/city_already_planning_yankees_victory_Bv88mdOuAuNnTr9Dhh0OSN">he told listeners</a> that the city has already begun planning out the Yankees <a href="https://web.archive.org/web/20110412160650/http://gothamist.com/2009/11/06/yankees_fans_revel_in_ticker_tape_p.php">parade route</a>, even though they haven&apos;t won the first round yet. &quot;I&apos;m sort of trying to figure out where the parade should start,&quot; the mayor said (<a href="https://web.archive.org/web/20110412160650/http://newyork.cbslocal.com/2010/10/08/young-yankee-fans-get-head-start-on-world-series/">CBS thought</a> he was joking). One caller responded, &quot;Don&apos;t get ahead of yourself.&quot; </p>
+
+<p>Bloomberg said they needed to plan ahead&#x2014;even so, he didn&apos;t have to tell anyone about it! <a href="https://web.archive.org/web/20110412160650/http://espn.go.com/blog/new-york/yankees/post/_/id/10885/mayor-bloomberg-already-planning-parade">ESPN thinks</a> Joe Girardi must be shaking in his boots: &quot;Girardi likely wouldn&apos;t talk about planning a parade even after the last out of Championship No. 28, but with the Yankees up 2-0 in the ALDS, the Mayor is feeling awfully confident.&quot;</p>

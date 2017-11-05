@@ -1,0 +1,19 @@
+---
+author: Jen Chung
+date: Sep 17, 2014 11:00 am
+title: NY Man Accused Of Trying To Aid ISIS & "Engage In Violent Jihad"
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-right"> <img alt="2014_09_elfgeeh.jpg" src="https://web.archive.org/web/20150510013644im_/http://gothamist.com/attachments/jen/2014_09_elfgeeh.jpg" width="300" height="375"> <br> <i style=" width:300px; ;display:block"> Mufid Elfgeeh</i></div> A Rochester, NY resident has been indicted on three counts of &quot;attempting to provide material support and resources to the Islamic State of Iraq and the Levant (ISIL), aka the Islamic State of Iraq and Syria (ISIS), a designated foreign terrorist organization,&quot; plus counts related to &quot;attempted murder of current and former members of the United States military,&quot; the Department of Justice announced.  <p></p>
+
+<p>Mufid Elfgeeh, 30, a naturalized citizen from Yemen, allegedly wanted to shoot members of U.S. military; encouraged others to &quot;engage in violent jihad&quot; and tried to raise money for a Yemeni man to go to Syria. From the DOJ&apos;s press release:</p><blockquote>According to court documents, in 2013 and into early 2014, Elfgeeh encouraged the two confidential sources (CS-1 and CS-2) to travel overseas to engage in violent jihad.  After CS-1 and CS-2 agreed to travel to Syria to join ISIS, Elfgeeh took several steps to prepare them for the trip.   Elfgeeh also sent $600 to an individual in Yemen for the purpose of assisting that individual in traveling from Yemen to Syria for the purpose of joining and fighting on behalf of ISIS.<br>
+ <br>
+Court documents also indicate that Elfgeeh first discussed the idea of shooting United States military members in December 2013 when he told CS-2 that he was thinking about getting a gun and ammunition, putting on a bulletproof vest, and &#x201C;just go[ing] around and start shooting.&#x201D;  In February 2014, Elfgeeh told CS-2 that he needed a handgun and silencer.   Elfgeeh later gave CS-2 $1,050 in cash to purchase two handguns equipped with silencers and ammunition.  On May 31, 2014, CS-2 delivered the two handguns equipped with silencers and ammunition to Elfgeeh.  After Elfgeeh took possession of the items, he was arrested by members of the Rochester Joint Terrorism Task Force.   Elfgeeh is currently being held in custody.   </blockquote>That arrest <a href="https://web.archive.org/web/20150510013644/http://www.democratandchronicle.com/story/news/2014/09/16/mufid-elfgeeh-islamic-state-indictment-yemen/15734983/">took place in the parking lot of a WalMart</a>. Elfgeeh is scheduled to be arraigned tomorrow. Police Commissioner Bratton said there was <a href="https://web.archive.org/web/20150510013644/http://newyork.cbslocal.com/2014/09/17/bratton-nyc-in-new-era-of-potential-terror-threats/">concern about Americans who support the ISIS and then return</a>, telling reporters, &quot;The potential for them to come back and commit terrorist acts here are very real and it has expanded significantly on the terrorist threat.&quot; <p></p>
+
+<p>Additionally, a message posting on an ISIS forum (originally written weeks ago but re-surfaced recently) <a href="https://web.archive.org/web/20150510013644/http://www.vocativ.com/world/isis-2/isis-pipe-bomb-attack-america/">allegedly recommends pipe bomb attacks</a> on NYC&apos;s Times Square, as well as in Las Vegas, Texas and &quot;metro stations&quot; in the U.S. Bratton said, &quot;This is a new world, if you  will, the evolving world of terrorism-and we are staying ahead of it.&quot;</p>
+
+<p>Bratton has also said there&apos;s no specific threat at this time.</p>					
+										
+									
+				

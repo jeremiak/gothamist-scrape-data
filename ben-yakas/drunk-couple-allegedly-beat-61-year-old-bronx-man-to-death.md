@@ -1,0 +1,11 @@
+---
+author: Ben Yakas
+date: April 23, 2011  4:57 PM
+title: Drunk Couple Allegedly Beat 61-Year-Old Bronx Man To Death
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="42311caution.jpg" src="https://web.archive.org/web/20110629211346im_/http://gothamist.com/attachments/byakas/42311caution.jpg" width="250" height="134" class="image-left"> </span>A couple allegedly beat and killed an older man in the Bronx early this morning after a drunken altercation. Quinton Guerrero, 61, was attacked around 1:30 a.m. today in front of his home at 480 East 138th Street by a couple who fled the scene. &quot;I heard fighting and then I heard a loud thump like someone fell on the floor. I looked out the window and saw someone on the ground unconscious face up,&quot; Oscar Porrata, one of Guerrero&apos;s neighbors, <a href="https://web.archive.org/web/20110629211346/http://www.nydailynews.com/news/ny_crime/2011/04/23/2011-04-23_drunk_couple_stomps_61yearold_man_to_death_after_latenight_runin_on_bronx_street.html">told the News</a>.</p>
+
+<p>Police <a href="https://web.archive.org/web/20110629211346/http://www.nypost.com/p/news/local/bronx/brutal_beating_death_of_bronx_man_5W8oQae0SQSxr0p6zAVYQP">believe that</a> the couple, a man and woman whose identities haven&apos;t been revealed yet, ran into Guerrero as they were retuning home to the Mott Haven area in a livery cab after a night of drinking. As the man paid for the cab, the woman started talking to Guerrero, who was passing by; it is unknown what they argued about, but the woman &quot;got in the face&quot; of the older man. One thing led to another, and the couple knocked Guerrero to the ground and started punching him and stomping on his head with their feet, according to cops. Neighbors heard the commotion, and called the cops; Guerrero was pronounced dead shortly after at the hospital. </p>
+
+<p>The couple fled, but the livery driver gave cops a description, and then picked them up soon after. Charges are pending against them. Neighbors remembered Guerrero as a lively, friendly, upstanding person: &quot;Quinn was loved by everyone [and] he was always well dressed. Just a great guy to talk to. He will be missed,&quot; said Daniel Soto.</p>

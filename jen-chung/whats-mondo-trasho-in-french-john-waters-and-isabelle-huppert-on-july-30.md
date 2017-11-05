@@ -1,0 +1,17 @@
+---
+author: Jen Chung
+date: Jul 23, 2014 2:12 pm
+title: What's Mondo Trasho In French? John Waters And Isabelle Huppert On July 30
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2014_07_huppertwaters.jpg" src="https://web.archive.org/web/20161018192803im_/http://gothamist.com/attachments/jen/2014_07_huppertwaters.jpg" width="640" height="469"> <br> <i> Huppert. Waters. We&apos;d watch that buddy cop movie. (Getty Images)</i></div> <p></p>
+
+<p>The subversive and iconic auteur John Waters has worked with many great actors as he skewers American life, but did you know his &quot;favorite actress in the world&quot; is from France? It&apos;s the sublime Isabelle Huppert, and Waters will be <a href="https://web.archive.org/web/20161018192803/http://www.filmlinc.com/blog/entry/an-evening-with-isabelle-huppert-moderated-by-john-waters">hosting a conversation</a> with her <a href="https://web.archive.org/web/20161018192803/http://www.filmlinc.com/films/on-sale/abuse-of-weakness-isabelle-huppert">next Wednesday, July 30</a>, at the Film Society of Lincoln Center. </p>
+
+<p>Huppert&apos;s films include <em>Story of Women</em>, <em>La Ceremonie</em> (it&apos;s on Hulu Plus!), <em>The Piano Teacher</em> and <em>I Heart Huckabee&apos;s</em>. <a href="https://web.archive.org/web/20161018192803/http://timparksmediaho.wordpress.com/2010/04/26/john-waters&#x2019;-&#x2018;filthy-world&#x2019;/">In a 2010 interview</a>, Waters proclaimed that he&apos;d love to cast Meryl Streep and &quot;And Isabelle Huppert, who always tells me she would be in one of my movies, but I can&#x2019;t figure a way to have French accent in redneck Baltimore. She may have to have her car hi-jacked at the airport.&quot; Well, until that collaboration, he&apos;s presenting Huppert&apos;s latest film, Catherine Breillat&apos;s <em>Abuse of Weakness</em>, which <a href="https://web.archive.org/web/20161018192803/http://www.indiewire.com/article/john-waters-top-films-of-2013-spring-breakers-is-1">he deemed magnificent in a roundup</a>: </p><blockquote>Isabelle Huppert, my favorite actress in the world, plays a crazy director (based on Breillat) who recovers from a massive brain injury by falling for the convict swindler she casts in her film. Their nonsexual, obsessive relationship is sheer perfection to watch, especially when Huppert keeps falling down in those weirdly glamorous orthopedic shoes.</blockquote>Fun fact: Huppert will be starring opposite Cate Blanchett in <a href="https://web.archive.org/web/20161018192803/http://lincolncenterfestival.org/current-season/the-maids">Lincoln Center Festival&apos;s production of <em>The Maids</em></a> next month. <p></p>
+
+<p><a href="https://web.archive.org/web/20161018192803/http://www.filmlinc.com/films/on-sale/abuse-of-weakness-isabelle-huppert">Tickets are $25</a> (or $20 for students, seniors and Film Society members) for the 6 p.m. screening and conversation. It should be a lively night. (Warning: Don&apos;t Waters ask about felching <a href="https://web.archive.org/web/20161018192803/http://gothamist.com/2013/11/14/john_waters_interview_1.php">unless you really want to know</a>.) At 9 p.m., there&apos;s a screening of <em>The Piano Teacher</em> ($13), introduced by Huppert.</p>					
+										
+									
+				

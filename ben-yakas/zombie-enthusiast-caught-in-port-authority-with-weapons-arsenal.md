@@ -1,0 +1,13 @@
+---
+author: Ben Yakas
+date: April  7, 2011  3:54 PM
+title: "Zombie Enthusiast" Caught In Port Authority With Weapons Arsenal
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:636px; "> <img alt="4711zombies.jpg" src="https://web.archive.org/web/20120119001033im_/http://gothamist.com/attachments/byakas/4711zombies.jpg" width="636" height="422"> <br> <i><a href="https://web.archive.org/web/20120119001033/http://www.flickr.com/photos/jimkiernan/sets/72157625055141423/with/5088061837/">Jim Kiernan&apos;s flickr</a></i></div> <p></p>
+
+<p>Just because we host bar crawls and festivals in their honor doesn&apos;t mean that NYC is some sort of Mecca for brain-starved <a href="https://web.archive.org/web/20120119001033/http://gothamist.com/tags/zombies">zombies</a> seeking asylum. But one self-described &quot;zombie enthusiast&quot; obviously was convinced that this was the case, since he <a href="https://web.archive.org/web/20120119001033/http://www.nypost.com/p/news/local/manhattan/armed_zombie_arrest_IIJkVSAoZz9a9ze1PNsDSI?CMP=OTC-rss&amp;FEEDNAME=">was arrested</a> this week at Port Authority carrying a mini arsenal of anti-zombie weapons on him. Did someone take <a href="https://web.archive.org/web/20120119001033/http://gothamist.com/2010/04/06/roger_ma_zombie_fighter.php">The Zombie Combat Manual</a> a bit too literally?</p>
+
+<p>Christopher Rodger, 25, was spotted by police at the Port Authority Bus Terminal on Tuesday night; he was wearing a trench coat on a warm evening, had an &quot;empty&quot; look in his eyes, and had a long camouflage bag slung over his shoulder. PA Officers Thomas Kemble and Leonard Trubia questioned him, and he immediately admitted he was carrying a gas-powered pellet gun. Searching in his bag, they found a treasure trove of weapons: five samurai swords, three daggers and other knives, burglar tools, night-vision goggles and hand-drawn blueprints.</p>
+
+<p>Rodger is now in custody, but we have so many questions still: was he planning on pulling off a heist? What were the blueprints for? Why does someone need five samurai swords (The Bride only had one!)? Was the &quot;zombie enthusiast&quot; line his cover story for something ever wackier? Or does he know something we don&apos;t know? Maybe Rodger was just preparing for a long journey on a desolate <a href="https://web.archive.org/web/20120119001033/http://en.wikipedia.org/wiki/The_Road">Road</a>. Because as we all know, it&apos;s never too early to start planning for the <a href="https://web.archive.org/web/20120119001033/http://gothamist.com/tags/apocalypse">Apocalypse</a>!</p>

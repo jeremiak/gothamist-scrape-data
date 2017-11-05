@@ -1,0 +1,11 @@
+---
+author: Ben Yakas
+date: September  2, 2010  5:46 PM
+title: Study: Pot Isn't Really A Gateway Drug, Man
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:220px; "> <img alt="9210pot.jpg" src="https://web.archive.org/web/20110611063709im_/http://gothamist.com/attachments/byakas/9210pot.jpg" width="220" height="333"> <br> <i>But Ann Landers said it was...</i></div> According to <a href="https://web.archive.org/web/20110611063709/http://www.physorg.com/news202619339.html">new research</a> from the University of New Hampshire, <a href="https://web.archive.org/web/20110611063709/http://gothamist.com/tags/marijuana">marijuana</a> is not the gateway drug your grandmother made it out to be. The study, which appears in the September 2010 issue of the <a href="https://web.archive.org/web/20110611063709/http://hsb.sagepub.com/">Journal of Health and Social Behavior</a> in the article, &quot;A Life-course Perspective on the &apos;Gateway Hypothesis,&apos;&quot; found that while teens who smoked marijuana were more likely to use harder illicit drugs while they&apos;re young, the gateway effect was lessened by 21, and factors such as employment status and stress were more important in those decisions. <p></p>
+
+<p>The researchers examined survey data from 1,300 mostly male Hispanic, white, and African-American young adults who attended south Florida public schools in the 1990s. The participants were followed from enrollment in the sixth or seventh grade until they reached their late teens or early 20s. The researchers found that the strongest predictor of other illicit drug use seemed to be race-ethnicity, not prior use of marijuana. </p>
+
+<p>Researcher Karen Van Gundy <a href="https://web.archive.org/web/20110611063709/http://www.physorg.com/news202619339.html">says</a> the researchers didn&apos;t set out to disprove the gateway theory: &quot;We were somewhat surprised to find the gateway effect wasn&apos;t that strong during the transition to adulthood. It really didn&apos;t matter if someone used marijuana or not as a teen...If we overly criminalize behaviors like marijuana use among teens, this could interfere with opportunities for education and employment later on, which, in turn, could be creating more drug use.&quot;</p>

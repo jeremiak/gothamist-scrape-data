@@ -1,0 +1,15 @@
+---
+author: Ben Yakas
+date: Sep 29, 2012 4:35 pm
+title: Prisoner Who Suffered Five-Day Erection In Jail Sues City
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left"> <img alt="6412hospital.jpg" src="https://web.archive.org/web/20150611215541im_/http://gothamist.com/attachments/nyc_chrisrobbins/6412hospital.jpg" width="250" height="373"> <br> <i style=" width:250px; ;display:block"> Oy (<a href="https://web.archive.org/web/20150611215541/http://www.shutterstock.com/gallery-7397p1.html">Shutterstock</a> / <a href="https://web.archive.org/web/20150611215541/http://website.com/">Tyler Fox</a>)</i></div> <a href="https://web.archive.org/web/20150611215541/http://www.nypost.com/p/news/local/manhattan/stiff_sentence_HKpOcQNaARnwzQZ60dl5ZN?utm_medium=rss&amp;utm_content=Manhattan">According to the Post</a>, a man who claims he suffered a five-day erection while in jail is suing the city because he &#x201C;suffered permanent injuries to his penis&quot; as a result of the lack of attention to his glaring problem. Rodney Cotton filed the suit in Manhattan Criminal Court, alleging that when he was finally taken to Bellevue Hospital for emergency surgery, the operation didn&#x2019;t go well. Unfortunately&#x2014;or fortunately&#x2014;it doesn&apos;t get into any more details of what &quot;didn&apos;t go well&quot; could possibly mean for the man&apos;s <a href="https://web.archive.org/web/20150611215541/http://gothamist.com/2012/06/05/suffering_disabling_erection_man_al.php">Chattanooga One-Step.</a><p></p>
+
+<p>You may be surprised, but this far from the first time a NY prisoner found himself dealing with such a problem&#x2014;back in 2006, David Yaduallah <a href="https://web.archive.org/web/20150611215541/http://gothamist.com/2009/06/08/prison_inmate_sues_over_55_hour_ere.php">had an erection for more than two days straight</a> (the result of a increase in Seroquel, an anti-psychotic medication that can cause side-effects such as &quot;persistent and painful erections&quot;). He sued the infirmary nurse (Judith Lovelace!) for &quot;cruel and uncivilized conduct&quot; because she didn&apos;t help his erection go away, causing him to suffer permanent damage. </p>
+
+<p>But wait, there&apos;s more! Earlier this year, Connecticut bus driver Daren Scott <a href="https://web.archive.org/web/20150611215541/http://gothamist.com/2012/06/05/suffering_disabling_erection_man_al.php">suffered a  &quot;disabling erection,&quot;</a> and ended up suing Yale-New Haven Hospital ER because doctors ignored him in favor of watching a baseball game.  Of course, none of these stories comes close to topping <a href="https://web.archive.org/web/20150611215541/http://msnbc.msn.com/id/13509704/#.UGdLp8hSQfF">Charles &quot;Chick&quot; Lennon</a>, who got a penile implant that caused him to have <strong>a 10-year erection</strong> which prevented him from riding a bike, hugging people, and spending time with his grandchildren.</p>					
+										
+									
+				

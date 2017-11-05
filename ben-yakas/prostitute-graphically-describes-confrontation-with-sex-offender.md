@@ -1,0 +1,13 @@
+---
+author: Ben Yakas
+date: June  9, 2011  2:19 PM
+title: Prostitute Graphically Describes Confrontation With Sex Offender
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="6911blade.jpg" src="https://web.archive.org/web/20110811130253im_/http://gothamist.com/attachments/byakas/6911blade.jpg" width="240" height="240" class="image-left"> </span>A Hunts Points prostitute testified in the Bronx yesterday in the trial of an accused serial sex assaulter. James Schlau,  a registered sex offender, is accused of two sex assaults and the rape of three Bronx prostitutes. The 23-year-old victim <a href="https://web.archive.org/web/20110811130253/http://www.nypost.com/p/news/local/bronx/hooker_describes_terrifying_confrontation_hErGCJaXNRuM6YEVgz09vO?CMP=OTC-rss&amp;FEEDNAME=">described her</a> terrifying encounter with him in detail: <strong>&quot;&#x2018;Open your legs or I&#x2019;ll cut your p----,&#x2019;</strong>&quot; he allegedly threatened her.</p>
+
+<p>She said that Schlau, a partially deaf ex-con, <a href="https://web.archive.org/web/20110811130253/http://www.nydailynews.com/news/ny_crime/2011/06/08/2011-06-08_accused_serial_sex_attacker_on_trial_for_raping_prostitute_threatening_to_slice_.html">threatened her with</a> a razor blade if she didn&apos;t have sex with him. &quot;His voice was very creepy and I&#x2019;ll never forget that voice...It scared me and started making me get chills all over my body,&quot; she testified. After she was forced to perform oral sex, Schlau allegedly punched her in the face, then tried to have sex with her: &quot;He forced me to do things I didn&apos;t want to do. He was a coward.&quot;</p>
+
+<p>The woman said she recognized his voice immediately two weeks after the assault when she was in the 41st Precinct on a summons for disorderly conduct, and Schlau was there after being picked up on a weapons charge. Schlau, who works for a bus shelter cleaning company based in Queens, was arrested in Minnesota in 1998 for attacking a woman, and reincarcerated after he tried to flee in 2005 during a brief release with &quot;intense supervision.&quot; </p>
+
+<p>Schlau is registered as a violent sex offender in NY. According <a href="https://web.archive.org/web/20110811130253/http://online.wsj.com/article/AP1f2a47a62b4944edba25853124ce6a90.html">to AP</a>, Schlau&apos;s lawyer admitted that her client does frequent prostitutes, but never raped them.</p>

@@ -1,0 +1,28 @@
+---
+author: Jen Chung
+date: May 21, 2016 12:45 pm
+title: NY Post Decides Leonardo DiCaprio's 'Environmental Hypocrisy' Is Saturday Cover Material
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2016_05_dicap1.jpg" src="https://web.archive.org/web/20161021132124im_/http://gothamist.com/attachments/jen/2016_05_dicap1.jpg" width="640" height="427"> <br> <i> Leonardo DiCaprio at the amfAR fundraiser in Cannes (Getty Images)</i></div> <p></p>
+
+<p>It&apos;s Saturday, and since the <a href="https://web.archive.org/web/20161021132124/http://nypost.com/2016/04/14/the-post-endorses-donald-trump/">Post endorsed Donald Trump</a>, there was no point in featuring our future Beloved Leader&apos;s NRA meeting on the front page (the Daily News, though, <a href="https://web.archive.org/web/20161021132124/https://twitter.com/NYDailyNews/status/733991290245910528">got out its Photoshop Clown app</a>). So, instead, the Post decided Leonardo DiCaprio would be a suitable target:</p>
+
+<center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">Today&apos;s cover: Hypocritical Leo takes private jet to collect environmental award <a href="https://web.archive.org/web/20161021132124/https://t.co/3m4CiWxKFg">https://t.co/3m4CiWxKFg</a> <a href="https://web.archive.org/web/20161021132124/https://t.co/MEKuw9tPSh">pic.twitter.com/MEKuw9tPSh</a></p>&#x2014; New York Post (@nypost) <a href="https://web.archive.org/web/20161021132124/https://twitter.com/nypost/status/733969023369662464">May 21, 2016</a></blockquote>
+<script async src="//web.archive.org/web/20161021132124js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<p><a href="https://web.archive.org/web/20161021132124/http://pagesix.com/2016/05/20/hypocrite-leo-takes-private-jet-to-collect-green-award/?_ga=1.173051875.1965030224.1401028033">Page Six&apos;s angle is pretty good</a>: &quot;Leo DiCaprio picked up an environmental award in NYC this week &#x2014; but hypocritically expanded his carbon footprint by 8,000 miles when he obtained the honor, by taking a private jet from Cannes, then flying straight back to France on another jet for a model-packed fund-raiser a night later.&quot; </p>
+
+<p>DiCaprio is a notable environmental activist, <a href="https://web.archive.org/web/20161021132124/http://leonardodicaprio.org/">with a foundation</a> that pledges <a href="https://web.archive.org/web/20161021132124/http://www.justjared.com/2016/01/19/leonardo-dicaprios-foundation-donates-another-15-million-dollars-to-environmental-projects-video/">millions to various causes</a> and an enviable platform to speak up&#x2014;<a href="https://web.archive.org/web/20161021132124/http://www.theguardian.com/environment/2016/feb/29/how-leonardo-dicaprio-oscar-climate-change-campaigner">during this Best Actor acceptable speech</a> at the Oscars, he said, &quot;Climate change is real, it is happening right now, it is the most urgent threat facing our entire species, and we need to work collectively together and stop procrastinating.&quot;</p>
+
+<p>He also <a href="https://web.archive.org/web/20161021132124/http://therealdeal.com/2014/03/17/dicaprio-buys-out-neighbors-expands-at-2-river-terrace/">has an apartment</a> at The Riverhouse in Battery Park City, a LEED gold certified building. </p>
+
+<p>Environmental analyst Robert Rapier argues to Page Six that Leo&apos;s &quot;movie-star lifestyle&quot;&#x2014;which includes the charter planes and <a href="https://web.archive.org/web/20161021132124/http://www.dailymail.co.uk/tvshowbiz/article-3091601/Leonardo-DiCaprio-cuts-lonesome-figure-mills-aboard-450ft-superyacht-Cannes.html">private yachts</a> (especially ones <a href="https://web.archive.org/web/20161021132124/http://www.dailymail.co.uk/tvshowbiz/article-3380813/Leonardo-DiCaprio-cuts-rugged-unshaven-appearance-white-vest-Robin-Thicke-kick-yacht-St-Barts.html">with Robin Thicke</a>)&#x2014;&quot;&apos;diminishes his moral authority to lecture others on reducing their own carbon emissions.&apos;&quot; </p><blockquote>&#x201C;[He] demonstrates exactly why our consumption of fossil fuels continues to grow. It&#x2019;s because everyone loves the combination of cost and convenience they offer. Alternatives usually require sacrifice of one form or another.&#x201D; Rapier added, &#x201C;Everybody says, &#x2018;I&#x2019;ve got a good reason for consuming what I consume&#x2019; .&#x2009;.&#x2009;. It&#x2019;s the exact same rationalization for billions of people.&#x201D;</blockquote>A DiCaprio inside said that the <a href="https://web.archive.org/web/20161021132124/https://media3.popsugar-assets.com/files/2014/01/13/816/n/1922398/a2bad77c4cef4232_Tina-Amy-WENT-Leo.gif.xxxlarge.gif">serial modelizer</a> wasn&apos;t being an environmental monster, claiming he &quot;hitched a ride with someone already flying back [and] to Cannes. Hitching a ride was the only way he could make it in time for both events.&quot;<p></p>
+
+<p>Yeah, taking CitiBike would be too slow, man.</p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2016_05_dicapriociti.jpg" src="https://web.archive.org/web/20161021132124im_/http://gothamist.com/attachments/jen/2016_05_dicapriociti.jpg" width="640" height="640"> <br> <i> CitiBiking Leo (Pacific Coast News)</i></div> <p></p>					
+										
+									
+				

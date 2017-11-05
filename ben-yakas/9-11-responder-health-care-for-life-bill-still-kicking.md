@@ -1,0 +1,10 @@
+---
+author: Ben Yakas
+date: March 15, 2010  2:35 PM
+title: 9/11 Responder Health-Care-For-Life Bill Still Kicking
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="31510zero.jpg" src="https://web.archive.org/web/20120602111947im_/http://gothamist.com/attachments/byakas/31510zero.jpg" width="220" height="165" class="image-left"> </span>NY politicians are <a href="https://web.archive.org/web/20120602111947/http://www.nypost.com/p/news/local/pols_want_lifetime_coverage_for_3bCEJ6vQM2DCJQ6RXncaxM">pushing</a> Congress to pass a bill that would provide Ground Zero workers with health care for life. The $11 billion James Zadroga 9/11 Health and Compensation Act, named after the NYC cop <a href="https://web.archive.org/web/20120602111947/http://gothamist.com/2008/09/07/new_questions_about_911_rescuers_de.php">who died</a> of toxic dust from Ground Zero, is a supplement to the $657 million settlement that NYC has <a href="https://web.archive.org/web/20120602111947/http://gothamist.com/2010/03/12/city_to_settle_911_responder_lawsui.php">offered</a> for the thousands of 9/11 responders who were sickened by the toxic conditions. </p>
+
+<p>The settlement, which must be approved by a judge and 95% of the plaintiffs in the next 90 days, works on a points system based on severity of illness; even if it passes, the Zadroga bill is a more permanent, long-term solution for health care woes. &quot;Some say [the settlement] is a good deal, some say it is a bad deal. One thing we all agree upon, even if it is completely adopted, it is entirely insufficient to deal with all the health problems we have,&quot; Rep. Anthony Weiner <a href="https://web.archive.org/web/20120602111947/http://www.nydailynews.com/news/2010/03/15/2010-03-15_ny_pols_press_for_911_aid_urge_congress_to_step_up_to_the_plate_and_provide_long.html">told the Daily News.</a> The bill, co-authored by Rep. Carolyn Maloney and Rep.Jerrold Nadler, has been &quot;languishing in Congress for years,&quot; according to the News, and likely won&apos;t be resolved before the settlement deadline.<br>
+</p>

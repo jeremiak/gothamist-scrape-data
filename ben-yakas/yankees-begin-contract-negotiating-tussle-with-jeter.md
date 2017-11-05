@@ -1,0 +1,13 @@
+---
+author: Ben Yakas
+date: November  4, 2010  1:31 PM
+title: Yankees Begin Contract Negotiating Tussle With Jeter
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="11310jeter.jpg" src="https://web.archive.org/web/20111130141353im_/http://gothamist.com/attachments/byakas/11310jeter.jpg" width="640" height="504"> <br> <i>AP</i></div> <p></p>
+
+<p>With manager Joe Girardi&apos;s contract negotiations <a href="https://web.archive.org/web/20111130141353/http://gothamist.com/2010/10/27/yanks_close_to_re-signing_girardi.php">settled</a>, the Yankees have now turned their <a href="https://web.archive.org/web/20111130141353/http://gothamist.com/2010/10/24/yankees_face_questions_as_postseaso.php">attention</a> toward re-signing the heart of their team, shortstop Derek Jeter. While it may seem like a done deal that the Yankees captain will be back next year, co-owner Hal Steinbrenner played coy during a radio interview: &#x201C;He&#x2019;s one of the greatest Yankees in history; no doubt about it. <strong>But at the same time, I&#x2019;m running a business. I have responsibilities.</strong>&#x201D;</p>
+
+<p>While it may not sound like much, <a href="https://web.archive.org/web/20111130141353/http://newyork.cbslocal.com/2010/11/03/sweeny-says-let-the-posturing-begin/">CBS interprets the quote as</a> Steinbrenner &quot;posturing,&quot; nervous and somewhat unwilling to overpay the 36-year-old Jeter, who is coming off a career-low .270 batting average. Jeter made $21 million this past year, the final season of a 10-year, $189 million contract. CBS <a href="https://web.archive.org/web/20111130141353/http://newyork.cbslocal.com/2010/11/03/sweeny-says-let-the-posturing-begin/">reports</a> that &quot;there are people in the industry who believe it would be imprudent of the Yankees to just overpay Jeter...But several big league executives have told me Jeter and his representative might have to come to the table prepared for a pay cut from the $18.9 million average of the last decade.&quot;</p>
+
+<p>Nevertheless, Jeter&apos;s agent Casey Close <a href="https://web.archive.org/web/20111130141353/http://www.nypost.com/p/sports/yankees/agent_says_jete_value_can_be_overstated_1IFdrnaYsW7jQagto2fM1J">responded</a>, &#x201C;Clearly, baseball is a business, and Derek&#x2019;s impact on the sport&#x2019;s most valuable franchise cannot be overstated. Moreover, no athlete embodies the spirit of a champion more than Derek Jeter.&#x201D; All sides want, and know, Jeter will be in the starting lineup for the team next year. The only question is which side will blink first.</p>

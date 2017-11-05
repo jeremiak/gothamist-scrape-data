@@ -1,0 +1,17 @@
+---
+author: Ben Yakas
+date: Dec 26, 2010 2:05 pm
+title: Sports Groupies Target Dumb Jocks For Cars
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="122610groupies.jpg" src="https://web.archive.org/web/20150808084912im_/http://gothamist.com/attachments/byakas/122610groupies.jpg" width="240" height="165" class="image-left"> </span></p>
+
+<p>Twas the night before Christmas, and all through the house, the NY Post was investigating the lifestyle of sports groupies, with nary a comment from any spouse. The Post has an inexplicable, but completely welcome, <a href="https://web.archive.org/web/20150808084912/http://www.nypost.com/p/news/local/sack_dance_by_grid_groupies_VkclmOPQsbxCDqi6RpEFDP/0">feature on</a> sports groupies today, and it turns out they are a surprisingly well-organized online community who share advise and experiences on site <a href="https://web.archive.org/web/20150808084912/http://www.balleralert.com/">Baller Alert</a>. And in the shifting sands of athlete hook-ups, players today are &quot;less likely to meet girls at a strip club or bar than they are on Facebook&quot; and Twitter. So, contact some player on Facebook, and you might end up having his babies? </p>
+
+<p>If you are Jet cornerback Antonio Cromartie, <a href="https://web.archive.org/web/20150808084912/http://gothamist.com/2010/10/10/jet_cromartie_has_one_more_kid_than.php">who has</a> nine children by eight different women in six states, that very well may be the case. The Post alleges that when he met two different groupies became two of his eight baby mamas. And at the very least, you&apos;ll get a watch or a car it seems; there&apos;s one anecdote about user &quot;Angelina Yee,&quot; who asked her fellow groupies when and how to approach her baller for a Christmas car, &quot;nothing major, just a CTS or a 535 or something...40-50 thousand range.&quot; Among the many pieces of advise on how to land a &quot;baller&quot; for groupies-in-training, there is one abiding principal: only chase the really, really dumb jocks. &quot;Start to focus on the ones who have criminal records, many baby mommas and plenty of kids, and have &apos;advisors&apos; (i.e. cousins/homeboys that handle their business/money). They&apos;ll be easy to recognize cause they always look &apos;lost&apos; and &apos;slow.&apos; He barely makes eye contact. He got a short attention span and easily gets distracted. He gotta think about the words he wanna use before he speaks and still mispronounce the words,&quot; &quot;Official Groupie&quot; wrote in a three-part series.</p>
+
+<p>The women are also ruthless with anyone who breaks the <a href="https://web.archive.org/web/20150808084912/http://www.balleralert.com/forum/topics/warning-lesson-to-young">groupie rules</a>: no-names, no-incriminating evidence, and no braggadocio. If you break them, you&apos;ll end up with your name and picture plastered on the site, as happened to one woman whose picture is used by the Post in their story. The women do make one exception to the no-gossiping rule, which is the &quot;bad baller list,&quot; a do-not-date memo of &quot;cringe-worthy bedroom behavior and faulty equipment;&quot; the list allegedly includes Cincinnati Bengal Chad Ochocinco, Boston Celtics star Paul Pierce, and Jets wide receiver Braylon Edwards.</p>					
+										
+									
+				

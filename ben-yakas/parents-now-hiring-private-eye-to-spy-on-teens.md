@@ -1,0 +1,11 @@
+---
+author: Ben Yakas
+date: January 16, 2011  3:30 PM
+title: Parents Now Hiring Private Eye To Spy On Teens
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="11611pi.jpg" src="https://web.archive.org/web/20110623151514im_/http://gothamist.com/attachments/byakas/11611pi.jpg" width="200" height="270" class="image-left"> </span></p>
+
+<p>Gumshoes are starting to sound a bit desperate for work: first, we heard about a real-life Ace Ventura <a href="https://web.archive.org/web/20110623151514/http://gothamist.com/2010/12/26/finally_ace_ventura_real_life_dog-w.php">pet detective</a>, and now <a href="https://web.archive.org/web/20110623151514/http://www.nydailynews.com/ny_local/2011/01/16/2011-01-16_teens_beware_parents_hire_this_guy_to_spy_on_you.html">the News</a> has a story on retired NYPD cop Andy Spieler, who makes his living in the heady world of teenage surveillance. </p>
+
+<p>Spieler says he&apos;s hired by worried parents to spy on their wayward teens, with a $75 hourly rate. &quot;There are a lot of anxious parents out there who suspect their kids aren&apos;t telling them the truth. They can&apos;t follow their kids because they&apos;ll be recognized, so I hit the streets for them,&quot; said Spieler, a licensed private investigator whose nicknames include &quot;Pubescent Pinkerton,&quot; and &quot;Teenybopper Bond.&quot; One of Spieler&apos;s clients defended outsourcing the <strike>parenting</strike> monitoring of her child: &quot;Better I pry now than you cry later. <strong>People might say I have trust issues, but my son is safer because I had him followed,&quot;</strong> said Linda, 44, whose 17-year-old son was caught talking on his cell phone while driving. Also unbeknownst to her son, Linda will probably serve as the femme fatale character in Spieler&apos;s novel, <a href="https://web.archive.org/web/20110623151514/http://www.harkavagrant.com/index.php?id=293">&quot;Andy Spieler: Mystery at the Moss-Covered Mansion.&quot;</a></p>

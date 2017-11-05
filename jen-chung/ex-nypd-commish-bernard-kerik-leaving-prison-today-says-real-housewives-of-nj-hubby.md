@@ -1,0 +1,19 @@
+---
+author: Jen Chung
+date: May 28, 2013 10:12 am
+title: Ex-NYPD Commish Bernard Kerik Leaving Prison Today, Says Real Housewives Of NJ Hubby
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2013_05_bkerik.jpg" src="https://web.archive.org/web/20150502160708im_/http://gothamist.com/attachments/jen/2013_05_bkerik.jpg" width="640" height="427"> <br> <i> Bernard Kerik in 2009, during his trial (Getty Images)</i></div> <p></p>
+
+<p>Rudy Giuliani&apos;s good friend and current convict, former <a href="https://web.archive.org/web/20150502160708/http://gothamist.com/tags/bernardkerik">NYPD Commissioner Bernard Kerik</a>, may be headed home today after spending four years in prison. <a href="https://web.archive.org/web/20150502160708/http://www.nbcnewyork.com/news/local/Bernard-Kerik-Leaving-Prison-Disgraced-NYPD-Commissioner-Returns-New-Jersey-Brownstone-Catering-209114621.html">NBC New York got the scoop</a>&#x2014;from the husband of a Bravo reality star who happens to be catering Kerik&apos;s welcome home party.</p>
+
+<p>Albert Manzo, who operates Brownstone catering, said that Kerik &quot;put a request in for some food that he&apos;s been missing for a few years. He loves our short ribs, shrimp scampi -- a lot of things he doesn&apos;t have access to there.&quot; [Manzo, besides being married to <a href="https://web.archive.org/web/20150502160708/http://www.bravotv.com/people/caroline-manzo">Caroline Manzo</a>, one of the stars of the Real Houswives of New Jersey, is son of father, Albert &quot;Tiny&quot; Manzo, who was killed in a mob hit. &quot;Tiny&quot; was <a href="https://web.archive.org/web/20150502160708/http://www.nydailynews.com/entertainment/tv-movies/real-housewives-new-jersey-family-ties-rubbed-tiny-manzo-article-1.365784">found shot four times</a>, naked and bound in a car trunk.]</p>
+
+<p>Kerik, who was also the former head of NYC&apos;s Department of Corrections, led the NYPD during the end of Rudy Giuliani&apos;s mayoralty, but his profile was elevated due to the September 11, 2001 attacks and President George W. Bush <a href="https://web.archive.org/web/20150502160708/http://gothamist.com/2004/12/03/former_nyc_police_commish_kerik_appointed_to_head_homeland_security.php">even nominated</a> him to be the head of Homeland Security. Then it turned out that Kerik <a href="https://web.archive.org/web/20150502160708/http://gothamist.com/2005/11/16/bernie_kerik_lo.php">lied to the feds, committed tax fraud and took gifts</a> (a $250,000 renovation). Prosecutors showed how he once <a href="https://web.archive.org/web/20150502160708/http://gothamist.com/2010/02/09/kerik_sentencing_looms_prosecutors.php">complained in a 1999 letter</a>, &quot;I can&apos;t go to the Carribean [sic] or Florida on a three day stint just because my dick gets hard or because I need a rest. I can&apos;t go out an buy a motorcycle or a car, or a Rolex watch at the drop of a dime, like I&apos;ve watched you do.&quot; He was <a href="https://web.archive.org/web/20150502160708/http://gothamist.com/2009/12/18/slim_kerik_looking_lean_and_clean_a.php">sentenced to 33 months</a> and has made some trips <a href="https://web.archive.org/web/20150502160708/http://gothamist.com/2012/10/16/gaunt_moustache-less_bernie_kerik_c.php">to the outside in shackles for some testimony</a>.</p>
+
+<p>According to NBC New York, &quot;Kerik is expected to ride back from Maryland with friends, leaving at about 9 a.m. and likely arriving in New Jersey in the afternoon, according to sources familiar with his plans.&quot; Manzo added, &quot;I can only speculate. But I&apos;d say there&apos;s two or three books out there. I&apos;d be looking for a TV movie.&quot;</p>					
+										
+									
+				

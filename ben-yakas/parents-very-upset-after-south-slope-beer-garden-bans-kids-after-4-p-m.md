@@ -1,0 +1,15 @@
+---
+author: Ben Yakas
+date: Sep 16, 2012 5:00 pm
+title: Parents Very Upset After South Slope Beer Garden Bans Kids (After 4 P.M.)
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="91612bar.jpeg" src="https://web.archive.org/web/20150427174220im_/http://gothamist.com/attachments/byakas/91612bar.jpeg" width="640" height="427"> <br> <i> <a href="https://web.archive.org/web/20150427174220/http://www.samhorine.com/">Sam Horine</a>/Gothamist</i></div> <p></p>
+
+<p>The divide over <a href="https://web.archive.org/web/20150427174220/http://gothamist.com/2010/01/15/park_slope_parents_still_bringing_b.php">bar babies</a> has never seemed wider in South Slope: <a href="https://web.archive.org/web/20150427174220/http://gothamist.com/2012/06/29/photos_drink_3_drafts_outside_and_p.php#photo-1">Greenwood Park only opened a few months ago</a>, and already there has been wide debate over whether children should be allowed to hang out in its giant outdoor beer garden. <a href="https://web.archive.org/web/20150427174220/http://www.yelp.com/biz/greenwood-park-brooklyn#hrid:FPSTrD9khn6-TgxOB3W9Qg">Yelp complaints</a> about the &quot;jungle gym&quot;-like atmosphere even <a href="https://web.archive.org/web/20150427174220/http://cityroom.blogs.nytimes.com/2012/08/01/a-child-friendly-beer-garden-doesnt-seem-so-friendly-to-some/?hpw">reached the Times</a>. Now, <a href="https://web.archive.org/web/20150427174220/http://www.greenwoodparkbk.com/">Greenwood Park</a> has come up with a compromise, not allowing kids after 4 p.m.&#x2014;and parents aren&apos;t thrilled: &#x201C;Four is too early for sure,&#x201D; mother-of-four Yuna Weiss <a href="https://web.archive.org/web/20150427174220/http://www.nydailynews.com/new-york/brooklyn/parents-fume-brooklyn-beer-garden-bans-children-4-p-m-article-1.1160216?localLinksEnabled=false#commentpostform">told the News</a>. &#x201C;It pretty much means that they don&#x2019;t want us here with the kids.&#x201D;</p>
+
+<p>Owner Diane Vasilakos confirmed to them that much of the pressure has been coming from local teachers: &#x201C;They are surrounded by children all day. They don&#x2019;t want to also see them here.&#x201D; Weiss thinks that&apos;s lousy: &#x201C;They don&#x2019;t want us to see them drink. Some of them get very sloppy.&#x201D; She and other parents think a 6 p.m. curfew would be more fair. &#x201C;I&#x2019;m looking at these 21-year-olds,&#x201D; said 36-year-old Alex Phillips, whose 2-year-old daughter was there with her Friday. &#x201C;Wait until you have kids and want a drink.&#x201D; Next up: dealing with those reports of <a href="https://web.archive.org/web/20150427174220/http://www.brooklynpaper.com/stories/35/31/dtg_greenwoodparkportopotties_2012_08_03_bk_.html?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+TheBrooklynPaper-FullArticles+%28The+Brooklyn+Paper%3A+Full+articles%29">pee, cigarettes, throw-up, and public sex.</a></p>					
+										
+									
+				

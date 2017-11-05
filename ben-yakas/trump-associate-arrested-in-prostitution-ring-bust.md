@@ -1,0 +1,15 @@
+---
+author: Ben Yakas
+date: Oct 1, 2010 3:49 pm
+title: Trump Associate Arrested In Prostitution Ring Bust
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:220px; "> <img alt="10110arif.jpg" src="https://web.archive.org/web/20161101184834im_/http://gothamist.com/attachments/byakas/10110arif.jpg" width="220" height="357"> <br> <i>Tevfik Arif</i></div>  Can we blame Donald Trump for the melange of <a href="https://web.archive.org/web/20161101184834/http://gothamist.com/2010/07/19/rachel_uchitel_set_for_celebrity_re.php">attention-seekers</a>, <a href="https://web.archive.org/web/20161101184834/http://gothamist.com/2010/04/16/trump_universitya_scam.php">fools</a> and beauty Queen-aspiring <a href="https://web.archive.org/web/20161101184834/http://gothamist.com/2010/09/30/brooklyn_ada_quits_to_fulfill_her_t.php">former ADAs</a> who are attracted to him? Well, there&apos;s a new name to be added to the Donald&apos;s web of tackiness: a real estate mogul with ties to Trump has been arrested under suspicion of involvement with an international high-class prostitution ring. Yes, the man who pimps out <a href="https://web.archive.org/web/20161101184834/http://gothamist.com/2010/04/05/apprentice_auditions_drew_ex-wall_s.php">desperate Wall Street guys</a> on <em>The Apprentice </em> may be buddies with a real-life pimp. It&apos;s called street cred.<p></p>
+
+<p>Tevfik Arif, 57, is <a href="https://web.archive.org/web/20161101184834/http://www.nydailynews.com/news/world/2010/10/01/2010-10-01_donald_trump_pal_tevfik_arif_busted_in_turkey_for_allegedly_running_hooker_ring_.html">accused of setting up</a> trysts between wealthy businessmen and Eastern European models, some of whom were underage, aboard a $60 million yacht which was once used by the Turkish leader Mustafa Ataturk. Businessmen reportedly paid $3,000 to $10,000 per night to bed Russian and Ukranian prostitutes aboard the 450-foot luxury yacht named the Savarona. Ten models, two of whom were underage, were detained by police, along with ten other men reportedly involved with the ring.</p>
+
+<p>Arif founded the <a href="https://web.archive.org/web/20161101184834/http://bayrockgroup.com/">Bayrock Group</a>, which co-developed the Trump SoHo and the Trump International Hotel and Tower in Fort Lauderdale. Bayrock also developed the Trump International Hotel and Tower Phoenix, the Waterpointe, a residential development in Whitestone, Queens, and the Riverhead Resorts in Suffolk County, L.I. There are also <a href="https://web.archive.org/web/20161101184834/http://www.patrickmcmullan.com/site/search.aspx?t=person&amp;s=Tevfik+Arif">photos online</a> from the 2007 launch party for the Trump SoHo Hotel, showing Trump and Arif together, along with Trump&apos;s children  Eric, Donald Jr., and Ivanka. A spokesman for Trump said he hasn&apos;t talked to Arif &quot;in years.&quot;</p>					
+										
+									
+				

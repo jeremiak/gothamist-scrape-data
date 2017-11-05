@@ -1,0 +1,29 @@
+---
+author: Ben Yakas
+date: Dec 9, 2012 11:30 am
+title: Cyclist Accuses Law-Enforcement Agent Of Hit & Run In Manhattan
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="12812cyclist.jpg" src="https://web.archive.org/web/20150406153706im_/http://gothamist.com/attachments/byakas/12812cyclist.jpg" width="640" height="477"> <br> <i> Sam Newman (Photo by <a href="fastboycycles.com">Ezra Caldwell</a>)</i></div> <p></p>
+
+<p>Motor vehicles <a href="https://web.archive.org/web/20150406153706/http://gothamist.com/2012/08/27/first_kill_all_the_ignorant_anti-bi.php">kill and injure cyclists (and pedestrians)</a> with alarming frequency in New York City. It&apos;s an all-too-common experience that filmmaker <a href="https://web.archive.org/web/20150406153706/http://samueldnewman.com/">Sam Newman</a> went through on Thursday when he was hit by a blue sedan and dragged across a lane at the intersection of 15th Street and 10th Avenue in Manhattan. But this wasn&apos;t just any blue car: Newman believes it was some sort of law-enforcement agent. After the collision, &quot;[the driver] turned on those interior red-blue lights that unmarked police cars have,&quot; he told us. &quot;You can speculate as to why she turned them on at this point. <strong>My feeling is that she might have been trying to intimidate me from trying to do anything.&quot;</strong></p>
+
+<p>Newman was on his way home to Harlem when the accident occurred on Thursday around 5:15 p.m. &quot;The blue car was next to me, on my left, and I was in line with her front bumper,&quot; he said. &quot;She made a right hand turn into me and carried me. We moved through the intersection quite a ways, and at some point my bicycle got caught under her front right wheel.&quot; When she finally stopped on 10th Avenue, he says he was knocked down on the pavement partially under the car; his bike was under her right front wheel. She turned her lights on after he asked her to move back so he could get his bike out; up until that point, he says there had been no indication she was a law-enforcement agent.</p>
+
+<p>Shaken up after the accident, Newman then took his broken bike to the sidewalk. Then the woman rolled down the passenger side window and told him, &quot;You can&apos;t just come riding through here. You need to be more careful.&quot; He responded: <strong>&quot;&apos;You ought to be more careful,&apos; at which point she started screaming obscenities at me, definitely profanity, then sped off.&quot;</strong></p>
+
+<p>Newman believes a pedestrian called 911, and FDNY arrived next: &quot;They were very nice&#x2014;both of them were cyclists themselves. My left leg was sort of bent sideways underneath the car, so I had pretty significant bruising.&quot; An NYPD patrol car with two officers then came; they were were skeptical of his story, telling him, &quot;We don&apos;t have any unmarked two door sedans.&quot; They ran the license plate numbers, and told him it was not an NYPD car...or at least not one with identifiable plates. Nevertheless, they took his statement, as well as some witness info. &quot;They weren&apos;t particularly supportive, but I&apos;ve heard lots of stories of bicyclists getting bad treatment from the NYPD, and these guys were fair,&quot; Newman noted.</p>
+
+<p>His lawyer, Steve Vaccaro, also didn&apos;t get any hits for the license plate number for the Chevrolet Monte Carlo: &quot;It doesn&apos;t exist, so who knows what that means,&quot; Newman said. They do have one other potential lead on what organization the driver might work for: the accident occurred near a federal building, so he speculates that it may have been an FBI car. They&apos;re still pursuing the NYPD angle, but it&apos;s confusing: &quot;I picked up the accident report, we have to file the criminal complaint. We&apos;re just not sure where to bring it to.&quot;</p>
+
+<p>&quot;I mostly want to know who this person is, and why they didn&apos;t stick around long enough to talk to me,&quot; Newman said. <strong>&quot;You&apos;d think a law enforcement officer&#x2014;whatever agency&#x2014;would set an example in this kind of situation. But that is certainly not the way it was, it seems to me.&quot;</strong></p>
+
+<p><strong>Update</strong>: &quot;This law-enforcement officer has really put Sam into an impossible situation by speeding off after hitting him,&quot; Newman&apos;s lawyer, Steve Vaccaro, told us. &quot;It&apos;s a strange problem&quot; they&apos;re dealing with now, because they don&apos;t know exactly what agency they need to request information from.</p>
+
+<p>To begin with, they&apos;re making a Freedom of Information request to the NYPD and NY state police. But if that doesn&apos;t turn up anything&#x2014;already, the DMV says the license plate doesn&apos;t exist&#x2014;they&apos;ll have to use to the Freedom of Information Act to appeal to federal law enforcement agencies, which brings up another set of problems going forward: &quot;It&apos;s further complicated by the fact law enforcement agencies have exemptions...specifically for sensitive ongoing investigations, which is understandable. There should be exemptions.&quot;</p>
+
+<p>But, he adds that &quot;there&apos;s nothing to suggest the driver of the vehicle who struck Sam was involved in any investigation. <strong>She certianly broke cover by turning on her flashing lights, and throwing a few choice curses his way.</strong>&quot; Altogether, it&apos;s bound to be a lengthy process trying to figure out who the driver was. As for Sam, he doesn&apos;t know where he can pursue property damage claim for the bike, and he can&apos;t access the no fault insurance he&apos;s entitled to by law for his injury.</p>					
+										
+									
+				

@@ -1,0 +1,25 @@
+---
+author: Jen Chung
+date: Oct 26, 2015 12:15 pm
+title: Scare Yourself Silly With These Horror Movies At NYC Theaters
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2015_10_staypuft.jpg" src="https://web.archive.org/web/20160406045954im_/http://gothamist.com/attachments/jen/2015_10_staypuft.jpg" width="640" height="360" class="image-none"> </span></p>
+
+<p>If you want to get in the Halloween spirit&#x2014;and don&apos;t want to <a href="https://web.archive.org/web/20160406045954/http://gothamist.com/2015/10/05/vermin_commodified.php">pay $90 for a Sexy Pizza Rat costume</a>&#x2014;there&apos;s an a-boo-ndance of spooky and scary movies being screened around town.</p>
+
+<p><em>Ghostbusters</em> is <a href="https://web.archive.org/web/20160406045954/http://filmforum.org/film/ghostbusters-special-screening">at Film Forum</a> tonight. Then, on Saturday, October 31st, the theater will be showing classic 3D movies <em><a href="https://web.archive.org/web/20160406045954/http://filmforum.org/film/creature-from-the-black-lagoon-plus-3-stooges-in-3-d-in-spooks-classic-3d">Creature From The Black Lagoon</a></em> and <em><a href="https://web.archive.org/web/20160406045954/http://filmforum.org/film/house-of-wax-classic-3d-film">House of Wax</a></em> with Vincent Price.</p>
+
+<p>The <a href="https://web.archive.org/web/20160406045954/http://www.filmlinc.org/festivals/scary-movies-9">Film Society of Lincoln Center&apos;s Scary Movies series</a> kicks off on Friday, October 30, with 12 new films, like road movie anthology <a href="https://web.archive.org/web/20160406045954/http://www.filmlinc.org/films/southbound/"><em>Southbound</em></a>,  <a href="https://web.archive.org/web/20160406045954/http://www.filmlinc.org/films/the-devils-candy/"><em>The Devil&#x2019;s Candy</em></a> from <em>The Loved Ones</em> director Sean Byrne, and some classics, like the 1931 <a href="https://web.archive.org/web/20160406045954/http://www.filmlinc.org/films/frankenstein-1931/"><em>Frankenstein</em></a>. One of the movies on Halloween Day is <a href="https://web.archive.org/web/20160406045954/http://www.filmlinc.org/films/the-hallow/"><em>The Hallow</em></a> about a scientist and his family who move into a possessed Irish forest. And yes, the scientist is played by Joseph Mawle, who you&apos;ll recognize as Benjen Stark. </p>
+
+<p><iframe width="640" height="360" src="https://web.archive.org/web/20160406045954if_/https://www.youtube.com/embed/KL5WfklIB-o" frameborder="0" allowfullscreen></iframe></p>
+
+<p>October 30th is also when a David Cronenberg horror series starts the <a href="https://web.archive.org/web/20160406045954/http://www.movingimage.us/films/2015/10/30/detail/it-came-from-within-a-david-cronenberg-horror-weekend/">Museum of the Moving Image</a>. <em><a href="https://web.archive.org/web/20160406045954/http://www.movingimage.us/visit/calendar/2015/10/30/detail/scanners">Scanners</a></em>, <a href="https://web.archive.org/web/20160406045954/http://www.movingimage.us/visit/calendar/2015/10/31/detail/the-brood"><em>The Brood</em></a>, <a href="https://web.archive.org/web/20160406045954/http://www.movingimage.us/visit/calendar/2015/10/31/detail/videodrome"><em>Videodrome</em></a> and <a href="https://web.archive.org/web/20160406045954/http://www.movingimage.us/visit/calendar/2015/10/31/detail/rabid"><em>Rabid</em></a> screen on Halloween Day. On November 1st, <em><a href="https://web.archive.org/web/20160406045954/http://www.movingimage.us/visit/calendar/2015/11/01/detail/the-fly">The Fly</a></em> and the scariest movie ever about twin gynecologists, <em><a href="https://web.archive.org/web/20160406045954/http://www.movingimage.us/visit/calendar/2015/11/01/detail/dead-ringers">Dead Ringers</a></em>, are on tap.</p>
+
+<p>The midnight movie on October 30th and October 31st at Landmark Sunshine theater is the incomparable <a href="https://web.archive.org/web/20160406045954/http://www.landmarktheatres.com/new-york-city/sunshine-cinema/film-info/a-nightmare-on-elm-street"><em>Nightmare On Elm Street</em></a>. The IFC Center is also paying <a href="https://web.archive.org/web/20160406045954/http://www.ifccenter.com/series/waverly-midnights/wes-cravens-nightmares/">tribute to horror master Wes Craven</a> through the end of the year; <em><a href="https://web.archive.org/web/20160406045954/http://www.ifccenter.com/films/the-hills-have-eyes/">The Hills Have Eyes</a></em> is showing on October 30th and 31st.</p>
+
+<p>If you prefer brunch with your gory movies, George Romero&apos;s <a href="https://web.archive.org/web/20160406045954/http://www.nitehawkcinema.com/movie/day-of-the-dead/"><em>Day of the Dead</em></a> is playing at Nitehawk Cinema at 11:45 a.m. on October 31, which gives you plenty of time to get into your costume later.</p>					
+										
+									
+				

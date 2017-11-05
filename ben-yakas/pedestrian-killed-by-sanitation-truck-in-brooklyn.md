@@ -1,0 +1,9 @@
+---
+author: Ben Yakas
+date: March 18, 2011 12:45 PM
+title: Pedestrian Killed By Sanitation Truck In Brooklyn
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:250px; "> <img alt="31811truck.jpg" src="https://web.archive.org/web/20130307054034im_/http://gothamist.com/attachments/byakas/31811truck.jpg" width="250" height="139"> <br> <i>via <a href="https://web.archive.org/web/20130307054034/http://www.news12.com/articleDetail.jsp?articleId=276618&amp;position=1&amp;news_type=news">News12</a></i></div> A pedestrian was fatally hit by a sanitation truck earlier this morning at the Myrtle Avenue and Broadway intersection in Brooklyn. The victim, a black male in his 60s, was hit by a private sanitation truck as he was crossing the street around 7 a.m. The victim was pronounced DOA on the scene, but the truck operator, an employee of Yankel&apos;s Demolition and Rubbish Removal, <a href="https://web.archive.org/web/20130307054034/http://www.nydailynews.com/ny_local/2011/03/18/2011-03-18_pedestrian_struck_and_killed_by_garbage_truck_in_brooklyn.html">wasn&apos;t arrested</a> and hasn&apos;t been charged. <p></p>
+
+<p>A tipster wrote us: &quot;The police secured the scene but everyone who walked passed (including myself) witnessed a dead body and brains scattered all over the street. It was a gruesome scene.&quot; Another tipster added some different details, and erroneously identified the sanitation truck as city-owned: &quot;One or both parties of an elderly couple was hit and killed by city garbage truck 7 am under Myrtle/Bway J in Bushwick. Bodies were still in the street at 845 this morning.&quot;</p>

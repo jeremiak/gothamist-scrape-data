@@ -1,0 +1,35 @@
+---
+author: Jen Chung
+date: Dec 28, 2016 9:30 am
+title: Ex-Student Charged With Murdering His Former Teacher/Lover & Their 4-Year-Old Son
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2016_12_iduin.jpg" src="https://web.archive.org/web/20171016022850im_/http://gothamist.com/attachments/jen/2016_12_iduin.jpg" width="640" height="436"> <br> <i> Isaac Duran Infante being led from the 30th Precinct (<a href="https://web.archive.org/web/20171016022850/http://pix11.com/2016/12/27/harlem-mother-son-found-dead-felicia-barahona/">PIX 11</a>)</i></div> <p></p>
+
+<p>A 23-year-old man was arrested yesterday for killing his former lover, <a href="https://web.archive.org/web/20171016022850/http://gothamist.com/2013/03/13/report_teacher_impregnated_by_stude.php">who  was his teacher in high school</a>, and their four-year-old son. Isaac Duran Infante was allegedly <a href="https://web.archive.org/web/20171016022850/http://www.nydailynews.com/new-york/nyc-crime/bronx-man-admits-killing-teacher-sex-pal-4-year-old-love-child-article-1.2925515">upset about paying child support</a> as well as <a href="https://web.archive.org/web/20171016022850/http://nypost.com/2016/12/28/teacher-groomed-her-accused-murderer-to-be-sex-toy-baby-daddy/">how his ex was raising their child</a>.</p>
+
+<p>Felicia Barahona, 36, and little Miguel Baharona were found dead in their Hamilton Heights apartment on Monday. Baharona was strangled with an electrical cord while Miguel, who was submerged face down in a bathtub, was choked to death. Investigators were initially unsure of whether it was a murder-suicide or double murder, but then they spoke to Infante.</p>
+
+<p>Four years ago, Barahona was fired from her position as a teacher at DeWitt Clinton High School after investigators found she started a relationship with a student, Infante, in 2011. <a href="https://web.archive.org/web/20171016022850/http://nypost.com/2016/12/27/inside-the-student-teacher-sex-saga-that-ended-in-murder/">According to the Post</a>, she &quot;first flirted with then-16-year-old student ... Infante on Facebook. Then she invited him to a McDonald&#x2019;s near Columbus Circle&quot; with her daughter. Baharona allegedly told the boy she wanted to kiss him, but didn&apos;t: &quot;Knowing she would face legal problems for sleeping with a minor, Barahona waited until Infante&#x2019;s 17th birthday to have their first sexual encounter.&quot;</p>
+
+<p>Infante told Department of Education investigators that they had unprotected sex many times and Baharona, 32 at the time, then became pregnant. The pair briefly moved in together, but then she dumped him. From the <a href="https://web.archive.org/web/20171016022850/http://www.nytimes.com/interactive/2016/12/27/nyregion/bronx-teacher-relationship-with-student.html">Special Commissioner of Investigation&apos;s memo</a>, &quot;Barahona asserted that [he] did not get along with her... daughter and he made an inappropriate comment about her daughter which made Barahona uncomfortable. Baharona confirmed that she arrived home to find [Infante] arguing with her mother because he had been drinking and was under age. As a result, Barahona asked [Infante] to move out of her apartment.&quot;</p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2016_12_fbarahona.jpg" src="https://web.archive.org/web/20171016022850im_/http://gothamist.com/attachments/jen/2016_12_fbarahona.jpg" width="640" height="480"> <br> <i> Felicia Barahona and her son (Facebook)</i></div> <p></p>
+
+<p>Barahona, a veteran of the Afghanistan war, was fired from the school and had recently been pursuing post-graduate studies at John Jay College of Criminal Justice as well as working with the Coast Guard Reserve. Friends described her as dedicated and &quot;conscientious&quot; while neighbors said she was quiet but appeared to dote on Miguel. However, Infante&apos;s family said she only <a href="https://web.archive.org/web/20171016022850/http://abc7ny.com/news/dad-charged-in-murders-of-4-year-old-son-and-his-mother/1675037/">allowed Infante limited access to his son</a>.</p>
+
+<p>The superintendent at 640 West 153rd Street called police on Monday after a neighbor complained about a smell emanating from Barahona&apos;s apartment. The super apparently last saw her on Wednesday, and a friend says she received a text from Baharona on Thursday.</p>
+
+<p><a href="https://web.archive.org/web/20171016022850/http://nypost.com/2016/12/28/teacher-groomed-her-accused-murderer-to-be-sex-toy-baby-daddy/">The Post reports</a>, &quot;Infante, 23, initially played dumb with cops, pretending to be a grieving father, sources said. But his story quickly fell apart, and cops saw him on surveillance video entering the West 153rd Street apartment and leaving in a different set of clothes, sources said.&quot;</p>
+
+<p>In addition to his complaints about child support&#x2014;he was paying $80-100 a week&#x2014;&quot;Infante, who lived in Bethlehem, Pa., told police she was messing things up with his new love interest and that he had &apos;issues&apos; with the way Barahona was raising their son,&quot; <a href="https://web.archive.org/web/20171016022850/http://www.nydailynews.com/new-york/nyc-crime/bronx-man-admits-killing-teacher-sex-pal-4-year-old-love-child-article-1.2925515">according to the Daily News&apos; sources</a>. He allegedly said that Baharona dressed Miguel in pink clothes <a href="https://web.archive.org/web/20171016022850/http://nypost.com/2016/12/28/teacher-groomed-her-accused-murderer-to-be-sex-toy-baby-daddy/">&quot;and described him as a girl on Facebook.&quot;</a> </p>
+
+<p>Police sources also say that Infante &quot;<a href="https://web.archive.org/web/20171016022850/http://abc7ny.com/news/dad-charged-in-murders-of-4-year-old-son-and-his-mother/1675037/">initially blamed the devil for his gruesome actions</a>.&quot;</p>
+
+<p><a href="https://web.archive.org/web/20171016022850/http://www.nytimes.com/2016/12/27/nyregion/felicia-barahona-death-isaac-duran.html?action=click&amp;contentCollection=nyregion&amp;region=rank&amp;module=package&amp;version=highlights&amp;contentPlacement=1&amp;pgtype=sectionfront">A distant relative told the NY Times,</a> &quot;It&#x2019;s horrible... whatever her transgressions, she certainly didn&#x2019;t deserve a death sentence... Little Miguel certainly didn&#x2019;t do anything wrong.&quot;</p>
+
+<p>And Baharona&apos;s brother told the News that knowing it was not a murder-suicide was a relief: &quot;At least we can move forward with it. It&#x2019;s a really dark silver lining, but I&#x2019;m definitely relieved someone got caught very early.&quot;</p>					
+										
+									
+				

@@ -1,0 +1,27 @@
+---
+author: Jen Chung
+date: Nov 9, 2014 1:55 pm
+title: NYC's Lawyers Wanted To Settle Central Park Five Case For $15 Million, Not $41 Million
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2014_06_cpfive.jpg" src="https://web.archive.org/web/20150510012024im_/http://gothamist.com/attachments/jen/2014_06_cpfive.jpg" width="640" height="427"> <br> <i> Antron McCray, Kevin Richardson, Raymond Santana, Korey Wise, Yusef Salaam (Central Park Five Facebook)</i></div> <p></p>
+
+<p>Earlier this year, New York City <a href="https://web.archive.org/web/20150510012024/http://gothamist.com/2014/06/20/nyc_settles_with_central_park_five.php">settled one of the most controversial wrongful convictions</a> over an infamous crime, the 1989 rape of a jogger in Central Park, by agreeing to a $41 million payout to the five men who were sent to prison as teens. Now, the<a href="https://web.archive.org/web/20150510012024/http://www.nydailynews.com/new-york/exclusive-city-lawyers-opposed-41m-deal-central-park-5-article-1.2004165"> Daily News reports</a> that the city&apos;s lawyer originally suggested settling the case for much less money or going to trial.</p>
+
+<p>In June, the city agreed to pay $41 million to the &quot;Central Park Five&quot;&#x2014;Antron McCray, Raymond Santana, Yusef Salaam and Kevin Richardson would get $7.125 million for their years in prison, while Korey Wise would receive $12.25 million&#x2014;and a judge recently <a href="https://web.archive.org/web/20150510012024/http://gothamist.com/2014/09/06/judge_officially_oks_central_park_f.php">approved it</a>. </p>
+
+<p>However, <a href="https://web.archive.org/web/20150510012024/http://www.nydailynews.com/new-york/exclusive-city-lawyers-opposed-41m-deal-central-park-5-article-1.2004165">according to the Daily News</a>, &quot;While [Mayor] de Blasio labeled the settlement a &#x201C;moral obligation,&#x201D; attorneys at the city Law Department felt the deal reeked of politics after the neophyte mayor undercut their case and ignored more than a decade of their hard work. The deal, approved by a judge in September, disregarded a recommended $15 million payout cap and blocked the lawyers from fighting a wrongful conviction suit that many viewed as winnable, according to sources. They were overruled by de Blasio, who ordered their new boss &#x2014; Corporation Counsel Zachary Carter &#x2014; to settle the case, leaving the lawyers to try and minimize the damage to taxpayers.&quot;</p>
+
+<p>On April 19th, 1989, Trisha Melli, an investment banker, jogging in Central Park was brutally raped and nearly beaten to death. Police arrested five black and Latino teens, ages 14 to 16, and the boys were later convicted. However, as it turned out, the police, eager for an arrest, apparently coerced them into confession during 24 hours of questioning. Antron McCray, Kevin Richardson, Raymond Santana and Korey Wise served nearly six years in prison while Yusef Salaam served almost 13 years.</p>
+
+<p>In 2002, Manhattan D.A. Robert Morgenthau said (<a href="https://web.archive.org/web/20150510012024/http://www.nydailynews.com/new-york/nyc-crime/central-park-40m-settlement-article-1.1836991">PDF</a>) the convictions should be vacated, after an inmate named Matias Reyes, serving time for a rape-robbery, rape-murder and robbery, confessed to the 1989 Central Park rape. Testing showed his DNA matched the DNA found at the crime scene, and the five were set free. The Bloomberg administration <a href="https://web.archive.org/web/20150510012024/http://www.reuters.com/article/2013/09/23/us-usa-crime-jogger-idUSBRE98M1AP20130923">avoided settling the case for years</a>.</p>
+
+<p>The News&apos; report says an internal memos from city lawyers &quot;attacked Reyes&#x2019; claim of acting alone &#x2014; and the claim of the five that they had no involvement in the jogger assault&quot; like &quot;His claim that he followed the jogger in a zigzag pattern clutching a large tree branch was &apos;patently unbelievable&apos; because &apos;he was out of shape&apos; &#x2014; and she was a runner.&quot; </p>
+
+<p>Many believe (as outlined in the film, <a href="https://web.archive.org/web/20150510012024/http://www.ifcfilms.com/films/the-central-park-five">Central Park Five</a>) that the teens were railroaded because the police needed to find suspects fast. But one original investigator told the News, &quot;Why would I want to frame somebody who had no criminal records? It&#x2019;s so easy to say it&#x2019;s a frameup.&#x201D;</p>
+
+<p>When the settlement was confirmed, Mayor de Blasio said at the time, &quot;This settlement is an act of justice for those five men that is long overdue. The City had a moral obligation to right this injustice&#x2014;which is why, from Day One, I vowed to settle this case. I commend the Law Department, led by Corporation Counsel Zachary W. Carter, for its efforts to reach a fair resolution of this matter that takes into account all relevant legal factors. With today&#x2019;s approval by a federal judge, we can finally put this case behind us, and these five men and their families can begin to heal these wounds and move forward.&quot;</p>					
+										
+									
+				

@@ -1,0 +1,12 @@
+---
+author: Ben Yakas
+date: October 17, 2010  5:15 PM
+title: Alleged Paladino Email: "Did U Take Your Meeds Today?"
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:200px; "> <img alt="2010_10_gza.jpg" src="https://web.archive.org/web/20110412163207im_/http://gothamist.com/attachments/jen/2010_10_gza.jpg" width="200" height="186"> <br> <i>Zach Nikonovich-Kahn</i></div> We&apos;ve all dreamed of becoming pen pals with <a href="https://web.archive.org/web/20110412163207/http://gothamist.com/2010/10/14/more_paladino_emails_equals_paladin.php">future bikini-waxer</a> Carl Paladino, but one man claims to have lived the dream. Zach Nikonovich-Kahn <a href="https://web.archive.org/web/20110412163207/http://gawker.com/5665196/what-happens-when-you-email-carl-paladino">forwarded Gawker</a> a series of angry email exchanges he claims to have had with the Republican gubernatorial candidate. Will this be the Paladino scandal-of-the-week?<p></p>
+
+<p>In his first message, Nikonovich-Kahn, who is gay, takes Carl to task for his <a href="https://web.archive.org/web/20110412163207/http://gothamist.com/2010/10/10/paladino_homosexuality_not_an_equal.php">comments on homosexuality last week</a>: his email begins, &quot;<strong>You are a bigoted, homophobic asshole of the first order</strong>.&quot; He received this response from Paladino&apos;s email address: &quot;Learn how to read and don&apos;t believe what you read.&quot; Then things got even weirder, with &quot;Paladino&quot; eventually asking him, &quot;<strong>Did u take your meeds today Zachary?&quot; </strong></p>
+
+<p>Gawker contacted Paladino&apos;s camp, and according to campaign manager Michael Caputo, &quot;<strong>I don&apos;t think this happened; I received no CC. What are &quot;meeds?&quot; </strong> (Hilariously, Caputo has a Jerry Garcia quote at the end of his email signature.) It&apos;s hard to imagine that Paladino would respond in this manner to a random person, considering <a href="https://web.archive.org/web/20110412163207/http://gothamist.com/tags/carlpaladino&lt;br /&gt;
+">everything</a>, but they don&apos;t call him Kooky Carl <a href="https://web.archive.org/web/20110412163207/http://gothamist.com/2010/10/15/video_paladino_gets_taiwanese_cgi_t.php">in Taiwan</a> for nothing.</p>

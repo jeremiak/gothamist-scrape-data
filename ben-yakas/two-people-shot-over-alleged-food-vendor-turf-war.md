@@ -1,0 +1,15 @@
+---
+author: Ben Yakas
+date: Aug 24, 2012 1:42 pm
+title: Two People Shot Over Alleged Food Vendor Turf War
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left"> <img alt="82412vendor.jpg" src="https://web.archive.org/web/20150407150859im_/http://gothamist.com/attachments/byakas/82412vendor.jpg" width="365" height="275"> <br> <i style=" width:365px; ;display:block"> Surveillance shot of the suspect (<a href="https://web.archive.org/web/20150407150859/http://newyork.cbslocal.com/2012/08/23/suspect-arrested-after-shooting-near-yankee-stadium/">via CBS</a>)</i></div> Two people <a href="https://web.archive.org/web/20150407150859/http://www.nytimes.com/2012/08/24/nyregion/two-men-shot-near-yankee-stadium.html?partner=rss&amp;emc=rss">were shot</a> after an argument between food vendors about space on the street near Yankee Stadium ended in gun violence. According to reports, 52-year-old vendor Horace Coleman allegedly fired three to six shots around 1:30 p.m. Thursday in front of the Crown Diner at the corner of 161st Street and Gerard Avenue. The two victims&#x2014;60-year-old newspaper vendor Douglas Watkins and an unidentified 41-year-old&#x2014;were both hit in the abdomen. They are both listed in stable condition now.<p></p>
+
+<p>Investigators <a href="https://web.archive.org/web/20150407150859/http://newyork.cbslocal.com/2012/08/23/suspect-arrested-after-shooting-near-yankee-stadium/">told CBS that</a> Coleman owns a water stand in the concourse area, and witnesses said Coleman was seen arguing with Watkins over the spot before the shooting. &quot;He turned around and shot the man in the newsstand, then he turned around and shot down the block, a couple of bullets,&quot; said witness Debbie Haughton. &quot;I don&#x2019;t know whether he hit somebody. They say he hit another person. Then he turned back, leaned over the man in the newsstand, and shot him again.&quot;</p>
+
+<p>Local vendor Leroy McGrant <a href="https://web.archive.org/web/20150407150859/http://www.nypost.com/p/news/local/bronx/vendor_gun_rage_8C9ZLIdmo2upOYnykJi5FN?utm_medium=rss&amp;utm_content=Bronx">told the Post</a> the shooting was caused by a turf war gone haywire: &#x201C;One guy wanted the spot, the other guy had it, and that was what the argument was about,&quot; he said. &#x201C;It&#x2019;s a simple argument that got out of hand. One guy just took it too far, and lots of people got hurt.&#x201D; Coleman, who previously served three years at the Clinton Correctional Facility upstate for a drugs arrest, has been taken into custody. His mother told the Post, &#x201C;He&#x2019;s just working hard, trying to make an honest living. He&#x2019;s been selling water every day for 10 years. He&#x2019;s got a family to take care of.&#x201D;</p>					
+										
+									
+				

@@ -1,0 +1,30 @@
+---
+author: Jen Chung
+date: Oct 17, 2016 9:10 am
+title: Mother Of Kalief Browder, Who Killed Himself After Rikers, Dies Of Heart Attack
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2016_10_vbrowder1.jpg" src="https://web.archive.org/web/20171016021935im_/http://gothamist.com/attachments/jen/2016_10_vbrowder1.jpg" width="640" height="497"> <br> <i> Venida Browder with Jay Z, who is producing a docu-series about her son, earlier this month (Getty Images)</i></div> <p></p>
+
+<p>Venida Browder, whose <a href="https://web.archive.org/web/20171016021935/http://gothamist.com/2015/06/08/rikers_kalief_browder_suicide.php">son Kalief&apos;s death</a> has drawn attention to intractable problems with the criminal justice system in NYC, died yesterday. Browder, 65, died at St. Barnabas Hospital on Friday; her attorney <a href="https://web.archive.org/web/20171016021935/http://www.nydailynews.com/new-york/bronx/exclusive-mom-late-kalief-browder-dies-broken-heart-article-1.2833023">told the Daily News</a> she passed away &quot;from complications of a heart attack.&quot;</p>
+
+<p>Kalief Browder was 16 in 2010 when a man accused him of stealing his backpack. Browder <a href="https://web.archive.org/web/20171016021935/http://gothamist.com/2014/09/30/new_yorker_rikers_story.php">insisted he didn&apos;t do it</a> and decided to go to trial. However, as detailed in a <a href="https://web.archive.org/web/20171016021935/http://www.newyorker.com/magazine/2014/10/06/before-the-law">harrowing 2014 New Yorker feature</a>, his case was postponed for three years, leaving him in the purgatory of Rikers because his family couldn&apos;t afford $3,000 bail. Not only did he miss his junior and senior years of high school, as <a href="https://web.archive.org/web/20171016021935/http://nytlive.nytimes.com/womenintheworld/2016/01/29/mother-of-kalief-browder-the-judicial-system-is-the-reason-my-son-is-dead/">Women in the World reported</a>, &quot;Kalief ended up spending more than 1000 days on Rikers &#x2014; 800 of them in solitary confinement &#x2014; waiting to prove his innocence in court. That day never came. His trial was pushed back 31 times over the course of three years, and by the end of 2012, Kalief had stood before eight different judges.&quot;</p>
+
+<p>He was released in 2013, due to a lack of evidence, and found life after Rikers very difficult. In 2015, <a href="https://web.archive.org/web/20171016021935/http://gothamist.com/2015/06/08/rikers_kalief_browder_suicide.php">he committed suicide</a> in his Bronx apartment.</p>
+
+<p>Paul Prestia, a lawyer for the Browder family,<a href="https://web.archive.org/web/20171016021935/http://www.nydailynews.com/new-york/bronx/exclusive-mom-late-kalief-browder-dies-broken-heart-article-1.2833023"> said</a>, &quot;[Venida] was a woman of incredible grace and compassion who tirelessly fought for justice for her son Kalief and who championed the civil rights of others in our city. But the stress from this crusade coupled with the strain of the pending lawsuits against the city and the pain from the death were too much to for her to bear. In my opinion she literally died of a broken heart.&quot; Here&apos;s Venida Browder and Prestia discussing how Kalief just wanted a trial:</p>
+
+<p><iframe width="640" height="360" src="https://web.archive.org/web/20171016021935if_/https://www.youtube.com/embed/BI5rd9VAzEg" frameborder="0" allowfullscreen></iframe></p>
+
+<p>Earlier in the month, Venida Browder had joined Jay Z to announce that the hip-hop mogul was producing a <a href="https://web.archive.org/web/20171016021935/http://variety.com/2016/tv/news/jay-z-kalief-browder-weinstein-co-spike-1201879531/">docu-series based on her son&apos;s ordeal</a>. Jay Z revealed (here&apos;s <a href="https://web.archive.org/web/20171016021935/https://www.youtube.com/results?search_query=kalief+browder+jay+z">video of the press conference</a>) that after reading the New Yorker story, he asked his assistant to track down Kalief, eventually meeting him to &quot;give him words of encouragement. I told him how proud I was of him for making it through and he was telling me how he was enrolled in college. Then I get a call that said he had taken his own life and of course, I was thrown.&quot; Jay Z said he didn&apos;t think Kalief&apos;s story was supposed to end this way, and wanted to tell his story. </p>
+
+<p>Last week, NYC announced it <a href="https://web.archive.org/web/20171016021935/http://www.gothamgazette.com/index.php/opinion/6566-leading-the-way-on-ending-punitive-segregation">would end the practice of putting inmates</a> ages 16 to 21 in solitary confinement.</p>
+
+<p>&quot;Venida Browder was a loving mother who fought tirelessly for justice,&quot; said City Council Melissa Mark-Viverito. &quot;Despite the city failing her and Kalief, she firmly believed that we could work to create a more fair and just system. She was a champion of criminal justice reform. Venida was a woman of immense courage and boundless optimism. When you were with her, it was impossible to not feel hopeful about a better future.  It is now up to us to continue her work. My deepest condolences to the Browder family.&quot;</p>
+
+<center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">RIP Venida Browder. I&apos;m sorry we failed you &amp; Kalief. His memory (and yours) demand that we move fwd <a href="https://web.archive.org/web/20171016021935/https://twitter.com/hashtag/closeRikers?src=hash">#closeRikers</a> <a href="https://web.archive.org/web/20171016021935/https://t.co/FwzdMyvaSj">https://t.co/FwzdMyvaSj</a></p>&#x2014; Brad Lander (@bradlander) <a href="https://web.archive.org/web/20171016021935/https://twitter.com/bradlander/status/787820821884514304">October 17, 2016</a></blockquote>
+<script async src="//web.archive.org/web/20171016021935js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>					
+										
+									
+				

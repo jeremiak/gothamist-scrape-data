@@ -1,0 +1,15 @@
+---
+author: Ben Yakas
+date: Aug 27, 2010 3:14 pm
+title: Porn Judge Had "Lots of Crotch and Cleavage Shots"
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:230px; "> <img alt="82710judgegibbons.jpg" src="https://web.archive.org/web/20150430031922im_/http://gothamist.com/attachments/byakas/82710judgegibbons.jpg" width="230" height="325"> <br> <i>Judge James D. Gibbons</i></div> More details have emerged about Judge James D. Gibbons, who <a href="https://web.archive.org/web/20150430031922/http://gothamist.com/2010/08/26/judge_resigns_investigation_turns_u.php">abruptly resigned</a> earlier this month just before it was publicly revealed that inquiries into his work computer turned up pornography. The Manhattan district attorney&apos;s office is scouring the files to determine if any of the girls are underage, and if criminal charges are warranted. According to the <a href="https://web.archive.org/web/20150430031922/http://www.nydailynews.com/ny_local/2010/08/26/2010-08-26_courthouse_mystery_criminal_court_judge_james_d_gibbons_abruptly_resigns_without.html">Daily News</a>, an investigator told them that, &quot;<strong>There was a lot of porn on his computer&#x2014;all young women. Lots of crotch and cleavage shots</strong>.&quot;<p></p>
+
+<p>Gibbons, 47, was on paternity leave when this <a href="https://web.archive.org/web/20150430031922/http://www.nypost.com/p/news/local/manhattan/seedy_judge_shock_Xoc1Lz257s0PhqBSKxzlyI?CMP=OTC-rss&amp;FEEDNAME=">investigation</a> begun; he had just fathered a son weeks ago with Legal Aid lawyer Jeanne Emhoff, 31. Gibbons had already been under scrutiny for the relationship with Emhoff, for a possible conflict of interest had she appeared before his bench. People who knew him well say the allegations of pornography are uncharacteristic; according to lawyer Adam Freedman, &quot;He was a very careful judge on the law. If he was using his state-issued computer for illegal activities, it would be uncharacteristic, considering how careful he is on the law.&quot;</p>
+
+<p>The News seems particularly, personally hurt by the revelations about Gibbons, peppering <a href="https://web.archive.org/web/20150430031922/http://www.nydailynews.com/ny_local/2010/08/26/2010-08-26_courthouse_mystery_criminal_court_judge_james_d_gibbons_abruptly_resigns_without.html">today&apos;s story</a> on him with adjectives like &quot;vile,&quot; &quot;disgraced,&quot; &quot;cleavage-crazed,&quot; &quot;nasty,&quot; and &quot;ethics-skirting.&quot; Maybe they&apos;re just upset that <a href="https://web.archive.org/web/20150430031922/http://gothamist.com/tags/laworder"><em>Law and Order</em></a> has left the NY coop, because this would have made a perfect <a href="https://web.archive.org/web/20150430031922/http://gothamist.com/2010/07/08/when_artists_tackle_law_order_plotl.php">ripped-from-the-headlines</a> plot (if you threw in a murder or two, of course).</p>					
+										
+									
+				

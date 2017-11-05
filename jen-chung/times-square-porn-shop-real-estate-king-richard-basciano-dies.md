@@ -1,0 +1,26 @@
+---
+author: Jen Chung
+date: May 7, 2017 4:00 pm
+title: Times Square Porn Shop Real Estate King Richard Basciano Dies
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2017_05_showworld.jpg" src="https://web.archive.org/web/20170507232225im_/http://gothamist.com/attachments/jen/2017_05_showworld.jpg" width="640" height="427"> <br> <i> Outside Show World Center in 2010 (Getty Images)</i></div> <p></p>
+
+<p>A man known as &quot;<a href="https://web.archive.org/web/20170507232225/https://therealdeal.com/2017/05/03/fertile-ground-properties-of-deceased-times-square-smut-king-might-now-be-in-play/">the pornography landlord eminence of the old Times Square</a>&quot; has passed away, leading to speculation that the remains of old, gritty and smutty New York may disappear sooner rather than later.</p>
+
+<p>Richard Basciano was <a href="https://web.archive.org/web/20170507232225/https://www.nytimes.com/2017/05/06/nyregion/richard-basciano-dead-show-world-owner-in-times-square.html?_r=0">either 91</a> or <a href="https://web.archive.org/web/20170507232225/http://www.crainsnewyork.com/article/20170503/REAL_ESTATE/170509952/times-squares-king-of-porn-is-dead#utm_medium=email&amp;utm_source=cnyb-realestate&amp;utm_campaign=cnyb-realestate-20170503">92</a> when he died last Monday, May 1. <a href="https://web.archive.org/web/20170507232225/http://www.crainsnewyork.com/article/20170503/REAL_ESTATE/170509952/times-squares-king-of-porn-is-dead#utm_medium=email&amp;utm_source=cnyb-realestate&amp;utm_campaign=cnyb-realestate-20170503">From Crain&apos;s</a>:<br>
+</p><blockquote>Basciano&apos;s death throws into question the fate of the highly valuable real estate he owned, including a trio of rundown buildings between West 42nd and West 43rd streets along Eighth Avenue.<p></p>
+
+<p>Retail space in two of the adjacent properties houses Basciano&apos;s largest remaining XXX establishment, Show World Center, one of only a handful of XXX stores that remain in the Times Square neighborhood. At its seamy peak in the 1980s and &apos;90s, Times Square was home to dozens of such stores, and Show World was considered among the most prominent and provocative. One city official referred to it as the &quot;flagship of the sex industry in New York.&quot;</p></blockquote>Basciano had told Crain&apos;s last year that Show World would close, but a lawyer, Erica Dubno, said, &quot;I don&apos;t think he wanted to close Show World out of loyalty to the longtime employees who worked there. Richard was a very savvy businessman who treated his employees wonderfully.&quot;<p></p>
+
+<p>Show World Center, at 22,000 square feet on 8th Avenue between 42nd and 43rd Streets, had included a comedy club and haunted house <a href="https://web.archive.org/web/20170507232225/https://www.yelp.com/biz/times-scare-nyc-new-york-2">Times Scare</a> at one point. Basciano had lived in a penthouse above Show World.</p>
+
+<p><a href="https://web.archive.org/web/20170507232225/https://www.nytimes.com/2017/05/06/nyregion/richard-basciano-dead-show-world-owner-in-times-square.html?_r=0">The NY Times obituary notes</a>, &quot;A former boxer who pleaded no contest to a store coupon scam in his native Baltimore and who once peddled raunchy magazines in New York, Mr. Basciano made millions of dollars from the quarters that his customers deposited for peep shows and more interactive forms of entertainment... He started selling sex magazines and buying real estate in New York in the early 1960s and became partners with Robert DiBernardo, who, Mr. Basciano later said, he was surprised to learn was a mobster.&quot; (DiBernardo disappeared in 1986 and people only found out in 1992 that he was killed for &quot;crossing the mob boss John Gotti.&quot;)</p>
+
+<p>He also expanded his porn empire in Philadelphia and bought real there. He owned a Philadelphia building that <a href="https://web.archive.org/web/20170507232225/https://en.wikipedia.org/wiki/2013_Philadelphia_building_collapse">collapsed and killed six in 2013</a>, which resulted in him paying $27 million of a $227 million settlement. </p>
+
+<p>Basciano helped back Coalition for Free Expression, which <a href="https://web.archive.org/web/20170507232225/http://www.nytimes.com/1995/10/26/nyregion/council-approves-package-of-curbs-on-sex-businesses.html">protested Mayor Giuliani&apos;s crackdown</a> on porn businesses in the 1990s. <a href="https://web.archive.org/web/20170507232225/http://www.nydailynews.com/new-york/manhattan/richard-basciano-nyc-ex-prince-porn-dead-92-article-1.3134639">The Daily News reports</a>, &quot;In the late &#x2019;90s, Basciano made about $14 million &#x2014; &apos;less than market value&apos; &#x2014; from the state condemnation of his buildings, he told the Daily News in 2008. He never forgave smut-busting former Mayor Rudy Giuliani, now an adviser to President Trump. &apos;I am his nemesis,&apos; Basciano said.&quot;</p>					
+										
+									
+				

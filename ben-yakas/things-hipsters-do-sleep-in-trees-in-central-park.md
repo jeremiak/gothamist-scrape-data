@@ -1,0 +1,15 @@
+---
+author: Ben Yakas
+date: Nov 13, 2010 11:00 am
+title: Things Hipsters Do: Sleep In Trees In Central Park
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:230px; "> <img alt="111310foht.jpg" src="https://web.archive.org/web/20150508184048im_/http://gothamist.com/attachments/byakas/111310foht.jpg" width="230" height="280"> <br> <i>Tree enthusiast Cory Foht&apos;s mugshot</i></div> We&apos;re so inundated with anti-hipster sites out there, <a href="https://web.archive.org/web/20150508184048/http://www.latfh.com/">documenting</a> their colorful headband-enhanced outfits, their chest tattoos, or how much <a href="https://web.archive.org/web/20150508184048/http://stuffhipstershate.tumblr.com/">they hate</a> Jager bombs, that we sometimes lose track of all the things they like. Such as sleeping in nylon hammocks 25 feet up in a tree in Central Park at night. CBS, you have your latest show: <em>Shit My Hipster Does.</em><p></p>
+
+<p>Hipster connoisseurs the <a href="https://web.archive.org/web/20150508184048/http://www.nytimes.com/2010/11/13/nyregion/13trees.html?pagewanted=1&amp;_r=1&amp;partner=rss&amp;emc=rss">NY Times profiles</a> Cory and Dana Foht, 25-year-old twins from Florida who have slept in a tall American elm tree in the park some 20 nights over the last two months, creating makeshift beds out of sleeping bags amongst the leaves and branches. &quot;<strong>It&#x2019;s kind of like its own ecosystem up here. </strong>You&#x2019;re definitely aware that you are sleeping in something and attached to something that&#x2019;s alive,&#x201D; Cory told the Times. With script gold like that, and the occasional <a href="https://web.archive.org/web/20150508184048/http://www.nytpick.com/2010/11/whoops-turns-out-twin-in-cute-page-one.html">felony drug arrest</a> on record, the network won&apos;t even have to hire writers!</p>
+
+<p>It&apos;s illegal to be in the park between 1 a.m. and 6 a.m., and police frequently comb the park at night to kick out sleeping homeless people. But there is no rule explicitly forbidding climbing any of its 24,000 trees, though there are rules against damaging trees. &#x201C;Twenty-five years ago, there was a guy who built treehouses in the park. He promised never to do it again,&#x201D; Parks Dept. spokeswoman Vickie Karp said. The Foht&apos;s dream is simple though: &quot;<strong>You&#x2019;re getting into your own little world and rising above the stress of the street life.&#x201D; </strong>After all, life is so stressful when you&apos;re an <a href="https://web.archive.org/web/20150508184048/http://www.youtube.com/user/bccmproductions">amateur documentarian</a> volunteering at a bicycle-repair workshop in Brooklyn. </p>					
+										
+									
+				

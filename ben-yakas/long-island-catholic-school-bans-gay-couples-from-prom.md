@@ -1,0 +1,15 @@
+---
+author: Ben Yakas
+date: May 13, 2011 3:27 pm
+title: Long Island Catholic School Bans Gay Couples From Prom
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:250px; "> <img alt="51311stanthony.jpg" src="https://web.archive.org/web/20150429201412im_/http://gothamist.com/attachments/byakas/51311stanthony.jpg" width="250" height="169"> <br> <i>via <a href="https://web.archive.org/web/20150429201412/http://www.msnbc.msn.com/id/43017486/ns/local_news-new_york_ny/">NBC</a></i></div> While a gay student <a href="https://web.archive.org/web/20150429201412/http://dudehabits.wordpress.com/2011/05/10/athlete-craig-cassey-voted-prom-king-at-his-high-school-and-he-just-happens-to-be-gay/">was voted</a> Prom King in Pennsylvania last weekend, some NYC-area schools are still uncomfortable with allowing same-sex couples to attend prom together. St. Anthony&apos;s Catholic High School in Long Island <a href="https://web.archive.org/web/20150429201412/http://www.nydailynews.com/ny_local/2011/05/13/2011-05-13_st_anthonys_high_school_in_long_island_bars_lesbian_student_from_bringing_female.html">has barred</a> a lesbian student from bringing her ex-girlfriend to prom as her date. &quot;<strong>We thought it would send a mixed message to OK her request</strong>,&quot; Brother Gary Cregan, principal of the school, <a href="https://web.archive.org/web/20150429201412/http://www.msnbc.msn.com/id/43017486/ns/local_news-new_york_ny/">told MSNBC</a>. <p></p>
+
+<p>Angelina Lange went so far as to request permission from officials at the co-ed, Roman Catholic school in South Huntington, but Cregan explained: &quot;<strong>Our Catholic faith specifies that marriage involve a man and a woman, and our policies on dating must reflect that. We mean no malice or disrespect</strong>.&quot; You can read a long, in-depth article about the whole situation at <a href="https://web.archive.org/web/20150429201412/http://www.longislandpress.com/2011/05/12/long-island-high-school-bans-gay-prom-dates/">the Long Island Press.</a> </p>
+
+<p>Ultimately, the private school does have the authority to enforce its own restrictions on school events (although one <em>could</em> question why taxpayers <a href="https://web.archive.org/web/20150429201412/http://www.nyscatholicconference.org/pages/news/show_newsDetails.asp?id=533">fund</a> private Catholic schools at all), and Lange has accepted their decision, but gay rights activist James Fallarino called the school&apos;s decision a form of &quot;bullying.&quot; <strong>&quot;The message is that the school doesn&apos;t really care about its students and that&apos;s not a good message,&quot;</strong> said Fallarino, of <a href="https://web.archive.org/web/20150429201412/http://www.liglbtnetwork.org/">the Long Island Gay, Lesbian, Bisexual and Transgender Services Network</a>.</p>					
+										
+									
+				

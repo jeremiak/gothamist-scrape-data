@@ -1,0 +1,15 @@
+---
+author: Ben Yakas
+date: Jul 16, 2011 12:20 pm
+title: Latin King Goonies Gay-Bashing Ringleader Suing The City Over Delicate Wrist Injury
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:250px; "> <img alt="71611goonies.jpg" src="https://web.archive.org/web/20150828015503im_/http://gothamist.com/attachments/byakas/71611goonies.jpg" width="250" height="375"> <br> <i>Ildefonzo Mendez after the brutal anti-gay attacks last fall (AP)</i></div> The ringleader of a group of Latin King Goonies who are accused of a <a href="https://web.archive.org/web/20150828015503/http://gothamist.com/2010/10/08/seven_latin_king_members_arrested_f.php">horrific anti-gay attack</a> last year is suing the city for injuries he suffered in a prison bus crash. Idelfonso Mendez, who is accused of sodomizing two gay men with a mini-baseball bat and plunger handle, claims that he broke his wrist and hurt his back in a Department of Correction bus crash last winter. A cousin of one of the victims <a href="https://web.archive.org/web/20150828015503/http://www.nydailynews.com/news/ny_crime/2011/07/16/2011-07-16_latin_king_goonies_ringleader_seeks_city_pay_day_sues_for_minor_injuries_while_i.html">told the News</a> they are understandably upset: &quot;He did horrible things, and now he wants to get rich over a little wrist injury. It&apos;s an insult to the people he hurt. He&apos;s just looking for a big payday.&quot;<p></p>
+
+<p>Mendez was the alleged ringleader of the group who attacked and tortured three gay men last fall after they discovered that a prospective member was gay. After attempting to extort the fledgling member for &quot;protection&quot; money, at least seven members of the gang slashed and beat the men, sodomizing them with a toilet plunger and baseball bat. At the time, Mendez <a href="https://web.archive.org/web/20150828015503/http://gothamist.com/2011/04/29/details_into_the_motivation_behind.php">blamed his cohorts</a> for the sodomy in interviews with police, but added that one of the victims &quot;looked like he liked it.&quot; Mendez faces 25 years-to-life in prison if he is convicted.</p>
+
+<p>In the lawsuit, in which seeks unspecified damages from the city, the DOC, the bus driver and the man whose car was struck by the bus, Mendez claims he was &quot;severely injured, bruised and wounded&quot; in the accident. But he was able to show up fine for his next scheduled court appearance, and showed no signs of serious injury according to prosecutors. Another relative of one of the victims summed it up, saying: &quot;This piece of garbage put people through a lot pain and humiliation. This [suit] just shows the kind of person he is. He has no shame.&quot;</p>					
+										
+									
+				

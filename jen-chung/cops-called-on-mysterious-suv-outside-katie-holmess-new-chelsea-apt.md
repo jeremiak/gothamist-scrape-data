@@ -1,0 +1,23 @@
+---
+author: Jen Chung
+date: Jul 2, 2012 2:32 pm
+title: Cops Called On Mysterious SUV Outside Katie Holmes's New Chelsea Apt.
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2012_06_hlmeapst.jpg" src="https://web.archive.org/web/20160516161244im_/http://gothamist.com/attachments/jen/2012_06_hlmeapst.jpg" width="640" height="427"> <br> <i> The mysterious SUV outside Holmes&apos; new apartment building at 252 Seventh Avenue (Pacific Coast News)</i></div> <p></p>
+
+<p>After rumors that Katie Holmes <a href="https://web.archive.org/web/20160516161244/http://laist.com/2012/06/29/rip_tomkat_tom_cruise_katie_holmes.php#photo-1">is divorcing</a> Tom Cruise <a href="https://web.archive.org/web/20160516161244/http://laist.com/2012/07/01/playing_the_scientology_card_wont_h.php">over his religion, Scientology</a>, now there&apos;s speculation that members of the controversial church are following Holmes. <a href="https://web.archive.org/web/20160516161244/http://www.tmz.com/2012/07/01/katie-holmes-tom-cruise-divorce-scientology/">TMZ reported yesterday</a>, &quot;People who have photographed Katie multiple times tell TMZ there have been several &apos;mysterious&apos; men and vehicles around Katie&apos;s apartment and following her when she&apos;s out.  Specifically ... a white Cadillac Escalade and black Mercedes SUV have been seen near Katie&apos;s NYC apartment for the past week.&quot;</p>
+
+<p>The apartment, a <a href="https://web.archive.org/web/20160516161244/http://gothamist.com/2012/07/01/katie_holmes_rented_secret_chelsea.php">new rental for Holmes and daughter Suri</a>, is at the Chelsea Mercantile, on Seventh Avenue between 24th and 25th Streets.  <a href="https://web.archive.org/web/20160516161244/http://www.nypost.com/p/news/national/holmes_feared_lose_lose_suri_feared_xYbR9P7F18IPtxr2N4e0VO">According to the Post</a>:</p><blockquote>A team of beefy armed men parked themselves in a white Cadillac Escalade outside Holmes&#x2019; place all day yesterday, snapping pictures of people outside the building and demanding to know who they were.<p></p>
+
+<p>Cops finally pulled up in a marked NYPD squad car behind the SUV and checked out its Tennessee license plates. The officers said they were acting on complaints of &#x201C;suspicious activity in a white Escalade&#x201D; but did not elaborate.</p>
+
+<p>They spent about 15 minutes eying the SUV before leaving. At least two of the five men sitting in the SUV were clearly packing heat. When asked who they worked for, one wisecracked: &#x201C;We&#x2019;re waiting for a bus.&#x201D;</p></blockquote>The Daily News <a href="https://web.archive.org/web/20160516161244/http://www.nydailynews.com/entertainment/gossip/creepy-crew-reportedly-church-scientology-keeping-tabs-katie-holmes-daughter-suri-article-1.1106034">knocked on the window of the SUV but got no leads</a>: The mystery men sat inside a white Cadillac Escalade bearing Tennessee license plates with the engine idling and the AC running. All casually dressed and 40 to 50 years old, they refused to identify themselves or even roll down their windows... The men only got out of their SUV to photograph reporters interviewing neighbors in front of the building between 24th and 25th Sts.&quot;<p></p>
+
+<p>The Church of Scientology <a href="https://web.archive.org/web/20160516161244/http://www.tmz.com/2012/07/01/katie-holmes-tom-cruise-divorce-scientology-tailing/?adid=hero4">denied TMZ&apos;s reports</a> that it&apos;s following Holmes.  However, City Councilman Peter Vallone Jr., who heads the Council&apos;s Public Safety Committee, <a href="https://web.archive.org/web/20160516161244/http://www.capitalnewyork.com/article/politics/2012/07/6123880/councilman-katie-holmes-thugs-we-dont-allow-people-be-harassed-new-">wants Holmes to know NYC has Holmes&apos; back</a>: &quot;We don&apos;t allow people to be harassed in New York City and the NYPD should give serious consideration to the arresting and disarming of these thugs.&quot; </p>
+
+<p>Vallone explained to Capital New York that people following Holmes could be &quot;charged with harassment in the first and second degree, violating penal law 240.25 and 240.26.  (240.25 deals with someone who &quot;intentionally and repeatedly harasses another person by following such person in or about a public place&quot;; 240.26 deals with someone who commits acts &quot;which alarm or seriously annoy such other person and which serve no legitimate purpose.&quot;)&quot;</p>					
+										
+									
+				

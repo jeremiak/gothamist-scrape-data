@@ -1,0 +1,11 @@
+---
+author: Ben Yakas
+date: January 29, 2011 10:20 AM
+title: Where Have All The Police Barricades Gone?
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:594px; "> <img alt="12911barricade.jpg" src="https://web.archive.org/web/20120102222347im_/http://gothamist.com/attachments/byakas/12911barricade.jpg" width="594" height="436"> <br> <i><a href="https://web.archive.org/web/20120102222347/http://www.flickr.com/photos/arnade/4846135064/">chris arnade&apos;s flickr</a></i></div> <p></p>
+
+<p>Two weeks ago, a pile of 50 metal police barriers were stolen after an event in Greenpoint. But this was just the latest in a long line of barricade kidnappings: <a href="https://web.archive.org/web/20120102222347/http://www.nypost.com/p/news/local/stolen_barriers_SFiKmVw9LsIYbTpsNtyNuI?CMP=OTC-rss&amp;FEEDNAME=">according to</a> police sources, over 20 percent of all police barricades have gone missing in the past year. Some 3,000 wooden and metal NYPD parade barriers have been reported gone, though NYPD spokesman Paul Browne put the number at around 1,700. It got so bad, police didn&apos;t have enough metal barriers to use at Times Square on New Years Eve. So where are they all going?</p>
+
+<p>The NYPD keeps a total of 9,500 steel and 3,500 wooden barriers in Long Island City. The barriers are worth approximately $80 each, which comes to an approximate total of $240,000 in lost or stolen barricades. Sources <a href="https://web.archive.org/web/20120102222347/http://www.nypost.com/p/news/local/stolen_barriers_SFiKmVw9LsIYbTpsNtyNuI?CMP=OTC-rss&amp;FEEDNAME=">tell the Post</a> that many are stolen by businesses that could use them for crowd control, such as bars, clubs and the like. It is believed that some thieves pilfer them in order to melt the steel ones down for scrap metal. We&apos;ve also seen them used around town as skateboarding planks and playground toys, and some clever people have taken them and turned them into benches for public seating in Spanish Harlem, as we saw <a href="https://web.archive.org/web/20120102222347/http://gothamist.com/2010/07/29/police_barricades_become_street_fur.php">last summer.</a> But confession time: who among us has a barricade as a wall decoration in their apartment?</p>

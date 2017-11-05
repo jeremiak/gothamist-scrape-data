@@ -1,0 +1,19 @@
+---
+author: Ben Yakas
+date: Feb 13, 2011 6:19 pm
+title: Vast Majority Arrested For Pot Are Black Or Latino
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="21311pot.jpg" src="https://web.archive.org/web/20140427014446im_/http://gothamist.com/attachments/byakas/21311pot.jpg" width="180" height="360" class="image-left"> </span></p>
+
+<p>This week, we learned that NYC <a href="https://web.archive.org/web/20140427014446/http://gothamist.com/2011/02/10/welcome_to_nyc_the_marijuana_arrest.php">has now become</a> the &quot;marijuana arrest capital of the world.&quot; The NYPD arrested 50,383 people for low-level marijuana offenses last year, making low-level pot possession the number one cause of arrest in NYC.  But it&apos;s important to note <em>who</em> was getting arrested: according to the <a href="https://web.archive.org/web/20140427014446/http://www.drugpolicy.org/news/pressroom/pressrelease/pr021011.cfm">Drug Policy Alliance&#x2019;s report</a>, &quot;86 percent of those arrested are Black or Latino, even though research consistently shows that young whites use marijuana at higher rates.&quot;</p>
+
+<p>After our post <a href="https://web.archive.org/web/20140427014446/http://gothamist.com/2011/02/13/nanny-state_netherlands_says_weed_i.php">this morning</a> about the Dutch government&apos;s attempts to prevent tourists from smoking their pot, we received an email from a reader who was quite upset: &quot;I am a 63 yr old american male who wanted to check out the pot scene in Amsterdam before I die...A tourist is a tourist is a tourist  -- if this puritanical [program] is initiated folks will have to smoke pot hidden away like Anne Frank.&quot; As overblown a metaphor as that is, it got us thinking about whether NYers really smoke pot hidden away like Anne Frank, especially considering those arrest statistics. </p>
+
+<p>And though it may not be quite the same as Amsterdam, NYC is seemingly overflowing with marijuana in every corner: firefighters <a href="https://web.archive.org/web/20140427014446/http://gothamist.com/2011/01/26/pot-growing_firefighter_gets_five_y.php">grow it</a>, college kids order <a href="https://web.archive.org/web/20140427014446/http://gothamist.com/2011/01/21/ny_post_discovers_drug_dealers_have_1.php">take-out</a>, our bank tellers are <a href="https://web.archive.org/web/20140427014446/http://gothamist.com/2011/02/09/queens_banker_accused_of_laundering.php">laundering</a> weed money. Even our Mayor has <a href="https://web.archive.org/web/20140427014446/http://www.drugwar.com/pnormlnycad.shtm">admitted</a> he&apos;s tried it, and liked it. It&apos;s not the hidden face of the city&#x2014;it is the city. And the arrest stats are fractured reflections of that.</p>
+
+<p>So Amsterdam took a step closer to becoming like NYC today, but only a small one. Unless that reader becomes a Dutch citizen, he may not get the chance to experience the marijuana heaven that Amsterdam has long been for pot enthusiasts worldwide. At the end of the day, NYC&apos;s terrifying high pot arrest statistics seem to imply that this isn&apos;t really about marijuana&#x2014;marijuana is just the excuse to make a certain number of arrests in certain parts of the city every year, as the Times <a href="https://web.archive.org/web/20140427014446/http://www.nytimes.com/2009/12/23/nyregion/23about.html">once wrote about</a>. As long as you&apos;re not flippant about your usage, you probably won&apos;t get in trouble for smoking pot. Unless you&apos;re Black or Latino. Or are a <a href="https://web.archive.org/web/20140427014446/http://gothamist.com/2011/02/04/wondering_if_growing_marijuana_is_i.php">complete idiot</a>. Then you may just be screwed no matter what you do.</p>					
+										
+									
+				

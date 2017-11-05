@@ -1,0 +1,15 @@
+---
+author: Ben Yakas
+date: Sep 15, 2010 4:48 pm
+title: Pagans Biker Gang Busted In Plot To Off Hells Angels
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="91510pagans.jpg" src="https://web.archive.org/web/20150728212830im_/http://gothamist.com/attachments/byakas/91510pagans.jpg" width="250" height="376" class="image-left"> </span>In a page right out of the show &quot;Sons of Anarchy,&quot; seventeen members of the motorcycle club The Pagans <a href="https://web.archive.org/web/20150728212830/http://abclocal.go.com/wabc/story?section=news/local&amp;id=7669573">were arrested today</a> in a plot to kill their arch-enemies, the Hells Angels. Federal Bureau of Alcohol, Tobacco, Firearms and Explosives agents arrested the members this morning at the alleged headquarters of the Long Island Pagans, the House of Tattooing in Rocky Point. They <a href="https://web.archive.org/web/20150728212830/http://www.nj.com/news/index.ssf/2010/09/federal_authorities_arrest_17.html">face charges</a> of conspiracy to commit murder, assault (some using &quot;<strong>axe handles, boots, billiard balls, and a pipe wrench</strong>&quot;), distribution of cocaine and oxycodone, conspiracy to commit extortion and weapons charges (<a href="https://web.archive.org/web/20150728212830/http://www.justice.gov/usao/nys/pressreleases/September10/pagansindictpr.pdf">PDF</a>).</p>
+
+<p>Among those arrested were leaders John Richard Ebeling, Jr., who was the president of the Pagans Long Island chapter, and now oversees the activities of Pagan chapters around the east coast, and Jason &quot;Roadblock&quot; Blair, who succeeded Ebeling as president of the Long Island chapter in May. The club was infiltrated by ATF agents, including one who rose to the rank of Vice President in the club. </p>
+
+<p>The Pagans <a href="https://web.archive.org/web/20150728212830/http://www.ctgia.org/mcgangs/pagan.html">have about</a> 900 members in 44 chapters between New York and Florida, and are said to be having a resurgence in LI in recent years. Between 1999 and 2002, more than 100 members of the Pagans were convicted in federal prosecutions on Long Island, most stemming from a <a href="https://web.archive.org/web/20150728212830/http://www.post-gazette.com/headlines/20020308pagans0308p5.asp">failed attack on the Hells Angels</a> in 2002. Despite the apparent grizzly nature of the club, neighbors on LI were surprised at the arrests: &quot;<strong>They were very peaceful,</strong>&quot; said Chris Grzymala, who runs Shore Line Insurance down the block from the tattoo parlor. &quot;<strong>They are terrific neighbors</strong>,&quot; <a href="https://web.archive.org/web/20150728212830/http://www.newsday.com/long-island/suffolk/feds-arrest-more-than-a-dozen-suspected-li-biker-gang-members-1.2292234">another neighbor told Newsday</a>. </p>					
+										
+									
+				

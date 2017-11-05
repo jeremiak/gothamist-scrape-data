@@ -1,0 +1,30 @@
+---
+author: Jen Chung
+date: Oct 11, 2016 1:25 pm
+title: Woman Who Accused Spitzer Of Choking Her Has Been Arrested For Trying To Extort Him
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2016_02_spitzer101.jpg" src="https://web.archive.org/web/20171016014719im_/http://gothamist.com/attachments/nyc_arts_john/2016_02_spitzer101.jpg" width="640" height="514" class="image-none"> </span><br>
+<span class="photo_caption">Eliot Spitzer (Getty Images)</span></p>
+
+<p>The woman who said that <a href="https://web.archive.org/web/20171016014719/http://gothamist.com/2016/02/15/spitzer_plaza_hotel_choking.php">former NY governor Eliot Spitzer attacked her</a> at the Plaza Hotel but then left the U.S. for Russia is back stateside. And she&apos;s been arrested.</p>
+
+<p>Svetlana Zakharova Travis was arrested &quot;<a href="https://web.archive.org/web/20171016014719/http://www.nydailynews.com/new-york/russian-woman-busted-extort-eliot-spitzer-article-1.2826035">on a grand larceny by extortion charge</a>&quot; because she <a href="https://web.archive.org/web/20171016014719/http://gothamist.com/2016/07/16/spitzer_3.php">allegedly tried to demand money</a> from Spitzer in exchange for her silence. Back in February, police were reportedly called to the $1000/night hotel suite by Travis, who said she was having a breakdown and had cut her wrist. When police arrived, Spitzer reportedly answered the door and told responders that everything was fine. </p>
+
+<p>However, when cops returned and found broken glass and blood, they called EMS, who took Travis to the hospital. Once there, she reportedly told hospital staff that Spitzer had attacked her. <a href="https://web.archive.org/web/20171016014719/http://www.nydailynews.com/new-york/spitzer-choke-accuser-identified-svetlana-travis-25-article-1.2532341">The Daily News&apos; source said</a>, &quot;After the hospital visit, while she was being driven by police, &apos;at one point she gets out of the car and says she doesn&#x2019;t want to press charges.&apos;&quot; </p>
+
+<p>It&apos;s believed that Travis has been a $5000/night escort; a person named Svetlana Z. <a href="https://web.archive.org/web/20171016014719/https://medium.com/matter/sex-is-sex-but-money-is-money-e7c10091713f#.lbz9wc557">wrote on Medium</a>, &quot;If someone&#x2019;s not paying you, you don&#x2019;t have to do blow jobs, you don&#x2019;t have to smile all the time, you can be yourself. But after a while you feel like something is missing. The something is money. You&#x2019;re sitting in the same apartment, you&#x2019;re the same you, but something is missing. Your wallet is empty. Sex is sex, but money is money.&quot;</p>
+
+<p>Spitzer left the governor&apos;s office because of his <a href="https://web.archive.org/web/20171016014719/http://gothamist.com/2008/03/10/governor_spitze_1.php">many dalliances with prostitutes</a>.</p>
+
+<p>Spitzer&apos;s lawyer Adam Kaufmann <a href="https://web.archive.org/web/20171016014719/http://go.redirectingat.com/?id=50913X1248263&amp;site=gothamist.com&amp;xs=1&amp;isjs=1&amp;url=http%3A%2F%2Fwww.nytimes.com%2F2016%2F02%2F16%2Fnyregion%2Feliot-spitzers-lawyer-says-woman-retracted-claim-he-choked-her.html%3Frref%3Dcollection%252Fsectioncollection%252Fnyregion%26action%3Dclick%26contentCollection%3Dnyregion%26region%3Drank%26module%3Dpackage%26version%3Dhighlights%26contentPlacement%3D6%26pgtype%3Dsectionfront%26_r%3D0&amp;xguid=1031b6312cf0b882c51ed5775b314704&amp;xuuid=7878afb90d94b9fe32b03ed1cc9442e5&amp;xsessid=fa0391de8f87aa0ef30479baf85b00ef&amp;xcreo=0&amp;xed=0&amp;sref=http%3A%2F%2Fgothamist.com%2F2016%2F02%2F16%2Fspitzer_escort_accusation.php&amp;pref=https%3A%2F%2Fwww.google.com%2F&amp;xtz=240">had confirmed to the NY Times</a> that he and Travis had a relationship &quot;in the past,&quot; but said that their February meeting was initiated by her (with Spitzer booking the room) and that she tried to cancel the 911 call. Kaufmann showed the Times an email to Spitzer from someone who claimed to be Travis: &quot;You tried to save me,&quot; explaining she accused him to avoid hospitalization. &quot;If I didn&#x2019;t say Eliot started (it) all, I think I would be hospitalized in some mental home for a few months. I made up the story in order to not be hospitalized.&quot; </p>
+
+<p>Months later, though, Spitzer&apos;s lawyers <a href="https://web.archive.org/web/20171016014719/http://gothamist.com/2016/07/16/spitzer_3.php">sued Travis over the incident,</a> because she was threatening to &quot;ruin&quot; his life if he didn&apos;t pay her&#x2014;and then pulled the lawsuit months later.</p>
+
+<p><a href="https://web.archive.org/web/20171016014719/http://nypost.com/2016/10/11/woman-who-said-spitzer-choked-her-busted-for-trying-to-shake-him-down/">The Post reports</a> that she was arrested yesterday for trying to extort $50,000 from Spitzer, adding, &quot;Travis was also charged with second-degree forgery for a second incident, in which she allegedly faked a signature on papers that made an unsuspecting businessman the guarantor on a lease that cost him $18,000.&quot;</p>
+
+<p>The Bronx District Attorney is handling the case, because Manhattan DA Cy Vance is recusing himself due to his relationship with Spitzer. Spitzer&apos;s lawyer Kaufmann <a href="https://web.archive.org/web/20171016014719/http://www.nydailynews.com/new-york/russian-woman-busted-extort-eliot-spitzer-article-1.2826035">told the Daily News,</a> &quot;We have been informed by the Bronx District Attorney that Ms. Travis has been arrested and charged with extortion-related crimes against Mr. Spitzer and others. Our knowledge of the charges is limited to the allegations set forth in the felony complaint. Mr. Spitzer will cooperate with the Bronx District Attorney&apos;s investigation.&quot;</p>					
+										
+									
+				

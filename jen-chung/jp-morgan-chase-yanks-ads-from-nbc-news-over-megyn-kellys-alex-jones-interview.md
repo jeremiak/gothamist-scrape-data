@@ -1,0 +1,53 @@
+---
+author: Jen Chung
+date: Jun 13, 2017 10:18 am
+title: JPMorgan Chase Yanks Ads From NBC News Over Megyn Kelly's Alex Jones Interview
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2017_06_megynkelly.jpg" src="https://web.archive.org/web/20170613171545im_/http://gothamist.com/attachments/jen/2017_06_megynkelly.jpg" width="640" height="494"> <br> <i> Megyn Kelly at the NBC Upfront (Getty Images)</i></div> <p></p>
+
+<p>Growing outrage from <a href="https://web.archive.org/web/20170613171545/http://gothamist.com/2012/12/14/breaking_multiple_people_injured_in.php">Sandy Hook massacre</a> victims&apos; families has prompted JPMorgan Chase to remove its ads from NBC News&apos; new Megyn Kelly interview program&#x2014;because of Kelly&apos;s interview with controversial conspiracy theorist Alex Jones. Jones has claimed that the mass shooting, which left 20 children and six adults dead, <a href="https://web.archive.org/web/20170613171545/http://nymag.com/daily/intelligencer/2016/09/the-sandy-hook-hoax.html">was faked</a>.</p>
+
+<p>Victims&apos; families are upset that Kelly is <a href="https://web.archive.org/web/20170613171545/https://www.nytimes.com/2017/06/12/business/media/megyn-kelly-alex-jones-newtown.html?smid=tw-nytimes&amp;smtyp=cur">giving Jones a platform to further promote</a> his baseless skepticism of the Sandy Hook massacre. </p>
+
+<div><blockquote class="twitter-video" data-lang="en"><p lang="en" dir="ltr">Megyn Kelly interviews Alex Jones Sunday, June 18 at 7/6c during &quot;Sunday Night with Megyn Kelly&quot; on NBC. <a href="https://web.archive.org/web/20170613171545/https://t.co/dLApjwTLOW">pic.twitter.com/dLApjwTLOW</a></p>&#x2014; Melanin Moor (@MelaninMoor) <a href="https://web.archive.org/web/20170613171545/https://twitter.com/MelaninMoor/status/874296584548356096">June 12, 2017</a></blockquote>
+<script async src="//web.archive.org/web/20170613171545js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></div>
+
+<p>In the interview, Jones talks about how &quot;9/11 was an inside job, but when I say inside job it means criminal elements in our government working with Saudi Arabia and others, wanting to frame Iraq for it.&quot; Regarding the Sandy Hook massacre, Jones&apos;s remarks are more confusing: &quot;Well, Sandy Hook&#x2019;s complex because I have had debates where, we devil&#x2019;s advocates have said the whole story is true, and then I have had debates where I have said, that none of it is true.&quot;</p>
+
+<p>The mother of six-year-old Ana Grace M&#xE1;rquez-Greene Tweeted at Kelly:</p>
+
+<div><center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">Here you go <a href="https://web.archive.org/web/20170613171545/https://twitter.com/megynkelly">@megynkelly</a> - her name is Ana Grace M&#xE1;rquez-Greene. Say her name- stare at this &amp; tell me it&apos;s worth it. <a href="https://web.archive.org/web/20170613171545/https://twitter.com/nbc">@nbc</a> <a href="https://web.archive.org/web/20170613171545/https://twitter.com/hashtag/SandyHook?src=hash">#SandyHook</a> <a href="https://web.archive.org/web/20170613171545/https://t.co/mKrU63KWmA">pic.twitter.com/mKrU63KWmA</a></p>&#x2014; Nelba M&#xE1;rquez-Greene (@Nelba_MG) <a href="https://web.archive.org/web/20170613171545/https://twitter.com/Nelba_MG/status/874085384665403392">June 12, 2017</a></blockquote>
+<script async src="//web.archive.org/web/20170613171545js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center></div>
+
+<p>And the chief marketing officer of JPMorgan Chase, Kristin Lemkau, Tweeted on Monday morning:</p>
+
+<div><center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">As an advertiser, I&apos;m repulsed that <a href="https://web.archive.org/web/20170613171545/https://twitter.com/megynkelly">@megynkelly</a> would give a second of airtime to someone who says Sandy Hook and Aurora are hoaxes. Why? <a href="https://web.archive.org/web/20170613171545/https://t.co/luwyCwP7Ti">https://t.co/luwyCwP7Ti</a></p>&#x2014; Kristin Lemkau (@KLemkau) <a href="https://web.archive.org/web/20170613171545/https://twitter.com/KLemkau/status/874224702067281920">June 12, 2017</a></blockquote>
+<script async src="//web.archive.org/web/20170613171545js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center></div>
+
+<p><a href="https://web.archive.org/web/20170613171545/https://www.wsj.com/articles/j-p-morgan-removes-nbc-news-ads-over-megyn-kelly-interview-with-alex-jones-1497311738">According to the Wall Street Journal</a>, &quot;JP Morgan Chase has asked for its local TV ads and digital ads to be removed from Ms. Kelly&#x2019;s show and from all NBC news programming until after the show airs, according to a person familiar with the matter.  The company doesn&#x2019;t want any of its ads to appear adjacent to any promotions for the interview, the person added.&quot;</p>
+
+<p>Kelly stood by her decision to interview Jones, <a href="https://web.archive.org/web/20170613171545/https://twitter.com/megynkelly/status/874087462909464576?ref_src=twsrc%5Etfw&amp;ref_url=http%3A%2F%2Fvariety.com%2F2017%2Ftv%2Fnews%2Fmegyn-kelly-alex-jones-interview-boycott-sandy-hook-1202462515%2F">Tweeting</a>, &quot;POTUS&apos;s been on &amp; praises @RealAlexJones&apos; show. He&apos;s giving Infowars a WH press credential. Many don&apos;t know him; our job is 2 shine a light.&quot;</p>
+
+<p>But Ana Grace M&#xE1;rquez-Greene&apos;s mother, Nelba M&#xE1;rquez-Greene, Tweeted, &quot;To give a man like this such a platform normalizes behavior that isn&#x2019;t normal. How do I explain this to my son?&quot;</p>
+
+<center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">Because this is what it looks like when you shine light on <a href="https://web.archive.org/web/20170613171545/https://twitter.com/hashtag/AlexJones?src=hash">#AlexJones</a> - they don&apos;t go away. They double down <a href="https://web.archive.org/web/20170613171545/https://twitter.com/megynkelly">@megynkelly</a> . <a href="https://web.archive.org/web/20170613171545/https://twitter.com/hashtag/SandyHook?src=hash">#SandyHook</a> <a href="https://web.archive.org/web/20170613171545/https://t.co/GjeBVpC6HR">pic.twitter.com/GjeBVpC6HR</a></p>&#x2014; Nelba M&#xE1;rquez-Greene (@Nelba_MG) <a href="https://web.archive.org/web/20170613171545/https://twitter.com/Nelba_MG/status/874225139445006336">June 12, 2017</a></blockquote>
+<script async src="//web.archive.org/web/20170613171545js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center><br>
+
+<p>The family of Victoria Soto, a teacher who was killed while trying to protect children, <a href="https://web.archive.org/web/20170613171545/https://www.facebook.com/VictoriaLeighSoto26/posts/1613303195370240">posted a message to NBC and Kelly on Facebook</a>:</p><blockquote>We would like it to be publicly known that we are greatly disappointed in your decision to give Alex Jones airtime. Alex and his followers have done nothing but make our lives a living hell for the last 4 1/2 years. Every family picture has been stolen, dissected, &amp; analyzed with complete falsehoods. Our friends have even had their pictures stolen and have been harassed by these Sandy Hook hoaxers. One of his followers, Matthew Mills, showed up at Vicki&apos;s race, disrupted the race, harassed our family and was ultimately arrested. You can find videos online of Mills and Jones directly interacting.<p></p>
+
+<p>This incessant need for ratings at the cost of the emotional well-being of our family is disgusting and disappointing. You should be ashamed of yourselves for allowing this behavior. We hope you never are subjected to the kind of torture that Alex Jones and his followers inflict on us.</p></blockquote>Mills also <a href="https://web.archive.org/web/20170613171545/http://gothamist.com/2015/11/11/911_truther_sandy_hook.php">crashed a Super Bowl press conference</a> to say that 9/11 was a conspiracy.<p></p>
+
+<p>Sandy Hook Promise, a nonprofit which describes itself as &quot;[building] a national movement of parents, schools and community organizations engaged and empowered to deliver gun violence prevention programs and mobilize for the passage of sensible state and national policy,&quot; has asked Kelly to <a href="https://web.archive.org/web/20170613171545/https://www.washingtonpost.com/news/morning-mix/wp/2017/06/13/megyn-kelly-dropped-as-host-for-sandy-hook-groups-gala-over-alex-jones-interview/?utm_term=.98dd889d9250">drop out as the host for their annual gala</a>.</p>
+
+<p>Jones himself wants Kelly <a href="https://web.archive.org/web/20170613171545/https://www.washingtonpost.com/news/morning-mix/wp/2017/06/13/megyn-kelly-dropped-as-host-for-sandy-hook-groups-gala-over-alex-jones-interview/?utm_term=.98dd889d9250">to pull the interview</a>, for different reasons: &quot;Megyn Kelly lied to me several weeks before she came here, and she said the interview was not going to be about Sandy Hook and the mass shooting there.&quot; He also said that he now believes children did die, but doesn&apos;t really &quot;<a href="https://web.archive.org/web/20170613171545/https://www.youtube.com/watch?v=MwudDfz1yAk">know what happened</a>.&quot; </p>
+
+<p>Kelly&apos;s show, Sunday Night with Megyn Kelly, <a href="https://web.archive.org/web/20170613171545/http://www.nbcnews.com/megyn-kelly">will air at 7 p.m.</a> on Sunday, June 18th. </p>
+
+<p><b>Update</b>: Kelly has released a statement about Sandy Hook Promise&apos;s decision, adding that she does find Jones&apos; conspiracy theories &quot;personally revolting&quot;:</p>
+
+<div><center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">New <a href="https://web.archive.org/web/20170613171545/https://twitter.com/megynkelly">@MegynKelly</a> statement on Sandy Hook Promise event &gt;&gt; <a href="https://web.archive.org/web/20170613171545/https://t.co/ICFMQdWMse">pic.twitter.com/ICFMQdWMse</a></p>&#x2014; Dylan Byers (@DylanByers) <a href="https://web.archive.org/web/20170613171545/https://twitter.com/DylanByers/status/874632729995886593">June 13, 2017</a></blockquote> <script async src="//web.archive.org/web/20170613171545js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center></div>					
+										
+									
+				

@@ -1,0 +1,21 @@
+---
+author: Ben Yakas
+date: Mar 10, 2011 11:40 am
+title: 9-Year-Old Called ASPCA About Sister's Hamster Slaughter
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="31011hamster.jpg" src="https://web.archive.org/web/20140905132504im_/http://gothamist.com/attachments/byakas/31011hamster.jpg" width="640" height="480"> <br> <i><a href="https://web.archive.org/web/20140905132504/http://www.flickr.com/photos/victoriabelanger/4129957156/in/set-72157622864971354/">victoria belanger&apos;s flickr</a> (see more <a href="https://web.archive.org/web/20140905132504/http://gothamist.com/2009/12/01/hamster_rides_the_4_train.php#photo-1">here</a>)</i></div> <p></p>
+
+<p>Yesterday, a Brooklyn teenager <a href="https://web.archive.org/web/20140905132504/http://gothamist.com/2011/03/09/brooklyn_woman_arrested_for_killing.php">was arrested</a> and accused of killing her nine-year-old brothers&apos; pet hamster. Today, more details have emerged about the incident, revealing the messy backdrop that led to a hamster getting a necropsy.</p>
+
+<p>Monique Smith, 19, <a href="https://web.archive.org/web/20140905132504/http://www.nypost.com/p/news/local/brooklyn/ratted_out_by_bro_yqea7sS6kFlzo85VaSmpNM?CMP=OTC-rss&amp;FEEDNAME=">allegedly killed</a> her little brother&apos;s hamster in an apparent revenge scheme involving at least one other dead hamster. Smith, who has a two-month-old child, lives with 10 of her 12 siblings on Putnam Avenue in Bushwick; <a href="https://web.archive.org/web/20140905132504/http://cityroom.blogs.nytimes.com/2011/03/09/19-year-old-is-charged-in-hamsters-death/?partner=rss&amp;emc=rss">according to City Room</a>, her mother, Theresa Smith, the troubles started after she bought a hamster, Princess Stephanie, for the nine-year-old, Brandon. The eldest sibling, who is 25, deliberately killed that hamster for unclear reasons&#x2014;he felt very remorseful, and bought his brother three new hamsters to make up for it.</p>
+
+<p>Somehow, this act angered Monique Smith in turn. Theresa Smith noted that anger issues and violence run through their large family, eerily telling the Times, &#x201C;Thirty-two years ago,&#x201D; she said, &#x201C;my brother strangled my sister to death.&#x201D; The Post says she was trying to get back at her 12-year-old brother, Aaron, but the <a href="https://web.archive.org/web/20140905132504/http://cityroom.blogs.nytimes.com/2011/03/09/19-year-old-is-charged-in-hamsters-death/?partner=rss&amp;emc=rss">City Room implies</a> it was an act of jealousy which led to her attacking the hamster. Either way, she picked up the biggest of the three hamsters, Sweetie, &#x201C;took it out of the cage, and she slammed it on the floor,&#x201D; killing it on impact.</p>
+
+<p>A distraught Brandon then called the ASPCA&apos;s help line on his own on the day of the killing in June last year, and an investigation began. After a nine-month &quot;hunt&quot; for a suspect the ASPCA described as evasive and uncooperative, their Human Law Enforcement (HLE) officers arrested the young woman. Monique Smith has been hit with a felony charge aggravated cruelty to animals, along with two misdemeanors, torturing animals and endangering the welfare of a child; she could face up to two years in prison for the felony charge alone.</p>
+
+<p>The ASPCA told us that, &quot;We typically don&apos;t deal with the kinds of cases like the hamster one from today, however it&apos;s not remarkable when we do.&quot; HLE assistant director Joseph Pentangelo <a href="https://web.archive.org/web/20140905132504/http://cityroom.blogs.nytimes.com/2011/03/09/19-year-old-is-charged-in-hamsters-death/?partner=rss&amp;emc=rss">added that</a> size shouldn&apos;t matter when it comes to pets: &#x201C;It may be a fish, it may be a hamster, it may not be the type of a pet that people commonly hold dear. But to the people who own them, they are.&#x201D;</p>					
+										
+									
+				

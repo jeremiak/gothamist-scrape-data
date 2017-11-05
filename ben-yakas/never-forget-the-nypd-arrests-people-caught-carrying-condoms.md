@@ -1,0 +1,23 @@
+---
+author: Ben Yakas
+date: Mar 6, 2013 4:24 pm
+title: Never Forget: The NYPD Arrests People Caught Carrying Condoms
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="3613condom.jpg" src="https://web.archive.org/web/20150408135908im_/http://gothamist.com/attachments/byakas/3613condom.jpg" width="640" height="476"> <br> <i> <a href="https://web.archive.org/web/20150408135908/http://www.flickr.com/photos/marieviljoen/7117264823/">m viljoen&apos;s flickr</a></i></div> <p></p>
+
+<p>The <a href="https://web.archive.org/web/20150408135908/http://www.villagevoice.com/2013-03-06/news/nyc-s-condom-insanity/">Village Voice</a> and <a href="https://web.archive.org/web/20150408135908/http://www.vice.com/read/new-york-cops-will-arrest-you-for-carrying-condoms">Vice</a> both have feature stories this week all about how you can be arrested for carrying <a href="https://web.archive.org/web/20150408135908/http://gothamist.com/tags/condoms">condoms</a>, because they can be used by the police as evidence of prostitution. Which is, unfortunately, nothing new: it&apos;s a <a href="https://web.archive.org/web/20150408135908/http://gothamist.com/2011/03/23/why_can_condoms_still_be_used_as_ev.php">much criticized</a> tactic that the NYPD have been <a href="https://web.archive.org/web/20150408135908/http://gothamist.com/2010/01/12/should_condoms_be_used_as_evidence.php">using for years.</a> The Voice does bring up an interesting question though: if a person is in possession of a condom distributed by NYC and they are then arrested with that condom used as major evidence, does it count as &quot;entrapment&quot;? </p>
+
+<p>While it seems unlikely that this argument could fly (the Voice really just tiptoes around the idea), the Department of Health could try to put increased pressure on the city, considering it&apos;s making their program look bad. There is one major potential solution to this issue: the <a href="https://web.archive.org/web/20150408135908/http://open.nysenate.gov/legislation/bill/S1379-2013">&#x201C;No Condoms As Evidence Bill&#x201D;</a> was reintroduced in mid-January by Queens Democratic assemblywoman Barbara M. Clark and Brooklyn Democratic state senator Velmanette Montgomery, who first introduced the legislation in <em>1999</em>. </p>
+
+<p>But the Voice also includes this interesting anecdote that suggests there are still some level-headed judges out there who can see the difference between prostitution and <a href="https://web.archive.org/web/20150408135908/http://gothamist.com/2013/02/14/video_nj_college_students_start_eme.php">CondAM</a>:</p>
+
+<blockquote>In one such case, in January 2011, the prosecutor, Assistant District Attorney Matthew McKenzie, attempted to use the possession of a single, wrapped condom as evidence for prostitution. Judge Richard Weinberg, then the presiding judge at Midtown Community Court, said, according to court transcripts, &#x201C;I find nothing wrong. I find no probative value at all in finding a condom.&#x201D; After the prosecutor pushed further for conviction, Weinberg pushed back. &#x201C;In the age of AIDS and HIV,&#x201D; he said, &#x201C;if people are sexually active at a certain age and they are not walking around with condoms, they are fools.&#x201D; Case closed.</blockquote>
+
+<p>To check out some more statistics and accounts of these types of arrests, check out the <a href="https://web.archive.org/web/20150408135908/http://www.prosnetworknyc.org/">http://www.prosnetworknyc.org/&quot;&gt;PROS Network&apos;s</a> Public Health Crisis study from April 2012 below:</p>
+
+<center><p style=" margin: 12px auto 6px auto; font-family: Helvetica,Arial,Sans-serif; font-style: normal; font-variant: normal; font-weight: normal; font-size: 14px; line-height: normal; font-size-adjust: none; font-stretch: normal; -x-system-font: none; display: block;">   <a title="View Public Health Crisis 2012 on Scribd" href="https://web.archive.org/web/20150408135908/http://www.scribd.com/doc/128947941/Public-Health-Crisis-2012" style="text-decoration: underline;">Public Health Crisis 2012</a> by   <a title="View &apos;s profile on Scribd" href="undefined" style="text-decoration: underline;"></a> </p><iframe class="scribd_iframe_embed" src="https://web.archive.org/web/20150408135908if_/http://www.scribd.com/embeds/128947941/content?start_page=1&amp;view_mode=scroll" data-auto-height="false" data-aspect-ratio="undefined" scrolling="no" id="doc_33005" width="100%" height="600" frameborder="0"></iframe></center>					
+										
+									
+				

@@ -1,0 +1,41 @@
+---
+author: Ben Yakas
+date: Jun 14, 2013 5:02 pm
+title: Should You Read The Game Of Thrones Novels If You Haven't Yet?
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="61413got.jpeg" src="https://web.archive.org/web/20150505002835im_/http://gothamist.com/attachments/byakas/61413got.jpeg" width="640" height="426" class="image-none"> </span></p>
+
+<p>The third season of <a href="https://web.archive.org/web/20150505002835/http://gothamist.com/tags/gameofthrones"><em>Game Of Thrones</em></a> has come and gone faster than a flagon of wine in the hands of Tyrion Lannister&#x2014;it was a riveting season filled with chopped off hands, bear fights, and a Red Wedding that became the most talked about TV moment of the year. The show just keeps picking up new viewers too: this season was <a href="https://web.archive.org/web/20150505002835/http://insidetv.ew.com/2013/06/10/game-of-thrones-finale-ratings-mhysa/">the second highest rated</a> in the history of HBO. But summer is coming, and with nine agonizing months until season 4, a lot of fans might be wondering how they&apos;ll fill those long hot Sunday evenings without knowing what Rickon is up to (LOL, nobody cares about Rickon). Which means now is the perfect time for TV fans to catch up on the novels the series is based off of&#x2014;or should they?</p>
+
+<p>I have been watching the television show since the premiere, thanks mostly to great early critical reviews (thank you <a href="https://web.archive.org/web/20150505002835/http://www.hitfix.com/whats-alan-watching">Alan Sepinwall</a> and <a href="https://web.archive.org/web/20150505002835/http://www.avclub.com/tvclub/tvshow/game-of-thrones-newbies,176/">AV Club</a>) and the killer cast (Sean Bean? Peter Dinklage? <a href="https://web.archive.org/web/20150505002835/http://en.wikipedia.org/wiki/Tommy_Carcetti">Mayor Carcetti</a>? Hell yeah). Plus I had run out of <em>Battlestar Galactica</em> episodes to burn through. But outside of reading <em>The Lord Of The Rings</em> books, I&apos;ve never been much for fantasy epics (maybe I have wizardphobia). </p>
+
+<p>Despite loving the first season, I had no inclination to read the novels until around the time of the &quot;Blackwater&quot; episode of Season 2, when suddenly I couldn&apos;t stop wondering where everything was going. But did I really want to sift through thousands and thousands of pages of description of the kinds of foods they eat at King&apos;s Landing? So before the start of Season 3, I was piqued enough to start asking friends, colleagues and acquaintances who were fans of both the show and books whether or not they thought it&apos;d be worth it for a TV show fan to read <em>A Song Of Ice And Fire</em>, having already gotten through over two of the novels in the series. And I received a very wide, passionate range of responses.</p>
+
+<p><iframe width="640" height="360" src="https://web.archive.org/web/20150505002835if_/http://www.youtube.com/embed/Edu1nbCv6ng" frameborder="0" allowfullscreen></iframe></p>
+
+<p>Many agreed that even though the show does a nice job condensing the story, <strong>they definitely think the books are worth diving into, especially if you appreciate world-building stuff</strong>. &quot;Because that&apos;s the big, big difference to me. The little corners of the world and the characters are filled out better, just like you&apos;d expect an adaptation to lack,&quot; said Matt Lubchansky. At the same time, he warned: &quot;<strong>People shouldn&apos;t come at the books expecting fucking Thomas Pynchon or Margaret Atwood or something.</strong> It&apos;s just super fun to read.&quot; </p>
+
+<p>Ben Lieberman, who describes himself as &quot;a major fantasy nerd&quot; who read the novels multiple times before the series began, is even more adamant: &quot;No one is going to mistake Martin for Faulkner, but for genre fiction his prose is top shelf. Of the dozens of writers in this genre I have read, he is easily top 2 or 3.&quot; </p>
+
+<p>&quot;I read the books before watching the show,&quot; Victoria Pratt said, &quot;and for me, the show greatly enhanced my experience of the world&#x2014;it highlighted parts I might have skimmed over, especially battle scenes (which I find hard to follow in print). However, <strong>the books are kind of a slog if you don&apos;t LOVE that kind of fantasy writing</strong> and I think the show does a really good job of being faithful to the books and capturing their essence.&quot;</p>
+
+<p><iframe width="640" height="360" src="https://web.archive.org/web/20150505002835if_/http://www.youtube.com/embed/LiHJhLtttuU" frameborder="0" allowfullscreen></iframe></p>
+
+<p>Owen Hutchinson, who started reading them after watching the first season, added that he has yet to meet a fan who regretted reading the books before or after watching the show: &quot;There are tons of subplots, characters, and other details that, due simply to the medium of television, simply cannot convey. <strong>People who enjoy the show would love the books. I don&apos;t know anyone who hasn&apos;t / doesn&apos;t</strong>.&quot;</p>
+
+<p>Latif Nurani actually wishes he could go back and watch the show <em>first</em> before trying out the books. Kellen Parker adds that the depth makes certain characters seem more intelligent than they come across in the show: &quot;Characters like Caitlyn and Ned don&apos;t come out as boneheaded in the books, although Sansa chapters can be a little painful.&quot;</p>
+
+<p>Not everyone was so gung ho though: <strong>&quot;Only the geekiest fans of the show will enjoy the books</strong>,&quot; argued David Jacobs. &quot;The books are much more violent. As the producers [have said], the oft-parodied levels of sex and violence in the show are taken to an even higher level in the books.&quot; You can get a good feel for that heightened prose in the video below:</p>
+
+<p><iframe width="640" height="360" src="https://web.archive.org/web/20150505002835if_/http://www.youtube.com/embed/7KocHhWTwMw" frameborder="0" allowfullscreen></iframe></p>
+
+<p>But maybe you&apos;ve heard some griping from fans about Books 4 and 5 in the series slowing down and focusing on less interesting characters&#x2014;worry not, says Eric Chung: &quot;I read all the books more or less immediately after Season 1. I had to take a hiatus during book 4 because of how ridiculous it was...Then everything came together in 5 and I was like, Okay.&quot; </p>
+
+<p>And if you have a hard time keeping track of characters on the TV show, you may have a much harder time with the books: &quot;I have never been one who enjoys reading long, convoluted epics that require family trees and maps and new languages,&quot; said former Gothamist writer Jaya Saxena. &quot;That&apos;s why I love the show. I appreciate the actual stories these books produce, but so many times I get too bogged down in trying to remember who someone is who hasn&apos;t shown up in four chapters, or how people are related, that I can&apos;t actually enjoy the story. <strong>The show lets me have the ease of facial recognition.</strong>&quot;</p>
+
+<p>Then there&apos;s the matter of spoilers&#x2014;in researching <em>Game Of Thrones</em> character backgrounds for <a href="https://web.archive.org/web/20150505002835/http://gothamist.com/tags/gameofthronespowerrankings">the weekly Power Rankings</a>, I myself had many large plot points spoiled (including the Red Wedding). If that really matters to you, then you may want to avoid the novels at this point (and also a lot of sites trying to predict <a href="https://web.archive.org/web/20150505002835/http://www.vulture.com/2013/06/what-will-happen-season-4-of-game-of-thrones.html">when the next big</a> <a href="https://web.archive.org/web/20150505002835/http://www.buzzfeed.com/awesomer/every-major-plot-twist-in-the-upcoming-seasons-of-game-of-th">twists will come</a>). But for some people, that&apos;s part of the fun: <strong>&quot;I&apos;m gonna actually try and read them now,</strong>&quot; said <a href="https://web.archive.org/web/20150505002835/http://gothamist.com/2012/04/19/michael_austin_pop_culure_warrior_o.php">Michael Austin</a>, &quot;<strong>so I can be mad at George R.R. Martin about things faster.&quot;</strong></p>					
+										
+									
+				

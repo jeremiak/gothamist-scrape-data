@@ -1,0 +1,25 @@
+---
+author: Ben Yakas
+date: Sep 8, 2012 10:50 am
+title: Mets Give Chipper Jones Passive-Agressive Retirement Gift
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="9812chipper.jpg" src="https://web.archive.org/web/20150426153548im_/http://gothamist.com/attachments/byakas/9812chipper.jpg" width="640" height="513"> <br> <i> <a href="https://web.archive.org/web/20150426153548/https://twitter.com/Mets/status/244177992417423361">via Mets Twitter</a></i></div> <p></p>
+
+<p>Chipper Jones&#x2014;better known around these parts as &quot;Laaaaaarry&quot;&#x2014;has really been nothing but a pain in butt for the boys from Flushing over the last 19 years or so. And yet, there is real love between Larry and Mets fans&#x2014;for Larry, he&apos;s played some of his best baseball against the Mets, with a .314 batting average, 49 home runs and 158 RBI&apos;s against the team (he even named his kid &quot;Shea&quot;). As for the Mets...well, Mets fans need someone they love to hate. And in that spirit, <a href="https://web.archive.org/web/20150426153548/https://twitter.com/Mets/status/244177992417423361">the Mets gave Larry</a> the above piece of, um, kitschy artwork as a retirement gift.</p>
+
+<p>Larry has been on something of <a href="https://web.archive.org/web/20150426153548/http://sports.yahoo.com/blogs/mlb-big-league-stew/ranking-chipper-jones-retirement-gifts-far-172941742--mlb.html;_ylt=Alf_sNlZBp9oOa9JqdJvzebsYcp_;_ylu=X3oDMTFkcWhpdTZuBG1pdANCbG9nIEJvZHkEcG9zAzUEc2VjA01lZGlhQmxvZ0JvZHlBc3NlbWJseQ--;_ylg=X3oDMTM0ZW81dmFhBGludGwDdXMEbGFuZwNlbi11cwRwc3RhaWQDZjJjY2U3ZDMtNzM0ZS0zMWMyLWFjMmUtZDEwOGYxNGJmODExBHBzdGNhdANtbGJ8YmlnbGVhZ3Vlc3RldwRwdANzdG9yeXBhZ2U-;_ylv=3">a retirement tour this season</a>&#x2014;he&apos;s been given various gifts from teams around the league all year, including a cowboy hat from the Houston Astros, Yankee Stadium&apos;s third base from the Yankees, a Stan Musial jersey from the St. Louis Cardinals, and even a surfboard from the San Diego Padres. So this painting by Charles Fazzino, which features a &quot;Larrry&quot; sign down the right field line, is...it&apos;s no surfboard, that&apos;s for sure.</p>
+
+<p>With Larry in town this weekend for his final series in NY, <a href="https://web.archive.org/web/20150426153548/http://www.nytimes.com/2012/09/08/sports/baseball/mets-honor-rival-chipper-jones-who-returns-the-love.html">he&apos;s been waxing nostalgic</a> with reporters about his years playing against the team: &#x201C;For the most part, everyone&#x2019;s been very gracious, been very nice,&#x201D; Jones told reporters at a press conference. &#x201C;I can&#x2019;t tell you how many times I&#x2019;ve heard, &#x2018;Yo Chippa, you&#x2019;re beatin&#x2019; up on my Mets...How you doin&#x2019;, Chippa?&#x2019;&#x201D; He also <a href="https://web.archive.org/web/20150426153548/http://www.nytimes.com/2012/09/08/sports/baseball/chipper-jones-reflects-on-his-mets-memories.html?pagewanted=all">reflected on his excitement and nervousness</a> over playing in NY for the first time:</p>
+
+<blockquote>I always held New York to a higher standard than other cities. I was jacked up to play there...I was intimidated. I&#x2019;m from a one-caution-light town in the middle of nowhere, and now you&#x2019;re going to drop me in the middle of Manhattan? I was so scared for the first four or five years I went there.</blockquote>
+
+<p>Jones also admitted that &#x201C;if I was a New York Mets fan, I don&#x2019;t know how I&#x2019;d feel about me.&#x201D; He also recalled some special memories from playing at Shea Stadium: &#x201C;I&#x2019;ll always remember the first game after 9/11, when Piazza hit that homer,&#x201D; he said of Mike Piazza&#x2019;s game-winning home run in the first game at Shea after 9/11. He also got stopped at the airport once because of that:</p>
+
+<blockquote>I still have the shell casings from the 21-gun salute that night. I picked them up out in left field, where I was playing then. I carry them around with me all the time. I almost got arrested once when I was in an airport and forgot to take one out of my bag. I had to explain to them what happened &#x2014; &#x2018;I&#x2019;m Chipper Jones, I play for the Braves, and there was this game in New York ...&#x2019;</blockquote>
+
+<p>In honor of Larry, midtown sports bar Foley&apos;s Pub and Restaurant <a href="https://web.archive.org/web/20150426153548/http://www.nypost.com/p/sports/mets/midtown_pub_changes_name_to_chipper_Yv9sZfy8g73tr0CyeGJWLJ?utm_source=SFnewyorkpost&amp;utm_medium=SFnewyorkpost">has renamed itself</a> Chipper&apos;s for the weekend. &quot;While Chipper has broken the hearts of many Mets fans over the years, New Yorkers are as knowledgeable as anyone and they know greatness when they see it&#x2014;even when it resulted in disappointment for their hometown team,&quot; they said in a statement online.</p>					
+										
+									
+				

@@ -1,0 +1,15 @@
+---
+author: Ben Yakas
+date: November 14, 2010  1:02 PM
+title: Rikers Visitor Speaks Out About Beating
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:250px; "> <img alt="rsz_111210rikers.jpg" src="https://web.archive.org/web/20110629195449im_/http://gothamist.com/attachments/byakas/rsz_111210rikers.jpg" width="250" height="166"> <br> <i><a href="https://web.archive.org/web/20110629195449/http://www.flickr.com/photos/atomische/3542563948/">atomische&apos;s flickr</a></i></div> <p></p>
+
+<p>On Veterans Day, it was reported that several witnesses, including a Daily News reporter, watched as a Rikers Island Corrections Officer got into a verbal argument with a visitor, then beat and arrested him. Now, that visitor has spoken out about the incident, and he plans to sue the shit out of the institution. &quot;I&apos;ve never taken a beating like that in my life...I&apos;m angry, very upset. <strong>I never did anything to provoke them. They&apos;re supposed to be the Boldest. Is that bold? To give you a royal ass whipping?</strong>&quot;</p>
+
+<p>Barry Crawford, 49, of Far Rockaway, <a href="https://web.archive.org/web/20110629195449/http://www.nydailynews.com/ny_local/2010/11/14/2010-11-14_rikers_visitor_tells_news_of_beatdown_by_officers_as_another_guard_faces_contrab.html">told the News</a> that he was at Rikers to visit a cousin and deposit money in the account of another relative. He was complaining about filling out a form when the confrontation with the unidentified officer occurred, and escalated into a fight, one which he claims (and witnesses corroborate) the guard started. &quot;He just hauled up and punched me, on the right side of my face. I buckled a little, and as I was going down, he punched me to the ground and just kept punching me.&quot; Two more guards joined in, he was handcuffed, and brought to another office...for another beatdown. </p>
+
+<p>&quot;That&apos;s when they really worked me over good. <strong>The main guy was punching me in the face. They were doing suplex moves, like in wrestling, on my knees and my back,</strong>&quot; Crawford claims. He says that a captain joined the other officers in the beating: &quot;They kicked me in the head, mouth, face and body. The original guy kept saying, <strong>&apos;I told you to shut up!...We&apos;re the boss here! We run the show!</strong>&apos;&quot; He was arrested initially and kept in lockup till late Friday, but the Bronx district attorney&apos;s office has since deferred prosecution pending further investigation. </p>
+
+<p>Crawford held onto his bloodied clothes, in order to give them to his lawyer for evidence. He said he went directly from lockup to a hospital emergency room for treatment. &quot;The doctor said, &apos;Man, what happened to you?&apos;&quot; Crawford recalled.</p>

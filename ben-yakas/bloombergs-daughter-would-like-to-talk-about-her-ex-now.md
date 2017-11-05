@@ -1,0 +1,13 @@
+---
+author: Ben Yakas
+date: November 14, 2010  1:30 PM
+title: Bloomberg's Daughter Would Like To Talk About Her Ex Now
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:240px; "> <img alt="111410georgina.jpg" src="https://web.archive.org/web/20110629193730im_/http://gothamist.com/attachments/byakas/111410georgina.jpg" width="240" height="360"> <br> <i>AP</i></div> <p></p>
+
+<p>Mayor Bloomberg&apos;s equestrian-loving daughter Georgina really appreciates how much <a href="https://web.archive.org/web/20110629193730/http://gothamist.com/2010/11/07/mayor_bloombergs_daughter_falls_dur.php">interest and care</a> everyone has shown since her scary fall and injury during a jumping competition a few weeks back. Nothing mends a fractured spine like inquisitive media outlets <a href="https://web.archive.org/web/20110629193730/http://gothamist.com/2010/11/09/bloombergs_daughter_really_fine_you.php">bugging her</a> Dad for updates. But there&apos;s something else she&apos;d really like to talk about: how much of a dick her ex-boyfriend is: &quot;The guy I was totally in love with decided that now would be an appropriate time to break up with me, which took me by surprise.&quot;</p>
+
+<p>And like any girl who has had her heart broken, she just <a href="https://web.archive.org/web/20110629193730/http://www.nypost.com/p/news/local/insult_to_injury_for_bloomy_girl_FnKzGmL2iEDNhZcpT8di0H?CMP=OTC-rss&amp;FEEDNAME=">needs a Post reporter</a> to pour her heart out to. Georgina told them that Olympic speed-skating gold-medalist Joey Cheek, whom she&apos;s been dating since September, broke up with her after her injury while she was still zonked out on pain pills. Ouch: &quot;I&apos;m really surprised anyone would be so insensitive as to do it while I am down and out. It was pretty shocking, because I thought he was a really nice guy.&quot;</p>
+
+<p>While it doesn&apos;t quite explain what she was doing excavating the remains of her broken relationship with the Post, she&apos;s realistic about the breakup: &quot;I could have seen this going forward, but he didn&apos;t. I think he thought I had trust issues, or that I wasn&apos;t a very nice person, and that we weren&apos;t a good match. At the end of the day, I don&apos;t want to be with someone who doesn&apos;t want to be with me.&quot; Cheeks, who was once featured on the box of Wheaties, really does come off like an ass. But on the plus side, Georgina has gotten a chance to be a bit closer to her incredibly busy father, who she doesn&apos;t get to see very often: he has &quot;called almost every single day, and that&apos;s pretty much all anyone can really do.&quot; Hmm, trust issues...</p>

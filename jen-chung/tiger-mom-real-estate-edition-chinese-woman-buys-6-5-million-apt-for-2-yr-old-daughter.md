@@ -1,0 +1,19 @@
+---
+author: Jen Chung
+date: Mar 28, 2013 10:09 am
+title: Tiger Mom, Real Estate Edition: Chinese Woman Buys $6.5 Million Apt. For 2-Yr-Old Daughter
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2013_03_nihaokailan.jpg" src="https://web.archive.org/web/20150426151549im_/http://gothamist.com/attachments/jen/2013_03_nihaokailan.jpg" width="640" height="458" class="image-none"> </span></p>
+
+<p>Hey, here&apos;s another item for the &quot;Crazy stuff rich Chinese people will do for their kids&quot; file! Hot on the heels of the Hong Kong couple <a href="https://web.archive.org/web/20150426151549/http://gothamist.com/2012/10/09/hong_kong_couple_paid_22_million_to.php">who spent $2.2 million</a> on a college consultant (who failed to get their sons into Harvard), here&apos;s the tale of the Chinese woman who bought a $6.5 million apartment at a super luxurious 57th Street condo for when her daughter goes to college in the city. That&apos;ll be sometime in 2029, because her daughter is currently 2-years-old.</p>
+
+<p>Kevin Brown, Senior Vice President for Sotheby&apos;s International Realty, <a href="https://web.archive.org/web/20150426151549/http://www.nydailynews.com/life-style/real-estate/mom-buys-2-year-old-6-5-million-nyc-condo-article-1.1300853">told Chinese state media CCTV</a> that he was trying to find an apartment for a particularly demanding client, &quot;We&#x2019;re running around the city looking at things, and I finally said, &#x2018;Why exactly are you buying?&#x2019; <strong>She said, well, her daughter was going to go to Columbia, or NYU or maybe Harvard, and so she needed to be in the center of the city and that was why she was picking this one particular apartment.</strong>&quot; </p>
+
+<p>He added, &quot;<strong>I said, &#x2018;How old is your daughter?&#x2019; And she said, &#x2018;Well, she&#x2019;s 2.&#x2019;</strong> And I was just shocked.&quot; The woman settled on an apartment at <a href="https://web.archive.org/web/20150426151549/http://www.one57.com/">One57</a>, which is where Hong Kong billionaire Silas Chou bought a <a href="https://web.archive.org/web/20150426151549/http://www.nypost.com/p/news/local/manhattan/moguls_in_high_fashion_9wLEVijSfpAGBWrtY9rNBO">full-floor $50 million apartment</a>. (It&apos;s also the building where the crane <a href="https://web.archive.org/web/20150426151549/http://gothamist.com/2012/10/29/crane_collapse_on_west_57th_crane_d.php#photo-1">precipitiously dangled during Hurricane Sandy</a>.) Of course, this kid now has to actually get into Columbia or NYU&#x2014;but maybe the mom can buy an apartment for one of the schools as a donation?</p>
+
+<p>Brown observed that his client base is now 25% Chinese, &quot;What is more interesting is that two years ago, it was only 15 percent, and before that it was five percent... Most Chinese want to be by Central Park, but they are not interested in the park view. They want a southern exposure.&quot; Yeah, being by the park is important so they can make their children <a href="https://web.archive.org/web/20150426151549/http://gothamist.com/2012/02/09/video_chinese_dad_makes_nearly-nake.php">exercise while nearly naked in the snow</a> if <a href="https://web.archive.org/web/20150426151549/http://gothamist.com/2011/01/09/chinese_mother_explains_why_chinese.php">they are fatties</a>. Also, they&apos;ll offer any dude <a href="https://web.archive.org/web/20150426151549/http://www.dailymail.co.uk/news/article-2208967/Cecil-Chao-Sze-tsung-Billionaire-offers-40million-reward-man-marry-lesbian-daughter.html">$60 million to marry their hot lesbian daughter</a>!</p>					
+										
+									
+				

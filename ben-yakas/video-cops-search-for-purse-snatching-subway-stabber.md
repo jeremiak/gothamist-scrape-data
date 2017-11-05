@@ -1,0 +1,11 @@
+---
+author: Ben Yakas
+date: September 16, 2010  1:40 PM
+title: Video: Cops Search For Purse Snatching Subway Stabber
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2010_09_subattack.jpg" src="https://web.archive.org/web/20130310074835im_/http://gothamist.com/attachments/jen/2010_09_subattack.jpg" width="180" height="133" class="image-left"> </span>Police are still searching for the serial mugger who <a href="https://web.archive.org/web/20130310074835/http://gothamist.com/2010/09/12/woman_stabbed_for_refusing_to_give.php">stabbed a woman when she refused to give up her purse</a> at an Upper West Side subway station last week. Surveillance video of the thief <a href="https://web.archive.org/web/20130310074835/http://abclocal.go.com/wabc/story?section=news/local&amp;id=7670913">was released today</a> (you can see it below). Police are now crediting the perp with robbing three different women this summer at <a href="https://web.archive.org/web/20130310074835/http://www.ebaumsworld.com/video/watch/80638718/">knife-point</a>.</p>
+
+<p>The suspect, <a href="https://web.archive.org/web/20130310074835/http://www.nypost.com/p/news/local/cops_hunting_for_armed_purse_snatcher_MLYXY2RQGuidFC46U634aL?CMP=OTC-rss&amp;FEEDNAME=">described as</a> a black male in his 20s, was caught on camera robbing a 37-year-old woman on Aug. 7, at the 125th St. station in Harlem; he robbed a 28-year-old woman leaving the Dyckman St. station on Aug. 27. He didn&apos;t stab either of the women.</p>
+
+<p>The woman who he did stab last weekend refused to let go of her purse, unlike the other women. She told reporters that she just <a href="https://web.archive.org/web/20130310074835/http://gothamist.com/2010/09/13/woman_stabbed_by_mugger_just_wants.php">really really wants her purse back</a>. We all know there are stiff penalties for purse snatching nowadays, since the landmark case of <a href="https://web.archive.org/web/20130310074835/http://gothamist.com/2010/09/08/kirsten_dunsts_purse_snatcher_gets.php">Dunst v. some dude who stole her assistant&apos;s bag.</a></p>

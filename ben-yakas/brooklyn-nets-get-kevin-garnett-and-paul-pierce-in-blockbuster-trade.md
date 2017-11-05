@@ -1,0 +1,21 @@
+---
+author: Ben Yakas
+date: Jun 28, 2013 11:25 am
+title: Brooklyn Nets Get Kevin Garnett And Paul Pierce In Blockbuster Trade
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="62813nets.jpeg" src="https://web.archive.org/web/20150510022146im_/http://gothamist.com/attachments/byakas/62813nets.jpeg" width="640" height="480" class="image-none"> </span></p>
+
+<p>A decade of Boston Celtics dominance is officially no more: the <a href="https://web.archive.org/web/20150510022146/http://gothamist.com/tags/brooklynnets">Brooklyn Nets</a> agreed in principle to <a href="https://web.archive.org/web/20150510022146/http://gothamist.com/2013/06/27/brooklyn_nets_trying_to_trade_for_k.php">a blockbuster trade</a> to acquire future Hall of Famers Paul Pierce and Kevin Garnett (oh yeah, and Jason Terry). In return for those three, <a href="https://web.archive.org/web/20150510022146/http://sports.yahoo.com/news/ap-source-nets-celtics-talk-223916322--nba.html">the Nets will send Boston</a> three first-round picks (2014, &apos;16 and &apos;18) along with Kris Humphries&apos; expiring contract, Gerald Wallace, Kris Joseph, MarShon Brooks and a sign-and-traded Keith Bogans (though <a href="https://web.archive.org/web/20150510022146/http://www.nydailynews.com/sports/basketball/nets/source-nets-talking-megadeal-garnett-pierce-article-1.1384284">the Daily News claims</a> Reggie Evans is also part of the deal). The man who trash talked Carmelo Anthony <a href="https://web.archive.org/web/20150510022146/http://gothamist.com/2013/05/02/honey_nut_cheerios_returns_celtics.php">using cereal metaphors</a> will now be part of a true NYC crosstown rivalry. </p>
+
+<p>The deal can&apos;t officially be completed until July 10th&#x2014;that would be when the NBA allows trades and signings to occur, and after Pierce&apos;s contract becomes guaranteed. But <a href="https://web.archive.org/web/20150510022146/http://espn.go.com/nba/story/_/id/9429958/sources-boston-celtics-brooklyn-nets-agree-kevin-garnett-paul-pierce-deal">ESPN reports</a> Garnett has waived his no-trade clause, and the Nets have agreed to fully guarantee the $12 million owed him for the 2014-15 season. So barring any unforeseen incidents or <a href="https://web.archive.org/web/20150510022146/http://deadspin.com/here-lies-boston-sports-guy-bill-simmons-reacts-to-the-605329659">Bill Simmons buying the team in the next two weeks</a>, the trade is as good as gold.  </p>
+
+<p>Nobody from either side can talk about the deal till it&apos;s done: &quot;At the time that it&apos;s appropriate, I will address it if possible, but at this time, I can&apos;t,&quot; said Nets GM Billy King. Doc Rivers, the former coach of the Celtics who oversaw The Big Three for the last decade, told ESPN &#x201C;it&#x2019;s obviously a great trade for Brooklyn.&#x201D; Chicago Bulls coach Tom Thibodeau, who was an assistant in Boston on the 2008 NBA champions, called it sad: &apos;&apos;You hate to see it. I certainly hate to see them go to Brooklyn, Doc of course going to the Clippers. But that&apos;s the NBA. It&apos;s constant change, and you have to be ready to adapt. I think what Paul Pierce did for that franchise and Kevin - I think&apos;s it&apos;s good for them.&quot;</p>
+
+<p>But is it good for the Nets? Gothamist Nets beatwriter, Derek Evers, <a href="https://web.archive.org/web/20150510022146/http://gothamist.com/2013/06/27/brooklyn_nets_trying_to_trade_for_k.php">says that the upside is</a> that the team &quot;desperately need some grit. Garnett and Pierce would definitely supply it.&quot; Parting with the three draft picks are rough, but the Nets are banking on being a top three team in the conference for the next few years, so they&apos;re hoping that offsets that move.</p>
+
+<p>Two things are for sure: Knicks and Nets games are sure to be even more exciting this season. And the Nets have now almost caught up to the Knicks in median age.</p>					
+										
+									
+				

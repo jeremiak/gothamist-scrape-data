@@ -1,0 +1,23 @@
+---
+author: Ben Yakas
+date: Jan 13, 2013 5:55 pm
+title: Woody Allen Opens Up About Hypochondria, Getting Hickeys
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="11313woody.jpg" src="https://web.archive.org/web/20150501174803im_/http://gothamist.com/attachments/byakas/11313woody.jpg" width="640" height="417" class="image-none"> </span></p>
+
+<p>With all this hysteria about the <a href="https://web.archive.org/web/20150501174803/http://gothamist.com/tags/flu">flu epidemic</a> we&apos;re currently dealing with, every media outlet is looking for an expert to pick their brains about influenza and how to avoid it. And for the lighter side of illness, who better to turn to than the world&apos;s most famous hypochondriac! <a href="https://web.archive.org/web/20150501174803/http://gothamist.com/tags/woodyallen">Woody Allen</a> <a href="https://web.archive.org/web/20150501174803/http://www.nytimes.com/2013/01/13/opinion/sunday/hypochondria-an-inside-look.html?smid=tw-share&amp;_r=0">wrote an op-ed for the NY Times today</a> to &quot;pen a few words &apos;from the horse&#x2019;s mouth&apos; about hypochondria,&quot; although he insists he&apos;s more of an alarmist than anything else. </p>
+
+<p>For the most part, the piece is as satisfying and chuckle-inducing as most of the pieces Woody writes these days (and that often show up in The New Yorker <a href="https://web.archive.org/web/20150501174803/http://www.newyorker.com/search?qt=dismax&amp;sort=score+desc&amp;query=woody+allen&amp;submit=">in the &quot;Shouts and Murmurs&quot; section</a>). Fretting about his sex pheromones, pronouncing dozing men as dead, imagining death by scantily clad cocktail waitresses&#x2014;it&apos;s good stuff. </p>
+
+<p>But unfortunately for everyone, he also related a squirm-inducing anecdote about getting a hickey from his wife, Soon-Yi Previn. Sure, it&apos;s probably just comic invention&#x2014;but not even Woody&apos;s biggest fans want to imagine him getting an imaginary hickey.</p>
+
+<blockquote>Unfortunately, my wife bears the brunt of these pathological dramas. Like the time I awoke at 3 a.m. with a spot on my neck that to me clearly had the earmarks of a melanoma. That it turned out to be a hickey was confirmed only later at the hospital after much wailing and gnashing of teeth. Sitting at an ungodly hour in the emergency room where my wife tried to talk me down, I was making my way through the five stages of grief and was up to either &#x201C;denial&#x201D; or &#x201C;bargaining&#x201D; when a young resident fixed me with a rather supercilious eye and said sarcastically, &#x201C;Your hickey is benign.&#x201D;</blockquote>
+
+<p>To cleanse your mind of that, <a href="https://web.archive.org/web/20150501174803/http://www.openculture.com/2013/01/woody_allens_typewriter_scissor_and_stapler.html">watch the below clip</a>&#x2014;taken from the excellent 2011 PBS feature on him, <em> Woody Allen: A Documentary</em>&#x2014;in which Woody gives a peak into his working habits. </p>
+
+<center><object id="flashObj" width="465" height="455" classid="clsid:D27CDB6E-AE6D-11cf-96B8-444553540000" codebase="https://web.archive.org/web/20150501174803oe_/http://download.macromedia.com/pub/shockwave/cabs/flash/swflash.cab#version=9,0,47,0"><param name="movie" value="http://c.brightcove.com/services/viewer/federated_f9?isVid=1"><param name="bgcolor" value="#FFFFFF"><param name="flashVars" value="videoId=1279472454001&amp;playerID=22526568001&amp;playerKey=AQ~~,AAAAAF1454s~,QH_ygumSKiVy_8e3RZsdW82fmJdkcLvC&amp;domain=embed&amp;dynamicStreaming=true"><param name="base" value="http://admin.brightcove.com"><param name="seamlesstabbing" value="false"><param name="allowFullScreen" value="true"><param name="swLiveConnect" value="true"><param name="allowScriptAccess" value="always"><embed src="https://web.archive.org/web/20150501174803oe_/http://c.brightcove.com/services/viewer/federated_f9?isVid=1" bgcolor="#FFFFFF" flashvars="videoId=1279472454001&amp;playerID=22526568001&amp;playerKey=AQ~~,AAAAAF1454s~,QH_ygumSKiVy_8e3RZsdW82fmJdkcLvC&amp;domain=embed&amp;dynamicStreaming=true" base="http://admin.brightcove.com" name="flashObj" width="465" height="455" seamlesstabbing="false" type="application/x-shockwave-flash" allowfullscreen="true" swliveconnect="true" allowscriptaccess="always" pluginspage="http://www.macromedia.com/shockwave/download/index.cgi?P1_Prod_Version=ShockwaveFlash"></object></center>					
+										
+									
+				

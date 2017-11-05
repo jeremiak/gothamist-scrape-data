@@ -1,0 +1,11 @@
+---
+author: Ben Yakas
+date: April 21, 2011  3:47 PM
+title: Young Mother Mistakenly Killed By Facebook Pal
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:230px; "> <img alt="42111facebook.jpg" src="https://web.archive.org/web/20110424064109im_/http://gothamist.com/attachments/byakas/42111facebook.jpg" width="230" height="172"> <br> <i>Bolivia Beck and Gary Davis (from Facebook)</i></div> In a sad turn of events earlier this week, a young mother was <a href="https://web.archive.org/web/20110424064109/http://www.nydailynews.com/news/ny_crime/2011/04/21/2011-04-21_innocent_bx_ma_shot_dead_by_facebook_pal.html?r=ny_local">mistakenly shot and killed</a> in the Bronx by one of her Facebook friends. Bolivia Beck, 21, was walking with her 21-year-old boyfriend, ex-con Joey Colon, when mutual friend Gary Davis encountered them Monday night at the Millbrook Houses in the South Bronx. He allegedly fired two shots in an apparent attempt to kill Colon, but instead hit Beck in the head.<p></p>
+
+<p>Police sources <a href="https://web.archive.org/web/20110424064109/http://www.nydailynews.com/news/ny_crime/2011/04/21/2011-04-21_innocent_bx_ma_shot_dead_by_facebook_pal.html?r=ny_local">told the News</a> that Davis ran off after the shooting, and is &quot;quite remorseful, but we just can&apos;t find him.&quot; Police do not yet have a motive for the shooting, but they established that Beck and Davis were at least <a href="https://web.archive.org/web/20110424064109/http://www.facebook.com/boliviab">virtual friends</a> on the social media site. Beck, who has a four-year-old daughter and worked at Toys &quot;R&quot; Us, died yesterday from her injuries.</p>
+
+<p>Davis, also 21, has <a href="https://web.archive.org/web/20110424064109/http://www.nypost.com/p/news/local/nypd_blotter/nypd_daily_blotter_eXeahR1RuYKs1PAt97MYAI?CMP=OTC-rss&amp;FEEDNAME=">prior arrests</a> for assault and robbery; Colon served two years for robbery and possession of a weapon. Police are searching for Davis, but sources added, &quot;We wish he&apos;d come in and tell detectives about it himself.&quot;</p>

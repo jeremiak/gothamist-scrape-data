@@ -1,0 +1,15 @@
+---
+author: Ben Yakas
+date: Mar 30, 2011 10:25 am
+title: Brooklyn Spa Owner Allegedly Stole $100,000 From PTA For Fertility Treatments, Rent
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="33011pta.jpg" src="https://web.archive.org/web/20160903182446im_/http://gothamist.com/attachments/byakas/33011pta.jpg" width="250" height="167" class="image-left"> </span>One might reasonably assume that any parent who gets involved with the PTA is doing so for altruistic reasons, or because they want to ensure that their kid will get into that exclusive AP Biology class, or worst case scenario, because they really want <a href="https://web.archive.org/web/20160903182446/http://gothamist.com/2008/12/16/long_island_pta_mom_caught_with_13y.php">to bang</a> a 13-year-old. But then, you&apos;d be ignoring the fact that the PTA is a really just a cash cow grazing idly, waiting to be milked by someone. And one Brooklyn Brownstone farm hand is accused of milking that cow for all she could.</p>
+
+<p>Providence Hogan, the former treasurer of the PTA for Public School 29 in Cobble Hill, <a href="https://web.archive.org/web/20160903182446/http://www.nytimes.com/2011/03/30/nyregion/30pta.html?_r=1&amp;partner=rss&amp;emc=rss">is accused</a> of embezzling approximately $100,000 from the school between 2006 and 2008 (the <a href="https://web.archive.org/web/20160903182446/http://www.nydailynews.com/news/ny_crime/2011/03/30/2011-03-30_indicted_for_grabbing_100g_from_bklyn_pta.html">News says</a> it was a four year period). Hogan, owner of the upscale <a href="https://web.archive.org/web/20160903182446/http://www.providencedayspa.com/">Providence Day Spa</a> about 10 blocks from the school, allegedly spent the money on fertility treatments, and to pay the rent on her store and her apartment. She allegedly told police she took the money to &#x201C;keep her family living in the lifestyle they were accustomed to,&quot; which is known in some circles as the <a href="https://web.archive.org/web/20160903182446/http://gothamist.com/2011/03/01/is_charlie_sheen_ready_to_drop_know.php">&quot;Charlie Sheen Defense.&quot;</a> </p>
+
+<p>Hogan is expected to turn herself into police today, and faces up to 15 years in jail if convicted of the top charge in the 22-count indictment. PS 29 was also the site of another controversy recently after the Pledge of Allegiance <a href="https://web.archive.org/web/20160903182446/http://gothamist.com/2011/03/25/school_brings_back_pledge_of_allegi.php">mysterious went missing</a>, sparking outrage and huge teachable moments alike. In case this story is stressing you out, the Providence Day Spa, voted one of the city&apos;s best for bikini waxes, has a great deal on a Detoxifying Seaweed Massage to stimulate lymphatic drainage!</p>					
+										
+									
+				

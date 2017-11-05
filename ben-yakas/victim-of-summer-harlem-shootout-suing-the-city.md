@@ -1,0 +1,7 @@
+---
+author: Ben Yakas
+date: November 13, 2010  2:50 PM
+title: Victim Of Summer Harlem Shootout Suing The City
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="111310shootout.jpg" src="https://web.archive.org/web/20110412164107im_/http://gothamist.com/attachments/byakas/111310shootout.jpg" width="115" height="78" class="image-right"> </span>One of the victim&apos;s of last summer&apos;s <a href="https://web.archive.org/web/20110412164107/http://gothamist.com/2010/08/09/harlem_shooting_over_50_bullets_46.php">wild Harlem shootout</a> is suing the NYPD for $20 million. Larry Garlick, 38, was shot in the leg by a cop&apos;s bullet during the melee in August, in which one man was killed and two cops and two other bystanders were wounded. Garlick <a href="https://web.archive.org/web/20110412164107/http://www.nydailynews.com/news/ny_crime/2010/11/12/2010-11-12_bronx_man_sues_city_and_nypd_over_injury_from_crossfire_in_harlem_shootout.html">says he suffered</a> severe physical injuries, as well as &quot;emotional and psychological distress and horror&quot; as a result of the shooting; he blames the NYPD for poor officer training and an inability to control the crowd. One man, Angel Alverez, was shot 21 times by police, but somehow survived his injuries.</p>

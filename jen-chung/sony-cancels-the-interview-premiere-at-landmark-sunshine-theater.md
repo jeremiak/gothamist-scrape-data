@@ -1,0 +1,29 @@
+---
+author: Jen Chung
+date: Dec 17, 2014 8:15 am
+title: Sony Cancels The Interview Premiere At Landmark Sunshine Theater
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2014_12_interviewjf.jpg" src="https://web.archive.org/web/20150510011109im_/http://gothamist.com/attachments/jen/2014_12_interviewjf.jpg" width="640" height="691"> <br> <i> James Franco <a href="https://web.archive.org/web/20150510011109/http://instagram.com/p/wo28E7y9Yt/?modal=true">Instagrammed this photo</a>, &quot;Doin&apos; some press for @theinterviewmovieWith @sethrogen&quot;</i></div> <p></p>
+
+<p>After <a href="https://web.archive.org/web/20150510011109/http://gothamist.com/2014/12/16/sony_hackers_imply_bitter_fate_for.php">apparent terror threats surrounding the NYC premiere</a> of the James Franco-Seth Rogen comedy, <em>The Interview</em>, Sony Pictures has decided to cancel the Thursday night red carpet event. </p>
+
+<p>The film features Franco as a reporter and Rogen as a producer who land an interview with North Korean leader Kim Jong-Un. The duo get recruited by the CIA to assassinate Kim&#x2014;wacky hijinks ensue. A group who <a href="https://web.archive.org/web/20150510011109/http://laist.com/tags/sonyhack">allegedly hacked Sony</a>, called Guardians of the Peace, demanded that the film be pulled and posted a statement yesterday threatening the premiere and theaters who show the film: &quot;We will clearly show it to you at the very time and places &apos;The Interview&apos; be shown, including the premiere, how bitter fate those who seek fun in terror should be doomed to. Soon all the world will see what an awful movie Sony Pictures Entertainment has made. The world will be full of fear. Remember the 11th of September 2001.&quot;</p>
+
+<p>A spokesperson for the Landmark Sunshine Theater on Houston Street <a href="https://web.archive.org/web/20150510011109/http://variety.com/2014/film/news/the-interview-new-york-premiere-canceled-1201381347/">confirmed to Variety</a> that the premiere was canceled. Although the Department of Homeland Security has said <a href="https://web.archive.org/web/20150510011109/http://www.huffingtonpost.com/2014/12/16/seth-rogen-james-franco-interview-press_n_6336350.html">there is no credible terror threat</a>, Sony has said theaters <a href="https://web.archive.org/web/20150510011109/http://abcnews.go.com/US/sony-hackers-issue-warning-world-full-fear/story?id=27641600">don&apos;t have to show the film either</a>. </p>
+
+<p>Late yesterday, Franco and Rogen canceled their media appearances. Franco posted this photograph to Instagram, asking the paparazzi to stop bothering him:</p>
+
+<center><blockquote class="instagram-media" data-instgrm-captioned="" data-instgrm-version="4" style=" background:#FFF; border:0; border-radius:3px; box-shadow:0 0 1px 0 rgba(0,0,0,0.5),0 1px 10px 0 rgba(0,0,0,0.15); margin: 1px; max-width:658px; padding:0; width:99.375%; width:-webkit-calc(100% - 2px); width:calc(100% - 2px);"><div style="padding:8px;"> <div style=" background:#F8F8F8; line-height:0; margin-top:40px; padding:50% 0; text-align:center; width:100%;"> <div style=" background:url(data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAACwAAAAsCAMAAAApWqozAAAAGFBMVEUiIiI9PT0eHh4gIB4hIBkcHBwcHBwcHBydr+JQAAAACHRSTlMABA4YHyQsM5jtaMwAAADfSURBVDjL7ZVBEgMhCAQBAf//42xcNbpAqakcM0ftUmFAAIBE81IqBJdS3lS6zs3bIpB9WED3YYXFPmHRfT8sgyrCP1x8uEUxLMzNWElFOYCV6mHWWwMzdPEKHlhLw7NWJqkHc4uIZphavDzA2JPzUDsBZziNae2S6owH8xPmX8G7zzgKEOPUoYHvGz1TBCxMkd3kwNVbU0gKHkx+iZILf77IofhrY1nYFnB/lQPb79drWOyJVa/DAvg9B/rLB4cC+Nqgdz/TvBbBnr6GBReqn/nRmDgaQEej7WhonozjF+Y2I/fZou/qAAAAAElFTkSuQmCC); display:block; height:44px; margin:0 auto -44px; position:relative; top:-22px; width:44px;"></div></div> <p style=" margin:8px 0 0 0; padding:0 4px;"> <a href="https://web.archive.org/web/20150510011109/https://instagram.com/p/wr8i3XS9UA/" style=" color:#000; font-family:Arial,sans-serif; font-size:14px; font-style:normal; font-weight:normal; line-height:17px; text-decoration:none; word-wrap:break-word;" target="_top">Here&apos;s the shot the paparazzi are going to get. So they can leave me alone now. Thanks, guys.</a></p> <p style=" color:#c9c8cd; font-family:Arial,sans-serif; font-size:14px; line-height:17px; margin-bottom:0; margin-top:8px; overflow:hidden; padding:8px 0 7px; text-align:center; text-overflow:ellipsis; white-space:nowrap;">A photo posted by James Franco (@jamesfrancotv) on <time style=" font-family:Arial,sans-serif; font-size:14px; line-height:17px;" datetime="2014-12-16T23:50:20+00:00">Dec 12, 2014 at 3:50pm PST</time></p></div></blockquote>
+<script async defer src="//web.archive.org/web/20150510011109js_/http://platform.instagram.com/en_US/embeds.js"></script></center>
+
+<p>During <a href="https://web.archive.org/web/20150510011109/https://gma.yahoo.com/seth-rogen-james-franco-address-sony-hack-180020976--abc-news-celebrities.html">an interview with Good Morning America</a> on Monday, Rogen said, &quot;I can&apos;t definitively say I know the ramifications of the storm. I mean, I don&apos;t know if the hacking honestly is because of our movie, definitively or not. I know that it has been the center of a lot of media attention lately. It is weird because we just wanted to make a really funny, entertaining movie and the movie itself is very silly and wasn&apos;t meant to be controversial in any way.&quot;</p>
+
+<p>Rogen further explained, &quot;The more we read about North Korea the more fascinated we became. And it truly is a bizarre place. It&apos;s almost is like a relic from another time.&quot;</p>
+
+<p>And Franco added, &quot;To be fair, it satirizes American culture just as much.&quot;<br>
+</p>					
+										
+									
+				

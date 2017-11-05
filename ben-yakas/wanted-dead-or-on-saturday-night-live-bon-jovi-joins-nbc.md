@@ -1,0 +1,13 @@
+---
+author: Ben Yakas
+date: November  4, 2009  5:29 PM
+title: Wanted Dead Or On Saturday Night Live: Bon Jovi Joins NBC
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2009_11_jbonjovi.jpg" src="https://web.archive.org/web/20110623140633im_/http://gothamist.com/attachments/jen/2009_11_jbonjovi.jpg" width="250" height="207" class="image-left"> </span>New Jersey&apos;s 2nd favorite son Bon Jovi has signed on to become the first &quot;artist-in-residence&quot; at NBC. <a href="https://web.archive.org/web/20110623140633/http://www.observer.com/2009/media/30-rocks-hard-rocker?page=0">In a feature</a> in this week&apos;s Observer, Felix Gillette traces the strange pairing, profiling both the pragmatism of self-described CEO Bon Jovi, as well as NBC&apos;s love of synergy and refusal to acknowledge criticism. </p>
+
+<p>For the next two months, Bon Jovi will become the pseudo-mascot of NBC, &quot;appearing (exclusively!) on a wide range of NBC broadcast and cable channels&quot; to promote his band&apos;s new album, and &quot;along the way, he [will] be hosting Saturday Night Live, doing sports, doing news, basking in James Lipton&#x2019;s marveling gaze on Inside the Actors Studio and playing a concert for Today at Rockefeller Plaza.&quot; That means lots of early morning face time with former <a href="https://web.archive.org/web/20110623140633/http://gothamist.com/2005/10/31/best_today_show_costume_ann_curry.php">best Today show costume winner</a> Ann Curry.</p>
+
+<p>This news comes amidst the controversy surrounding <a href="https://web.archive.org/web/20110623140633/http://www.crainsnewyork.com/article/20091102/FREE/911029990">Jay Leno&apos;s new show</a> and dismal ratings that have left NBC in 4th place among networks, and it seems likely the company will be sold, according to <a href="https://web.archive.org/web/20110623140633/http://www.variety.com/article/VR1118009418.html?categoryid=3765&amp;cs=1">Variety</a>.</p>
+
+<p>In addition, the story notes that Brian Williams will interview Bon Jovi for a piece on the Nightly News, highlighting the band&#x2019;s charitable efforts, which prompted this quote from former president of NBC News, Lawrence Grossman: &#x201C;It sounds like the human extension of product placement...<strong>I am dismayed that they are infesting the news division with that kind of requirement. But it does comport with the current trend to cheapen the formerly more-or-less pristine network news operations, which are now filled with softball features.&#x201D;</strong></p>

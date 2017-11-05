@@ -1,0 +1,15 @@
+---
+author: Ben Yakas
+date: Sep 29, 2010 1:54 pm
+title: Bed-Stuy Serpico Vows To Bring Quotas Lawsuit To Trial
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="92910schoolcraft.jpg" src="https://web.archive.org/web/20151115111643im_/http://gothamist.com/attachments/byakas/92910schoolcraft.jpg" width="250" height="249" class="image-left"> </span>Officer <a href="https://web.archive.org/web/20151115111643/http://gothamist.com/tags/adrianschoolcraft">Adrian Schoolcraft</a>, formerly of Brooklyn&apos;s 81st precinct, has become a major thorn in the NYPDs side ever since he lobbed accusations that commanding officers have been massively under-reporting crime stats in the throes of quota-lust. He&apos;s <a href="https://web.archive.org/web/20151115111643/http://gothamist.com/2010/08/23/real-life_serpico_sues_nypd_for_tos.php">suing the NYPD</a> for $50 million, for throwing him in a psych ward unwillingly and suspending him from duty. But in a new interview <a href="https://web.archive.org/web/20151115111643/http://www.nydailynews.com/ny_local/2010/09/28/2010-09-28_cop_sez_suit_vs_nypd_not_about_money_ill_never_give_up__whistleblower.html">with the Daily News</a>, he makes it clear that it&apos;s not about the money: &quot;<strong>There&apos;s not enough money in the state to get me to settle this suit. It&apos;s going to trial and there&apos;s no way around that&#x2014;the truth has to come out.&quot;</strong></p>
+
+<p>Schoolcraft has been living upstate with his father since his suspension, and claims he&apos;s broke and living off Ramen noodles. He truly believed that investigators would embrace him for his diligence and savvy undercover work when he first approached them with what was going on at his precinct. But he says he is sympathetic as to why most cops go with the status quo: &quot;I understand the fear these guys have. <strong>They have families, houses, cars. They feel they can&apos;t speak out.</strong>&quot; </p>
+
+<p>Not that he is completely alone: Schoolcraft has set up a <a href="https://web.archive.org/web/20151115111643/http://www.schoolcraftjustice.com/">website</a> with his lawyer Jon Norinsberg (who also has a <a href="https://web.archive.org/web/20151115111643/http://gothamist.com/2010/09/23/man_given_summons_for_hanging_out_i.php">class action lawsuit</a> against the NYPD for false summonses) to organize their lawsuit and encourage more cops to come forward with information about quotas and stat manipulation. (You can also read his 61-page complaint&#x2014;<a href="https://web.archive.org/web/20151115111643/http://www.schoolcraftjustice.com/SchoolcraftAmended.pdf">PDF</a>&#x2014;against the city.) And the most famous NYPD whistleblower, Frank Serpico, visited Schoolcraft one night to eat salmon and offer support: &quot;<strong>This is what they do,</strong>&quot; Schoolcraft quoted Serpico as saying. </p>					
+										
+									
+				

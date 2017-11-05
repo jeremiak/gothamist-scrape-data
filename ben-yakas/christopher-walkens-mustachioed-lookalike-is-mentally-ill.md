@@ -1,0 +1,13 @@
+---
+author: Ben Yakas
+date: April  7, 2011  6:42 PM
+title: Christopher Walken's Mustachioed Lookalike Is Mentally Ill
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="4711walken.jpg" src="https://web.archive.org/web/20110409190521im_/http://gothamist.com/attachments/byakas/4711walken.jpg" width="640" height="414"> <br> <i>Tony Kadyhrob (left) and Christopher Walken</i></div> <p></p>
+
+<p>In The Mirror Universe in <em>Star Trek</em> lore, everyone has a bizarro version of themselves, readily identifiable by their sexier clothes or sketchy facial hair. It seems that we&apos;ve found our bizzaro Christopher Walken: NJ resident Tony Kadyhrob, whose picture has become an internet sensation <a href="https://web.archive.org/web/20110409190521/http://www.nj.com/mercer/index.ssf/2011/04/nj_man_banned_from_school_prop.html">this week</a>, and whose awkward mustache seems to be the only way to tell the two apart. If Walken wasn&apos;t already <a href="https://web.archive.org/web/20110409190521/http://gothamist.com/2010/04/12/christopher_walken_freaked_out_by_t.php">freaked out</a> by the internet, he certainly would be now!</p>
+
+<p>Kadyhrob <a href="https://web.archive.org/web/20110409190521/http://www.nj.com/mercer/index.ssf/2011/04/princeton_university_issues_al.html">was arrested</a> last Friday while accosting a 19-year-old Rider College student, trying to force her into his car. He was released, but was spotted skulking around The College of New Jersey on Saturday and near Princeton University Wednesday morning. &#x201C;I am totally innocent and I have no interest whatsoever in making my face more famous than I already am. I&#x2019;m not intimidating. Tony Kadyhrob is not intimidated by this joke &#x2014; a little nothing that never occurred &#x2014; and I will be found innocent without a doubt,&#x201D; Kadyhrob said Tuesday. </p>
+
+<p>He was arrested a second time and questioned by police for his strange behavior yesterday, but again released. However, his sister <a href="https://web.archive.org/web/20110409190521/http://www.nydailynews.com/news/national/2011/04/06/2011-04-06_christopher_walken_lookalike_tony_kadyhrob_is_in_a_psych_ward_after_stalking_col.html">told the News</a> that he was admitted to a mental hospital later that day, putting a particularly sad twist over the whole strange affair: &quot;He is in a mental unit. He is a paranoid schizophrenic. He hears voices. He is not a criminal!&quot;</p>

@@ -1,0 +1,15 @@
+---
+author: Ben Yakas
+date: Apr 7, 2010 4:15 pm
+title: American Sentenced To 8 Years Hard Labor in North Korea
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:200px; "> <img alt="4710clinton.jpg" src="https://web.archive.org/web/20150506161617im_/http://gothamist.com/attachments/byakas/4710clinton.jpg" width="200" height="145"> <br> <i>Clinton, blowing the pipes of peace</i></div> An American citizen who admitted to illegally entering North Korea has been fined $700,000 and sentenced to eight years hard labor. Aijalon Mahli Gomes, 30, of Boston, was <a href="https://web.archive.org/web/20150506161617/http://wcbstv.com/national/north.korea.Aijalon.2.1615956.html">convicted</a> of illegal entry and unspecified &quot;hostile&quot; acts against North Korea during a court trial Tuesday; the <a href="https://web.archive.org/web/20150506161617/http://www.nytimes.com/2010/04/07/world/asia/07korea.html">Times</a> surmises that Gomes might have entered the communist country in support of Robert Park, a Korean-American missionary who had been held by the country for calling for an end to human rights abuses.<p></p>
+
+<p>The Korean Central News Agency reports: &#x201C;The accused admitted all the facts which had been put under accusation...The presence of representatives of the Swedish embassy here to witness the trial was allowed as an exception at the request of the Swedish side protecting the U.S. interests.&#x201D; Gomes is the fourth American to be detained in North Korea on charges of illegal entry in the past year; <a href="https://web.archive.org/web/20150506161617/http://gothamist.com/2009/06/08/n_korea_sentences_us_journalists_to.php">two</a> of those were American journalists who had been sentenced to 12 years hard labor until former President Bill Clinton <a href="https://web.archive.org/web/20150506161617/http://gothamist.com/2009/08/04/bill_clinton_meets_kim_jong-il.php">intervened</a> successfully on their behalf. </p>
+
+<p>Yoo Ho-yeol, a North Korea expert at Seoul&apos;s Korea University, <a href="https://web.archive.org/web/20150506161617/http://www.nydailynews.com/news/world/2010/04/07/2010-04-07_north_korea_sentances_us_man_aijalon_mahli_gomes_to_8_years_hard_labor_for_illeg.html">thinks</a> they are just using Gomes as a bargaining chip: &quot;Continuing to hold him in custody is also a burden for North Korea&quot; as it will only galvanize criticism of its human rights record. The US government hasn&apos;t commented on the situation yet, so hopefully Ho-yeol will prove to be correct, or else Gomes might want to wish for a visit from his <a href="https://web.archive.org/web/20150506161617/http://gothamist.com/2009/08/07/clinton_tight-lipped_about_rescue_m.php">fairy godClinton</a>.</p>					
+										
+									
+				

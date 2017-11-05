@@ -1,0 +1,19 @@
+---
+author: Ben Yakas
+date: Oct 10, 2010 9:10 pm
+title: Paladino: Homosexuality Not An Equally Valid And Successful Option
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="2010_09_paladino0h.jpg" src="https://web.archive.org/web/20150510002641im_/http://gothamist.com/attachments/jen/2010_09_paladino0h.jpg" width="640" height="440"> <br> <i>Photograph of Paladino with Rabbi Yechezkel Roth, left, and another Orthodox Jewish supporter, center, today in Brooklyn by Kathy Willens/AP</i></div> <p></p>
+
+<p>So maybe this is why Republican gubernatorial candidate Carl Paladino has <a href="https://web.archive.org/web/20150510002641/http://gothamist.com/2010/10/10/paladinos_sudden_frugalness_worryin.php">largely avoided</a> campaigning in NYC: <a href="https://web.archive.org/web/20150510002641/http://www.nydailynews.com/ny_local/2010/10/10/2010-10-10_carl_paladino_in_blast_at_gays_nothing_to_be_proud_of_in_being_a_dysfunctional_h.html">during a visit</a> with Orthodox Jewish leaders in Williamsburg today, Paladino stuffed his foot way into his mouth with a series of statements on homosexuality: &quot;I just think my children and your children would be much better off and much more successful getting married and raising a family, and <strong>I don&apos;t want them brainwashed into thinking that homosexualtiy is an equally valid and successful option--it isn&apos;t.&quot;</strong> (You can see a video clip of the speech, taken by WNYC&apos;s Azi Paybarah, below.)</p>
+
+<p>He went on to mock Andrew Cuomo for participating in the gay pride parade: &quot;I didn&apos;t march in the Gay Pride parade this year. <a href="https://web.archive.org/web/20150510002641/http://www.nytimes.com/2010/07/09/nyregion/09gays.html">My opponent did</a>.&quot;  <a href="https://web.archive.org/web/20150510002641/http://www.politico.com/blogs/maggiehaberman/1010/No_brainwashing_on_homosexuality_.html">According to Politico</a>, there was a line written in the speech that was left out: &quot;That&apos;s not how God created us, and that&apos;s not the example that we should be showing our children - and certainly not in our schools.&quot;  Also, the remark, &quot;There is nothing to be proud of in being a dysfunctional homosexual,&quot; was in a draft of the speech, but not said by Paladino.</p>
+
+<p>He tried to qualify his statements (some reports say it was in response to someone asking whether his comments were appropriate considering the recent <a href="https://web.archive.org/web/20150510002641/http://gothamist.com/2010/10/09/more_on_latin_king_goonies_alleged.php">Latin Kings anti-gay</a> attacks): &quot;Don&apos;t misquote me as wanting to hurt homosexual people in any way. That would be a dastardly lie. My approach is live and let live.&quot; Maggie Habberman <a href="https://web.archive.org/web/20150510002641/http://www.politico.com/blogs/maggiehaberman/1010/No_brainwashing_on_homosexuality_.html">adds</a>, &quot;the view that Paladino appears to be describing about homosexuality is not unpopular in the ultra-religious Orthodox community, and as I said before, he&apos;s pledged to veto the gay marriage bill.&quot; Cuomo spokesman Josh Vlasto released a statement saying, &quot;Mr. Paladino&apos;s statement displays a stunning homophobia and a glaring disregard for basic equality. These comments along with other views he has espoused make it clear that he is way out of the mainstream and is unfit to represent New York.&quot;</p>
+
+<p>So, is this part of that whole <a href="https://web.archive.org/web/20150510002641/http://gothamist.com/2010/10/08/paladino_fails_to_change_his_campai.php">changing-the-tone-of-your-campaign</a> vow, Carl?</p>					
+										
+									
+				

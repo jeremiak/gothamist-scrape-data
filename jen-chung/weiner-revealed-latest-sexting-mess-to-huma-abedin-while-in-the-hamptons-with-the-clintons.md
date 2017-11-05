@@ -1,0 +1,53 @@
+---
+author: Jen Chung
+date: Aug 30, 2016 9:42 am
+title: Weiner Revealed Latest Sexting Mess To Huma Abedin While In The Hamptons With The Clintons
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2016_08_humaweiner.jpg" src="https://web.archive.org/web/20171016015500im_/http://gothamist.com/attachments/jen/2016_08_humaweiner.jpg" width="640" height="427"> <br> <i> Anthony Weiner and Huma Abedin at the 2013 press conference where he confessed being Carlos Danger; she also mentioned problems in their marriage (Getty Images)</i></div> <p></p>
+
+<p>In the wake of Huma Abedin&apos;s announcement that <a href="https://web.archive.org/web/20171016015500/http://gothamist.com/2016/08/29/huma_abedin_weiner_separation.php">she and Anthony Weiner are separating</a>, friends of the couple (well, probably Huma) are flocking to media outlets to explain how their marriage wasn&apos;t doing well for a while. &quot;A separation has been brewing for sometime,&quot; <a href="https://web.archive.org/web/20171016015500/http://www.people.com/article/huma-abedin-estranged-anthony-weiner-year">a friend told People</a>.</p>
+
+<p>The humiliation of learning that her husband was <a href="https://web.archive.org/web/20171016015500/http://gothamist.com/2016/08/29/anthony_weiner_sexting_saga.php">involved in a <b>third</b> sexting scandal</a> happened when she, Weiner and their four-year-old son Jordan were in the Hamptons, where her boss, Hillary Clinton, <a href="https://web.archive.org/web/20171016015500/http://www.newsday.com/long-island/hillary-clinton-holds-33-400-a-head-hamptons-fundraiser-1.12238672">has been fundraising</a>. The <a href="https://web.archive.org/web/20171016015500/http://www.nytimes.com/2016/08/30/nyregion/anthony-weiner-sexting-huma-abedin.html?hp&amp;action=click&amp;pgtype=Homepage&amp;clickSource=story-heading&amp;module=first-column-region&amp;region=top-news&amp;WT.nav=top-news&amp;_r=0">NY Times reports</a>:</p><blockquote>It was supposed to be a quiet, late-summer weekend on the exclusive shores of the Hamptons. But on Sunday, Huma Abedin, the closest aide to Hillary Clinton, received devastating news.<p></p>
+
+<p>After accompanying Mrs. Clinton to fund-raisers, Ms. Abedin learned from her husband, Anthony D. Weiner, that The New York Post was about to report that he had again exchanged lewd messages with a woman on social media: the sort of behavior that destroyed his congressional career and 2013 mayoral campaign.</p>
+
+<p>Only this time, the online indiscretions included an image of Mr. Weiner&#x2019;s crotch as he lay next to the couple&#x2019;s 4-year-old son...</p>
+
+<p>By Monday morning, when the Post cover showing Mr. Weiner and his son, Jordan, hit newsstands, Mr. Weiner had left the Hamptons for New York City aware that Ms. Abedin planned to announce their separation, said two people close to the couple who discussed private conversations on the condition of anonymity.</p></blockquote>Abedin, who has been <a href="https://web.archive.org/web/20171016015500/http://www.vogue.com/865238/hillarys-secret-weapon-huma-abedin/">profiled in Vogue</a> <a href="https://web.archive.org/web/20171016015500/http://www.vogue.com/13464218/huma-abedin-family-job-hillary-clinton-campaign-strategist/">repeatedly</a>, married <a href="https://web.archive.org/web/20171016015500/http://gothamist.com/2010/07/11/anthony_weiner_marries_huma_abedin.php">Weiner in 2010</a>, when he was a rising Congressman. His<a href="https://web.archive.org/web/20171016015500/http://gothamist.com/2010/02/25/video_weiner_health_care_debate_tir.php"> tirade about health care</a> on the House floor when viral that year, but the next year he became viral once again for accidentally Tweeting a <a href="https://web.archive.org/web/20171016015500/http://gothamist.com/2011/05/29/weinergate_did_anthony_weiner_tweet.php">selfie of his underwear-clad crotch</a> (he <a href="https://web.archive.org/web/20171016015500/http://gothamist.com/2011/06/16/anthony_weiner_resigns.php">resigned from Congress</a>).<p></p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2016_08_metgalaweiner.jpg" src="https://web.archive.org/web/20171016015500im_/http://gothamist.com/attachments/jen/2016_08_metgalaweiner.jpg" width="640" height="469"> <br> <i> At the Met Gala in May 2016 (Getty Images)</i></div> <p></p>
+
+<p>Then, in 2013, when trying to cement a comeback <a href="https://web.archive.org/web/20171016015500/http://gothamist.com/2013/05/22/anthony_weiner_announces_mayoral_ru.php#photo-4">by running for mayor</a>, Weiner included Abedin and their son in his campaign video.</p>
+
+<p>Abedin was also very <a href="https://web.archive.org/web/20171016015500/http://www.nytimes.com/2013/04/14/magazine/anthony-weiner-and-huma-abedins-post-scandal-playbook.html">involved in his campaign</a>, helping him fundraise as well as providing a united front of familial bliss.</p>
+
+<p>But then it was <a href="https://web.archive.org/web/20171016015500/http://gothamist.com/2013/07/23/unsubstantiated_allegations_of_wein.php">revealed he was sexting again</a>. At the time, Abedin stood by his side, and candidly discussing difficulties in their marriage during a press conference, &quot;Our marriage, like many others, has had its ups and downs. It took a lot of work and a whole lot of therapy to get to a place where I could forgive Anthony. It was not an easy choice in any way. But I made the decision that it was worth staying in this marriage.&quot;</p>
+
+<p><iframe width="640" height="360" src="https://web.archive.org/web/20171016015500if_/https://www.youtube.com/embed/x92OWufIWcU" frameborder="0" allowfullscreen></iframe></p>
+
+<p>While they still attended high-profile events&#x2014;they were at a CFDA/Vogue event last fall and at the big Met Gala this year&#x2014;<a href="https://web.archive.org/web/20171016015500/http://www.politico.com/story/2016/08/abedin-announces-separation-from-weiner-227503">according to Politico</a>, &quot;A person close to Abedin said the couple has been &apos;estranged&apos; for about a year and &apos;essentially&apos; separated &#x2014; although they still share both their Manhattan apartment and parenting duties. Over the past few months, people close to the couple have painted a portrait of a marriage on the verge of collapse, and reporters covering the campaign have noticed in recent weeks that Abedin has often appeared in public without her wedding or engagement rings.&quot;</p>
+
+<p>A source told People that &quot;in recent months, Abedin began offhandedly referring to Weiner in casual conversations with colleagues as &apos;Jordan&apos;s dad&apos; or &apos;Jordan&apos;s father&apos; rather than as &quot;Anthony,&quot; as she always had when mentioning her husband.&quot;</p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2016_08_abedinhamptons.jpg" src="https://web.archive.org/web/20171016015500im_/http://gothamist.com/attachments/jen/2016_08_abedinhamptons.jpg" width="640" height="427"> <br> <i> Huma Abed in the Hamptons on Sunday night, August 28 (Getty Images)</i></div> <p></p>
+
+<p>Yesterday, the <a href="https://web.archive.org/web/20171016015500/http://www.thedailybeast.com/articles/2016/08/29/anthony-weiner-loses-huma-abedin-and-two-jobs-on-the-same-day.html?via=desktop&amp;source=copyurl">Daily News cut</a> Weiner as a columnist and NY1 <a href="https://web.archive.org/web/20171016015500/http://www.politico.com/blogs/on-media/2016/08/new-york-daily-news-cuts-ties-with-anthony-weiner-227506">put him on &quot;leave&quot;</a> from being a commentator. </p>
+
+<p>There is now speculation that the Administration for Children&apos;s Services will investigate. &quot;The photo [that Weiner sexted with his son next to him], the experts said, likely meets the low legal standard for the city Administration for Children&#x2019;s Services to open an inquiry into a possible case of child neglect,&quot; <a href="https://web.archive.org/web/20171016015500/http://www.nydailynews.com/new-york/anthony-weiner-sext-lead-child-neglect-inquiry-article-1.2770431">per the Daily News</a>. A forensic psychologist said, &quot;Questions could be raised ultimately about his judgment as a caretaker. The fact he was so compulsive he felt this need to behave in this manner with the child present leads to questions about whether he can control himself.&quot;</p>
+
+<p>Weiner also signaled problems with his marriage, if you <a href="https://web.archive.org/web/20171016015500/http://nypost.com/2016/08/29/texts-reveal-anthony-weiner-knew-his-marriage-was-busted/">believe his texts with his latest sexting partner</a>, a divorced woman on the West Coast who is apparently a Trump supporter. <a href="https://web.archive.org/web/20171016015500/http://nypost.com/2016/08/29/texts-reveal-anthony-weiner-knew-his-marriage-was-busted/">From the NY Post</a>:</p><blockquote> During their very first exchange, on Jan. 23, 2015, Weiner asked the woman via a Twitter direct message about her &#x201C;status.&#x201D;<p></p>
+
+<p>&#x201C;Divorced after 16 years,&#x201D; the 40-something answered.</p>
+
+<p>&#x201C;I kinda envy that path now that I have a 3 yr old and a busted marriage,&#x201D; Weiner, 51, replied.</p>
+
+<p>Then, on Nov. 17, 2015, the two engaged in a revealing discussion about Weiner&#x2019;s future, with the woman, who was based out West, asking whether he would be &#x201C;moving to DC&#x201D; if Clinton becomes president.</p>
+
+<p>&#x201C;That is a very big Q. Honestly don&#x2019;t know what she will do,&#x201D; Weiner said.</p>
+
+<p>When the woman insisted, &#x201C;You&#x2019;re moving!!!&#x201D; Weiner sheepishly responded, &#x201C;I doubt I am under any circumstances.&#x201D;</p></blockquote>Earlier this month, when <a href="https://web.archive.org/web/20171016015500/http://www.nytimes.com/2016/08/18/magazine/anthony-weiner-says-his-wife-never-agreed-to-that-documentary.html">NY Times Magazine writer Mark Leibovich asked him</a> about his post-2016 election plans, Weiner replied, &quot;We haven&#x2019;t figured that out yet. I mean, talking to Huma about it is like talking to a pitcher in the sixth inning while he&#x2019;s pitching a no-hitter. You don&#x2019;t want to jinx anything.&quot;<p></p>					
+										
+									
+				

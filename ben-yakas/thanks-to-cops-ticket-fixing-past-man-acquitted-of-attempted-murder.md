@@ -1,0 +1,17 @@
+---
+author: Ben Yakas
+date: May 20, 2011 4:29 pm
+title: Thanks To Cop's Ticket-Fixing Past, Man Acquitted Of Attempted Murder
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:300px; "> <img alt="52011ticket.jpg" src="https://web.archive.org/web/20150430235922im_/http://gothamist.com/attachments/byakas/52011ticket.jpg" width="300" height="225"> <br> <i><a href="https://web.archive.org/web/20150430235922/http://www.flickr.com/photos/marklyon/5347617197/">marklyon&apos;s flickr</a></i></div> With more than 400 cops facing possible disciplinary charges, or worse, in a massive <a href="https://web.archive.org/web/20150430235922/http://gothamist.com/tags/ticketfixingscheme">ticket-fixing probe</a> currently being investigated, one of the biggest concerns for officials is the ramifications for other cases&#x2014;prosecutors <a href="https://web.archive.org/web/20150430235922/http://www.nydailynews.com/news/ny_crime/2011/04/29/2011-04-29_with_cops_in_tixfix_trouble_many_cases_may_be_crippled.html">fear</a> that once the names of those disciplined officers are revealed, it could jeopardize tons of criminal cases, casting shadows on officers&apos; credibility. And already, those fears are being realized: a Bronx jury <a href="https://web.archive.org/web/20150430235922/http://www.nypost.com/p/news/local/bronx/fixing_acquitted_accused_attempted_mcwXuPyJtdKNum9JWXhKdM?CMP=OTC-rss&amp;FEEDNAME=">acquitted a man</a> of attempted murder in the first trial involving a cop accused of fixing tickets.<p></p>
+
+<p>Lance Williams was found not guilty yesterday for the May 2009 shooting of Derrick Jordan in Mott Haven. Earlier in the trial, arresting Officer Officer Salvador Duran said he found Williams with the murder weapon at a barbershop weeks after the killing; but Williams admitted that he asked his union delegate to fix three summonses for him and his sister-in-law because the practice is <a href="https://web.archive.org/web/20150430235922/http://gothamist.com/2011/04/20/oh_duh_ticket-fixing_has_always_exi.php">&quot;common courtesy.&quot;</a>  Williams&apos; lawyer them successfully argued that Duran&apos;s admissions made his testimony &quot;unreliable.&quot; </p>
+
+<p>It seems Williams also changed his story several times throughout the trial, which jurors didn&apos;t appreciate: &quot;<strong>The ticket thing made him less credible. But all the other lies he told were much bigger factors</strong>,&quot; one juror <a href="https://web.archive.org/web/20150430235922/http://www.nydailynews.com/news/ny_crime/2011/05/19/2011-05-19_accused_murder_acquitted_jury_found_officers_testimony_unreliable_because_of_tic.html">told the News.</a></p>
+
+<p>Another juror was less equivocal about it: &quot;He lied, lied, lied through his teeth. The police weren&apos;t credible. They lied on the witness stand about a lot of things. They had no evidence,&quot; said juror Donnie Spreill. Williams was acquitted on all charges of attempted murder, weapons possession and assault, and his mother Terry was very happy: &quot;If you work for the law, you should go by the law. [Duran] lied about those tickets and he lied about my son. He should be prosecuted just like my son.&quot; The News adds that Duran was told he will not be charged in the ticket-fixing probe.</p>					
+										
+									
+				

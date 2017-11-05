@@ -1,0 +1,35 @@
+---
+author: Jen Chung
+date: Mar 8, 2017 8:50 am
+title: The Statue Of Liberty Went Dark For Several Hours Last Night
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2017_02_stalibertydark.jpg" src="https://web.archive.org/web/20170310171727im_/http://gothamist.com/attachments/jen/2017_02_stalibertydark.jpg" width="640" height="361"> <br> <i> (AP)</i></div> <p></p>
+
+<p>Last night, the Statue of Liberty unexpectedly went dark for several hours. Of course, given that today is the <a href="https://web.archive.org/web/20170310171727/http://gothamist.com/2017/03/07/national_womens_liberation.php">&quot;Day Without Women&quot; strike</a>, some many people took it as a sign that Lady Liberty was showing solidarity with the movement. </p>
+
+<center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">Statue of Liberty is dark. No one&apos;s quite sure why yet <a href="https://web.archive.org/web/20170310171727/https://t.co/HyIMGzTKGh">pic.twitter.com/HyIMGzTKGh</a></p>&#x2014; Brendan McHugh (@McHugh) <a href="https://web.archive.org/web/20170310171727/https://twitter.com/McHugh/status/839318249477136385">March 8, 2017</a></blockquote> <script async src="//web.archive.org/web/20170310171727js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
+<blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr"><a href="https://web.archive.org/web/20170310171727/https://twitter.com/hashtag/DaywithoutAWoman?src=hash">#DaywithoutAWoman</a> Looks like the Statue of Liberty is joining our movement <a href="https://web.archive.org/web/20170310171727/https://twitter.com/womensmarch">@womensmarch</a> <a href="https://web.archive.org/web/20170310171727/https://twitter.com/MMFlint">@MMFlint</a> <a href="https://web.archive.org/web/20170310171727/https://twitter.com/thehill">@thehill</a> <a href="https://web.archive.org/web/20170310171727/https://twitter.com/IndivisibleMich">@IndivisibleMich</a> <a href="https://web.archive.org/web/20170310171727/https://t.co/H6ns14f1IW">pic.twitter.com/H6ns14f1IW</a></p>&#x2014; Diana Brang-Scott (@motleygirl313) <a href="https://web.archive.org/web/20170310171727/https://twitter.com/motleygirl313/status/839322086552322048">March 8, 2017</a></blockquote> <script async src="//web.archive.org/web/20170310171727js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
+<blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">The lights at the Statue of Liberty are out. Lady Liberty is on strike too. <a href="https://web.archive.org/web/20170310171727/https://twitter.com/hashtag/adaywithoutwomen?src=hash">#adaywithoutwomen</a></p>&#x2014; Alt CA State Parks (@AltCaStateParks) <a href="https://web.archive.org/web/20170310171727/https://twitter.com/AltCaStateParks/status/839315179582074880">March 8, 2017</a></blockquote> <script async src="//web.archive.org/web/20170310171727js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
+<blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">Thank you Lady Liberty for standing with the resistance and going dark for <a href="https://web.archive.org/web/20170310171727/https://twitter.com/hashtag/DayWithoutAWoman?src=hash">#DayWithoutAWoman</a> &#x1F5FD;<br><br>&#x1F4F7;: <a href="https://web.archive.org/web/20170310171727/https://twitter.com/randybals">@randybals</a> <a href="https://web.archive.org/web/20170310171727/https://twitter.com/hashtag/StatueOfLiberty?src=hash">#StatueOfLiberty</a> <a href="https://web.archive.org/web/20170310171727/https://t.co/D0JG9MmSRj">pic.twitter.com/D0JG9MmSRj</a></p>&#x2014; Women&apos;s March (@womensmarch) <a href="https://web.archive.org/web/20170310171727/https://twitter.com/womensmarch/status/839333398661443587">March 8, 2017</a></blockquote> <script async src="//web.archive.org/web/20170310171727js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<p>However, the <a href="https://web.archive.org/web/20170310171727/http://dcist.com/2017/01/dept_of_interior_trump_twitter.php">National Park Service</a> says the statue is not that woke. Instead, the NPS said it was probably...<a href="https://web.archive.org/web/20170310171727/http://abc7ny.com/news/the-statue-of-liberty-temporarily-goes-dark-/1790152/">generator problems</a>:</p>
+
+<center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">Some lights on the Statue were temporarily off tonight. Likely related to new emergency generator/Hurricane Sandy recovery project work.</p>&#x2014; Statue of Liberty NM (@StatueEllisNPS) <a href="https://web.archive.org/web/20170310171727/https://twitter.com/StatueEllisNPS/status/839344229767839745">March 8, 2017</a></blockquote> <script async src="//web.archive.org/web/20170310171727js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<p>The Statue of Liberty was back and shining before midnight. </p>
+
+<center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">&#x1F5FD; Watch: The Statue of Liberty&apos;s lights go back on after more than an hour of darkness. <a href="https://web.archive.org/web/20170310171727/https://t.co/5CE1psDMjj">https://t.co/5CE1psDMjj</a> <a href="https://web.archive.org/web/20170310171727/https://t.co/qKGgG4IrLf">pic.twitter.com/qKGgG4IrLf</a></p>&#x2014; AP Eastern U.S. (@APEastRegion) <a href="https://web.archive.org/web/20170310171727/https://twitter.com/APEastRegion/status/839349944750309376">March 8, 2017</a></blockquote> <script async src="//web.archive.org/web/20170310171727js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<p><b>Update</b>: The National Parks Service issued a statement this morning:</p><blockquote><br>
+A portion of the lighting system that illuminates the Statue of Liberty experienced a temporary, unplanned outage Tuesday night until full lighting was restored at 11:45 PM. After discussions with contractors and National Park Service personnel early Wednesday morning, it was determined that power and a lighting system controller had been switched off in order to change out faulty lighting equipment.  Upon completion of that project, power was restored, but the outage was a result of a failure to properly reset the lighting system controller. <br>
+ <br>
+While this was an unplanned outage, there will be some planned outages related to the installation of a new emergency backup generator for Liberty Island.  We anticipate those outages will take place over the next few weeks. We will alert media and the public to these outages through statements to the media and on our social media platforms.  The new emergency generator is one of the last Hurricane Sandy recovery projects at Liberty Island and will ensure that Lady Liberty shines brightly and weathers future storms.<br>
+</blockquote><p></p>					
+										
+									
+				

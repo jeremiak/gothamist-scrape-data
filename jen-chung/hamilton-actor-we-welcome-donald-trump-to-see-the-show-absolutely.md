@@ -1,0 +1,56 @@
+---
+author: Jen Chung
+date: Nov 21, 2016 12:00 pm
+title: 'Hamilton' Actor: 'We Welcome Donald Trump' To See The Show 'Absolutely'
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2016_11_brandixon.jpg" src="https://web.archive.org/web/20171016011537im_/http://gothamist.com/attachments/jen/2016_11_brandixon.jpg" width="640" height="494"> <br> <i> Brandon Victor Dixon at the Tony Awards earlier this year (Getty Images)</i></div> <p></p>
+
+<p>The reception that Vice President-elect <a href="https://web.archive.org/web/20171016011537/http://gothamist.com/2016/11/19/mike_pence_gets_booed_at_hamilton_w.php#photo-1">Mike Pence received when he went to see blockbuster musical <em>Hamilton</em></a> has unleashed <a href="https://web.archive.org/web/20171016011537/http://www.vulture.com/2016/11/why-the-hamilton-pence-incident-matters.html?mid=nymag_press">another chapter in the Culture Wars</a> between the Liberal Coastal Elites and &quot;Real (Racist? Xenophobic? Misogynistic?) America&quot; (a.k.a. Trump Supporters). The incident also got under the very thin skin of President-elect Donald Trump, who fired off multiple crybaby Tweets after Pence was booed. But the actor who addressed Pence directly <a href="https://web.archive.org/web/20171016011537/http://www.cbsnews.com/news/hamilton-brandon-victor-dixon-mike-pence-donald-trump-theres-nothing-to-apologize-for/">told CBS This Morning</a>, &quot;We welcome Donald Trump here to <em>Hamilton</em>, absolutely. I think the power of our show and the way we tell it is undeniable. And I think it&apos;s important for everybody to see a show like ours.&quot;</p>
+
+<p>On Friday, Pence&apos;s team apparently asked the sold-out Broadway show&#x2014;which is about an immigrant founding father featuring a mostly African-American and Latino cast&#x2014;for tickets for the Indiana governor and family members. <a href="https://web.archive.org/web/20171016011537/http://www.hollywoodreporter.com/news/hamilton-broadway-cast-addresses-mike-pence-audience-work-behalf-all-us-949075">According to the Hollywood Reporter</a>, &quot;Rather than rejecting his request, the show &#x2014; which has participated in multiple Democratic fundraisers throughout the presidential-election season and held weekly voter-registration drives outside the theater &#x2014; opted for the unique curtain call.&quot; Brandon Victor Dixon, who plays Aaron Burr, told the audience not to boo Pence as they had when he arrived, instead imploring Pence to listen to a statement from the cast:</p><blockquote>Thank you for joining us at Hamilton: An American Musical. We are the diverse America who are alarmed and anxious that your new administration will not protect us, our planet, our children, our parents, or defend us and uphold our inalienable rights. We hope this show has inspired you to uphold our American values, and work on behalf of ALL of us. Thank you.</blockquote><p></p>
+
+<blockquote class="twitter-video" data-lang="en"><p lang="en" dir="ltr">Tonight, VP-Elect Mike Pence attended <a href="https://web.archive.org/web/20171016011537/https://twitter.com/hashtag/HamiltonBway?src=hash">#HamiltonBway</a>. After the show, <a href="https://web.archive.org/web/20171016011537/https://twitter.com/BrandonVDixon">@BrandonVDixon</a> delivered the following statement on behalf of the show. <a href="https://web.archive.org/web/20171016011537/https://t.co/Jsg9Q1pMZs">pic.twitter.com/Jsg9Q1pMZs</a></p>&#x2014; Hamilton (@HamiltonMusical) <a href="https://web.archive.org/web/20171016011537/https://twitter.com/HamiltonMusical/status/799828567941120000">November 19, 2016</a></blockquote>
+<script async src="//web.archive.org/web/20171016011537js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
+<p>Producer Jeffrey Seller <a href="https://web.archive.org/web/20171016011537/http://www.hollywoodreporter.com/news/hamilton-broadway-cast-addresses-mike-pence-audience-work-behalf-all-us-949075">told the Hollywood Reporter</a> that the statement was written by &quot;creator Lin-Manuel Miranda, director Tommy Kail and the cast at large,&quot; explaining, &quot;The cast, the creators, we all felt that we must express our feelings to Vice President-elect Pence. This is not a normal time, this is not a normal election. This has not been a normal result. And in a democracy, one must let his and her voice be heard, and we were not going to the show tonight without expressing how we feel. Everybody should be able to see this show, regardless of their politics, but it does just so happen that the politics of this administration have been so negative toward minorities, people of color, gay people that we felt the need to speak up. As a cast comprised of minorities, women, gay people, it was necessary. We had to speak. We had to express how we feel.&quot;</p>
+
+<p>Trump Tweeted on Saturday and Sunday:</p>
+
+<center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">Our wonderful future V.P. Mike Pence was harassed last night at the theater by the cast of Hamilton, cameras blazing.This should not happen!</p>&#x2014; Donald J. Trump (@realDonaldTrump) <a href="https://web.archive.org/web/20171016011537/https://twitter.com/realDonaldTrump/status/799972624713420804">November 19, 2016</a></blockquote>
+<script async src="//web.archive.org/web/20171016011537js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
+<blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">The Theater must always be a safe and special place.The cast of Hamilton was very rude last night to a very good man, Mike Pence. Apologize!</p>&#x2014; Donald J. Trump (@realDonaldTrump) <a href="https://web.archive.org/web/20171016011537/https://twitter.com/realDonaldTrump/status/799974635274194947">November 19, 2016</a></blockquote>
+<script async src="//web.archive.org/web/20171016011537js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
+<blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">The cast and producers of Hamilton, which I hear is highly overrated, should immediately apologize to Mike Pence for their terrible behavior</p>&#x2014; Donald J. Trump (@realDonaldTrump) <a href="https://web.archive.org/web/20171016011537/https://twitter.com/realDonaldTrump/status/800298286204723200">November 20, 2016</a></blockquote>
+<script async src="//web.archive.org/web/20171016011537js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<p>He also Tweeted then deleted:</p>
+
+<center><blockquote class="twitter-tweet" data-conversation="none" data-lang="en"><p lang="en" dir="ltr">lol why did he delete this <a href="https://web.archive.org/web/20171016011537/https://t.co/JLITBaBvy4">pic.twitter.com/JLITBaBvy4</a></p>&#x2014; Olivia Nuzzi (@Olivianuzzi) <a href="https://web.archive.org/web/20171016011537/https://twitter.com/Olivianuzzi/status/800142560090013696">November 20, 2016</a></blockquote>
+<script async src="//web.archive.org/web/20171016011537js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<p>Also, it appears that Trump doesn&apos;t take favorite child Ivanka&apos;s opinions seriously:</p>
+
+<center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">I finally saw <a href="https://web.archive.org/web/20171016011537/https://twitter.com/HamiltonMusical">@HamiltonMusical</a> last night. I had very high expectations and they were still surpassed! &#x1F44D;&#x1F44D; <a href="https://web.archive.org/web/20171016011537/https://t.co/zxNXRJIcOx">pic.twitter.com/zxNXRJIcOx</a></p>&#x2014; Ivanka Trump (@IvankaTrump) <a href="https://web.archive.org/web/20171016011537/https://twitter.com/IvankaTrump/status/709198619618975745">March 14, 2016</a></blockquote>
+<script async src="//web.archive.org/web/20171016011537js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<p>Perhaps, as many believe, the president-elect seized on this moment to distract people from his decision <a href="https://web.archive.org/web/20171016011537/http://gothamist.com/2016/11/18/president-elect_trump_may_settle_tr.php">to pay $25 million to settle claims</a> that his Trump University defrauded people who believed they could learn valuable real estate tips from Trump and his team. </p>
+
+<center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">HAMILTON NEWS!<br><br>Donald Trump pays 2.5 Million Hamiltons to settle massive fraud targeting ordinary Americans.</p>&#x2014; Grudge (@grudging1) <a href="https://web.archive.org/web/20171016011537/https://twitter.com/grudging1/status/800337386366504960">November 20, 2016</a></blockquote>
+<script async src="//web.archive.org/web/20171016011537js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<p>Pence himself <a href="https://web.archive.org/web/20171016011537/http://www.hollywoodreporter.com/news/mike-pence-not-offended-by-hamilton-statement-949139">told Fox News</a> yesterday, &quot;If you haven&apos;t seen the show, go to see it, it is a great, great show... It was a real joy to be there.&quot;</p>
+
+<p>Of the negative reaction to his appearance, he said, &quot;When we arrived, we heard a few boos and a few cheers, and I nudged my kids and reminded them, &apos;That&apos;s what freedom sounds like.&apos;&quot; He added, &quot;I did hear what was said from the stage, and I can tell you, I wasn&apos;t offended by what was said.&quot;</p>
+
+<p>Today, Dixon (who <a href="https://web.archive.org/web/20171016011537/https://twitter.com/BrandonVDixon/status/799977281875755008">he replied to Trump&apos;s Tweet</a>, &quot;conversation is not harassment sir. And I appreciate @mike_pence for stopping to listen&quot;) said, &quot;There is nothing to apologize for... I was really appreciative that Vice President-elect Pence stood there and listened to what we had to stay. I know some people have said that a one-sided conversation, or a lecture, is not a conversation, but it was the beginnings of a conversation, I hope, that we can continue to have.&quot;</p>
+
+<center><embed src="https://web.archive.org/web/20171016011537oe_/http://www.cbsnews.com/common/video/cbsnews_video.swf" scale="noscale" salign="lt" type="application/x-shockwave-flash" background="/web/20171016011537im_/http://gothamist.com/2016/11/21/hamilton_actor_trump.php#000000" width="620" height="387" allowfullscreen="true" allowscriptaccess="always" flashvars="pType=embed&amp;si=254&amp;pid=tRpCWelb2C_C&amp;uuid=a35933df-9618-440b-a0ae-1a042bcb9646&amp;url=http://www.cbsnews.com/videos/hamilton-actor-on-message-to-vp-elect-pence-nothing-to-apologize-for"></center>
+
+<p>Dixon also mentioned how <a href="https://web.archive.org/web/20171016011537/http://gothamist.com/2016/07/03/photos_hillary_and_bill_clinton_see.php">politicians and celebrities can visit</a> the cast backstage after the show and that Pence would have been welcome to do so: &quot;He absolutely could have done that, and if he was unaware at the time, I say to him, Vice President-elect Mike Pence, please come and have a conversation with us.&quot;</p>					
+										
+									
+				

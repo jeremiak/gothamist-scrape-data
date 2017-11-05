@@ -1,0 +1,22 @@
+---
+author: Jen Chung
+date: Oct 17, 2013 11:42 AM
+title: 73-Yr-Old Birdwatcher To Rapist: "May You Rot In Hell For All Eternity"
+---
+
+
+                            
+                            
+                            
+                            <p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left"> <img alt="2013_10_damitchell.jpg" src="https://web.archive.org/web/20131128051029im_/http://gothamist.com/attachments/jen/2013_10_damitchell.jpg" width="365" height="275"> <br> <i style=" width:365px; ;display:block"> David Albert Mitchell (WCBS 2)</i></div> Yesterday, the man who <a href="https://web.archive.org/web/20131128051029/http://gothamist.com/2012/09/12/elderly_woman_sexually_assaulted_in.php">raped a 73-year-old birdwatcher</a> in Central Park last year was sentenced to 30 years in prison and 10 years supervised released. His victim appeared at the sentencing and unloaded, <a href="https://web.archive.org/web/20131128051029/http://www.usatoday.com/story/news/nation/2013/10/17/central-park-rape-ny/2999561/">telling him</a>, &quot;You, David Albert Mitchell, for the pain you inflicted on me and, by association, my loving family and friends, may you rot in hell for all eternity,&quot; and said to the judge, &quot;Make no mistake: This is a sexual terrorist... do the right thing so that nobody else is every hurt or menaced by this evil infestation.&quot;<p></p>
+
+<p>Last September, the woman had been birdwatching near Strawberry Fields&#x2014;the tourist magnet near West 72nd Street&#x2014;when Mitchell attacked her, beating and raping her. He <a href="https://web.archive.org/web/20131128051029/http://gothamist.com/2012/09/12/elderly_woman_sexually_assaulted_in.php">also stole her camera bag</a> and threatened her again before fleeing. Another birdwatcher found her face-down in the ground, with a swollen face and black eye. Mitchell <a href="https://web.archive.org/web/20131128051029/http://gothamist.com/2012/09/13/central_park_rape_suspect_in_police.php">was quickly apprehended</a> and it turned out that she had previously seen him masturbating in the park (she had taken his photograph then and he threatened her). </p>
+
+<p>Mitchell, 43, agreed to a plea deal last week; the <a href="https://web.archive.org/web/20131128051029/http://www.nytimes.com/2013/10/17/nyregion/30-year-sentence-for-rape-of-bird-watcher-in-park.html?partner=rss&amp;emc=rss&amp;_r=0">NY Times reports</a> that Justice Bonnie G. Wittner gave him the &quot;maximum she could give him under the terms of his plea bargain with the Manhattan district attorney&#x2019;s office. &apos;For a plea bargain, this is one of the highest sentences I have ever given pretrial,&apos; Justice Wittner said. &apos;My intention was to punish him and make sure he will never hurt any other person again.&apos;&quot;</p>
+
+<p>The birdwatcher, now 74, <a href="https://web.archive.org/web/20131128051029/http://nypost.com/2013/10/16/sexual-terrorist-gets-30-years-in-central-park-rape/">described the horrific assault in her victim&apos;s impact statement</a>: &quot;That&#x2019;s the vicious predator who committed the crime, sitting at the defense table... He attacked me in Central Park when I was doing what I love best, watching and attempting to photograph hummingbirds. He pounced from behind and smashed me into the ground... I screamed my head off and fought him face-to-face and tried to scratch him and poke his eyes out. He yanked my pants down and brutally raped me vaginally. Then he flipped over like a pancake and raped me anally like a rabid dog. When he was finished he smashed me back into the ground and said: &#x2018;Don&#x2019;t move and count to 100.&quot;</p>
+
+<p>Twenty-five years ago, Mitchell <a href="https://web.archive.org/web/20131128051029/http://www.huffingtonpost.com/2012/09/16/david-albert-mitchell-central-park-rape-suspect-west-virgina-_n_1887921.html">had been charged</a> with raping and killing an 86-year-old woman in West Virginia (but was acquitted) and was arrested for raping a woman in her 70s. A resident in Mitchell&apos;s old W.V. town said to the AP last year, &quot;They ain&apos;t gonna trust him down here again. They&apos;re gonna end up killing him. To be honest with you, he needs to be put away for life.&quot;</p>
+                            
+                            
+                            

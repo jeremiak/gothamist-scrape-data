@@ -1,0 +1,15 @@
+---
+author: Ben Yakas
+date: Aug 25, 2010 3:07 pm
+title: Is BQE Tunnel Bypass Possible?
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <a href="https://web.archive.org/web/20170204060555/http://gothamist.com/attachments/byakas/82510bqe.jpg"> <img alt="82510bqe.jpg" src="https://web.archive.org/web/20170204060555im_/http://gothamist.com/assets_c/2010/08/82510bqe-thumb-500x672-541938.jpg" width="200" height="268" class="image-left"> </a> </span>Despite being <a href="https://web.archive.org/web/20170204060555/http://gothamist.com/2007/10/30/bqe.php">musically inspiring</a> for some, the BQE is generally a fuzzy migraine wrapped in a pounding headache for commuters and local residents alike; constant traffic delays, dilapidated sections, and endless car noise can do that. With stretches of the expressway between Sands Street and Atlantic Avenue <a href="https://web.archive.org/web/20170204060555/http://www.brooklynpaper.com/stories/32/25/32_25_mm_bqe_fix.html">desperately</a> needing repair, state transportation officials are considering several different options for how to handle it. One such proposal that is gaining steam is to build a tunnel under Brownstone Brooklyn that would stretch all the way from the Prospect Expressway to the Brooklyn Navy Yard.</p>
+
+<p>According to <a href="https://web.archive.org/web/20170204060555/http://www.brooklynpaper.com/stories/33/35/all_bqetunnel_2010_08_27_bk.html">Brooklyn Paper</a>, the two-and-a-half-mile tunnel already has its advocates: &#x201C;It&#x2019;s brilliant,&#x201D; said Allen Swerdlowe, an architect participating in state-sponsored design workshops. He praised the tunnel idea because it would discourage traffic-enraged drivers from skipping off the highway to drive on local streets.  Four other participants in the design workshops also praised the tunnel, saying it would be the least-disruptive and most-effective way to control traffic on the chronically clogged stretch of the BQE.</p>
+
+<p>Cobble Hill community activist Roy Sloane, who has no engineering background, came up with the &#x201C;Cross-Downtown Brooklyn tunnel,&#x201D; which would be the longest tunnel in America (click on thumbnail for larger image of Roy Sloane&apos;s proposal). Sloane proposes that the tunnel could be an express route to North Brooklyn, while the triple-cantilevered stretch of the BQE would become a &#x201C;local&#x201D; route that would funnel traffic to the Brooklyn and Manhattan bridges as well as local streets. Swerdlowe <a href="https://web.archive.org/web/20170204060555/http://brooklynheightsblog.com/archives/21630">disagrees</a> about what should be done with the decaying stretch of the BQE: &#x201C;I don&#x2019;t like that because it creates more capacity, and once you increase capacity drivers start using it and you create more problems.&#x201D; Instead, he suggests it could be converted into a recreation area of some sort. &#x201C;The High Line [in Manhattan] could certainly be a model,&#x201D; he said.</p>					
+										
+									
+				

@@ -1,0 +1,17 @@
+---
+author: Ben Yakas
+date: Jan 29, 2011 1:50 pm
+title: Bloomberg: There Could Be 21,000 Teacher Layoffs
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:230px; "> <img alt="12911bloomberg.jpg" src="https://web.archive.org/web/20160209212821im_/http://gothamist.com/attachments/byakas/12911bloomberg.jpg" width="230" height="335"> <br> <i>AP</i></div> <p></p>
+
+<p>With Gov. Cuomo&apos;s first budget proposal since taking office <a href="https://web.archive.org/web/20160209212821/http://gothamist.com/2011/01/20/cuomo_brings_the_pain_plans_10000-1.php">imminent</a>, Mayor Bloomberg <a href="https://web.archive.org/web/20160209212821/http://online.wsj.com/article/SB10001424052748703956604576110114146999314.html?mod=WSJ_NY_LEFTTopStories">announced yesterday</a> that city schools could be facing a $1 billion budget cut, which could spell massive teacher layoffs. On his WOR radio show yesterday, he raised the specter that as many as 21,000 teachers could lose their jobs this year: &quot;Scuttlebutt is that the education budget will be cut statewide, and New York City&apos;s share of that would be a billion-dollar cut.&quot;</p>
+
+<p>Bloomberg estimated that if the $1 billion cut is approved, the city would be forced to cut 15,000 teachers. That&apos;s <a href="https://web.archive.org/web/20160209212821/http://gothamist.com/2010/11/18/bloomberg_announces_thousands_of_jo.php">in addition to</a> the 6,166 teacher layoffs Bloomberg plans to make in the fiscal year beginning July 1, making for a loss of nearly a quarter of the 75,000 teachers employed by the Department of Education. Bloomberg <a href="https://web.archive.org/web/20160209212821/http://www.nydailynews.com/ny_local/education/2011/01/29/2011-01-29_21000_new_teachers_facing_ax_mike_warns_of_possible_1b_cut.html">lamented</a> the unfairness of the layoffs, focusing on the rules requiring teachers hired last to go first: &quot;We&apos;d have to part company with some of the best teachers. It&apos;s a state law, &apos;Last in, first out.&apos; There are great and terrible teachers at every level of experience and age...In the private sector, nobody would do &apos;Last in, first out.&apos; You&apos;d do it on the &apos;Who is the most productive.&apos;&quot;</p>
+
+<p>The only teachers who would be immune to the cuts are those in special education, English as a second language and speech. The worst cuts would hit District 9, which includes the Highbridge section of the Bronx, who would lose 27 percent; schools in District 1, which includes Manhattan&apos;s lower East Side, District 10 and District 12, which include Riverdale and Tremont, would all lose 26 percent of their teachers. United Federation of Teachers President Michael Mulgrew <a href="https://web.archive.org/web/20160209212821/http://www.nydailynews.com/ny_local/education/2011/01/29/2011-01-29_21000_new_teachers_facing_ax_mike_warns_of_possible_1b_cut.html">criticized</a> Bloomberg for supporting the end of the millionaires&apos; tax in light of these developments: &quot;I would hope the mayor would fight for the children. He has chosen that his millionaire and billionaire friends are much more important than the children in the schools of New York City.&quot;</p>					
+										
+									
+				

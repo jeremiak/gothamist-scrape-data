@@ -1,0 +1,23 @@
+---
+author: Ben Yakas
+date: Apr 6, 2013 2:45 pm
+title: Will City Council Pagan Dan Halloran Be Publicly Flogged For Alleged Bribery? 
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="4613halloran.jpg" src="https://web.archive.org/web/20150505122112im_/http://gothamist.com/attachments/byakas/4613halloran.jpg" width="640" height="480"> <br> <i> Dan Halloran leads a pagan ritual in a photo from the now-defunct New Normandy website (<a href="https://web.archive.org/web/20150505122112/http://blogs.villagevoice.com/runninscared/2009/10/grand_ol_pagan.php">via Voice</a>)</i></div> <p></p>
+
+<p>This week, the NY political scene was rocked <a href="https://web.archive.org/web/20150505122112/http://gothamist.com/2013/04/02/fbi_arrests_state_sen_malcolm_smith.php">when the FBI arrested</a> State Senator Malcolm Smith and City Councilman <a href="https://web.archive.org/web/20150505122112/http://gothamist.com/tags/danhalloran">Dan Halloran</a> for their part in allegedly taking bribes to put Smith on the Republican mayoral ticket. In the <a href="https://web.archive.org/web/20150505122112/http://gothamist.com/2013/04/03/arrests_of_smith_halloran_latest_em.php#photo-1">wake of that</a>, two other NYC Republicans, two Rockland County Democrats, <a href="https://web.archive.org/web/20150505122112/http://gothamist.com/2013/04/04/bronx_assemblyman_eric_stevenson_ar.php">Bronx Democratic Assemblyman Eric Stevenson and four others</a> have also been arrested. But who cares about all that when we can wade through more details about the strange personal beliefs of Halloran, who is <a href="https://web.archive.org/web/20150505122112/http://gothamist.com/2009/11/09/pagan_councilman_explains_his_faith.php">a devout believer in Theodism</a>, a pre-Christian faith rooted in Celtic and Germanic tribal religions!</p>
+
+<p>And that&apos;s <a href="https://web.archive.org/web/20150505122112/http://www.nypost.com/p/news/local/bribe_pol_wacky_worship_ycrs2TT6wiqSODCSmEDd6L">what the Post gets down to today</a> with an exclusive report on some of the more unsavory details about his religious beliefs. The most &quot;juicy&quot; detail is that Halloran was once publicly flogged after he committed an undisclosed act against a female &#x201C;thrall&#x201D; (a follower). He was stripped to his waist, strapped to a tree and flogged with a belt 11 times. Meh, it&apos;s not like he helped make Steve Guttenberg a star, or was shackled to a &quot;stone of triumph.&quot;</p>
+
+<center><iframe width="512" height="288" src="https://web.archive.org/web/20150505122112if_/http://www.hulu.com/embed.html?eid=4nx2c2vjmporbqs2vu4maq" frameborder="0" scrolling="no" webkitallowfullscreen="" mozallowfullscreen="" allowfullscreen></iframe></center>
+
+<p>Fellow member Nick Ritter confirmed the story, but wouldn&apos;t elaborate on what Halloran had done to earn the flogging: &#x201C;He was given a choice, &#x201C; Ritter said. &#x201C;He was going to leave Theodism or stay and pay the piper.&#x201D; But even more interesting is the parallels between Halloran&apos;s allegedly corrupt career as a politician and his willingness to cut corners to get ahead in his religion. </p>
+
+<p>In 1997, Halloran was asked by &#x201C;sacred king&#x201D; Garman Lord to ditch his rank and join the splinter group Winland Rice. But to do so, he&apos;d have to spend a year as a thrall&#x2014;which meant he would be a &quot;slave&quot; forced to go through a boot camp studying Nordic poetry, chopping wood and serving beer. Halloran didn&apos;t want to do that: &#x201C;The deal they were making with Dan was he would be able to skip that,&#x201D; said Ritter, a steel-plant supervisor who tried to veto Halloran&#x2019;s request. &#x201C;It was a controversial move that they regret now.&#x201D; Soon after, Halloran formed his own splinter group from Winland Rice, called New Normandy, and recruited his own thralls.</p>
+
+<p>For more about Halloran&apos;s religious beliefs, check out <a href="https://web.archive.org/web/20150505122112/http://blogs.villagevoice.com/runninscared/2009/10/grand_ol_pagan.php">the Village Voice&apos;s piece about it</a> from 2009, the year he won his city council seat. One other fun parallel to chew on: Halloran has been referred to as the &quot;bag man&quot; for Smith in his attempts to get on the mayoral ticket. Which means that Halloran is, approximately, the equivalent of <a href="https://web.archive.org/web/20150505122112/http://thewire.wikia.com/wiki/Damien_Lavelle_Price">Ashy Larry from <em>The Wire</em></a>!</p>					
+										
+									
+				

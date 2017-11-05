@@ -1,0 +1,19 @@
+---
+author: Ben Yakas
+date: Feb 9, 2011 3:25 pm
+title: Will James Dolan Botch The Knicks/Carmelo Deal?
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:240px; "> <img alt="2911carmelo.jpg" src="https://web.archive.org/web/20150506173304im_/http://gothamist.com/attachments/byakas/2911carmelo.jpg" width="240" height="181"> <br> <i>via <a href="https://web.archive.org/web/20150506173304/http://www.chicagonow.com/blogs/load-o-bull/2010/10/melo-to-the-knicks-seems-serious.html">Chicago Now</a></i></div> <p></p>
+
+<p>After months of speculation, innuendo, rejected deals and hurt feelings, Nuggets All-Star Carmelo Anthony reportedly only wants to sign a contract extension with the Knicks, <a href="https://web.archive.org/web/20150506173304/http://gothamist.com/2011/02/06/report_knicks_nuggets_t-wolves_disc.php">according to</a> his agent. So what could possibly jinx a deal, when everybody knows exactly what everyone wants? James Dolan.</p>
+
+<p>The MSG president and Isiah Thomas-<a href="https://web.archive.org/web/20150506173304/http://gothamist.com/2011/02/04/dolan_still_wants_to_bring_isiah_th.php">aficionado</a> is so hyped on bringing Anthony to the Knicks, he&apos;s reportedly inserted himself into the negotiation process. According  <a href="https://web.archive.org/web/20150506173304/http://www.nydailynews.com/sports/basketball/knicks/2011/02/08/2011-02-08_james_dolan_negotiates_with_denver_nuggets_owner_directly_as_knicks_owner_eyes_c.html">to the News</a>, Dolan has had direct negotiations with Denver Nuggets owner Stan Kroenke. It&apos;s slightly usual for ownership to get involved with such deals (with certain exceptions&#x2014;see: Mark Cuban), which sources believe indicate the seriousness of the talks. One Knicks source said it&apos;s all about bragging rights: &quot;And I would also think that at this point everyone is looking to take credit if Carmelo comes to New York.&quot;</p>
+
+<p>But it seems that as soon as Dolan entered the picture, so too did the Lakers&#x2014;ESPN reports that the Lakers have begun <a href="https://web.archive.org/web/20150506173304/http://sports.espn.go.com/los-angeles/nba/news/story?id=6101304">seriously floating</a> oft-injured star Andrew Bynum as a possible trade piece to bring Carmelo to L.A. And now even more complications and competitors have arisen: a source <a href="https://web.archive.org/web/20150506173304/http://www.nydailynews.com/sports/basketball/knicks/2011/02/09/2011-02-09_knicks_still_leading_candidates_to_land_carmelo_anthony_as_nuggets_try_to_push_n.html">says</a> Denver plans to wait as close to the trading deadline (Feb. 24) as possible to field other offers. The Chicago Bulls, Dallas Mavericks and Houston Rockets are all expected to make offers soon.</p>
+
+<p>Some naysayers are <a href="https://web.archive.org/web/20150506173304/http://blogs.forbes.com/tomvanriper/2011/02/09/knicks-should-pass-on-carmelo/">now wondering</a> whether the offensive-minded Anthony would even be a good fit for NY: &quot;Call it a rich man&#x2019;s version of picking up Stephon Marbury.&quot; And then there&apos;s the saddest casualty of the potential Knicks/Nuggets trade: fourth-year forward Wilson Chandler, who has been having a productive, healthy season (averaging 16.4 ppg), is bummed about all the trade talks, and his potential involvement. &quot;I&apos;d like to stay. I like the city. I like being here. I like being part of this team,&quot; he <a href="https://web.archive.org/web/20150506173304/http://sports.espn.go.com/new-york/nba/news/story?id=6101043">told reporters</a> over the weekend. </p>					
+										
+									
+				

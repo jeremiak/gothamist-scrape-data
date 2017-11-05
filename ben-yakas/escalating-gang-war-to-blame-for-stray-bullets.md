@@ -1,0 +1,15 @@
+---
+author: Ben Yakas
+date: Sep 3, 2010 1:23 pm
+title: Escalating Gang War To Blame For Stray Bullets
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:215px; "> <img alt="9310robinson.jpg" src="https://web.archive.org/web/20141113080602im_/http://gothamist.com/attachments/byakas/9310robinson.jpg" width="215" height="286"> <br> <i>Khalil Robinson</i></div> The 10-year-old boy who was <a href="https://web.archive.org/web/20141113080602/http://gothamist.com/2010/09/02/10-year-old_hit_by_stray_bullets_in.php">hit in the neck by stray bullets</a> but miraculously survived is recuperating in the hospital, while police are saying that an escalating gang war is to blame for the shooting. Police <a href="https://web.archive.org/web/20141113080602/http://www.nypost.com/p/news/local/brooklyn/gang_war_behind_toon_kid_shooting_KEFMEGZbFrsB2QFjBFXWSI">believe</a> that three local gangs,  the Rock Stars, Sutter Garden Crips and the gleefully-named Very Crispy Gangsters, have been fighting in East New York for the past year. <p></p>
+
+<p>Police sources say the gang war has resulted in 25 shootings that have claimed four lives since 2009. The Very Crispy Gangsters, based out of the nearby Florentino housing project, formed three years ago and have about 80 members between the ages of 12 and 20; Rock Star gangsters, based out of the Unity Plaza housing projects, have about 50 supporters, while the Sutter Garden Crips total about 20. Recently, police believe that the Rock Star and Sutter Garden Crips have formed an alliance against their Crispy rivals. There seems to be no other information or stories written about the gangs, despite the number of shootings they&apos;ve been involved with.</p>
+
+<p>The boy who was the victim of the gang&apos;s Wednesday night fight, Khalil Robinson, <a href="https://web.archive.org/web/20141113080602/http://www.nydailynews.com/ny_local/2010/09/03/2010-09-03_miracle_kid_recovers_from_bullet_in_neck.html">was smiling and hugging</a> his mother from a bed at Brookdale University Hospital, recovering from the bullet which went through the left side of his neck and exited the right. &quot;At one point we thought [Khalil] wasn&apos;t going to make it but he&apos;s a strong 10-year-old. We could be planning a funeral right now. Thank God,&quot; said Kevin McCall from East New York Crisis Team, a local community organization. &quot;He&apos;s seeing the news clippings on TV and said one of the news channels spelled his name wrong&#x2014;that&apos;s how coherent he is.&quot; He may be coherent, but either the News or the Post aren&apos;t: the News says that Khalil was watching &quot;Kid Sebastian&quot; on the Cartoon Network, while the Post says he was enjoying &quot;a DVR of &apos;Code: The Kids Next Door.&apos;&quot; Will this disagreement finally tip the scales of the Slightly-Cripsy News and Ever-So-Gently-Fried Post rivalry into a full-blown newspaper war?</p>					
+										
+									
+				

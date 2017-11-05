@@ -1,0 +1,17 @@
+---
+author: Jen Chung
+date: Sep 18, 2013 9:24 am
+title: NYC Smells Like Maple Syrup AGAIN?!
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2013_09_maplesyruppancakes.jpg" src="https://web.archive.org/web/20150521011759im_/http://gothamist.com/attachments/jen/2013_09_maplesyruppancakes.jpg" width="640" height="428"> <br> <i> Photograph by <a href="https://web.archive.org/web/20150521011759/http://www.shutterstock.com/gallery-113263p1.html">Marie C Fields</a>/Shutterstock</i></div> <p></p>
+
+<p>We know this week has suddenly turned chilly, but is it already time for the sweet scent of maple syrup to fill the air? There have been <a href="https://web.archive.org/web/20150521011759/https://twitter.com/nataliekreinert/status/380294248480112640">numerous reports</a> <a href="https://web.archive.org/web/20150521011759/https://twitter.com/CMillerNY/status/380299061402038272">of the syrupy aroma</a> wafting in the air this morning. </p>
+
+<p>The maple syrup smell has been a visitor in <a href="https://web.archive.org/web/20150521011759/http://gothamist.com/2005/10/28/maple_sugar_smell_mystery.php">October 2005</a>, <a href="https://web.archive.org/web/20150521011759/http://gothamist.com/2006/03/14/maple_syrup_mon.php">March 2006</a>, <a href="https://web.archive.org/web/20150521011759/http://gothamist.com/2006/11/10/mmm_maple_syrup.php">November 2006</a>, <a href="https://web.archive.org/web/20150521011759/http://gothamist.com/2007/11/09/the_strange_sme.php">November 2007</a>, <a href="https://web.archive.org/web/20150521011759/http://gothamist.com/2008/05/29/has_the_maple_s.php">May 2008</a>, <a href="https://web.archive.org/web/20150521011759/http://gothamist.com/2009/01/30/maple_syrup_smell_moves_around.php">January 2009</a> and <a href="https://web.archive.org/web/20150521011759/http://gothamist.com/2012/02/27/its_back_maple_syrup_smell_reported.php">February 2012</a>. In 2009, Mayor Bloomberg and the Office of Emergency Management <a href="https://web.archive.org/web/20150521011759/http://gothamist.com/2009/02/05/maple_syrup_smell_press_conference.php">declared the 2005-2009 incidents</a> the work of a NJ factory, Frutarom, and even <a href="https://web.archive.org/web/20150521011759/http://gothamist.com/2009/02/05/map_of_the_day_nycs_maple_syrup_odo.php#photo-1">put together a smell map</a>! However, Frutarom says that they <a href="https://web.archive.org/web/20150521011759/http://gothamist.com/2012/02/27/its_back_maple_syrup_smell_reported.php">weren&apos;t operating the day</a> of the February 2012 incident, so it&apos;s <a href="https://web.archive.org/web/20150521011759/http://gothamist.com/2007/11/16/as_seen_on_tv_t.php">probably northrax</a>.</p>
+
+<p>If you breathed in the sweet scent today, tell us where and we&apos;ll create a new map! The smell is apparently over <a href="https://web.archive.org/web/20150521011759/http://www.myfoxny.com/story/23462411/mystery-maple-syrup-like-smell-over-tristate">Manhattan, Brooklyn, Queens and NJ</a>. We&apos;ve put in a call to Frutarom this morning and are waiting to hear back. In the meantime, order some pancakes!</p>					
+										
+									
+				

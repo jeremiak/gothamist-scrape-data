@@ -1,0 +1,16 @@
+---
+author: Ben Yakas
+date: July  6, 2012  4:55 PM
+title: George Zimmerman Released From Jail On $1 Million Bond
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="7612zimmerman.jpg" src="https://web.archive.org/web/20130706101833im_/http://gothamist.com/attachments/byakas/7612zimmerman.jpg" width="640" height="584"> <br> <i> George Zimmerman in court recently (AP)</i></div> <p></p>
+
+<p>For the second time, <a href="https://web.archive.org/web/20130706101833/http://gothamist.com/tags/georgezimmerman">George Zimmerman</a>&#x2014;the man who is charged with second-degree murder for fatally shooting unarmed 17-year-old Trayvon Martin on Feb. 26&#x2014;<a href="https://web.archive.org/web/20130706101833/http://www.nydailynews.com/news/national/george-zimmerman-leaves-fla-jail-a-day-judge-set-bond-1-million-article-1.1109175">has been released from jail</a> on bond. Zimmerman left jail a day after Circuit Judge Kenneth Lester granted a $1 million bail with strict conditions; he was able to raise bond thanks in part to over $20,000 in donations raised since Thursday. &quot;He is very happy to be out. It&apos;s been a very sobering experience spending the last month in jail,&quot; Zimmerman attorney Don West told reporters.</p>
+
+<p>In the conditions for his release, the judge banned him from leaving Seminole County without his permission and forbade him to have or open a bank account. <a href="https://web.archive.org/web/20130706101833/http://articles.orlandosentinel.com/2012-07-06/news/os-george-zimmerman-released-jail-20120706_1_murder-defendant-legal-defense-fund-new-felony">The Orlando Sentinel characterizes</a> Lester&apos;s tone in his nine-page order as one of moral indignation: &quot;By any definition, the defendant has flouted the system,&quot; Lester wrote. &quot;It appears to this court that the defendant is manipulating the system for his own benefit.&quot;</p>
+
+<p>Lester was referring to the last time Zimmerman got out of jail: back in April, Zimmerman was released on $150K bond, but the judge revoked it after prosecutors presented evidence that <a href="https://web.archive.org/web/20130706101833/http://dcist.com/2012/06/george_zimmerman_admits_he_misstate.php">Zimmerman and his wife misled the court</a> about how much money they had available to pay for the bond. That included not mentioning the $135K+ amount of money Zimmerman&apos;s legal defense had made from donations on his website. Prosecutors argued Zimmerman and his wife talked in <a href="https://web.archive.org/web/20130706101833/http://dcist.com/2012/06/listen_george_zimmermans_wife_says.php">code during recorded jailhouse conversations</a>&#x2014;substituting &quot;Peter Pan&quot; for PayPal and &quot;$155&quot; for $155,000&#x2014; about how to transfer the donations to different bank accounts.</p>
+
+<p>Sybrina Fulton, Trayvon&apos;s mother, spoke to reporters at a news conference in New Orleans today with the Rev. Al Sharpton. She says that knowing her son&apos;s killer &quot;may walk free sometime, one day, it really hurts,&quot; according to the AP.<br>
+</p>

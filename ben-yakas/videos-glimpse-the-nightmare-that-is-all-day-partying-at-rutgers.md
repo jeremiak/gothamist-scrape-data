@@ -1,0 +1,32 @@
+---
+author: Ben Yakas
+date: Apr 14, 2013 2:10 pm
+title: Videos: Glimpse The Nightmare That Is All-Day Partying At Rutgers
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="41413rutgers.jpg" src="https://web.archive.org/web/20150609024227im_/http://gothamist.com/attachments/byakas/41413rutgers.jpg" width="640" height="479"> <br> <i> <a href="https://web.archive.org/web/20150609024227/https://twitter.com/MarisaScarlata/status/323273913373188096/photo/1">via Marisa Scarlata</a></i></div> <p></p>
+
+<p><a href="https://web.archive.org/web/20150609024227/http://newyork.cbslocal.com/2013/04/13/several-arrested-as-cops-shut-down-delafest-street-party-in-new-brunswick/">Several people were arrested</a> and several pieces of furniture were burned yesterday in New Brunswick as Rutgers University students and freelance partiers gathered for the all-day rave that is &quot;Delafest.&quot; What&apos;s &quot;Delafest,&quot; you ask? It&apos;s the all-day spring bash that rose from the ashes of Rutgersfest (<a href="https://web.archive.org/web/20150609024227/http://gothamist.com/2011/04/20/shootings_after_snookis_rutgersfest.php">which was permanently cancelled</a> in 2011 after several shootings and Snooki sightings) like a phoenix with a beer bong strapped to its wings. Below, you can check out several videos and vines of the nightmare partying. Or as sophomore Cortney Ludmer <a href="https://web.archive.org/web/20150609024227/http://www.nj.com/middlesex/index.ssf/2013/04/large_disturbance_reported_in.html#incart_river_default">told the Star-Ledger</a>: &quot;It&apos;s college. Live a little.&quot; Just, you know, don&apos;t get set on fire in the process.</p>
+
+<p><iframe width="640" height="360" src="https://web.archive.org/web/20150609024227if_/http://www.youtube.com/embed/37qoRNLZjP0" frameborder="0" allowfullscreen></iframe></p>
+
+<p><iframe width="640" height="360" src="https://web.archive.org/web/20150609024227if_/http://www.youtube.com/embed/cBLO4c_KUjE" frameborder="0" allowfullscreen></iframe></p>
+
+<p><iframe width="640" height="360" src="https://web.archive.org/web/20150609024227if_/http://www.youtube.com/embed/C6ZSzGB7FKE" frameborder="0" allowfullscreen></iframe></p>
+
+<center><object id="flashObj" width="486" height="412" classid="clsid:D27CDB6E-AE6D-11cf-96B8-444553540000" codebase="https://web.archive.org/web/20150609024227oe_/http://download.macromedia.com/pub/shockwave/cabs/flash/swflash.cab#version=9,0,47,0"><param name="movie" value="http://c.brightcove.com/services/viewer/federated_f9?isVid=1"><param name="bgcolor" value="#FFFFFF"><param name="flashVars" value="videoId=2299399060001&amp;playerID=651974715001&amp;playerKey=AQ~~,AAAAPLMIP6E~,BRrRHTAljlF40NofMDxsColEK-8KEsxy&amp;domain=embed&amp;dynamicStreaming=true"><param name="base" value="http://admin.brightcove.com"><param name="seamlesstabbing" value="false"><param name="allowFullScreen" value="true"><param name="swLiveConnect" value="true"><param name="allowScriptAccess" value="always"><embed src="https://web.archive.org/web/20150609024227oe_/http://c.brightcove.com/services/viewer/federated_f9?isVid=1" bgcolor="#FFFFFF" flashvars="videoId=2299399060001&amp;playerID=651974715001&amp;playerKey=AQ~~,AAAAPLMIP6E~,BRrRHTAljlF40NofMDxsColEK-8KEsxy&amp;domain=embed&amp;dynamicStreaming=true" base="http://admin.brightcove.com" name="flashObj" width="486" height="412" seamlesstabbing="false" type="application/x-shockwave-flash" allowfullscreen="true" swliveconnect="true" allowscriptaccess="always" pluginspage="http://www.macromedia.com/shockwave/download/index.cgi?P1_Prod_Version=ShockwaveFlash"></object></center>
+
+<p>Things got so messy, riot police were called in to break up the crowds. &#x201C;Some of the people acted in defiance of police&#x201D; called to disperse the crowd of students, said police Capt. J.T. Miller, explaining why cops started pepper spraying kids. &quot;We were walking home and bam!&quot; said Ludmer. &quot;It looked like a fire extinguisher.&quot; As for the couch burning, well, it gets cold at night, ya know: &quot;It was seven parties that got out of control,&quot; sophomore Gina Pagliaro explained helpfully.</p>
+
+<center><blockquote class="twitter-tweet"><p>Lets lite shit on fire! <a href="https://web.archive.org/web/20150609024227/https://twitter.com/search/%23delafest">#delafest</a> <a href="https://web.archive.org/web/20150609024227/https://t.co/PS4688gEGf" title="https://vine.co/v/bFKuqv9FB6v">vine.co/v/bFKuqv9FB6v</a></p>&#x2014; Jesse Meister (@jess_meister) <a href="https://web.archive.org/web/20150609024227/https://twitter.com/jess_meister/status/323191720856670209">April 13, 2013</a></blockquote>
+<script async src="//web.archive.org/web/20150609024227js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<center><blockquote class="twitter-tweet"><p>Lol <a href="https://web.archive.org/web/20150609024227/https://twitter.com/search/%23delafest">#delafest</a> <a href="https://web.archive.org/web/20150609024227/https://t.co/cI7z8lPg4Y" title="https://vine.co/v/bFmg5ujd6Xx">vine.co/v/bFmg5ujd6Xx</a></p>&#x2014; Maggie Monaghan (@maggsmonaghan) <a href="https://web.archive.org/web/20150609024227/https://twitter.com/maggsmonaghan/status/323174178763182081">April 13, 2013</a></blockquote>
+<script async src="//web.archive.org/web/20150609024227js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<center><blockquote class="twitter-tweet"><p>Lighting shit on fire. At 3am? <a href="https://web.archive.org/web/20150609024227/https://twitter.com/search/%23delafest">#delafest</a> is still going!! <a href="https://web.archive.org/web/20150609024227/https://t.co/gYrT90ccHN" title="https://vine.co/v/bFhZ3M1wjpw">vine.co/v/bFhZ3M1wjpw</a></p>&#x2014; Justin Guzman (@djJustinGuzman) <a href="https://web.archive.org/web/20150609024227/https://twitter.com/djJustinGuzman/status/323328539225100288">April 14, 2013</a></blockquote>
+<script async src="//web.archive.org/web/20150609024227js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>					
+										
+									
+				

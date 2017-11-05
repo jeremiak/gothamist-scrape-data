@@ -1,0 +1,31 @@
+---
+author: Jen Chung
+date: Jul 25, 2012 4:50 pm
+title: Mindy Meyer, Orthodox Diva Candidate, "Unfamiliar" With Cuomo And Inspired By Giuliani
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2012_07_mmeyer.jpg" src="https://web.archive.org/web/20170321112308im_/http://gothamist.com/attachments/jen/2012_07_mmeyer.jpg" width="640" height="415"> <br> <i> Mindy Meyer on MyFoxNY</i></div> <p></p>
+
+<p>It&apos;s the summer, so the only stories that are interesting anyone concern <a href="https://web.archive.org/web/20170321112308/http://gothamist.com/2012/07/25/animal_expert_tells_us_east_river_m.php">weird bloated creatures</a> that wash up from the East River and... 22-year-old <a href="https://web.archive.org/web/20170321112308/http://gothamist.com/2012/07/23/finally_a_brooklyn_candidate_inspir.php#photo-1">State Senate candidates with hot pink, blingy websites</a>?  Mindy Meyer, the law school student and Republican candidate challenging State Senator Kevin Parker (who is <a href="https://web.archive.org/web/20170321112308/http://gothamist.com/2011/03/21/in_the_end_kevin_parker_gets_probat.php">no stranger to trouble</a>) for the 21st District in Brooklyn, has become a media darling, thanks to her, well, <em>different</em> approach.  For instance, this is what <a href="https://web.archive.org/web/20170321112308/http://www.capitalnewyork.com/article/politics/2012/07/6275998/mindy-meyer-still-unfamiliar-cuomo-courts-kim-kardashian">she told Capital New York&apos;s Azi Paybarah</a>: &quot;My campaign manager just spoke to Kim Kardashian&apos;s publicist because she&apos;s a diva and everything, so they&apos;re getting back to me because we&apos;re trying to get her endorsement because, you know, she, whatever, my website is literally like her.&quot; <a href="https://web.archive.org/web/20170321112308/http://www.nydailynews.com/entertainment/gossip/ray-pokes-fun-kim-kardashian-tweet-defined-pasts-compares-magic-mountain-experience-article-1.1118599">LITERALLY LIKE HER</a>? <a href="https://web.archive.org/web/20170321112308/https://www.google.com/search?hl=en&amp;q=kim+kardashian+ray+j&amp;bav=on.2,or.r_gc.r_pw.r_cp.r_qf.,cf.osb&amp;biw=1182&amp;bih=612&amp;um=1&amp;ie=UTF-8&amp;tbm=isch&amp;source=og&amp;sa=N&amp;tab=wi&amp;ei=B1kQUKmvEISr6QGS7ICYDA#um=1&amp;hl=en&amp;tbm=isch&amp;sa=1&amp;q=kim+kardashian+sex+tape&amp;oq=kim+kardashian+sex+tape&amp;gs_l=img.3...9375.10457.3.10505.10.9.0.0.0.0.132.595.8j1.9.0...0.0...1c.dtZcrmM6Pgc&amp;pbx=1&amp;bav=on.2,or.r_gc.r_pw.r_cp.r_qf.,cf.osb&amp;fp=2285adf281e3c389&amp;biw=1182&amp;bih=612">LIKE LITERALLY</a>?  </p>
+
+<p><a href="https://web.archive.org/web/20170321112308/http://www.myfoxny.com/story/19105130/state-senate-candidate-calls-politicians-boring">On Good Day New York</a>, Meyer told Rosanna Scotto and Dave Price that she was first inspired by Rudy Giuliani, whom she met when she was 11, &quot;I told him he was the best mayor we ever had and he said, &apos;I&apos;m probably the only mayor you ever had!&apos;&quot; Thanks, Giuliani, you created &quot;<a href="https://web.archive.org/web/20170321112308/http://www.mindymeyer4senate.com/">Mindy Meyer 4 Senate</a>!&quot;</p>
+
+<center><script type="text/javascript" src="https://web.archive.org/web/20170321112308js_/http://WNYW.images.worldnow.com/interface/js/WNVideo.js?rnd=155124;hostDomain=www.myfoxny.com;playerWidth=630;playerHeight=355;isShowIcon=true;clipId=7541262;flvUri=;partnerclipid=;adTag=Morning%2520Show;advertisingZone=;enableAds=true;landingPage=;islandingPageoverride=false;playerType=STANDARD_EMBEDDEDscript;controlsType=overlay"></script><a href="https://web.archive.org/web/20170321112308/http://www.myfoxny.com/" title="New York News | New York Breaking News | NYC Headlines">New York News | New York Breaking News | NYC Headlines</a></center>
+
+<p>Meyer complained about Parker, &quot;He has been in office for 10 years and he prides himself on the changes he made for NYC water.  I think it&apos;s pretty sad. He should have advocated more for womens rights.&quot; Keep in mind that Meyer, an Orthodox Jew, <a href="https://web.archive.org/web/20170321112308/http://www.capitalnewyork.com/article/politics/2012/07/6275998/mindy-meyer-still-unfamiliar-cuomo-courts-kim-kardashian">has stated that she&apos;s pro-life</a> (plus she also would have voted against gay marriage). <a href="https://web.archive.org/web/20170321112308/http://mindymeyer4senate.com/issues.html">On her website</a>, her stance on abortion begins &quot;Mindy believes women today have choices&quot; but ends with &quot;In addition, there are many couples who are longing to provide a warm and loving home for these children through adoption.&quot; </p>
+
+<p>As for her MySpace-like website, Meyer points out, &quot;I was trying to attract the attention of my young constituents in the district to show them the politics can be exciting and I decided to channel my adventurous side into my website and to show people... to get them interested in politics. &apos;ve been on a lot of websites doing research. I&apos;ve been on a lot of the senators&apos; websites of the 50 states from Wyoming to Colorado and I literally fall asleep.&quot;</p>
+
+<p>Also, for some leopard-printed LOLZ, here&apos;s more from Paybarah&apos;s Capital story, which suggests she&apos;s been looking at more websites than brushing up on... the state government: </p><blockquote>I asked her about Andrew Cuomo, who has in many ways been a friend to the Republican majority in the State Senate.<p></p>
+
+<p>She seemed unsure, at one point telling me, &quot;Honestly, I&apos;m not really familiar with him.&quot;</p>
+
+<p>I said he was the governor. Meyer later said, &quot;I&apos;m not familiar with him in particular, his issues and, you know, and everything about him. You&apos;re asking me how I would work with him?&quot;</p>
+
+<p>Yes, I said.</p>
+
+<p>&quot;Yeah, so, I guess I would have to see if I was elected,&quot; she said.</p></blockquote>And, for further LOLZ, try the <a href="https://web.archive.org/web/20170321112308/http://mindymeyerlovespink.tumblr.com/">Mindy Meyer Loves Pink Tumblr</a>.<p></p>					
+										
+									
+				

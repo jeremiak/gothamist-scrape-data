@@ -1,0 +1,11 @@
+---
+author: Ben Yakas
+date: November 14, 2010  6:40 PM
+title: BK High School Teacher Has Heart Attack Over PA
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="111410ambulance.jpg" src="https://web.archive.org/web/20110629173020im_/http://gothamist.com/attachments/byakas/111410ambulance.jpg" width="640" height="571"> <br> <i><a href="https://web.archive.org/web/20110629173020/http://www.flickr.com/photos/bdawg/303329997/#/">brunocerous&apos;s flickr</a></i></div> <p></p>
+
+<p>Who doesn&apos;t remember the roar of a loyal crowd at a high school football game? Cheerleaders with their multi-colored pom pom&apos;s, parents with homemade signs, athletic directors having heart attacks over the PA system. Wait, what?</p>
+
+<p>Erasmus Hall HS athletic director Marshall Tames was broadcasting the play-by-play on a playoff game in Brooklyn when he suffered a near-fatal heart attack <a href="https://web.archive.org/web/20110629173020/http://www.nypost.com/p/news/local/brooklyn/grid_goers_hear_heart_attack_rescue_beyMYxNqFMHc9616lNlv9J">yesterday afternoon</a>. Faster than you can pull off a blitz, Tames went from calling punt returns to lying on the ground with no heartbeat, having stopped breathing. Speechless spectators listened as Tames was defibrillated on the spot, with everything overheard on the loudspeaker. Chris Miccio, who was keeping time for the game and first began CPR when Tames collapsed, said the people in the stands of the 2,000-seat at Midwood High&apos;s field were relieved when he responded quickly. &quot;Somebody asked you what you did today. &apos;Oh, I worked a scoreboard at a football game and saved somebody&apos;s life,&apos; &quot; Miccio said. It&apos;s probably the craziest PA announcement we&apos;ve heard of since Kenny Powers&apos; curse-laden high school <a href="https://web.archive.org/web/20110629173020/http://www.hbo.com/eastbound-and-down/index.html#/eastbound-and-down/episodes/1/01-chapter-1/synopsis.html">job acceptance speech.</a><a></a></p>

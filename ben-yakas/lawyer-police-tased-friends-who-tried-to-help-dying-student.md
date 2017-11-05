@@ -1,0 +1,17 @@
+---
+author: Ben Yakas
+date: Oct 21, 2010 3:30 pm
+title: Lawyer: Police Tased Friends Who Tried To Help Dying Student
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:250px; "> <img alt="102110henry.jpg" src="https://web.archive.org/web/20150408191731im_/http://gothamist.com/attachments/byakas/102110henry.jpg" width="250" height="188"> <br> <i>Danroy Henry</i></div> More information is coming out about the <a href="https://web.archive.org/web/20150408191731/http://gothamist.com/2010/10/18/pace_university_student_shot_and_ki.php">chaotic night last weekend</a> when Pace University student Danroy Henry was shot and killed by police after hitting a cop with his car. Yesterday, the lawyer for the Henry family <a href="https://web.archive.org/web/20150408191731/http://gothamist.com/2010/10/20/lawyer_alleges_police_ignored_dying.php">said</a> that eye witnesses told him that Henry was handcuffed and left on the road for up to 15 minutes without medical attention while medical teams treated a less seriously injured officer at the scene. Today, the lawyer for six other Pace students is accusing police of brutality, excessive force and wrongful arrest after several of her clients were Tased for trying to aid Henry as he lay dying.<p></p>
+
+<p>&quot;<strong>They all tried to save their friend&apos;s life and render CPR and first aid and in return were brutalized by police.</strong> No student&#x2014;black, white or otherwise&#x2014;is safe when police have brutalized my clients and other students, threatening them with firearms and Tasers when they have committed no wrongdoing,&quot; attorney Bonita Zelman <a href="https://web.archive.org/web/20150408191731/http://www.lohud.com/article/201010210393">told LoHud</a>. One of the men she represents <a href="https://web.archive.org/web/20150408191731/http://www.nypost.com/p/news/local/pace_pals_tasered_2cPY5oTtZtj8ca0LQca91N">said that when</a> he begged a cop to let him aid Henry, the officer put a gun against his ribs and threatened to shoot him before arresting him. </p>
+
+<p>Zelman&apos;s clients include four Pace football players, all of whom were arrested by police on disorderly conduct and other charges. One of them, Daniel Parker, is accusing police of punching him in the face; another, Desmond Hinds, was sitting in the back seat of Henry&apos;s car, and suffered a concussion when police slammed his head on the ground twice while handcuffing him.</p>
+
+<p>US Sen. Scott Brown (of Mass.) said, &quot;We&apos;re going to ask for an investigation, obviously, a thorough investigation,&quot; of Henry&apos;s death (Henry was from North Easton, Mass.). The Pace quarterback, Joseph Romanick, <a href="https://web.archive.org/web/20150408191731/http://www.nypost.com/p/news/local/teammate_of_slain_pace_football_ULDetx9bC5Bz3Ai0UzXpMJ">appeared in court</a> today, where he entered no plea against a criminal mischief charge of breaking a window during the ruckus. The Pace University football team has <a href="https://web.archive.org/web/20150408191731/http://www.nydailynews.com/ny_local/2010/10/21/2010-10-21_player_death_nixes_paces_sat_game.html">canceled</a> its game against Bentley next weekend. </p>					
+										
+									
+				

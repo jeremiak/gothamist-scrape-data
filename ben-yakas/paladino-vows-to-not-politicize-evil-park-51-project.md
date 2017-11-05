@@ -1,0 +1,16 @@
+---
+author: Ben Yakas
+date: Oct 28, 2010 2:20 pm
+title: Paladino Vows To Not Politicize Evil Park 51 Project
+---
+
+	
+										<div style="text-align: left;"><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <div class="image-none" style=" width:640px; "> <img alt="102810pal.jpg" src="https://web.archive.org/web/20150429011559im_/http://gothamist.com/attachments/byakas/102810pal.jpg" width="640" height="478"> <br> <i>Paladino in his special big boy hat (AP)</i></div> </span></div>
+<br>
+A day after Republican gubernatorial candidate Carl Paladino <a href="https://web.archive.org/web/20150429011559/http://gothamist.com/2010/10/27/paladino_compares_islamic_center_to.php">further politicized</a> the planned Islamic center near Ground Zero by discussing the secret meaning of &quot;Cordoba&quot; and comparing the designs to the World Trade Center, Paladino made an appearance at the Park 51 site yesterday, giving an <a href="https://web.archive.org/web/20150429011559/http://www.observer.com/2010/politics/shadow-twin-towers-paladino-knocks-those-who-politicize-ground-zero-mosque-video?utm_medium=partial-text&amp;utm_campaign=home">impassioned plea</a> for others not to politicize the issue. Or, um, not in the way he doesn&apos;t want it to be politicized? It&apos;s probably as confusing for him as it to us: &quot;<strong>This attempt to create an affront, a symbol of conquest, a symbol of triumph over the American people will never happen</strong>... It&apos;s easy to come up and say, &apos;aww its freedom of religion.&apos; That&apos;s what some of our leaders are saying. Because they want to politicize it. It&apos;s not political. It&apos;s a right. It&apos;s a right of the American people. We will not be apologists to anybody.&quot;
+
+<p><br>
+If there is one thing <a href="https://web.archive.org/web/20150429011559/http://gothamist.com/tags/carlpaladino">Carl</a> isn&apos;t confused about, it&apos;s the (semi-uncontrollable) power of a good controversy. The fact that Paladino is kicking up dust around this issue less than a week before the gubernatorial election, in which he trails Andrew Cuomo by something between 20 and 32 points, is <em>probably</em> not a coincidence. He <a href="https://web.archive.org/web/20150429011559/http://www.ny1.com/content/top_stories/127912/paladino-joins-pledge-to-not-build-downtown-mosque">told reporters</a>, &quot;I can assure that on January 1, 2011, I will put in motion whatever legal powers I have to stop this project.&quot; After his speech, he was asked which legal powers a governor would have to stop the project, but declined to get more specific. Asked about the issue <a href="https://web.archive.org/web/20150429011559/http://nymag.com/daily/intel/2010/10/governor_questionnaire.html">earlier this week</a>, gubernatorial candidate Warren Redlich said, &quot;<strong>Not an issue for the governor. I respect NYC&apos;s right to decide local matters.</strong>&quot; But we already know Paladino doesn&apos;t have much respect for a bunch of <a href="https://web.archive.org/web/20150429011559/http://gothamist.com/2010/10/24/paladino_calls_manhattanites_catato.php">catatonic zombies</a>.</p>					
+										
+									
+				

@@ -1,0 +1,11 @@
+---
+author: Ben Yakas
+date: October 30, 2010  4:42 PM
+title: Officials Never Get Towed, Despite Thousands In Tickets
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:240px; "> <img alt="103010castro.jpg" src="https://web.archive.org/web/20110412163505im_/http://gothamist.com/attachments/byakas/103010castro.jpg" width="240" height="160"> <br> <i>Assemblyman Nelson Castro</i></div> If it wasn&apos;t bad enough that there are thousands of city workers getting away with using <a href="https://web.archive.org/web/20110412163505/http://gothamist.com/2010/10/12/non-official_parking_placards_still.php">illegal parking placards</a> to park wherever they want without getting a ticket, it turns out there&apos;s a little-known perk that gives politicians the ability to get out of car jail for free every time: no matter how many tickets a politician gets, their official cars will never get hauled off to the pound.<p></p>
+
+<p>And <a href="https://web.archive.org/web/20110412163505/http://www.nydailynews.com/ny_local/2010/10/30/2010-10-30_8g_in_tix_but_no_tow_why_bx_pol_scofflaws_carll_never_hit_pound.html">the Daily News</a> highlights one of the assemblymen who is most taking advantage of this loophole: Bronx Assemblyman Nelson Castro owes nearly $9,000 in unpaid parking tickets. Most New Yorkers who have more than $350 in unpaid tickets risk having their cars <a href="https://web.archive.org/web/20110412163505/http://www.nyc.gov/portal/site/nycgov/menuitem.8a58f9cf65894ee25a75cdb601c789a0/">towed</a>, but anyone with &quot;official&quot; plates, including state legislators, City Council members and government agencies, is immune. According to the News, if a marshal searches the database for Castro&apos;s NYA153 plate, a two-word message pops up on the screen: &quot;<strong>Not towable</strong>.&quot;</p>
+
+<p>Castro was surprised when the News confronted him for being a scofflaw, and attributed part of that amount, $7,500, to a possible identity theft: &quot;$9,000? Really? I know I have $600 in parking tickets. I&apos;m totally surprised about this...I didn&apos;t know this was out there. I will definitely look into that now.&quot;</p>

@@ -1,0 +1,17 @@
+---
+author: Ben Yakas
+date: December  1, 2012 10:10 AM
+title: Portugese Model Convicted Of Castrating Lover With Corkscrew
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="12112castration.jpg" src="https://web.archive.org/web/20130609234009im_/http://gothamist.com/attachments/byakas/12112castration.jpg" width="640" height="456"> <br> <i> Renato Seabra, right, in court last year (AP)</i></div> <p></p>
+
+<p><a href="https://web.archive.org/web/20130609234009/http://gothamist.com/tags/renatoseabra">Renato Seabra</a>, the Portugese underwear model accused of brutally castrating and killing his older lover at the Times Square InterContinental in January 2011, has been found guilty. The <a href="https://web.archive.org/web/20130609234009/http://www.nytimes.com/2012/12/01/nyregion/portuguese-model-renato-seabra-convicted-of-killing-his-lover.html?partner=rss&amp;emc=rss">prosecution successfully argued that</a> Seabra killed 65-year-old journalist Carlos Castro because he was angry when the older man ended their three month affair, and stopped paying his bills. &#x201C;The motive is as clear as if it were written in lights on a Times Square marquee,&#x201D; said prosecutor Maxine Rosenthal. &#x201C;It&#x2019;s about rage. It&#x2019;s about humiliating and emasculating the victim.&#x201D;</p>
+
+<p>During the trial, <a href="https://web.archive.org/web/20130609234009/http://gothamist.com/2012/10/06/lawyer_says_castrating_model_put_lo.php">it was revealed</a> that Seabra cut off Castro&apos;s testicles using a corkscrew while Castro was still alive; in addition, he also choked him, bashed him over the head with a computer, and stomped on his skull in their Times Square hotel room, leaving sneaker prints. Seabra&apos;s lawyers tried to argue that while Seabra did kill Castro, he was not criminally responsible because <a href="https://web.archive.org/web/20130609234009/http://gothamist.com/2011/06/03/castrating_male_model_seeks_insanit.php">of mental illness.</a></p>
+
+<p><a href="https://web.archive.org/web/20130609234009/http://gothamist.com/2012/09/14/alleged_corkscrew_castrating_killer.php">Defense lawyers said</a> Seabra &quot;believed Mr. Castro&apos;s testicles were demons, and that by pulling them out, everything would be right with the world,&quot; and after digging Castro&apos;s testicles out with a corkscrew, he slit his own wrists, &quot;took the testicles and put one on each wrist,&quot; in order to &quot;harness the power.&quot; </p>
+
+<p>&#x201C;He said the demon was homosexuality and he only killed Carlos Castro to make the world a better place,&#x201D; defense lawyer David Touger said in closing arguments. But prosecutors said that Seabra had made up the testicles-in-wrist aspect to add to his insanity defense; they pointed out that after the murder, Seabra showered, used hair gel, put on clean clothes, took $1,600 from Castro&#x2019;s wallet, and placed a &#x201C;do not disturb&#x201D; sign on the room&#x2019;s door as he left. &#x201C;All of these things demonstrate that he is aware and present and he knows what he is doing,&#x201D; Rosenthal said.</p>
+
+<p>Castro&apos;s sister, Maria Amelia Castro, said that &quot;justice was made,&quot; and expressed her hope that Seabra would get &quot;prison for life.&quot; He faces 25 years to life when he is sentenced on December 21st.</p>

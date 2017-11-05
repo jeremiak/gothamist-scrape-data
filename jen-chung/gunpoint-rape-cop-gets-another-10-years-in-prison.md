@@ -1,0 +1,13 @@
+---
+author: Jen Chung
+date: July 16, 2012  2:05 PM
+title: Gunpoint Rape Cop Gets Another 10 Years In Prison
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2012_07_prison.jpg" src="https://web.archive.org/web/20130524024142im_/http://gothamist.com/attachments/jen/2012_07_prison.jpg" width="640" height="426"> <br> <i> <a href="https://web.archive.org/web/20130524024142/http://www.shutterstock.com/gallery-306199p1.html">trekandshoot</a> / Shutterstock</i></div> <p></p>
+
+<p>After being <a href="https://web.archive.org/web/20130524024142/http://gothamist.com/2012/05/07/gunpoint_rape_cop_michael_pena_sent.php">sentenced to 75 years to life in prison</a> for sexually assaulting a teacher in an Inwood apartment complex&apos;s courtyard last summer, ex-police officer Michael Pena also <a href="https://web.archive.org/web/20130524024142/http://gothamist.com/2012/06/21/gunpoint_rape_cop_set_to_plead_guil.php">pleaded guilty to raping her</a> as part of his plea deal. Today, a judge added on another 10 years&#x2014;to be served concurrently&#x2014;for the rape charges.</p>
+
+<p> Manhattan Supreme Court <a href="https://web.archive.org/web/20130524024142/http://www.nypost.com/p/news/local/after_nypd_officer_sentenced_admitting_QQLIXA7EJI6EMPkMWEkf1O">Justice Richard Carruthers said</a>, &quot;This sentence in no way reflects the seriousness or the grievous nature of his crimes,&quot; and explained it was &quot;for one reason and for one reason only. That is to spare the <a href="https://web.archive.org/web/20130524024142/http://gothamist.com/2012/03/17/gunpoint_rape_cop_victim_testifies.php">victim from having to confront</a> her attacker again.&quot; (The jury had a mistrial over the rape charges, <a href="https://web.archive.org/web/20130524024142/http://gothamist.com/2012/03/28/mistrial_declared_in_gunpoint_rape.php">in spite of victim and witness testimony</a>, as well as testimony from a <a href="https://web.archive.org/web/20130524024142/http://gothamist.com/2011/12/15/arresting_officers_were_disgusted_b.php">disgusted arresting officer</a>.)</p>
+
+<p>None of Pena&apos;s family attended the hearing. Pena&apos;s lawyer, who once acknowledged his client <a href="https://web.archive.org/web/20130524024142/http://gothamist.com/2012/03/16/gunpoint_rape_cop_lawyer_admits_his.php">committed an &quot;unforgivable&quot; crime</a>, said, &quot;He obviously realizes he has destroyed his life. And that he has affected a young woman&apos;s life, and disappointed his family and his police department. He&apos;s a broken man. But he has some hope that he will not be carried out of prison in a box.&quot;</p>

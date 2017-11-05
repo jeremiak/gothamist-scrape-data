@@ -1,0 +1,11 @@
+---
+author: Ben Yakas
+date: April 17, 2011  2:33 PM
+title: Bronx Teens Overturn Van After Night Of Graffiting
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="41711graffiti.jpg" src="https://web.archive.org/web/20110623143612im_/http://gothamist.com/attachments/byakas/41711graffiti.jpg" width="240" height="174" class="image-left"> </span>Three Bronx teens got into a car accident on the Bruckner Expressway early yesterday morning after an apparent evening of tagging. One of the trio, 16-year-old Shaadieq Hicks, is in a coma after he was thrown from the backseat and through the windshield when the van overturned; the driver may be facing manslaughter charges if Hicks dies. &quot;<strong>They&apos;re saying my baby might not pull out. His heart stopped twice today. They said he won&apos;t be the same,</strong>&quot; Hicks&apos; distraught mother, 31-year-old Shinkikwah Burke, <a href="https://web.archive.org/web/20110623143612/http://www.nydailynews.com/ny_local/2011/04/17/2011-04-17_bronx_teens_injured_after_van_overturns_.html">told the News.</a></p>
+
+<p>The driver of the van, 17-year-old Alex Seeraj, was reportedly speeding westbound along Bruckner Blvd. below the Bruckner Expressway around 3 a.m. yesterday when he lost control and crashed into a barricade; the van tumbled over into the eastbound lane before coming to a stop upside-down next to a fence. Car parts, including one of the van&apos;s wheels and the rear set of seats, were strewn across the expressway. Seeraj has now been handcuffed to his hospital bed with a cop watching him. &quot;It&apos;s not all necessarily his fault, but he&apos;s looking at a murder case right now. That&apos;s what the cops are telling us, if Shaadieq dies,&quot; said friend Hazel Vigo.</p>
+
+<p>Vigo gave some clues as to what the trio were up to before their crash: she said that they are into graffiti, &quot;so they took the car out late. Cops found the graffiti cans and flares in the car.&quot; The other survivor of the crash, 17-year-old Gerald Pagan, said, &quot;It all happened so fast. We didn&apos;t know what happened.&quot;</p>

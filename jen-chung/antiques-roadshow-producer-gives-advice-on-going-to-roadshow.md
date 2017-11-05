@@ -1,0 +1,104 @@
+---
+author: Jen Chung
+date: Aug 8, 2014 3:45 pm
+title: Antiques Roadshow Producer Gives Advice On Going To Roadshow
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2014_08_antiquesroadshow.jpg" src="https://web.archive.org/web/20170223173333im_/http://gothamist.com/attachments/jen/2014_08_antiquesroadshow.jpg" width="640" height="427"> <br> <i> The most valuable items ever appraised on Antiques Roadshow: Asian arts expert Lark Mason identified this collection of five late 17th/early 18th-century Chinese carved rhinoceros horn cups and valued the set at $1 million to $1.5 million. (Antiques Roadshow)</i></div> <p></p>
+
+<p>Forget reality shows about bickering &#x201C;housewives&#x201D; or naked people dating&#x2014;my favorite reality show is the endlessly entertaining <a href="https://web.archive.org/web/20170223173333/http://www.pbs.org/wgbh/roadshow/"><em>Antiques Roadshow</em></a>, which is filming its 19th season on PBS. The show&#x2019;s simple premise&#x2014;people brings different items for auction house experts to appraise, and learn what their family heirlooms&#x2014;or dumpster diving finds&#x2014;are worth, with a side of historical context. It&apos;s always a surprise&#x2014;for instance, a <a href="https://web.archive.org/web/20170223173333/http://www.pbs.org/wgbh/roadshow/archive/200905A53.html">2010 episode featured a painting that Chuck Close</a> sold for $8 back in 1960, when he was a college student and needed some cash. That painting is now worth at least $100,000!</p>
+
+<p>The show is now taping its upcoming 19th season with a tour of eight cities, and stops in New York, at the Javits Center, tomorrow for the first time since 2001. At the Javits Center, over 70 appraisers will be on hand to meet with 5,000 people out of 18,130 people who applied for tickets. Each person can bring two items, and out of the 10,000 items, producers will narrow down to a few dozen to film for the show. I spoke to Marsha Bemko, <em>Antiques Roadshow</em>&apos;s producer, earlier this week&#x2014;and I was a fan girl.</p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-right"> <img alt="2014_08_marshabemko.jpg" src="https://web.archive.org/web/20170223173333im_/http://gothamist.com/attachments/jen/2014_08_marshabemko.jpg" width="270" height="352"> <br> <i style=" width:270px; ;display:block"> Producer Marsha Bemko (Antiques Roadshow)</i></div> <b>I have to say that I am a huge fan of the show. I think I started watching after I graduated from college, 16 years ago. I moved into an apartment, we had cable, and it became very addictive... and I would learn things!</b><br>
+I&#x2019;m so glad to hear it. I love hearing the word addictive around the show that we produce. And I frankly love hearing that you still like it as a knowledgeable person with a little insight or info. After producing it after all these years, I still like it too. It&#x2019;s one of those addictive things. <p></p>
+
+<p><b>I love how it combines a lot of history with all these surprises. You also see different people from the country. I like especially when you go to the west. My husband&apos;s like, &#x201C;Oh, yeah, he&#x2019;s from Illinois or Missouri, that&#x2019;s exactly what my relatives are like.&#x201D; </b><br>
+You know what is so interesting as a person I like to sort of think of ourselves as we&#x2019;re almost like a control group. We plop down and do the same show all over the country and of course individuals end up making the show. So every show&#x2019;s different but what people do have in common&#x2014;whether they are sophisticated New Yorkers or more simple farmer or somewhere in the middle of the country or whatever&#x2014;is that everybody has the same thing in common and that is they are really interested to know what they own and they&#x2019;re really hopeful about what they own. It doesn&#x2019;t matter how sophisticated or where you live, that we share. </p>
+
+<p>I think some of my favorite shows&#x2014;It&#x2019;s hard for me to pick favorites because we&#x2019;re always making more and it&#x2019;s hard for me to change my mind&#x2014;but I love watching the shows from Minnesota because I think they have the strongest accents and I&#x2019;ve been told wherever I go that my Boston accents pretty deep. I know it sounds funny with me saying it because you&#x2019;re probably hearing my Boston accent but I love the Minnesota shows because, you know, you can really get the flavor of Minnesota. You can really hear it. And obviously as an East Coast girl I don&#x2019;t hear the other accents&#x2014;the East Coast accents&#x2014;as those in the West do. So, I agree, I think the people are as interesting in our show as the objects. </p>
+
+<p><iframe width="640" height="360" src="//web.archive.org/web/20170223173333if_/http://www.youtube.com/embed/MlK-XW8uHOM?rel=0" frameborder="0" allowfullscreen></iframe></p>
+
+<p><strong>So, you&#x2019;re coming back to New York after 13 years? </strong><br>
+Yeah, the last time we were there as in 2001. You&#x2019;ve got it right. We were in Rochester before that but this is our second time in the city, third time in the state. </p>
+
+<p><b>I was wondering if you noticed any changes in the kinds of ways people sort of approached going to Roadshow. For example, has the Internet helped or hindered or made people that they are more expert? </b></p>
+
+<p>I think overall I would say that the Internet has been a great help. It has made us a more informed public, which is ultimately the goal of Antiques Roadshow. And so you can definitely see a more knowledgeable public overall at the events from when we first started doing the show. Back when we started taping, nobody had a cellphone, really&#x2014;forget the Internet, what was that word that has a capital &#x201C;I.&#x201D; </p>
+
+<p>We just didn&#x2019;t have the kind of information we have at our fingertips. And what some of the Roadshow experts tell me&#x2014;and they&#x2019;re the ones in the market, and I think it&#x2019;s really interesting&#x2014;when Roadshow first started airing Disney cels, you know animation cels, people thought they were more rare than when Roadshow first started airing them, this is pre-Internet. All of a sudden people with Disney cels came out of the woodwork. It brought prices down because they weren&#x2019;t as rare as people thought. </p>
+
+<p>So it&#x2019;s made us a more powerful public, a more knowledgeable public about what does exist because we can actually connect with one another, whereas we couldn&#x2019;t before. That makes us a more knowledgeable person.</p>
+
+<p>In far as making a television show, luckily about 5,000 people show up to our events with two objects each and our country, our states, our cities are filled with great stories and great objects. Very often what we do see is an inherited object kind of thing. I don&#x2019;t know if your mother did it for you, but I think most of us, if we&#x2019;re lucky enough to have this, but it is many of us, have a mom who said &#x201C;Don&#x2019;t give this set of china away. This is the good set.&#x201D; Or &#x201C;This is the vase that grandma got out of&#x201D; whatever country she came out of. Or &#x201C;This is the only thing to survive from the old country.&#x201D; Whatever the story is that your family tell, those are the things that people bring to Roadshow.  </p>
+
+<p>They may be what mom or great-grandmother said, &#x201C;Something good, don&#x2019;t get rid of it.&#x201D; But what people don&#x2019;t know is how good. And as a rule, no matter how good, because it has come down in the family like that, no matter what we say, they don&#x2019;t sell it. No matter how much we say, especially with inherited objects. They insure them, they maybe protect them in a different way, they are more knowledgeable, and frankly so are the viewers who learned along with them about how to better care for such a treasure. </p>
+
+<p><iframe width="640" height="360" src="//web.archive.org/web/20170223173333if_/http://www.youtube.com/embed/ATAudjynAi0?rel=0" frameborder="0" allowfullscreen></iframe></p>
+
+<p><b>So what object do people like bringing in most? </b><br>
+I think, you know as crazy as the crazy individuals we all are, that being said, are longest lines are probably an indicator. The longest lines are often in paintings and in collectibles and there&#x2019;s a really good reason for that. Even if you can look your painting up on the Internet, sometimes they&#x2019;re not signed and you can&#x2019;t&#x2014;and for a painting expert, often the signature is in the brushstrokes. Even if it&#x2019;s signed, was it painted by the person whose signature sits on the painting? So that kind of information no amount of Internet can give you the expertise. It can give you information but ultimately you need an expert. So people will bring their paintings to Roadshow because they need an expert&apos;s help. </p>
+
+<p>Same thing with collectibles which is a big catch-all area for Roadshow. People may buy collectibles different ways, but for us it is things like lunch boxes, and we do have toys that go to another area. Those things are harder to find on Internet too, &#x201C;How good is mine? How rare is mine?&#x201D; That is harder to do on our own. Those tend to be our longer lines. I&#x2019;m guessing a lot of that is because people can&#x2019;t find that out on their own. </p>
+
+<p><b>So, as you watch the footage and you&#x2019;re at the convention centers, have you ever noticed something like, &#x201C;Oh, I think that&#x2019;s something.&#x201D; And it turned out to be that something&#x2014;or hasn&#x2019;t?</b><br>
+You haven&#x2019;t been to a Roadshow yet, are you coming on Saturday? </p>
+
+<p><b>I&#x2019;m going on Saturday, yes!</b> <br>
+How it works is that when you arrive they come to an area first that we call &#x201C;triage&#x201D; Where they get two category tickets. Did you bring in&#x2014;some of it&#x2019;s easy&#x2014;jewelry and a book? Or did you bring in folk art or a textile. We decide that triage and you go stand on the two lines you&#x2019;re in. Now unless it&#x2019;s jewelry or something small like that, the experts at the table can see a good object coming from across the room. These are men and women with decades of experience behind them. And what they&#x2019;re hoping, because they&#x2019;re sitting at a table with two, three others maybe, is that that person comes up to them. </p>
+
+<p>If it is in fact an object that they are jazzed about, because the expert is on the front line there, something that tickles their fancy, or something that they think is worth sharing for a host of reasons, they will then pitch a producer to tape the piece. The guest will learn nothing about that object until the recording. All the other guest that are coming in will get their information, but this guest with the special object is waiting for information based on our answer. If we&#x2019;re going to record them they are going to wait until the recording for the information so it is fresh and it is genuine and it&#x2019;s real. So the experts are the ones on the front lines pitching these objects for consideration for different types of tapings that we do: single-camera, multiple-camera. </p>
+
+<p>We also have our print publication there to provide coverage as well. So whatever we&#x2019;re taping for the footage, I know what has been taped, I just haven&#x2019;t looked at it all yet. I may have seen some of it on Saturday. </p>
+
+<p>That&#x2019;s a long answer but that gives you some understanding of how it works. So I&#x2019;ve seen the list of things and when it&#x2019;s something&#x2014;you know most of us who have been doing the show are veterans, and we&#x2019;re like you, we recognize our Rookwood and stuff now, so we&#x2019;ll say to each other &#x201C;Oh my god, you have to see this <a href="https://web.archive.org/web/20170223173333/http://www.pbs.org/wgbh/roadshow/archive/199908A49.html">Remington</a> that came in.&#x201D; Or whatever it is. And maybe depending on whether I was in the truck or on the floor, I have or haven&#x2019;t seen the Remington yet. I have a list of what I&#x2019;m going to look at. So I know what&#x2019;s coming and then of course, I&#x2019;m a television producer, I can&#x2019;t wait to see how it looks. </p>
+
+<p>But those experts, their the ones who deserve the credit. A: for being there. They pay their own way, by the way, they&#x2019;re volunteers. And B: for being the ones who are really sifting through that first layer to look at those objects. They&#x2019;re very passionate, these men and women, about what they do. I have seen grown men and grown women cry after seeing an object they&#x2019;ve waited decades to see. Real tears, real excitement and joy. Most of them have parents who were collectors, dealers, or auctioneers. They&#x2019;ve been doing this since they were kids. </p>
+
+<p><b>I&#x2019;m not sure if you remember this story, about the painting that was stolen and then <a href="https://web.archive.org/web/20170223173333/http://gothamist.com/2007/10/23/dumpster_diver.php">found in a dumpster in New York</a>.</b></p>
+
+<p>Yes I do. It was a Rufino Tamayo. Yes I absolutely remember that story. </p>
+
+<p><b>I was curious if you had any thoughts about it or just how your show was basically able to help solve a mystery. </b><br>
+Well as a matter of fact one of the segments that we&#x2019;re shooting in New York is what we call, &#x201C;Roadshow&#x2019;s Most Wanted.&#x201D; It&#x2019;s an interesting story what happened there with that Tamayo. It&#x2019;s hard to know how it ended up where it ended up but ultimately the painting ended up where it belonged, which is the important thing. [The painting was returned to the original owner, and then <a href="https://web.archive.org/web/20170223173333/http://www.foxnews.com/story/2007/11/21/rufino-tamayo-painting-found-in-trash-sells-for-1million/">sold at auction for a $1 million</a>; the woman who found the painting on West 72nd Street got a $15,000 reward and part of the sale price.]</p>
+
+<p>My goal by the way is to do a &#x201C;Roadshow&#x2019;s Most Wanted&#x201D; segment in every city we visit. We&#x2019;re lucky to get one or two a season because crime does not always align with our tour, it&#x2019;s as simple as that. In New York you have one. It&#x2019;s not really crime, it&#x2019;s not always whether it was something stolen or taken, or it could be objects like what we&#x2019;re doing for our &#x201C;Roadshow&#x2019;s Most Wanted&#x201D; segment in New York, that are just basically lost through time. So the segment that we&#x2019;re doing is from the Apollo Theatre. </p>
+
+<p><strong>That&apos;s great. </strong><br>
+Isn&#x2019;t that great? So I&#x2019;m really excited about this piece. They are trying to get back items, costumes, parts of stage sets, the list is endless, that have just gone missing throughout the years. There was a hunk of time where nothing was treasured that was associated with the Apollo. You know where things were sort of not cared for there. And so are they gone, are they in the trash, are they in grandma&#x2019;s basement? </p>
+
+<p>With a show like ours, I think looking for that kind of item, versus looking for a painting&#x2026; I imagine we&#x2019;ll have some success. Even the collector that we did &#x201C;Roadshow&#x2019;s Most Wanted&#x201D; with in Palm Springs, California, and I&#x2019;d have to go to our own website because I&#x2019;m blanking his name, but he found a couple paintings, but <a href="https://web.archive.org/web/20170223173333/http://www.pbs.org/wgbh/roadshow/rmw/RMW-001_palmsprings_200801F03.html">he had more than one to look for</a>. </p>
+
+<p>It is harder when you&#x2019;re looking for a painting out there or an object out there, but I think that we might have some success with the Apollo request because a lot of people went through the theatre, it may have been given. It&#x2019;s not a stolen thing but they just said, &#x201C;Here, just have it.&#x201D; And given that we are watched by about eight million viewers a week, our fingers are crossed. We may connect the Apollo with some of its treasures. </p>
+
+<p><iframe width="640" height="360" src="//web.archive.org/web/20170223173333if_/http://www.youtube.com/embed/nHK-javWDMY?rel=0" frameborder="0" allowfullscreen></iframe></p>
+
+<p><b>Do you have any tips for me going this weekend? </b><br>
+My biggest tip for anybody going, and this includes reporters, don&#x2019;t try to impress us. These are men and women who sell six, seven, eight figure objects in their daily lives. Really bring something you can&#x2019;t Google. Take advantage of the chance to be in the room with about 70 other countries top experts who could answer questions you can&#x2019;t answer for yourself. That&#x2019;s the best advice I can give. Coming to try to impress us because you want to show something on TV, it&#x2019;s not the best way to go. We&#x2019;ll see 5,000 people that day and it&#x2019;s really a chance to get those questions answered that you can&#x2019;t answer on your own. And we never repeat a city in anything less than five years. So we won&#x2019;t be back for a little while.<br>
+ <br>
+<b>It took you 12 years or more to come back to Boston and New York. </b><br>
+And frankly, with cities like that we try to get around and spread the wealth. It&#x2019;s a minimum of five years for any city. But you can be sure it will be a good five years before we&#x2019;re back in New York. So take advantage of all that brain power.</p>
+
+<p><b>There&#x2019;s this calligraphy that my grandmother had in her house that I would love to bring in but it&#x2019;s so huge and it&#x2019;s in New Jersey, so I&#x2019;m trying to figure out if I can bring it in.</b><br>
+How much does it weigh? </p>
+
+<p><b>It&#x2019;s in this huge frame. It&#x2019;s four by six I think, but it&#x2019;s supposedly by the brother of the last emperor but I don&#x2019;t know if it has any value in it. </b><br>
+Who knows. </p>
+
+<p><b>Right, who knows exactly.</b><br>
+But Chinese objects are really, very&#x2026; the market is incredible. </p>
+
+<p><b>Because everybody in China is interested in having those items back. </b><br>
+They want to buy back their culture and there is some wealth in China right now, they have the resources to do it. So the prices for really good Chinese objects are just gaga!</p>
+
+<p><b>Is there anything surprising in terms of the appraisal skyrocketing? </b><br>
+I think it&#x2019;s not so surprising because I&#x2019;ve been doing this show for a while and I have a little insight into the market. It&#x2019;s very driven by demographics as well. So what the appraisers call the furniture, the brown stuff that nobody wants anymore, it&#x2019;s Victorian furniture, because the demographics, the young people who are coming into buying power like modern. So that&#x2019;s where the prices are going up. So when you look at it you think &#x201C;Oh, won&#x2019;t those always be treasured.&#x201D; </p>
+
+<p>Yes, but not valued as high as they were most of that market. I mean I have noticed it doesn&#x2019;t matter what category, whether it&#x2019;s jewelry or furniture, the best of the best, the Tiffany&#x2019;s, the Seymour tables, etc. will always go up. The best of the best, even if style changes, seems to hold, if not increase in value. But in terms of most of what&#x2019;s out there, because most of it isn&#x2019;t the best of the best, what the experts call middle-market, which can be up to like 20 grand. Middle market is not so middle for a lot of us, but that middle range stuff is really driven by tastes, trends, and who&#x2019;s buying, who wants it. And you&#x2019;re starting to see a younger buyer who doesn&#x2019;t want the same stuff that mom and dad had. And listen, I&#x2019;m flowing with them, I like that modern stuff too. It drives taste. But that&#x2019;s what I&#x2019;ve noticed. You watch the demographic change the markets. </p>
+
+<p>And our experts can speak to this with even more insight than I can because I&#x2019;m just someone who covers it, but even things like animation cels, how long will we want them? It&#x2019;s been a long time since someone generated animation on a cel. Or maybe it will be something coveted in like a hundred years. Or maybe it will be like, &#x201C;Who cares about those.&#x201D; And that&#x2019;s what I think is hard. And that&#x2019;s why the first rule of buying is buy what you like. </p>					
+										
+									
+				

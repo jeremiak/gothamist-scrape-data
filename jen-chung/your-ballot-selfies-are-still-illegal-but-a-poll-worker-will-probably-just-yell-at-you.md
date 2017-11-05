@@ -1,0 +1,23 @@
+---
+author: Jen Chung
+date: Nov 7, 2016 1:38 pm
+title: Your Ballot Selfies Are Still Illegal, But A Poll Worker Will Probably Just Yell At You
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2016_11_ballotcount.jpg" src="https://web.archive.org/web/20171016013929im_/http://gothamist.com/attachments/jen/2016_11_ballotcount.jpg" width="640" height="427"> <br> <i> Ballot machine (Getty Images)</i></div> <p></p>
+
+<p>Last week, a federal judge decided to <a href="https://web.archive.org/web/20171016013929/http://gothamist.com/2016/11/03/nyc_ballot_selfies.php">downvote everyone&apos;s Klout score</a> and uphold the <a href="https://web.archive.org/web/20171016013929/http://gothamist.com/2016/04/19/can_u_instagramtweetselfiesnap_the_vote.php">ban on ballot selfies</a> in New York State. Judge Kevin Castel explained why he wouldn&apos;t grant a temporary suspension of the ban for Election 2016, a.k.a. <a href="https://web.archive.org/web/20171016013929/http://gothamist.com/2016/11/04/trump_scream.php">The Purge (of All Sanity)</a>: &quot;A last-minute, judicially-imposed change in the protocol at 5,300 polling places would be a recipe for delays and a disorderly election, as well-intentioned voters either took the perfectly posed selfie or struggled with their rarely-used smartphone camera.&quot;</p>
+
+<p>A few weeks ago, three New York City residents had filed a lawsuit for the right to take a photograph with their marked ballots to post on social media; <a href="https://web.archive.org/web/20171016013929/http://www.ny1.com/nyc/all-boroughs/politics/2016/10/27/ny-law-that-prohibits-voters-from-taking-ballot-pictures-being-challenged-in-court.html">one explained</a>, &quot;People voting and sharing their ballots on social media is a really great way to encourage people to participate in a system that is direly lacking in participation.&quot; </p>
+
+<p>But lawyers for NY State and NYC successfully argued that it would be chaotic to have to retrain all the poll workers with so little time before the election. Castel wrote, &quot;Not only would a preliminary injunction wreak havoc on election-day logistics, real concerns exist about the delays and privacy intrusions that ballot selfies could cause. Both the State and the City are expecting large numbers of voters for the general election on November 8, 2016... It is not unreasonable to expect that permitting voters to take selfies with their completed ballots will add unnecessary delays to the voting process. In addition, those taking ballot selfies inside a polling place may inadvertently capture the ballots of other voters who did not wish to have their ballots publicized.&quot;</p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2016_11_ballots.jpg" src="https://web.archive.org/web/20171016013929im_/http://gothamist.com/attachments/jen/2016_11_ballots.jpg" width="640" height="427"> <br> <i> So many ballots, so many potential selfies! (Getty Images)</i></div> <p></p>
+
+<p>&quot;We are disappointed in the decision but gratified that we have brought this issue to the public&#x2019;s attention,&quot; attorney Leo Glickman, who represented the plaintiffs, told us. &quot;The case now proceeds to the merits and we intend to fight on to strike down the law as unconstitutional.  Members of the State Legislature have contacted us with a view to passing a repeal of the law, so one way or another we think that by next year&#x2019;s election people will be able to engage in this form of political speech.&quot; (Assembly Member Linda Rosenthal and State Senator Brad Hoylman are <a href="https://web.archive.org/web/20171016013929/http://gothamist.com/2016/10/29/lawmakers_legalize_ny_state_ballot.php">working to legalize ballot selfies for the next election</a>.)<br>
+ <br>
+Glickman also offered advice for tomorrow, &quot;There is no law or regulation preventing anyone from taking a photograph of their ballot.  The Board of Elections claims they have a &apos;policy&apos; against people taking photographs of their ballot. Unless you&#x2019;re causing undue delay or a disturbance by taking a photo, the worst punishment you can legally suffer is having a poll worker tell you to stop. Showing a photograph of your ballot to another, including on social media, remains a crime punishable by one year in prison.  Civil disobedience against unjust and unconstitutional laws has a long and great history in this nation. Whether this issue is worth the risk is the personal decision of each voter.&quot;</p>					
+										
+									
+				

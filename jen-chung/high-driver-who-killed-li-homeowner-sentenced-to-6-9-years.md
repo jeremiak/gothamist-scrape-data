@@ -1,0 +1,17 @@
+---
+author: Jen Chung
+date: Jul 10, 2012 4:44 pm
+title: "High" Driver Who Killed LI Homeowner Sentenced To 6-9 Years
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left"> <img alt="2012_07_kaygardes.jpg" src="https://web.archive.org/web/20150504005314im_/http://gothamist.com/attachments/jen/2012_07_kaygardes.jpg" width="250" height="328"> <br> <i style=" width:250px; ;display:block"> Kayla Gerdes</i></div> Two years after slamming her boyfriend&apos;s van <a href="https://web.archive.org/web/20150504005314/http://gothamist.com/2010/04/20/runaway_van_kills_li_woman_crashes.php">into a 69-year-old woman</a>, fatally <a href="https://web.archive.org/web/20150504005314/http://gothamist.com/2010/04/21/police_fatal_runaway_van_driver_was.php">pinning her against</a> her Long Island home, Kayla Gerdes was sentenced to six to nine years in prison.  Gerdes, who was 18 at the time of the incident and high on marijuana, Xanax and oxycodone during the April 2010 incident, <a href="https://web.archive.org/web/20150504005314/http://www.newsday.com/long-island/nassau/gerdes-sentenced-in-death-of-woman-mowing-lawn-1.3828871">said to Rebecca Twine&apos;s son</a>, &quot;If I could trade my life to give your mother back her life, I really would.&quot;<p></p>
+
+<p>However,  <a href="https://web.archive.org/web/20150504005314/http://www.newsday.com/long-island/nassau/gerdes-sentenced-in-death-of-woman-mowing-lawn-1.3828871">Newsday reports</a>, &quot;Chauncey Twine sat with his face deliberately turned away from her. <strong>&apos;She didn&apos;t deserve my respect, or an acknowledgment of her apology</strong>,&apos; Twine told reporters after the proceeding.&quot;  His mother, a retired doctor, had been gardening when the van barreled <a href="https://web.archive.org/web/20150504005314/http://gothamist.com/2010/04/21/police_fatal_runaway_van_driver_was.php">into her Hempstead house</a>.  </p>
+
+<p>While Gerdes told reporters that <a href="https://web.archive.org/web/20150504005314/http://gothamist.com/2010/04/22/high_driver_doesnt_feel_so_bad_abou.php">she was sorry about death</a> and claimed it was an accident, in the <a href="https://web.archive.org/web/20150504005314/http://gothamist.com/2010/04/23/high_or_confused_driver_admitted_to.php">police statement taken after the incident</a>, Gerdes had said, &quot;The thing that made me not feel so bad was, she was old. I mean, 70 years is a long time to live. I want to see a newspaper or the news to see what I look like.&quot;</p>
+
+<p>Last year, Gerdes had turned down a plea deal that would have put <a href="https://web.archive.org/web/20150504005314/http://gothamist.com/2011/01/26/allegedly_high_driver_was_fatally_s.php">her in prison for 10 years</a>. With this plea deal, prosecutors had sought a 5-15 year sentences, but the judge opted for a 6-9 year sentence.  Gerdes, who only had a learner&apos;s permit at the time and <a href="https://web.archive.org/web/20150504005314/http://gothamist.com/2010/04/24/mom_high_driver_is_a_very_sensitive.php">allegedly took the wheel</a> because she thought her boyfriend was going too slow (because she needed to get to a court appearance over jewelry she stole from her mother), has already served two years.</p>					
+										
+									
+				

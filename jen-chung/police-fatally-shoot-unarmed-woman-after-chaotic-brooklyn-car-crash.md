@@ -1,0 +1,25 @@
+---
+author: Jen Chung
+date: June 15, 2012  9:00 AM
+title: Police Fatally Shoot Unarmed Woman After Chaotic Brooklyn Car Crash
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2012_06_bklynshooting.jpg" src="https://web.archive.org/web/20120618134815im_/http://gothamist.com/attachments/jen/2012_06_bklynshooting.jpg" width="640" height="382"> <br> <i> Via MyFoxNY</i></div> <p></p>
+
+<p>A 23-year-old woman was fatally shot by a police officer in her car at the corner of  East 38th Street and Church Avenue. Police, who say the car was stolen, are investigating the incident as witnesses say they heard the woman, who struggled with the police, <a href="https://web.archive.org/web/20120618134815/http://www.nydailynews.com/new-york/woman-clinging-life-shot-cops-brooklyn-article-1.1095976">yelling, &quot;Don&apos;t kill me!&quot;</a> and sources say she was <a href="https://web.archive.org/web/20120618134815/http://www.nypost.com/p/news/local/blood_in_the_street_uYhHwmqkC0iFNlco9NZ4JO">out on bail for attempted murder</a> and had <a href="https://web.archive.org/web/20120618134815/http://www.nytimes.com/2012/06/15/nyregion/woman-shot-by-police-in-brooklyn-after-car-crash.html?ref=nyregion">been identified as a carjacker</a>. </p>
+
+<p>The NYPD says that a pair of plainclothes cops noticed the stolen grey Toyota Camry and pursued it because it had been driving &quot;erratically&quot; on Church Avenue, running red lights at East 40th, East 39th and East 38th until it crashed into a Toyota minivan. Here&apos;s the police&apos;s description:</p><blockquote>The stolen Camry had crossed a double-yellow line to pass cars stopped at the red light in front of it,  and then entered the intersection.<br>
+ <br>
+The police vehicle pulled alongside the stolen vehicle at the crash site.<br>
+ <br>
+Both officers exited and approached the stolen car. They observed the driver, 23, move to the unoccupied passenger side and open the door. The officer on the passenger side attempted to enter the vehicle, but was struck by the open door and thrown backward as the woman moved back to the driver&#x2019;s seat, put the car in reverse and hit the gas.<br>
+ <br>
+At the same time, the other officer had entered the driver side of the vehicle with his gun in one hand, and was attempting with his other hand to shift the gear into park, when a single round was discharged from the firearm, striking the woman in the chest.</blockquote>The woman died at Kings County Hospital.  She did not have any identification on her, but she was identified through her fingerprints, and the Post says her name is Shantel Davis, &quot;Davis... was to appear in court today on the attempted-murder rap.&quot;<p></p>
+
+<p>Police are investigation whether the shot fired was discharged accidentally or on purpose; some reports suggest that Davis <a href="https://web.archive.org/web/20120618134815/http://www.nypost.com/p/news/local/blood_in_the_street_uYhHwmqkC0iFNlco9NZ4JO">attempted to grab the gun from Detective Phil Atkins</a>.  Witnesses said that before the shooting, cops yelled at Davis to get out.  Dave McKenzie told the Daily News, &quot;They try to pull her out of the car, and she fights them. Let me go! Let me go!  I don&apos;t want to be killed! Don&#x2019;t kill me!&quot;</p>
+
+<p>Another witness said that she noticed Atkins was wearing a NYPD t-shirt and had his shield around his neck, &quot;The next thing I saw was the police officer took his gun out and fired a shot.&quot;  One witness <a href="https://web.archive.org/web/20120618134815/http://www.nytimes.com/2012/06/15/nyregion/woman-shot-by-police-in-brooklyn-after-car-crash.html?ref=nyregion">told the NY Times,</a> &quot;She got out of the car. She took a few steps. She was stumbling and staggering. Blood was all over the place. And then she fell down.&quot; As the police descended onto the scene, onlookers <a href="https://web.archive.org/web/20120618134815/http://www.myfoxny.com/story/18794152/police-shoot-woman-in-brooklyn">were yelling, &quot;Murderer! Murderer!&quot; to the police</a>. Others <a href="https://web.archive.org/web/20120618134815/http://newyork.cbslocal.com/2012/06/15/tensions-rising-as-investigation-of-fatal-police-involved-shooting-of-unarmed-woman-continues/">disputed the police&apos;s version of event</a>, &quot;She did not try to put no car in reverse. They were already on her, she had nowhere to go.&#x201D;</p>
+
+<p>The owner of the Camry had reported it stolen in a gunpoint-carjacking on June 5 in the same precinct (the 67th).  The police added that the attempted murder incident Davis was accused of involved <a href="https://web.archive.org/web/20120618134815/http://www.nytimes.com/2012/06/15/nyregion/woman-shot-by-police-in-brooklyn-after-car-crash.html?ref=nyregion">Davis and two others allegedly shooting</a> a man four times during a home invasion.</p>
+
+<p>The Detectives&apos; Endowment Association president Michael Palladino said, &quot;Based on the facts and circumstances, I am confident our detective&#x2019;s actions were appropriate and justified.&quot;</p>

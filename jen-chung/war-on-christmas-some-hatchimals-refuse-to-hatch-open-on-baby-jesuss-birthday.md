@@ -1,0 +1,44 @@
+---
+author: Jen Chung
+date: Dec 28, 2016 4:15 pm
+title: War On Christmas: Some Hatchimals Refuse To Hatch Open On Baby Jesus's Birthday
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2016_12_hatch1.jpg" src="https://web.archive.org/web/20171016014415im_/http://gothamist.com/attachments/jen/2016_12_hatch1.jpg" width="640" height="504"> <br> <i> The freaking Hatchimal (SpinMaster)</i></div> <p></p>
+
+<p>Did you look at social media on Christmas Day and notice that your breeder friends were posting photos of their kids with some weird toy that the parents, I mean, SANTA managed to bring? Well, that was the Hatchimal, this <a href="https://web.archive.org/web/20171016014415/https://www.bloomberg.com/news/articles/2016-11-18/hatchimal-mania-how-a-60-egg-conquered-the-holiday-toy-market">season&apos;s hottest toy</a> and a magical creature that children can hatch by rubbing and holding its egg. See kids, the miracle of artificial life! Unfortunately, some parents/Santa proxies who shelled out beaucoup bucks for the thing are angry because the Hatchimal never hatched.</p>
+
+<p>Hatchimals retail for $60, but, <a href="https://web.archive.org/web/20171016014415/http://www.denverpost.com/2016/12/18/tips-to-find-hatchimal/">with low supply</a>, prices were in the $200-range on Amazon leading up to Christmas (<a href="https://web.archive.org/web/20171016014415/https://www.amazon.com/s/ref=nb_sb_noss_2?url=search-alias%3Daps&amp;field-keywords=hatchimal">they&apos;re now $135-200</a>). Even a NY Times bestselling novelist got in on the action, <a href="https://web.archive.org/web/20171016014415/https://www.washingtonpost.com/news/morning-mix/wp/2016/12/07/how-huge-is-the-holiday-craze-for-hatchimal-toys-one-author-bought-20000-worth-of-them/?utm_term=.a8544a58e436">buying up 150 of them to raise money</a> to help fund an &quot;innocent man&apos;s&quot; defense fund. Which is probably why some parents were pissed off that the pricy gifts <a href="https://web.archive.org/web/20171016014415/http://www.nydailynews.com/news/world/parents-enraged-in-demand-holiday-gift-hatchimals-article-1.2926611">weren&apos;t hatching as promised</a>.</p>
+
+<p>The hatching is the most fraught part of the process&#x2014;in my house, there was about 45 minutes of this:</p>
+
+<p><iframe width="640" height="360" src="https://web.archive.org/web/20171016014415if_/https://www.youtube.com/embed/TphuArku6T0" frameborder="0" allowfullscreen></iframe></p>
+
+<p>All over Twitter and Facebook, there are complaints to manufacturer Spin Master <a href="https://web.archive.org/web/20171016014415/https://www.facebook.com/SpinMaster/posts/1338430269554460?comment_id=1342437565820397&amp;comment_tracking=%7B%22tn%22%3A%22R0%22%7D">like</a>, &quot;Hatchimal ruined Christmas. Got two for my twin [nieces], one hatched and the other did not. One excited little girl dancing around, one crying for hours as her egg never hatched. Now can&apos;t get Spinmaster on phone. There [<em>sic</em>] customer service has a message and then disconnects. Never another Spinmater toy will I buy.&quot; <a href="https://web.archive.org/web/20171016014415/https://www.facebook.com/SpinMaster/posts/1338430269554460?comment_id=1340143159383171&amp;comment_tracking=%7B%22tn%22%3A%22R9%22%7D">And</a>: &quot;Ours also not hatching and no customer service on the day you KNEW these kids would be opening them. What a horrible customer experience.&quot;</p>
+
+<center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">my dad has been on hold with the hatchimal company for over an hour because Tarah&apos;s hatchimal won&apos;t hatch &#x1F602;</p>&#x2014; tyler (@tylerloftin_) <a href="https://web.archive.org/web/20171016014415/https://twitter.com/tylerloftin_/status/813883990570663936">December 27, 2016</a></blockquote>
+<script async src="//web.archive.org/web/20171016014415js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr"><a href="https://web.archive.org/web/20171016014415/https://twitter.com/hashtag/Hatchimals?src=hash">#Hatchimals</a> won&apos;t hatch all of the excitement just to be let down <a href="https://web.archive.org/web/20171016014415/https://t.co/vFLnLRxwyn">pic.twitter.com/vFLnLRxwyn</a></p>&#x2014; Jordan Seals (@WarJseals) <a href="https://web.archive.org/web/20171016014415/https://twitter.com/WarJseals/status/813192177367056384">December 26, 2016</a></blockquote> <script async src="//web.archive.org/web/20171016014415js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">Daughter&apos;s Christmas joy turns into tears/Hatchimal won&apos;t hatch! <a href="https://web.archive.org/web/20171016014415/https://twitter.com/SpinMaster">@SpinMaster</a> who is unreachable <a href="https://web.archive.org/web/20171016014415/https://twitter.com/hashtag/hatchimalfail?src=hash">#hatchimalfail</a> <a href="https://web.archive.org/web/20171016014415/https://twitter.com/hashtag/hatchimaldud?src=hash">#hatchimaldud</a> <a href="https://web.archive.org/web/20171016014415/https://twitter.com/hashtag/wasteofmoney?src=hash">#wasteofmoney</a></p>&#x2014; Ginger Christie (@gchristie3) <a href="https://web.archive.org/web/20171016014415/https://twitter.com/gchristie3/status/813507864706895872">December 26, 2016</a></blockquote>
+<script async src="//web.archive.org/web/20171016014415js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<p>Spin Master replied to Facebook complaints, asking dissatisfied customers to DM them, <a href="https://web.archive.org/web/20171016014415/https://www.facebook.com/SpinMaster/posts/1340223419375145">and said today</a>:</p><blockquote>Spin Master is committed to making life more fun for children around the world with all of our products. <p></p>
+
+<p>While the vast majority of children have had a magical experience with Hatchimals, we have also heard from consumers who have encountered challenges. We are 100% committed to bringing the magic of Hatchimals to all of our consumers. To ensure all queries receive a timely response, we have increased the number of Consumer Care representatives, extended our hours, and increased the capacity for callers in the queue to help prevent calls dropped due to the holiday volume. We have also created troubleshooting tips on Hatchimals.com and <a href="https://web.archive.org/web/20171016014415/https://youtu.be/didliyZclcQ">a video</a> with the Top 5 Things To Know About Hatchimals.</p>
+
+<p>We are committed to doing everything possible to resolve any consumer issues. We sincerely apologize and thank everyone who is experiencing an issue for their patience.<br>
+Spin Master&#x2019;s Consumer Care team can be reached at customercare@spinmaster.com.</p></blockquote>Once the Hatchimal hatches (and you really need to yank it out of the plastic egg), the child can take care of it and watch it grow from a baby to toddler and finally a kid, unlocking different features along the way. The Hatchimal can also return to its baby state to be raised through the other stages again. <p></p>
+
+<p><a href="https://web.archive.org/web/20171016014415/https://www.bloomberg.com/news/articles/2016-11-18/hatchimal-mania-how-a-60-egg-conquered-the-holiday-toy-market">An analyst told Bloomberg News</a> that it was a great toy because it fits very well in a 30-second commercial, but other than that...: &quot;It&apos;s cool, it&apos;s interesting, it&apos;s got great technology, and it&apos;s clever. But is it fun? Eh. It&apos;s fun the first time. Is it fun after that? I don&apos;t see it having a lot of longevity. I see them racing to get it to stores because they probably know the life cycle on this.&quot; </p>
+
+<p>Before disappointing children(&apos;s parents), Spin Master also posted this gif of <a href="https://web.archive.org/web/20171016014415/https://www.youtube.com/watch?v=Kineq2b2bKY&amp;feature=youtu.be&amp;list=PLykzf464sU9-sNay4YcoYTiJbqexim4RH">Jimmy Fallon showing</a> another way to hatch a Hatchimal:</p>
+
+<p><img src="https://web.archive.org/web/20171016014415im_/https://media.giphy.com/media/3oz8xZPBxdWcl9ZbIA/source.gif" width="640"></p>
+
+<p>A NY Post columnist suggests Hatchimals <a href="https://web.archive.org/web/20171016014415/http://nypost.com/2016/12/03/hatchimals-could-have-a-worrying-side-effect-on-your-child/">will hinder children&apos;s developmental skills</a>, but I figure the iPad has already done most of the damage, so whatever!</p>					
+										
+									
+				

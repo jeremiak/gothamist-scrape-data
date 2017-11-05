@@ -1,0 +1,30 @@
+---
+author: Jen Chung
+date: Apr 10, 2014 5:05 pm
+title: Will NY Give 'Late Show' Millions In Tax Breaks To Stay In NYC?
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2014_03_jimmystephen.jpg" src="https://web.archive.org/web/20150509173221im_/http://gothamist.com/attachments/jen/2014_03_jimmystephen.jpg" width="640" height="452"> <br> <i> Jimmy Fallon and Stephen Colbert on The Tonight Show</i></div> <p></p>
+
+<p>Now that Stephen Colbert is <a href="https://web.archive.org/web/20150509173221/http://gothamist.com/2014/04/10/stephen_colbert_late_show.php">officially taking over <em>Late Show</em> from David Letterman</a> next year, another guessing game begins: Will the show stay in New York or will it head to Los Angeles?</p>
+
+<p>When Letterman <a href="https://web.archive.org/web/20150509173221/http://gothamist.com/2014/04/03/david_letterman_retiring.php">announced his retirement</a> last week, mayors on both coasts started to lobby CBS CEO Les Moonves. <a href="https://web.archive.org/web/20150509173221/http://www.washingtonpost.com/national/la-mayor-quickly-vies-for-lettermans-late-show/2014/04/04/6efe1ba8-bbb5-11e3-80de-2ff8801f27af_story.html">LA Mayor Eric Garcetti wrote</a> to Moonves that he wanted &quot;to encourage you to bring CBS&#x2019; next late night show to our city &#x2014; the entertainment capital of the world.&quot;</p>
+
+<p>This week, <a href="https://web.archive.org/web/20150509173221/http://www.capitalnewyork.com/article/media/2014/04/8543543/colbert-succeed-letterman-new-york">Mayor de Blasio told reporters</a>, &quot;I had a very good conversation yesterday with the man who will actually make that decision, Les Moonves, and I emphasized that New York has been an extraordinary home for the Late Show and that we think it&#x2019;ll be a great home for the Late Show going forward. And I&#x2019;m hopeful that that&#x2019;s what will come to pass.&quot;</p>
+
+<center><blockquote class="twitter-tweet" lang="en"><p>Congrats <a href="https://web.archive.org/web/20150509173221/https://twitter.com/StephenAtHome">@StephenAtHome</a>. Hope this means you&apos;re staying in New York!</p>&#x2014; Bill de Blasio (@BilldeBlasio) <a href="https://web.archive.org/web/20150509173221/https://twitter.com/BilldeBlasio/statuses/454334400998936577">April 10, 2014</a></blockquote>
+<script async src="//web.archive.org/web/20150509173221js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<p>The Tonight Show returned to NYC this year <a href="https://web.archive.org/web/20150509173221/http://gothamist.com/2014/02/17/the_tonight_show_returns_to_nyc_aft.php">after a 42-year stint in LA</a>, and NY State gave the production a reported $20 million in tax credits. <a href="https://web.archive.org/web/20150509173221/http://www.nydailynews.com/entertainment/tv-movies/exclusive-tentative-state-budget-jimmy-fallon-tax-credit-article-1.1295513">According to the Daily News</a>, heres how the credit language was phrased in the state budget:</p><blockquote>The provision would make state tax credits available for the producers of &#x201C;a talk or variety program that filmed at least five seasons outside the state prior to its first relocated season in New York,&#x201D; budget documents show.<p></p>
+
+<p>In addition, the episodes &#x201C;must be filmed before a studio audience&#x201D; of at least 200 people. And the program must have an annual production budget of at least $30 million or incur at least $10 million a year in capital expenses.</p></blockquote>The Late Show has been filming in NYC since it started in 1993: The Ed Sullivan Theater <a href="https://web.archive.org/web/20150509173221/http://www.nytimes.com/1993/08/18/theater/polishing-a-quirky-setting-for-letterman.html">was renovated for Letterman</a>, and a CBS executive said, &quot;There was a lot of hidden decay. We had to replace every pipe, every wire in the building. There was more asbestos than I ever thought. We had a stream running through the basement. There was a terrible rat problem.&quot;<p></p>
+
+<p>It&apos;s possible that NY State and NYC would be open to extending the credit to the Late Show&#x2014;it&apos;s often mentioned that the shows provide jobs, attract tourism and help promote the city. But E.J. McMahon, head of The Empire Center for Public Policy, thinks it&apos;s a bad idea; <a href="https://web.archive.org/web/20150509173221/http://www.foxnews.com/entertainment/2014/02/22/tonight-show-getting-20-million-tax-break/">commenting on The Tonight Show&apos;s rich perks, he said</a>, &quot;We&apos;re going to change our tax policy &#x2014; in the heaviest-taxed city and state in the country &#x2014; to get another late night show in Manhattan? Even the money that they bring is a rounding error in the New York City economy... Other industries don&apos;t get 30 percent credit. It&apos;s because it&apos;s a glamorous industry.&quot; </p>
+
+<p><a href="https://web.archive.org/web/20150509173221/http://www.crainsnewyork.com/article/20140410/BLOGS01/140419987/tax-breaks-for-colbert-whats-your-plan-mr-mayor">Crain&apos;s Greg David argues that offering tax credits</a> to The Late Show is the same as offering them to Fresh Direct, which de Blasio is again. Of course, CBS will have to decide what they want to do: Move to LA and cede NYC to NBC late night completely&#x2014;or stay in NYC to remain competitive, and keep a 12:35 a.m. show out in LA.</p>
+
+<p>Colbert is a Montclair, NJ resident. He&apos;s very <a href="https://web.archive.org/web/20150509173221/http://www.nj.com/entertainment/index.ssf/2014/04/montclair_film_festival_2014.html">involved with the community</a> and reportedly <a href="https://web.archive.org/web/20150509173221/http://www.nytimes.com/2012/01/08/magazine/stephen-colbert.html?pagewanted=all">&quot;extremely normal&quot;</a> there.</p>					
+										
+									
+				

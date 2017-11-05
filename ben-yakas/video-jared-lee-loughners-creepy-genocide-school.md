@@ -1,0 +1,9 @@
+---
+author: Ben Yakas
+date: January 15, 2011  4:20 PM
+title: Video: Jared Lee Loughner's Creepy "Genocide School"
+---
+
+<p>Among the many unnerving details that emerged this week about Arizona gunman <a href="https://web.archive.org/web/20110412175258/http://gothamist.com/2011/01/08/democratic_congresswoman_gabrielle.php">Jared Lee Loughner</a>, who is accused of killing six and wounding 14 others <a href="https://web.archive.org/web/20110412175258/http://gothamist.com/2011/01/08/democratic_congresswoman_gabrielle.php">last weekend</a> during an apparent assassination attempt on Rep. Gabrielle Giffords, was <a href="https://web.archive.org/web/20110412175258/http://gothamist.com/2011/01/13/tucson_suspects_ex_thinks_their_bre.php">a report of</a> a video he made denouncing Pima Community College as a death camp, which ultimately got him suspended. <a href="https://web.archive.org/web/20110412175258/http://gawker.com/5734512/new-jared-loughner-youtube-video-this-is-my-genocide-school?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+gawker%2Ffull+%28Gawker%29">Gawker found</a> the video, in which Loughner bitterly narrates a trip around his college campus. At one point, he says, &quot;<strong>This is the school that I go to. This is my genocide school, where I&apos;m going to be homeless because of this school. I haven&apos;t forgot the teacher that gave me the B for freedom of speech.</strong>&quot; You can see the video below.</p>
+
+<p><object width="480" height="385"><param name="movie" value="http://www.youtube.com/v/LN3GCZKmX7Q?fs=1&amp;hl=en_US"><param name="allowFullScreen" value="true"><param name="allowscriptaccess" value="always"><embed src="https://web.archive.org/web/20110412175258oe_/http://www.youtube.com/v/LN3GCZKmX7Q?fs=1&amp;hl=en_US" type="application/x-shockwave-flash" allowscriptaccess="always" allowfullscreen="true" width="480" height="385"></object></p>

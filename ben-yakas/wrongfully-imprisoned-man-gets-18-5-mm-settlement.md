@@ -1,0 +1,15 @@
+---
+author: Ben Yakas
+date: Oct 20, 2010 4:50 pm
+title: Wrongfully Imprisoned Man Gets $18.5 MM Settlement
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:250px; "> <img alt="102010newton.gif" src="https://web.archive.org/web/20150430030320im_/http://gothamist.com/attachments/byakas/102010newton.gif" width="250" height="333"> <br> <i>(The Innocence Project)</i></div> Alan Newton <a href="https://web.archive.org/web/20150430030320/http://gothamist.com/2006/07/06/guilty_for_21_y.php">served</a> over 21 years in prison for a rape, robbery and assault he didn&apos;t commit, before DNA evidence exonerated him in 2006. Yesterday, he was awarded $18.5 million by a jury for his wrongful imprisonment, one of the largest ever amounts awarded for wrongful imprisonment in NYC. &#x201C;It hasn&#x2019;t really sunk in. It&#x2019;s so emotional. It&#x2019;s something I&#x2019;ve been fighting for the last four years, since I came home. I&#x2019;m just glad things worked out at the end of the day,&#x201D; he told <a href="https://web.archive.org/web/20150430030320/http://www.nytimes.com/2010/10/20/nyregion/20award.html?_r=1&amp;ref=nyregionhttp://www.nypost.com/p/news/local/manhattan/to_cleared_rape_rap_prisoner_BPymwNYgpoVW6mol74aP2J?CMP=OTC-rss&amp;FEEDNAME=">the Times</a>.<p></p>
+
+<p>Newton&apos;s cause had been taken up by <a href="https://web.archive.org/web/20150430030320/http://www.innocenceproject.org/">The Innocence Project</a>, which works on cases &quot;where postconviction DNA testing of evidence can yield conclusive proof of innocence.&quot; The jury <a href="https://web.archive.org/web/20150430030320/http://www.msnbc.msn.com/id/39760576/ns/us_news-crime_and_courts/">ruled</a> that the city had violated Newton&apos;s constitutional rights, and found two police officers liable for intentional infliction of emotional distress for failing to produce Mr. Newton&#x2019;s evidence when requested. Newton had asked for DNA evidence in 1994, 1997 and 1998; the Innocence Project was only able to get it in 2005. The Innocence Project <a href="https://web.archive.org/web/20150430030320/http://gothamist.com/tags/innocenceproject">has helped exonerate</a> a number of people in NYC in the last decade, including a former postal worker who spent 18 years in prison for a murder <a href="https://web.archive.org/web/20150430030320/http://gothamist.com/2010/06/04/city_pays_record_99_million_to_man.php">he didn&apos;t commit</a>.</p>
+
+<p>Since being released from prison, Newton, 49, spent two years as a full-time student at Medgar Evers College in Brooklyn completing his degree; now he works as a research associate at the Black Male Initiative of the City University of New York, and plans on applying to law school. &#x201C;I want to work with people that really need that legal assistance that&#x2019;s just not there for them. There are so many issues where people need competent counsel, and it&#x2019;s just not out there. I think I&#x2019;ll jump into it with both arms.&quot;</p>					
+										
+									
+				

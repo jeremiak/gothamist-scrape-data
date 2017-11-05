@@ -1,0 +1,15 @@
+---
+author: Ben Yakas
+date: Oct 6, 2010 5:20 pm
+title: Westchester Pol Sues Over "Racist" Claims
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:250px; "> <img alt="10610russell.jpg" src="https://web.archive.org/web/20160122174614im_/http://gothamist.com/attachments/byakas/10610russell.jpg" width="250" height="167"> <br> <i>via Jim Russell&apos;s <a href="https://web.archive.org/web/20160122174614/http://www.jimrussell2010.com/">website</a></i></div> Westchester Republican Jim Russell didn&apos;t take too kindly to some of the phrases and words that were bandied about when <a href="https://web.archive.org/web/20160122174614/http://gothamist.com/2010/09/22/racist_westchester_politician_cross.php">his writings on race and religion</a> were uncovered and publicized by the media a couple weeks ago. He wasn&apos;t happy when a <a href="https://web.archive.org/web/20160122174614/http://gothamist.com/2010/09/23/westchester_pol_hasnt_read_his_raci.php">save-face interview</a> went very badly. And he wasn&apos;t happy that <a href="https://web.archive.org/web/20160122174614/http://gothamist.com/2010/09/25/westchester_pol_caught_at_white_sup.php">one reporter alleged</a> that she saw him at a white supremacist rally in 2007. So he decided to sue.<p></p>
+
+<p>Russell is seeking $9 million in damages, $1 million from the nine people named in the lawsuit, which includes several journalists and Republican politicians. He claims they smeared his name and undermined his candidacy in the press and on television. &quot;We will not tolerate this. <strong>We will not tolerate political correctness being imposed upon us</strong>,&quot; <a href="https://web.archive.org/web/20160122174614/http://www.lohud.com/article/20101006/NEWS01/10060322/Russell-sues-journalists-GOP-leaders">he said at a press conference</a> in White Plains. Russell lost the Republican nomination for 18th Congressional District because of his writings, which appeared in The Occidental Quarterly, a journal classified as a hate group, in 2001; much of the reportage around the scholarly paper depicted Russell as racist. <a href="https://web.archive.org/web/20160122174614/http://www.politico.com/blogs/maggiehaberman/0910/Nita_Lowey_rival_wrote_antiintegration_racially_charged_essay_.html">Politico said</a> his writings, &quot;have frowned on inter-racial marriage and movies like &quot;Save the Last Dance,&quot; touted the benefits of studies linking race to IQ and said parents need to teach their kids &quot;appropriate ethnic boundaries&quot; for marriage and socializing.&quot;</p>
+
+<p>The people named in the lawsuit are Journal News columnist Phil Reisman, reporter Leah Rae and political cartoonist Matt Davies; John Goff of News 12, Richard French of RNN, Justin Elliott of Salon.com, Douglas Colety of the Westchester Republican Party, Alexander Carey of the state Republican Party and Mark Weitzman of the Simon Wiesenthal Center. </p>					
+										
+									
+				

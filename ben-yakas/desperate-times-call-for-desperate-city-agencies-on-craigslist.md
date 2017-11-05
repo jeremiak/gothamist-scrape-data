@@ -1,0 +1,7 @@
+---
+author: Ben Yakas
+date: October 23, 2009  5:49 PM
+title: Desperate Times Call For Desperate City Agencies on Craigslist
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2009_10_doe.jpg" src="https://web.archive.org/web/20130309092918im_/http://gothamist.com/attachments/jen/2009_10_doe.jpg" width="80" height="74" class="image-right"> </span>Things are getting hairy for the NY Department of Education&apos;s pre-kindergarten program, so in their time of need they&apos;ve turned to the proverbial port in the storm, Craigslist. Last year, the D.O.E. wasn&apos;t able to fill over 3,000 seats in the early education program, and forfeited $35 million in funding. Next Friday, October 31, marks the deadline for the D.O.E. to fill 5,400 seats this year, including 900 for full day programs, or lose millions in state funding again. So the D.O.E. has put up ad&apos;s on <a href="https://web.archive.org/web/20130309092918/http://newyork.craigslist.org/que/kid/1434266850.html">Craigslist</a> to try to reach parents, among <a href="https://web.archive.org/web/20130309092918/http://www.nydailynews.com/ny_local/education/2009/10/23/2009-10-23_education_department_desperate_to_fill_prek_classes_posts_kid_recruitment_ad_on_.html">other last minute ideas</a>. </p>

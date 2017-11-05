@@ -1,0 +1,39 @@
+---
+author: Jen Chung
+date: Dec 3, 2014 10:15 am
+title: Video: Knicks Security Drags Nets Fan Out Of MSG Without His Prosthetic Leg
+---
+
+	
+										<p>Forget for a moment that the <a href="https://web.archive.org/web/20150510011339/http://gothamist.com/2014/12/02/knicks_power_rankings_streaking_in.php">Knicks are awful</a> and lost last night to the Nets, 98-93. Let&apos;s focus on how Madison Square Garden security carried out a Nets super fan without his prosthetic leg.  <a href="https://web.archive.org/web/20150510011339/https://twitter.com/Jeigs">Jesse Eigner</a> filmed security dragging the man, and maybe even dropping him:</p>
+
+<center><blockquote class="instagram-media" data-instgrm-captioned="" data-instgrm-version="4" style=" background:#FFF; border:0; border-radius:3px; box-shadow:0 0 1px 0 rgba(0,0,0,0.5),0 1px 10px 0 rgba(0,0,0,0.15); margin: 1px; max-width:658px; padding:0; width:99.375%; width:-webkit-calc(100% - 2px); width:calc(100% - 2px);"><div style="padding:8px;"> <div style=" background:#F8F8F8; line-height:0; margin-top:40px; padding:50% 0; text-align:center; width:100%;"> <div style=" background:url(data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAACwAAAAsCAMAAAApWqozAAAAGFBMVEUiIiI9PT0eHh4gIB4hIBkcHBwcHBwcHBydr+JQAAAACHRSTlMABA4YHyQsM5jtaMwAAADfSURBVDjL7ZVBEgMhCAQBAf//42xcNbpAqakcM0ftUmFAAIBE81IqBJdS3lS6zs3bIpB9WED3YYXFPmHRfT8sgyrCP1x8uEUxLMzNWElFOYCV6mHWWwMzdPEKHlhLw7NWJqkHc4uIZphavDzA2JPzUDsBZziNae2S6owH8xPmX8G7zzgKEOPUoYHvGz1TBCxMkd3kwNVbU0gKHkx+iZILf77IofhrY1nYFnB/lQPb79drWOyJVa/DAvg9B/rLB4cC+Nqgdz/TvBbBnr6GBReqn/nRmDgaQEej7WhonozjF+Y2I/fZou/qAAAAAElFTkSuQmCC); display:block; height:44px; margin:0 auto -44px; position:relative; top:-22px; width:44px;"></div></div> <p style=" margin:8px 0 0 0; padding:0 4px;"> <a href="https://web.archive.org/web/20150510011339/https://instagram.com/p/wIK-sKBvGr/" style=" color:#000; font-family:Arial,sans-serif; font-size:14px; font-style:normal; font-weight:normal; line-height:17px; text-decoration:none; word-wrap:break-word;" target="_top">crazy ejection of nets fan with prosthetic leg at #msg @nyknicks</a></p> <p style=" color:#c9c8cd; font-family:Arial,sans-serif; font-size:14px; line-height:17px; margin-bottom:0; margin-top:8px; overflow:hidden; padding:8px 0 7px; text-align:center; text-overflow:ellipsis; white-space:nowrap;">A video posted by jeigs (@jeigs) on <time style=" font-family:Arial,sans-serif; font-size:14px; line-height:17px;" datetime="2014-12-03T02:23:48+00:00">Dec 12, 2014 at 6:23pm PST</time></p></div></blockquote>
+<script async defer src="//web.archive.org/web/20150510011339js_/http://platform.instagram.com/en_US/embeds.js"></script></center>
+
+<center><blockquote class="twitter-tweet" lang="en"><p>Only in NY will a fan remove his leg to stop security from kicking him out (it didn&apos;t stop them). <a href="https://web.archive.org/web/20150510011339/https://twitter.com/hashtag/Knicks?src=hash">#Knicks</a> <a href="https://web.archive.org/web/20150510011339/https://twitter.com/hashtag/MSG?src=hash">#MSG</a> <a href="https://web.archive.org/web/20150510011339/http://t.co/dIZwVBmGJk">pic.twitter.com/dIZwVBmGJk</a></p>&#x2014; Eric Soufer (@EricSoufer) <a href="https://web.archive.org/web/20150510011339/https://twitter.com/EricSoufer/status/539968210221948928">December 3, 2014</a></blockquote>
+<script async src="//web.archive.org/web/20150510011339js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<p><a href="https://web.archive.org/web/20150510011339/http://www.netsdaily.com/2014/12/2/7325183/nets-fan-gamblero-brooklyn-neon-leg-ejected-madison-square-garden">According to Nets Daily</a>, &quot;If you&apos;ve been to a Nets game at the Barclays Center, you probably know Jeffrey Gamblero. He is the guy in the Nets&apos; jersey, wearing neon usually, and glasses dancing around the lower level of the stadium. He is a positive influence on the game and is well received by most of the people attending the game. Well, clearly Madison Square Garden wasn&apos;t to happy to see Gamblero get excited about his beloved Nets playing well.&quot;</p>
+
+<p>Security apparently claimed that Gamblero, who has been <a href="https://web.archive.org/web/20150510011339/http://www.nytimes.com/2014/11/03/sports/basketball/brooklyn-nets-wear-black-but-their-most-visible-fan-dresses-in-neon.html">profiled in the NY Times</a>, was removed because he hit someone with his prosthetic leg, but that was disputed:</p>
+
+<center><blockquote class="twitter-tweet" lang="en"><p><a href="https://web.archive.org/web/20150510011339/https://twitter.com/KennyDucey">@KennyDucey</a> I was a few rows behind him. No one near saw him swing his leg at anyone. He was just being loud.</p>&#x2014; +1 (@plusonemusic) <a href="https://web.archive.org/web/20150510011339/https://twitter.com/plusonemusic/status/539985953541349377">December 3, 2014</a></blockquote>
+<script async src="//web.archive.org/web/20150510011339js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center> 
+
+<p>Another fan told <a href="https://web.archive.org/web/20150510011339/http://thebrooklyngame.com/nets-super-fan-jeffrey-gamblero-dragged-msg-without-prosthetic-leg/">The Brooklyn Game</a>:</p><blockquote>After halftime a guard came up and told him to &quot;cool down and just be a fan.&quot; Obviously didn&apos;t know who he was. He said what did I do wrong? Should I be quiet? They said no, just cool it down. He started loudly cheering FOR the Knicks doing &quot;go New York go New York go,&quot; etc. The guards came back and told him to stop. He said why? Is this a library?<p></p>
+
+<p>Then the main guard on the floor gave the signal to kick him out. He would not leave. A guard then touched his leg and he said &quot;ouch you&apos;re hurting me I have a prosthetic leg.&quot; He then took off the leg, which is when things escalated.</p>
+
+<p>More and more guards surrounded him as he watched the game with his leg resting on his shoulder. They tried to get him to put his leg on, threatened to arrest him if he wouldn&apos;t, but he wasn&apos;t moving.</p>
+
+<p>He started saying &quot;why are you doing this I just love basketball so much,&quot; he was clearly overwhelmed.</p>
+
+<p>After about ten minutes, four guards grabbed him and carried him out as he screamed in pain.</p></blockquote>The Brooklyn Game <a href="https://web.archive.org/web/20150510011339/http://thebrooklyngame.com/nets-super-fan-jeffrey-gamblero-dragged-msg-without-prosthetic-leg/">also has additional video</a>. And Eigner wrote:<p></p>
+
+<center><blockquote class="twitter-tweet" lang="en"><p>Here&apos;s a first-person account from <a href="https://web.archive.org/web/20150510011339/https://twitter.com/Jeigs">@jeigs</a>, who filmed the incident <a href="https://web.archive.org/web/20150510011339/http://t.co/Cz4gRXFbgo">pic.twitter.com/Cz4gRXFbgo</a></p>&#x2014; Kenny Ducey (@KennyDucey) <a href="https://web.archive.org/web/20150510011339/https://twitter.com/KennyDucey/status/540026446346199040">December 3, 2014</a></blockquote>
+<script async src="//web.archive.org/web/20150510011339js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<p>MSG says that Gamblero will never be allowed there again. Nets forward Alan Anderson <a href="https://web.archive.org/web/20150510011339/http://www.nydailynews.com/sports/basketball/nets/video-nets-fan-carried-msg-prosthetic-leg-article-1.2031201">told the Daily News</a>, &quot;I know he&#x2019;s a big fan. I just looked up and saw what happened, that he was carried out. I don&#x2019;t know what caused it. I know he&#x2019;s a big fan for us, though.&quot;</p>					
+										
+									
+				

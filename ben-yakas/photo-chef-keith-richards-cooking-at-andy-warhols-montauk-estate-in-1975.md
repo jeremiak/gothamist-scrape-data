@@ -1,0 +1,18 @@
+---
+author: Ben Yakas
+date: Sep 5, 2012 4:28 pm
+title: Photo: Chef Keith Richards Cooking At Andy Warhol's Montauk Estate In 1975
+---
+
+	
+										<p>There&apos;s nothing we love more than photos of rock stars doing domestic chores (such as <a href="https://web.archive.org/web/20150429001407/http://gothamist.com/2011/12/13/photo_iggy_pop_in_1980s_greenwich_v.php">Iggy Pop vacuuming his apartment</a>). And there&apos;s no rock star we love more than Keith Richards. The photo below, taken by Ken Regan in 1975, shows Keef cooking <a href="https://web.archive.org/web/20150429001407/http://guestofaguest.com/hamptons/montauk/70s-hamptons-glamor-the-eothen-estate-and-the-superstars-who-summered-there">in Andy Warhol&apos;s house in Montauk</a>, where the band were staying at various points that decade (they also started writing &quot;Memory Motel&quot; there). Montauk was cool long before <a href="https://web.archive.org/web/20150429001407/http://gothamist.com/2012/08/06/7_photos_that_deflate_hipsters_are.php#photo-1">the hipsters took over</a>.</p>
+
+<center><blockquote class="twitter-tweet"><p>Dig Keith in the kitchen, Montauk, Long Island, 1975 <a href="https://web.archive.org/web/20150429001407/http://t.co/YflofUQi" title="http://twitter.com/officialKeef/status/243342309985505280/photo/1">twitter.com/officialKeef/s&#x2026;</a></p>&#x2014; Keith Richards (@officialKeef) <a href="https://web.archive.org/web/20150429001407/https://twitter.com/officialKeef/status/243342309985505280" data-datetime="2012-09-05T13:38:23+00:00">September 5, 2012</a></blockquote>
+<script src="//web.archive.org/web/20150429001407js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<p>Among the other famous guests to stay at Warhol&apos;s five-home Eothen estate: Jackie Onasis, Lee Radziwill, Bianca Jagger, Jerry Hall, Liza Minelli, Liz Taylor, John Lennon, and John Phillips. There&apos;s been a lot of Rolling Stones news lately: they have <a href="https://web.archive.org/web/20150429001407/http://mojomagazine.tumblr.com/post/30870482858/the-rolling-stones-new-songs-on-50th-anniversary">a new greatest hits album</a> coming (with two new recordings), there&apos;s <a href="https://web.archive.org/web/20150429001407/http://artsbeat.blogs.nytimes.com/2012/08/30/a-new-rolling-stone-documentary-is-announced/">a new documentary</a> premiering on HBO in November, and they&apos;re rumored to be playing a few live shows to celebrate their 50th anniversary (<a href="https://web.archive.org/web/20150429001407/http://gothamist.com/2012/08/30/rolling_stones_to_play_barclays_cen.php">including two at the Barclays Center</a> in Brooklyn). </p>
+
+<p>For the most part, Richards&#x2014;the only man who could turn <a href="https://web.archive.org/web/20150429001407/http://gothamist.com/2010/12/08/keith_richards_killed_an_orchid.php">the New York Public Library into his own personal smoking den</a>&#x2014;has been relatively quiet since the release of his biography <em>Life</em> a few years ago. Recently, <em>Breaking Bad</em> creator <a href="https://web.archive.org/web/20150429001407/http://www.latimes.com/entertainment/tv/showtracker/la-et-st-vince-gilligan-breaking-bad-keith-richards-conan-20120808,0,4593854.story">Vince Gilligan revealed</a> that he&apos;d &quot;heard through the grapevine&quot; that Keef is a huge fan of <strike>blue meth</strike> the show.</p>					
+										
+									
+				

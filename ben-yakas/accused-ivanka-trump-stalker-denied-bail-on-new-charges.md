@@ -1,0 +1,19 @@
+---
+author: Ben Yakas
+date: Mar 23, 2011 11:08 am
+title: Accused Ivanka Trump Stalker Denied Bail On New Charges
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:250px; "> <img alt="32311starchaser.jpg" src="https://web.archive.org/web/20150402022145im_/http://gothamist.com/attachments/byakas/32311starchaser.jpg" width="250" height="157"> <br> <i>Justin Massler</i></div> The man who is accused of stalking Ivanka Trump was in court yesterday, where he pleaded not guilty to continuing to stalk her while out on bail for those very charges. <a href="https://web.archive.org/web/20150402022145/http://gothamist.com/tags/justinmassler">Justin Massler</a>, aka Cloud Starchaser, faces four counts of criminal contempt in addition to the stalking and harassment charges, and a judge ordered he take a psychiatric fitness exam. &quot;I should stop bothering her, but I like her,&quot; Massler, who gave his address as &quot;a volcano on Hawaii,&quot; <a href="https://web.archive.org/web/20150402022145/http://www.nypost.com/p/news/local/ivanka_lava_loon_stalker_N6vncDokaK4Xa3hcujvoTL?CMP=OTC-rss&amp;FEEDNAME=">told authorities</a> yesterday.<p></p>
+
+<p>After missing several court dates over the past year due to <a href="https://web.archive.org/web/20150402022145/http://gothamist.com/2011/02/05/accused_trump_stalker_its_all_like.php">a lack of funds</a>, Massler was <a href="https://web.archive.org/web/20150402022145/http://gothamist.com/2011/02/12/accused_trump_stalker_apprehended_i.php">arrested</a> in LA and extradited back to NY in February. He plead not guilty to the misdemeanor stalking charges last month, and was freed on $10,000 bail. At the time, he <a href="https://web.archive.org/web/20150402022145/http://articles.nydailynews.com/2010-04-05/gossip/27060833_1_ivanka-trump-e-mail-real-estate-mogul">told the News</a> that he wouldn&apos;t try to visit her again in person, but he wouldn&apos;t let go of the prospect of wooing her from afar: &quot;Instead, I&apos;ll become like a big-time millionaire, real estate mogul so that she&apos;s the one who contacts me. It will be more indirect, like, let the girls come to me.&quot; But the judge yesterday said he had continued a campaign of harassment, and was ordered held without bail.</p>
+
+<p>When we spoke to Massler last month, he told us that he viewed himself as a &quot;fake stalker&quot; and performance artist: &quot;To me, honestly, this is all like a game of make believe, and I&apos;m just tired of adults taking the world so seriously. I don&apos;t see the need to be so serious all the time.&quot; Massler&apos;s lawyer, George Vomvolakis, echoed that assessment of him, but <a href="https://web.archive.org/web/20150402022145/http://www.nypost.com/p/news/local/manhattan/terror_of_mNrPlSTeGIuqdha76Z1yQM">added that</a> his client needs profesional help: &quot;He&apos;s a highly intelligent individual with various mental issues he&apos;s been addressing his entire life.&quot; </p>
+
+<p>Many of the dallies have pointed to a <a href="https://web.archive.org/web/20150402022145/http://www.youtube.com/watch?v=OJzt2W0ZL9M">YouTube video</a> Massler made which blames aliens and Mothman for his current situation as proof of his mental instability (you can see the video below). But Massler told us what he thinks of those papers: &quot;<strong>The Daily News and the New York Post I feel like are written for a target audience mental retards</strong>.&quot;</p>
+
+<div style="text-align: center;"><iframe title="YouTube video player" width="640" height="390" src="https://web.archive.org/web/20150402022145if_/http://www.youtube.com/embed/OJzt2W0ZL9M" frameborder="0" allowfullscreen></iframe></div>					
+										
+									
+				

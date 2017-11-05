@@ -1,0 +1,29 @@
+---
+author: Ben Yakas
+date: May 22, 2013 6:06 PM
+title: Arrested Development Roundup: 10 Things You Need To Know
+---
+
+
+                            
+                            
+                            
+                            <p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="52213ad.jpeg" src="https://web.archive.org/web/20130820000454im_/http://gothamist.com/attachments/byakas/52213ad.jpeg" width="640" height="413" class="image-none"> </span></p>
+
+<p>We&apos;re mere days away from mainlining 15 new episode of <a href="https://web.archive.org/web/20130820000454/http://gothamist.com/tags/arresteddevelopment"><em>Arrested Development</em></a> directly into our brain veins via our eye syringes. Soon, we&apos;ll all know whether this years-in-the-making fan-driven campaign to bring back the most hilariously insular show of the &apos;00s was mind blue-ing, or the biggest little mistake of our lives. The <em>AD</em> promotional machine is up and running in full force right now, with tons of interviews, lists, and viral crap being eagerly consumed across the internet. Below, we&apos;ve rounded up the most important things you should know or check out:</p>
+
+<ul>
+<li>Creator Mitch Hurwitz <a href="https://web.archive.org/web/20130820000454/http://www.vulture.com/2013/05/mitch-hurwitz-dont-binge-watch-arrested-development.html">clarified some things</a> to Vulture about consuming the new season: you do have to watch them in order, and you probably shouldn&apos;t try to binge watch all 15 episodes in one go. &#x201C;Don&#x2019;t feel obligated to watch it all at once. It&#x2019;s a comedy! It&#x2019;s not like Lord of the Rings. Comedy takes a lot out of you.&#x201D;</li>
+	<li>Hurwitz <a href="https://web.archive.org/web/20130820000454/http://www.rollingstone.com/movies/news/arrested-development-creator-mitch-hurwitz-on-his-two-year-odyssey-to-revive-the-show-20130520#ixzz2Txmr8RZp">admitted to Rolling Stone</a> that the filming of these new episodes was kind of messy: &quot;We ended up with an eight-hour movie of Arrested Development where the pieces do kind of come together. Not only was the show told out of sequence, it was shot out of sequence. Half of the stuff is on green screen.&quot; He also gave the backstory on how the Netflix deal came to pass, and had this to say about the future: &quot;I can say, unequivocally, I want to do more with this show and with these people. Unequivocally. It&apos;s designed with a closure to it, but also with a lot of avenues open for things that I think will be compelling.&quot;</li>
+	<li>Star Jason Bateman <a href="https://web.archive.org/web/20130820000454/http://www.rollingstone.com/movies/news/arrested-development-star-jason-bateman-i-look-forward-to-playing-michael-bluth-many-more-times-20130521">told Rolling Stone</a> that he feels assured there will be more <em>Arrested Development</em> in the future, whether it&apos;s a movie, more TV episode, or both. &quot;I look forward to doing many, many more episodes or efforts, I guess. I don&apos;t know whether they&apos;re gonna be long form or short form, whatever. I&apos;m looking forward to playing Michael Bluth many, many more times.&quot;</li>
+	<li>The AV Club is celebrating with <a href="https://web.archive.org/web/20130820000454/http://www.avclub.com/channels/arrested-development-week/">&quot;Arrested Development Week,&quot;</a> including an interview with Michael Cera, 13 quotes to summarize reactions to the new episodes, and inept magicians in pop culture.</li>
+	<li><a href="https://web.archive.org/web/20130820000454/http://www.uproxx.com/tv/2013/05/burning-questions-for-a-netflix-exec-days-prior-to-the-arrested-development-premiere/">Uproxx spoke with</a> someone at Netflix, who assured them that Netflix won&apos;t crash when the new episodes are released on 12:01 a.m. pacific time on May 26th, 2013.</li>
+	<li>Grantland considered whether or not they are more <a href="https://web.archive.org/web/20130820000454/http://www.grantland.com/story/_/id/9299946/the-return-arrested-development">excited or nervous for new episodes.</a></li>
+	<li><a href="https://web.archive.org/web/20130820000454/http://artsbeat.blogs.nytimes.com/2013/05/21/jessica-walter-on-the-return-of-arrested-development/">Jessica Walter</a>, <a href="https://web.archive.org/web/20130820000454/http://artsbeat.blogs.nytimes.com/2013/05/20/the-final-countdown-jason-bateman-on-the-return-of-arrested-development/">Jason Bateman</a>, <a href="https://web.archive.org/web/20130820000454/http://artsbeat.blogs.nytimes.com/2013/05/22/will-arnett-on-the-return-of-arrested-development/">Will Arnett</a> and <a href="https://web.archive.org/web/20130820000454/http://artsbeat.blogs.nytimes.com/2013/05/21/jeffrey-tambor-on-the-return-of-arrested-development/">Jeffrey Tambor</a> all spoke to the NY Times. Tony Hale <a href="https://web.archive.org/web/20130820000454/http://www.rollingstone.com/movies/news/arrested-development-star-tony-hale-buster-lives-in-a-state-of-complete-fear-20130522">spoke to Rolling Stone</a>. </li>
+	<li>CNN tackled <a href="https://web.archive.org/web/20130820000454/http://www.cnn.com/2013/05/22/showbiz/arrested-development-return/index.html">the &quot;Cult of Arrested Development.&quot;</a> </li>
+	<li>Vulture looked at the origin stories behind <a href="https://web.archive.org/web/20130820000454/http://www.vulture.com/2013/05/arrested-development-jokes-blue-man-cornballer-mayonegg.html">six classic AD jokes.</a></li>
+	<li>And best of all, Steve Holt! (who is not in the new season, as far as we know) is throwing a party <a href="https://web.archive.org/web/20130820000454/http://www.tmz.com/2013/05/22/steve-holt-arrested-development-party/">to watch the new episodes.</a></li>
+</ul>
+                            
+                            
+                            

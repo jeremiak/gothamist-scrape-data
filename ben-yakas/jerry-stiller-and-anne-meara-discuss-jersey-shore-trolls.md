@@ -1,0 +1,9 @@
+---
+author: Ben Yakas
+date: September 29, 2010  3:35 PM
+title: Jerry Stiller and Anne Meara Discuss Jersey Shore Trolls
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="92910stiller.jpg" src="https://web.archive.org/web/20110811104159im_/http://gothamist.com/attachments/byakas/92910stiller.jpg" width="200" height="113" class="image-left"> </span>Here at Gothamist, we love all things <a href="https://web.archive.org/web/20110811104159/http://gothamist.com/tags/seinfeld"><em>Seinfeld</em></a>. And we especially love all things Frank Costanza, whether it&apos;s cute <a href="https://web.archive.org/web/20110811104159/http://gothamist.com/2010/08/31/video_frank_costanza_visiting_astor.php">old-man odysseys</a> to Queens or real-life stories of <a href="https://web.archive.org/web/20110811104159/http://gothamist.com/2009/12/23/happy_festivus_everyone.php">Festivus</a>. So we were happy to learn that his son, Ben Stiller, has started a new online video series starring his father and mother, Anne Meara, where the two plan on &quot;talking about stuff.&quot; </p>
+
+<p>In the premiere <a href="https://web.archive.org/web/20110811104159/http://video.yahoo.com/network/102532345">video</a> of the series, the &quot;first time&quot; they&apos;ve been on the internet, the long-married couple talk about Facebook and whether updates on periods are TMI. And in the one below, they discuss <a href="https://web.archive.org/web/20110811104159/http://gothamist.com/tags/jerseyshore"><em>Jersey Shore</em></a>, and suggest that someone should pitch in and buy The Situation a full-length shirt.</p>

@@ -1,0 +1,19 @@
+---
+author: Ben Yakas
+date: Sep 19, 2012 5:29 pm
+title: Waterboarding And Degradation: Binghamton University Hazing Revealed
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="91912hazing.jpeg" src="https://web.archive.org/web/20160214102204im_/http://gothamist.com/attachments/byakas/91912hazing.jpeg" width="640" height="427"> <br> <i> Binghamton University</i></div> <p></p>
+
+<p>Earlier this summer, Columbia University&apos;s Interfraternal Council <a href="https://web.archive.org/web/20160214102204/http://gothamist.com/2012/05/13/notorious_sigma_alpha_epsilon_anima.php">approved notorious fraternity</a> Sigma Alpha Epsilon (SAE) to return to the university for the first time since 1961&#x2014;the move came even as a scathing expose <a href="https://web.archive.org/web/20160214102204/http://www.rollingstone.com/culture/news/confessions-of-an-ivy-league-frat-boy-inside-dartmouths-hazing-abuses-20120328">was printed in Rolling Stone</a> about some of the horrible frat hijinks at Dartmouth. <a href="https://web.archive.org/web/20160214102204/http://gothamist.com/tags/hazing">Hazing</a> has been accepted all over the country as a part of frat culture though&#x2014;the latest reports come from <a href="https://web.archive.org/web/20160214102204/http://www.nytimes.com/2012/09/19/nyregion/amid-hazing-at-binghamton-university-cries-for-help.html?hp&amp;pagewanted=all">students at upstate Binghamton University, who have been complaining</a> about being waterboarded and degraded as part of their initiation rituals. </p>
+
+<p><a href="https://web.archive.org/web/20160214102204/http://www.nytimes.com/2012/09/19/nyregion/amid-hazing-at-binghamton-university-cries-for-help.html?hp&amp;pagewanted=all">The Times reports that</a> the school is dealing with a ton of complaints from last year still, all of which reveal an ugly portrait of fraternity life: &#x201C;I was hosed, waterboarded, force-fed disgusting mixtures of food, went through physical exercises until I passed out, and crawled around outside in my boxers to the point where my stomach, elbows, thighs and knees are filled with cuts, scrapes and bruises,&#x201D; one student wrote in an anonymous email. </p>
+
+<p>There&apos;s the student who&apos;d come home at 4 a.m. with gashes and cuts on his hands and elbows that reopened daily; the student who came home with a shaved head and injuries from running barefoot on a bed of rocks; there was one student who texted his father that he was forced to stand out in the cold in his underwear and was prevented from sleeping for prolonged periods of time. There were reports of students being forced to eat vomit off of each other; and there were reports of nightly hazing involving &#x201C;rigorous exercise, alcohol consumption, paddling and &#x2018;waterboarding&#x2019; where the pledges were being hosed down,&#x201D; a police report said. Some even got pneumonia from the waterboarding.</p>
+
+<p>For now, the school has suspended pledging and induction at all fraternities and sororities, but it doesn&apos;t sound like any of the systemic problems with the fraternity lifestyle have been addressed&#x2014;partially because no one will come forward, and cops can&apos;t enter the building where occupants have &quot;a lot of attitude and very little cooperation.&quot; Sgt. Michael Senio gave an idea of what was going on there: &#x201C;I can only speculate what was going on, but we could see the basement, which was like a disgusting-looking dark dungeon with hoses and standing water on the ground.&#x201D;</p>					
+										
+									
+				

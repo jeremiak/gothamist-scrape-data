@@ -1,0 +1,35 @@
+---
+author: Jen Chung
+date: Nov 17, 2014 10:07 am
+title: NYC First Lady's Chief Of Staff Rachel Noerdlinger Takes Leave Of Absence
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="100314rachel.jpg" src="https://web.archive.org/web/20160205200919im_/http://gothamist.com/attachments/nyc_arts_john/100314rachel.jpg" width="640" height="398"> <br> <i> (AP)</i></div> <p></p>
+
+<p>Mayor de Blasio&apos;s office released a statement this morning from First Lady Chirlane McCray&apos;s chief of staff Rachel Noerdlinger, announcing that she is taking a &quot;leave of absence to spend more time with my son.&quot; Noerdlinger added, &quot;These past two months have been extremely difficult for both of us, and his arrest on Friday heightens the need for me to devote my full attention to Khari, my number one priority.&quot;</p>
+
+<p>Khari Noerdlinger was arrested on Friday for &quot;hanging out in the lobby of a West 164th Street building with three pals &#x2014; and a bottle of Hennessy cognac &#x2014; when cops with the NYPD&#x2019;s Manhattan Gang Unit arrived in response to a report of men loitering,&quot; <a href="https://web.archive.org/web/20160205200919/http://nypost.com/2014/11/15/embattled-de-blasio-aides-son-arrested-on-trespassing-charges/">according to the Post&apos;s police sources.</a> </p>
+
+<p><a href="https://web.archive.org/web/20160205200919/http://www.nydailynews.com/news/politics/rachel-noerdlinger-son-booked-trespassing-charge-article-1.2012318">The Daily News quotes a building manager:</a> &quot;They were smoking marijuana and drinking. There were two blunts and a big bottle of Hennessy.&quot; Noerdlinger and three others were charged with criminal trespass (two others were also charged with marijuana possession). </p>
+
+<p><a href="https://web.archive.org/web/20160205200919/http://www.nydailynews.com/news/politics/rachel-noerdlinger-son-booked-trespassing-charge-article-1.2012318">The News spoke</a> to the NYCLU&apos;s Donna Lieberman who &quot;quickly questioned the arrest, saying it was another example of how the NYPD &apos;treats young people of color as suspects and disregards their constitutional rights when they aren&#x2019;t doing anything wrong. It takes a long time to change, and we still have a lot of work to do,&apos; she said.&quot;</p>
+
+<p>Khari Noerdlinger&apos;s arrest, one of <a href="https://web.archive.org/web/20160205200919/http://gothamist.com/2014/10/29/broken_windows_nypd.php">tens of thousands of low-level arrests that affect young teenagers of color every year</a> in New York City, was seemingly the final misstep the de Blasio administration could bear in their war against the police unions, the tabloids, and the portion of the city&apos;s establishment who saw Noerdlinger as a proxy for the Rev. Al Sharpton. </p>
+
+<p>Before becoming chief of staff to de Blasio&apos;s <a href="https://web.archive.org/web/20160205200919/http://www.nytimes.com/2013/12/04/nyregion/at-de-blasios-city-hall-expect-an-outsize-role-for-his-wife.html?pagewanted=all&amp;_r=0">&quot;most important advisor,&quot;</a> Noerdlinger was active in social justice issues, leading her own media consulting company, Noerdlinger Media, and as executive VP of communications for Sharpton&#x2019;s National Action Network. Her strong ties to Sharpton made her an important figure in the Mayor&apos;s inner circle, enabling him to parry criticism concerning the NYPD, which was especially important after the <a href="https://web.archive.org/web/20160205200919/http://gothamist.com/2014/07/20/nypd_strips_badge_gun_from_cop_invo.php"> chokehold death of Eric Garner</a>. Noerdlinger personal life <a href="https://web.archive.org/web/20160205200919/http://gothamist.com/2014/10/03/gothamist_exclusive_city_hall.php">became news in September</a> when it was reported that her boyfriend, Hassaun McFarlan, was imprisoned for manslaughter when he was 15, and also wrote incredibly offensive comments about black women on a blog in 2011. </p>
+
+<p>Noerdlinger also <a href="https://web.archive.org/web/20160205200919/http://www.nydailynews.com/new-york/rachel-noerdlinger-face-disciplinary-action-indicating-ex-con-boyfriend-background-check-article-1.1962978">failed to disclose</a> that McFarlan was her live-in boyfriend during her background check, and did not disclose a tax lien on her house in New Jersey. McFarlan also <a href="https://web.archive.org/web/20160205200919/http://www.nytimes.com/2014/10/18/nyregion/boyfriend-of-new-york-city-hall-aide-cites-her-to-fight-tickets.html">used Noerdlinger&apos;s status</a> to try and get out of a handful of parking tickets. </p>
+
+<p><a href="https://web.archive.org/web/20160205200919/http://nypost.com/2014/11/17/rachel-noerdlinger-called-to-gracie-mansion-after-sons-arrest/">The Post reports that Noerdlinger</a> &quot;spent more than an hour behind closed doors in Gracie Mansion on Sunday&quot; but de Blasio&apos;s mayoral spokesperson Phil Walzak said it was a scheduled meeting and &quot;insisted that evening and weekend meetings &apos;aren&#x2019;t uncommon.&apos;&quot; Her leave of absence will <a href="https://web.archive.org/web/20160205200919/https://twitter.com/epngo/status/534358418820464640">reportedly</a> be unpaid.</p>
+
+<p>Here&apos;s Noerdlinger&apos;s statement: </p><blockquote>&quot;Today I am announcing that I have decided to take a leave of absence to spend more time with my son. These past two months have been extremely difficult for both of us, and his arrest on Friday heightens the need for me to devote my full attention to Khari, my number one priority.<br>
+ <br>
+&#x201C;I am profoundly thankful for Bill and Chirlane&#x2019;s unwavering support over the last few months. I can handle criticism and scrutiny of me, even when it&apos;s mean-spirited&#x2014;that comes with the territory when you take on the status quo. But increasingly, my son has been subjected to attacks that have nothing to do with the public interest, and everything to do with derailing this administration. I do not want to be a distraction&#x2014;the work at hand is far too urgent.<br>
+ <br>
+&#x201C;As someone who has spent my entire adult life working to advance social justice, I am so proud of everything the de Blasio administration has already accomplished. Although I may be taking a leave of absence from my position, I remain a proud member of New York&#x2019;s progressive movement.<br>
+ <br>
+&#x201C;Thank you to everyone who has helped me weather this difficult period&#x2014;your kindness means more than you will ever know, and I look forward to fighting for social justice on behalf of New Yorkers once I feel my pressing obligations to my son have been met.&#x201D;</blockquote>Rebecca Katz, who is special advisor to Mayor de Blasio, said, &#x201C;The Mayor and First Lady thank Rachel for her service. She has been a great asset to the administration and the people of New York City over the past year, and everyone wishes her all the best during her leave.&#x201D;<p></p>					
+										
+									
+				

@@ -1,0 +1,15 @@
+---
+author: Ben Yakas
+date: Apr 5, 2010 4:51 pm
+title: Local Dems Take Aim At "Judas" Perkins
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="4510perkins.jpg" src="https://web.archive.org/web/20160310113256im_/http://gothamist.com/attachments/byakas/4510perkins.jpg" width="220" height="153" class="image-left"> </span>Who needs enemies when you have political allies! Several allies of Gov. Paterson and Sen. Charlie Rangel are gearing up to challenge and oust <a href="https://web.archive.org/web/20160310113256/http://www.nysenate.gov/senator/bill-perkins">Sen. Bill Perkins</a>, another fellow Democrat. Perkins, who currently holds Paterson&apos;s former senate seat, drew the ire of local party bosses because he turned on Paterson during the <a href="https://web.archive.org/web/20160310113256/http://gothamist.com/2010/03/26/governor_david_paterson_was_intimat.php">Sherr-una Booker domestic violence scandal</a>, <a href="https://web.archive.org/web/20160310113256/http://gothamist.com/2010/02/25/allies_turning_on_paterson_in_wake.php">saying</a> he didn&apos;t think Paterson should run for re-election (Perkins also spoke of <a href="https://web.archive.org/web/20160310113256/http://gothamist.com/2010/03/04/do_you_suffer_from_scandal_fatigue.php">&quot;scandal fatigue,&quot;</a> and questioned the fairness of the reporting on Paterson).</p>
+
+<p>But some Harlem Democrats now view Perkins with biblical fury:<strong> &quot;It&apos;s on the level of Judas. He&apos;s for himself and not for the team</strong>...We would love to get him out of there because he&apos;s driving us crazy,&quot; one anonymous pol told Elizabeth Benjamin of <a href="https://web.archive.org/web/20160310113256/http://www.nydailynews.com/news/2010/04/05/2010-04-05_harlem_pol_called_a_judas_dave_rangel_want_to_oust_perkins.html">the Daily News</a> (This isn&apos;t the only <a href="https://web.archive.org/web/20160310113256/http://gothamist.com/2010/04/02/video_rep_rangels_judas_lesson.php">Judas</a> that&apos;s been thrown out by Dems recently, either). Perkins angered the <a href="https://web.archive.org/web/20160310113256/http://gothamist.com/2010/03/04/rangel_might_reconsider_running_for.php">embattled</a> Rangel by refusing to rule out a run for his seat in congress. </p>
+
+<p>Three young party members&#x2014;Rodney Capel, Larry Scott Blackmon and Basil Smikle&#x2014;are all being floated as possible candidates to run for Perkins central Harlem seat, although Perkins &quot;is popular with constituents, well-known in the district and had a campaign war chest of $77,224 as of mid-January.&quot; But the fury of the anonymous source will not be abated: <strong>&quot;We were under attack...When the media&apos;s after a black leader, we sort of close ranks. ..It&apos;s an unwritten rule.&quot;</strong></p>					
+										
+									
+				

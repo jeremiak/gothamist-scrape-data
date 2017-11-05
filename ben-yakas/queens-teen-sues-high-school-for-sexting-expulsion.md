@@ -1,0 +1,13 @@
+---
+author: Ben Yakas
+date: June  9, 2011  6:50 PM
+title: Queens Teen Sues High School For "Sexting" Expulsion
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="6911sexting.jpg" src="https://web.archive.org/web/20110611050044im_/http://gothamist.com/attachments/byakas/6911sexting.jpg" width="250" height="188" class="image-left"> </span>A Queens high schooler who says he was unfairly kicked out for &quot;sexting&quot; <a href="https://web.archive.org/web/20110611050044/http://www.nydailynews.com/ny_local/2011/06/09/2011-06-09_family_sues_after_queens_teen_booted_from_catholic_high_school_accused_of_sextin.html">is suing his</a> Catholic high school to let him back in. Joseph Farley&apos;s family filed suit against <a href="https://web.archive.org/web/20110611050044/http://www.ctkrhs.org/">Christ the King Regional High School</a> today&#x2014;they say an assistant principal allegedly dragged him out of chemistry class and demanded his phone. Five days after he refused, he was booted. And while Farley&apos;s parents don&apos;t deny that their son sexted, they allege that it&apos;s not his fault:</p>
+
+<p>&quot;The unknown basis of the expulsion is most likely predicated on false statements made to the school by a lying daughter seeking to avoid her mother&apos;s wrath and the vindictive mother who takes her daughter&apos;s insubordination out on her daughter&apos;s boyfriends,&quot; Brenda Farley wrote in court papers. Farley says that the mom of the ex-girlfriend complained to school officials that he still had lewd images of her daughter on his phone, which led to the incident in the chemistry class. </p>
+
+<p>Farley said that in November last year, the girl&apos;s mother showed up at her home demanding that her son stop dating her daughter, ostensibly prompted by the photos. &quot;Once I learned of the pictures, I made certain that my son deleted them from his phone,&quot; she said. She also says assuredly that her son didn&apos;t send the photos to anyone else, and that other than violating school dress code by having a pierced ear, he&apos;s never been in trouble at school. As a result of all this, her son has suffered deeply she claims: &quot;In the meantime, my son no longer attends the school of his choice, for that school chose to expel him for a reason still unknown to us &#x2026;My son wants to become an engineer. His expulsion may jeopardize his plans.&quot;</p>
+
+<p>All of this makes one thing explicitly clear: Anthony Weiner <a href="https://web.archive.org/web/20110611050044/http://gothamist.com/2011/06/07/weiner_messaged_vegas_sext_partner.php">really, truly</a> is an overgrown high schooler.</p>

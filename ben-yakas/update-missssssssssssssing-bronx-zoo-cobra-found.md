@@ -1,0 +1,15 @@
+---
+author: Ben Yakas
+date: Mar 31, 2011 4:55 pm
+title: UPDATE: Missssssssssssssing Bronx Zoo Cobra FOUND!
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="033111cobra.jpg" src="https://web.archive.org/web/20150908012053im_/http://gothamist.com/attachments/byakas/033111cobra.jpg" width="300" height="201" class="image-left"> </span>It&apos;s been a long and harrowing six days of <em>Cobra Watch 2011: Asp-ergers Syndrome&#x2014;Escape From Bronx Zoo!</em>, but the <a href="https://web.archive.org/web/20150908012053/http://gothamist.com/tags/egyptiancobra">vigilante cobra</a> who left a city paralyzed with fear has now been found! Wildlife Conservation Society officials are expected to announce that they have recovered the 20-inch long Egyptian cobra that escaped last Friday, a source <a href="https://web.archive.org/web/20150908012053/http://www.myfoxny.com/dpp/news/source-bronx-zoo-cobra-found-20110331-akd">told Fox 5</a>. <strong>[Update Below]</strong></p>
+
+<p>Officials previously said they believed the cobra hadn&apos;t gotten very far, and was somewhere inside the Reptile House. That didn&apos;t stop the cobra from making a <a href="https://web.archive.org/web/20150908012053/http://gothamist.com/2011/03/31/missing_cobra_still_missing_but_eve.php">celebrity tour</a> of NYC over the past days, gaining over 200,000 followers on Twitter, waiting with bated breath for her every pun. In her <a href="https://web.archive.org/web/20150908012053/http://twitter.com/BronxZoosCobra/status/53519598603091968">last tweet</a>, she implied she was checking out the Yankees on opening day: &quot;If you see a bag of peanuts inexplicably moving along the ground at Yankee Stadium today. Just ignore it. It&apos;s probably nothing.&quot; It&apos;s too bad she was found, since she was just starting to gain some steam in her <a href="https://web.archive.org/web/20150908012053/https://www.facebook.com/pages/Bronx-Zoos-Cobra-to-Host-SNL/199221483443273?sk=wall">Facebook petition</a> to host SNL. </p>
+
+<p><strong>UPDATE</strong>: The snake was in fact <em>not</em> found on a plane&#x2014;Bronx Zoo officials held a <a href="https://web.archive.org/web/20150908012053/http://abclocal.go.com/wabc/story?section=news/local/new_york&amp;id=8045678">press conference</a> this afternoon, saying the cobra had never left the House of Reptiles, and was found by workers just after 9 a.m. this morning. Workers said it wasn&apos;t hard to capture her, and she is now under observation. Either her name hasn&apos;t been given, or she has no name as of yet&#x2014;you can expect some sort of naming contest in the near future in that case. As of 5 p.m., there have been no new updates from <a href="https://web.archive.org/web/20150908012053/http://twitter.com/BronxZoosCobra">@BronxZoosCobra</a>, which may spell the end for one of the great Twitterists of <strike>our generation</strike> the last three days.</p>					
+										
+									
+				

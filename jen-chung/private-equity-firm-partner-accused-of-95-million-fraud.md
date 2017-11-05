@@ -1,0 +1,19 @@
+---
+author: Jen Chung
+date: Mar 28, 2016 4:40 pm
+title: Private Equity Firm Partner Accused Of $95 Million Fraud
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-right"> <img alt="2016_03_andrewcaspersen.jpg" src="https://web.archive.org/web/20160904030804im_/http://gothamist.com/attachments/jen/2016_03_andrewcaspersen.jpg" width="241" height="250"> <br> <i style=" width:241px; ;display:block"> (LinkedIn)</i></div> An executive at a private equity firm was charged today with defrauding clients of $95 million with fake investments. U.S. Attorney Preet Bharaha said of Andrew Capersen, &quot;To advance his $95 million fraud scheme, Caspersen allegedly put on a shameful charade&#x2014;creating fake email addresses, setting up misleading domain names, and inventing fictional financiers.  When confronted by a suspicious client who had invested $25 million, Caspersen had no good answers.&quot;<p></p>
+
+<p>Caspersen, 39, was a partner at the Park Hill Group, which had been part of Blackstone (and which scrubbed Caspersen&apos;s bio <a href="https://web.archive.org/web/20160904030804/http://webcache.googleusercontent.com/search?q=cache:http://parkhillgroup.com/leadership/andrew-caspersen/">from the website</a>; here&apos;s the <a href="https://web.archive.org/web/20160904030804/http://webcache.googleusercontent.com/search?q=cache:http://parkhillgroup.com/leadership/andrew-caspersen/">cached page</a>). According to the U.S. Attorney&apos;s office, his scheme took place from &quot;at least July 2015 through March 2016,&quot; as Caspersen claimed to be able to conduct investment deals with another private equity firm &quot;and that investors&#x2019; funds would be invested in a secured loan to an investment firm, when in fact no such security existed and no such investments were made.&quot; </p>
+
+<p>Further, Caspersen then allegedly used investors&apos; funds ($24.6 million from a hedge fund&apos;s charitable foundation and $400,000 from the hedge fund employee overseeing the charitable foundation&apos;s investments) to make trades on his personal brokerage account. Of course, prosecutors say things got complicated when Caspersen, after allegedly losing millions due to his own risky trades, tried to ask for more money. </p>
+
+<p>The hedge fund employee wanted to speak with another party involved, and the U.S. Attorney&apos;s office said that Caspersen gave an e-mail address; the investor &quot;later learned that the domain name for the Email Address had been registered on March 7, just twenty minutes after [the investor] requested a telephone call with Individual-3, and that the domain name for the Email Address was not the same as the domain name associated with the real Firm-1.  Individual-1 also subsequently learned that a representative of Individual-1&#x2019;s employer had called Firm-1&#x2019;s New York office and been told that no one with Individual-3&#x2019;s name worked at Firm-1.&quot; You can read more in the SEC&apos;s complaint (<a href="https://web.archive.org/web/20160904030804/http://www.courthousenews.com/2016/03/28/caspersensec.pdf">PDF</a>).</p>
+
+<p>Caspersen, who went to Princeton and Harvard Law, was charged with securities and wire fraud. His father, Finn Casperson, <a href="https://web.archive.org/web/20160904030804/http://www.nytimes.com/2009/09/16/business/16suicide.html">killed himself in 2009</a> while <a href="https://web.archive.org/web/20160904030804/http://www.nytimes.com/2009/09/16/business/16suicide.html">apparently being investigated for tax evasion</a>; from the NY Times: &quot;The authorities had asserted he might have owed as much as $100 million in back taxes and fines or, possibly, even have faced prison.&quot;</p>					
+										
+									
+				

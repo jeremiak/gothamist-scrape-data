@@ -1,0 +1,17 @@
+---
+author: Ben Yakas
+date: Sep 2, 2012 12:00 pm
+title: Penis-Sucking Mohels Fight City's "Evil Decree" To Inform Parents About Circumcision Ritual
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left"> <img alt="201206_circumcision.jpg" src="https://web.archive.org/web/20150429103818im_/http://gothamist.com/attachments/garth/201206_circumcision.jpg" width="365" height="333"> <br> <i style=" width:365px; ;display:block"> A Jewish circumcision being performed (<a href="https://web.archive.org/web/20150429103818/http://en.wikipedia.org/wiki/File:Covenant_of_Abraham.JPG">WikiCommons</a>)</i></div> Despite the fact that <a href="https://web.archive.org/web/20150429103818/http://gothamist.com/2012/06/07/circumcision_sucking_gave_11_nyc_bo.php">at least 11 NYC boys have been infected with herpes</a> from herpes-infested mohels who have insisted on performing the ancient circumcision ritual &quot;metzitzah b&#x2019;peh,&quot; ultra-Orthodox leaders <a href="https://web.archive.org/web/20150429103818/http://www.nypost.com/p/news/local/circumcisers_kiss_of_death_S20ek2gmCGjA5432IvveMI?utm_medium=rss&amp;utm_content=Local">are fighting the Health Department&apos;s &#x201C;evil plans&#x201D;</a> to mandate parental-consent forms before performing the procedure. About 200 rabbis signed a proclamation claiming the city &#x201C;printed and spread lies...in order to justify their evil decree. It is clear to us, that there is not even an iota of blame or danger in this ancient and holy custom,&#x201D; the letter states. Except for those 11 boys with herpes. And the two <a href="https://web.archive.org/web/20150429103818/http://gothamist.com/2012/03/08/rabbis_circumcision_death_investiga.php">who died</a> from it.<p></p>
+
+<p>&quot;Metzitzah b&#x2019;peh&quot; is the practice of sucking the blood from a just snipped foreskin in traditional Jewish circumcisions. Most modern mohels use a sterile pipette to do so, but some Orthodox parents insist on the ancient tradition. The city will vote next week whether mohels <a href="https://web.archive.org/web/20150429103818/http://gothamist.com/2012/07/24/rabbis_pry_these_foreskins_from_our.php">will have to distribute consent waivers</a>, detailing the herpes risk, before the ritual. </p>
+
+<p>But even if it passes, many rabbis will not comply: &#x201C;For the government to force a rabbi who&#x2019;s practicing a religious act to tell his congregants it&#x2019;s dangerous is totally unacceptable,&#x201D; Rabbi David Niederman, executive director of the United Jewish Organization of Williamsburg, told The Post. &#x201C;You&#x2019;re forcing the mohel and the parent to sign a piece of paper that contradicts their religious convictions.&#x201D;</p>
+
+<p>&#x201C;It warns parents that the city suggests a link between the practice and serious health worries, [and] it would undoubtedly have a chilling impact,&#x201D; said Michael Tobman, a political consultant working with several large Hasidic communities. So in other words, the forms are bad because it could make parents stop and think for a moment about the decision whether to let a mohel such as <a href="https://web.archive.org/web/20150429103818/http://gothamist.com/2012/03/14/authorities_investigating_herpes_mo.php">Rabbi Yitzchok Fischer</a>&#x2014;who was given a court order to stop performing the practice after he was found to have infected at least three boys with herpes&#x2014;put his mouth on their child&apos;s penis? </p>					
+										
+									
+				

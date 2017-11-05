@@ -1,0 +1,15 @@
+---
+author: Ben Yakas
+date: Aug 27, 2010 1:27 pm
+title: New Report Claims NYPD Pressured To Manipulate Crime Stats
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="82710cops.jpg" src="https://web.archive.org/web/20141230035059im_/http://gothamist.com/attachments/byakas/82710cops.jpg" width="240" height="150" class="image-left"> </span>Earlier this year, Officer Adrian Schoolcraft of Brooklyn&apos;s 81st Precinct <a href="https://web.archive.org/web/20141230035059/http://gothamist.com/2010/02/02/cops_comes_forward_says_crime_stati.php">accused</a> NYPD commanding officers of massively under-reporting crime stats. In return, he was sent to a psych ward, suspended and discredited (and subsequently is <a href="https://web.archive.org/web/20141230035059/http://gothamist.com/2010/08/23/real-life_serpico_sues_nypd_for_tos.php">suing the city</a> for $50 million). But he may have more evidence to support his claims with the release of a new FBI-sponsored report that will accuse the NYPD of juking the stats to make the city appear safer.</p>
+
+<p>The <a href="https://web.archive.org/web/20141230035059/http://www.nydailynews.com/ny_local/2010/08/27/2010-08-27_brass_pressuring_cops_to_keep_down_crime_stats_report.html">study</a>, to be unveiled today by criminologists John Eterno of Molloy College and Eli Silverman of John Jay College, surveyed more than 309 police officers, most of whom have served as precinct commanders since the department started using the CompStat program in the mid-&apos;90s. More than half admitted to massaging the numbers. The criminologists blame top-down pressure: &quot;It&apos;s putting people in an unreasonable position. The public needs to understand that crime can fluctuate,&quot; said Silverman. He also faulted the over-reliance on CompStat: &quot;It needs to be less number-driven. You can&apos;t just measure [cities] by their crime rate.&quot;</p>
+
+<p>Along with the report, the criminologists will also release recordings they obtained from several roll calls that they say capture supervisors telling officers not to take reports of robberies unless the victim is willing to go to the stationhouse. Those tapes sound very similar in nature to ones <a href="https://web.archive.org/web/20141230035059/http://gothamist.com/2010/05/05/brooklyn_cops_secret_recordings_rel.php">made by Schoolcraft</a> that have been partially released by the Village Voice over the last months. Appropriately, in <a href="https://web.archive.org/web/20141230035059/http://www.villagevoice.com/2010-08-25/news/nypd-tapes-5-the-corroboration/">this week&apos;s edition</a>, the Voice features police officers from other precincts who corroborate Schoolcraft&apos;s story of stat pressure and manipulation, and made their own secret recordings to document wrongdoings with numbers in their precincts. </p>					
+										
+									
+				

@@ -1,0 +1,35 @@
+---
+author: Jen Chung
+date: Apr 21, 2016 1:50 pm
+title: Kelly Ripa "Blindsided" And "Betrayed" By Michael Strahan's Departure From "Live"
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2016_04_kelly.jpg" src="https://web.archive.org/web/20161108041057im_/http://gothamist.com/attachments/jen/2016_04_kelly.jpg" width="640" height="499"> <br> <i> Kelly Ripa and Michael Strahan in 2015, when Ripa was getting a star on the Hollywood Walk of Fame (Getty Images)</i></div> <p></p>
+
+<p>Details are surfacing about the &quot;Live&quot; debacle involving beloved TV personality Kelly Ripa and the surprising news that her <em>Live</em> co-host Michael Strahan is jumping ship to <em>Good Morning America</em>. Ripa called in sick yesterday, and <a href="https://web.archive.org/web/20161108041057/http://pagesix.com/2016/04/20/kelly-ripa-having-total-meltdown-over-strahan-betrayal/">one source explained</a>, &quot;Kelly didn&#x2019;t want to show up to work and mouth off and say something she would have regretted. She is upset and didn&#x2019;t want to take it out on her own staff.&quot;</p>
+
+<p><a href="https://web.archive.org/web/20161108041057/http://money.cnn.com/2016/04/20/media/kelly-ripa-michael-strahan/">Another source told CNN</a>, &quot;She is beyond angry. Beyond.&quot;</p>
+
+<p>On Tuesday morning, <a href="https://web.archive.org/web/20161108041057/https://twitter.com/GMA/status/722445781534433280">ABC announced</a> that Super Bowl champion Strahan would be moving to <em>GMA</em> full-time, <a href="https://web.archive.org/web/20161108041057/http://gothamist.com/2012/09/04/yes_michael_strahan_is_kelly_ripas.php">four years after joining <em>Live</em></a> in a highly-publicized co-host search (which <a href="https://web.archive.org/web/20161108041057/http://gothamist.com/2012/03/07/pat_kiernans_dreams_come_true_on_li.php">included Pat Kiernan</a>), and two years after joining <em>GMA</em> as a twice-a-week contributor. ABC News president James Goldston praised Strahan for being a &quot;tireless and versatile broadcaster with an incredible ability to connect with people,&quot; adding that &quot;he will help us drive forward into a very exciting future.&quot; <a href="https://web.archive.org/web/20161108041057/http://www.tmz.com/2016/04/20/kelly-ripa-michael-strahan-live">TMZ reports</a> that apparently Disney (which owns ABC) CEO Bob Iger told Strahan not to tell Ripa about the plans. The entire transition has been terribly executed on Disney&apos;s behalf.</p>
+
+<p>Ripa apparently only found out about Strahan&apos;s decision moments before the public announcement, after <em>Live</em> aired on Tuesday, and had previous concerns about this happening. <a href="https://web.archive.org/web/20161108041057/http://www.nytimes.com/2016/04/21/business/media/kelly-ripas-absence-from-live-points-up-rancor-at-abc.html?hp&amp;action=click&amp;pgtype=Homepage&amp;clickSource=story-heading&amp;module=mini-moth&amp;region=top-stories-below&amp;WT.nav=top-stories-below">From the NY Times</a>:</p><blockquote>He began as an on-air correspondent for &#x201C;Good Morning America&#x201D; two years ago, a decision that Ms. Ripa expressed concerns about at the time, according to the person. Ms. Ripa was worried it would distract him from &#x201C;Live&#x201D; but was reassured it would only be a temporary position.<p></p>
+
+<p>Mr. Strahan continued to appear on the morning show, and ABC executives recently decided that bringing him into the &#x201C;Good Morning America&#x201D; lineup could help stem the ratings drop.</p>
+
+<p>After &#x201C;Live&#x201D; ended on Tuesday morning, Ms. Ripa was called to a meeting along with the show&#x2019;s longtime producer, Michael Gelman, and the WABC general manager, Dave Davis (the show is produced by WABC, and it is distributed by ABC and Disney&#x2019;s syndication group). She did not know the purpose of the meeting.</p>
+
+<p>After a 20-minute wait, Mr. Strahan entered the room and broke the news that he was leaving. It wasn&#x2019;t long before tensions flared.</p>
+
+<p>&#x201C;Didn&#x2019;t I tell you this was going to happen?&#x201D; Ms. Ripa said to Mr. Davis at the meeting, according to the person. &#x201C;I told you two years ago this was going to happen.&#x201D;</p></blockquote>ABC said that Ripa would be out through Tuesday; Friday and Monday were pre-scheduled absences to <a href="https://web.archive.org/web/20161108041057/http://www.eonline.com/news/758625/kelly-ripa-and-mark-consuelos-heading-to-turks-and-caicos-for-family-vacation-amid-live-shake-up">celebrate her 20th wedding anniversary</a>. A source told the Post, &quot;She didn&#x2019;t show up for work and isn&#x2019;t taking anyone&#x2019;s calls.&quot;<p></p>
+
+<p>TMZ claims, &quot;We&apos;re told Kelly and Michael don&apos;t get along. Our sources say she feels he&apos;s disrespectful to her and is full of himself. Apparently Michael often rolls with an entourage and it doesn&apos;t sit well with her.&quot; At the end of yesterday&apos;s Ripa-less show, Strahan talked about the switch (which will happen in September) and added, &quot;Kelly, I thank you, I love you.&quot;</p>
+
+<p>There&apos;s also reportedly tension with the <em>GMA</em> team: <a href="https://web.archive.org/web/20161108041057/http://www.thedailybeast.com/articles/2016/04/20/why-was-kelly-ripa-was-a-no-show-at-abc-s-live-this-morning.html">The Daily Beast reports,</a> &quot;While Strahan is said to be very well liked by the GMA staff and talent&#x2014;and co-hosts Robin Roberts and George Stephanopoulos, and news reader Amy Robach posted tweets warmly welcoming him as a fulltime colleague after Tuesday&#x2019;s announcement&#x2014;they are reportedly chafing at the notion that Strahan is being publicly positioned as GMA&#x2019;s savior.&quot; <a href="https://web.archive.org/web/20161108041057/http://money.cnn.com/2016/04/20/media/kelly-ripa-michael-strahan/">There&apos;s speculation</a> that by adding Strahan, ABC News wants to create a third hour of <em>GMA</em> to go head to head with the <em>Today</em> show; currently <em>Live</em> airs from 9 a.m. to 10 a.m.</p>
+
+<p>Ripa&#x2014;<a href="https://web.archive.org/web/20161108041057/http://www.tmz.com/2016/04/21/kelly-ripa-michael-strahan-abc-live-vacation/#ixzz46TfebtgC">who appeared with</a> Malcolm Gladwell&apos;s &quot;David And Goliath&quot;&#x2014;is reportedly vacationing with family in Turks and Caicos, where hopefully she&apos;s channeling her <a href="https://web.archive.org/web/20161108041057/http://gothamist.com/2015/03/12/watch_kelly_ripa_get_ripped_on_broa.php"><em>Broad City</em> alter-ego</a>:</p>
+
+<p><img src="https://web.archive.org/web/20161108041057im_/https://49.media.tumblr.com/a436c1697ab016611dbee96b86b6ace7/tumblr_nl6kc5U7qB1sh0yuao1_500.gif" width="640"></p>					
+										
+									
+				

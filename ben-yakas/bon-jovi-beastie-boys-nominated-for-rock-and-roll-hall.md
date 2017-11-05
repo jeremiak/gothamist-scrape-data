@@ -1,0 +1,11 @@
+---
+author: Ben Yakas
+date: September 29, 2010  3:01 PM
+title: Bon Jovi, Beastie Boys Nominated For Rock and Roll Hall
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="92910hallfame.jpg" src="https://web.archive.org/web/20110412160116im_/http://gothamist.com/attachments/byakas/92910hallfame.jpg" width="200" height="200" class="image-left"> </span>The Rock and Roll Hall of Fame <a href="https://web.archive.org/web/20110412160116/http://www.nypost.com/p/news/national/hall_nominees_rock_N6F5p7bcuDtp3OPCHGtb7N?CMP=OTC-rss&amp;FEEDNAME=">announced</a> the newest nominees for its 2011 induction ceremony in the lost city of Cleveland, Ohio. Among the 15 artists nominated are NYC scientist-rappers the <a href="https://web.archive.org/web/20110412160116/http://gothamist.com/tags/beastieboys">Beastie Boys</a>, NJ&apos;s second son <a href="https://web.archive.org/web/20110412160116/http://gothamist.com/tags/bonjovi">Bon Jovi</a>, Kurt Weilian crooner Tom Waits, chicken-enthusiast Alice Cooper, vanilla hippie Donovan, and Jewish Elvis Neil Diamond. </p>
+
+<p>Also nominated are <em>NCIS</em> star LL Cool J, coke/Disco party band Chic, commercial jingle writers J Geils Band, Queen of Disco Donna Summer, New Orleans funkster Dr. John, perennial backup singer Darlene Love, NYC singer-songwriter Laura Nyro, rap-precursor Joe Tex and <strike>schitzophrenic head-basher Wesley Willis</strike> blues rocker Chuck Willis. (There&apos;s always next year, Wesley) </p>
+
+<p>The induction ceremony will take place on March 14. The Hall of Fame will also have a special <a href="https://web.archive.org/web/20110412160116/http://www.rttnews.com/Content/EntertainmentNews.aspx?Section=2&amp;Id=1429072&amp;SM=1">John Lennon birthday tribute</a> on Friday Oct. 8. Now the obligatory question: is the Rock and Roll Hall of Fame <a href="https://web.archive.org/web/20110412160116/http://abcnews.go.com/Entertainment/story?id=108078&amp;page=1">lame</a>, or the lamest? Don&apos;t expect any objectivity from <a href="https://web.archive.org/web/20110412160116/http://blogs.myspace.com/index.cfm?fuseaction=blog.view&amp;friendId=75127106&amp;blogId=119966014">Johnny Rotten!</a></p>

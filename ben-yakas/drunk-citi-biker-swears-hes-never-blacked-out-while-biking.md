@@ -1,0 +1,22 @@
+---
+author: Ben Yakas
+date: Aug 22, 2013 12:05 pm
+title: Drunk Citi Biker Swears He's Never Blacked Out While Biking
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="082213drunky.jpeg" src="https://web.archive.org/web/20150429155006im_/http://gothamist.com/attachments/nyc_arts_john/082213drunky.jpeg" width="640" height="481"> <br> <i> A clearly intoxicated Citi Bike stumbles along a downtown sidewalk. (Via @NewYorkist&apos;s Twitter)</i></div> <p></p>
+
+<p>Of all the <a href="https://web.archive.org/web/20150429155006/http://gothamist.com/tags/citibike">Citi Bike</a> trend stories that we&apos;ve come across since the program launched this spring&#x2014;and that includes <a href="https://web.archive.org/web/20150429155006/http://gothamist.com/2013/06/21/fat_jew_swears_hes_serious_about_gi.php">homeless spin classes</a>, <a href="https://web.archive.org/web/20150429155006/http://gothamist.com/2013/06/17/why_is_louis_ck_riding_a_citi_bike.php">celebrity</a> sightings, <a href="https://web.archive.org/web/20150429155006/http://gothamist.com/2013/06/13/parenting_with_citi_bike_your_child.php">basket children</a>, and <a href="https://web.archive.org/web/20150429155006/http://gothamist.com/tags/dorothyrabinowitz">conspiratorial reactionaries</a>&#x2014;we&apos;ve somehow made it all these months without anyone bringing up (or rather, critically invoking) the common occurrence of drinking-while-biking. Thankfully, <a href="https://web.archive.org/web/20150429155006/http://www.nytimes.com/2013/08/22/fashion/riding-away-from-a-bar-crawl-with-citi-bikes.html?pagewanted=2&amp;_r=1&amp;pagewanted=all&amp;">the NY Times is on it today</a> with a story all about Citi Biking while intoxicated, and the joys and perils that come along for the ride.</p>
+
+<p>Technically speaking, cycling under the influence isn&apos;t illegal&#x2014;but that doesn&apos;t mean you can&apos;t get stopped and charged with disorderly conduct or reckless endangerment or <a href="https://web.archive.org/web/20150429155006/http://gothamist.com/2013/06/21/in_defense_of_salmoning_on_a_bike.php">salmoning</a>. Okay, so even more technically speaking, the Citi Bike user agreement prohibits riding &quot;under the influence of any alcohol, drugs, medication or other substance.&quot; But members are more worried about <a href="https://web.archive.org/web/20150429155006/http://gothamist.com/2013/06/12/injured_citi_biker_but_i_have_to_do.php">getting their bikes back on time</a> than being given a breathalyzer.</p>
+
+<p>And oh, there are all the wonderful upsides of drunk Citi Biking: saving money on cabs, avoiding long subway waits, getting a little exercise in between drinks, the opportunity to explore slightly out-of-the way neighborhoods, and the beautiful summer scenery. &#x201C;At night, not to sound cheesy, but you have the wind at your back and you just feel carefree,&#x201D; said Jillian, a 29-year-old Chelsea lawyer. There&apos;s really nothing more freeing than the wind whipped up by a brush with death.<br>
+ <br>
+Of course there are no statistics on how many people have Citi Biked drunk but one sign of the growing trend is that the five most active docking stations between 9 p.m. and 5 a.m. are all located in lower Manhattan nightlife areas, including: the East Village (Lafayette and East Eighth Street), West Village (Carmine Street and Sixth Avenue; West Fourth Street and Seventh Avenue), Chelsea (Eighth Avenue and West 31st Street) and SoHo (Cleveland Place and Spring Street).</p>
+
+<p>There have only been eight reported injuries on Citi Bikes so far (no one is tracking whether any of those people were drunk), but bike lawyer Daniel Flanzig is convinced it&apos;s just a matter of time: &#x201C;it&#x2019;s probably inevitable that there&#x2019;s going to be a Citi Bike crash involving alcohol.&#x201D; Shawn, a 30-year-old who uses the bike-share program about 20 times a week and admits to drunk biking, might disagree: he broke his toe while riding home over the Williamsburg Bridge one night recently. But he has a healthy attitude about it: &#x201C;I really wasn&#x2019;t that drunk,&#x201D; he said. <strong>&#x201C;I&#x2019;ve never blackout Citi Biked.&#x201D;</strong> <br>
+</p>					
+										
+									
+				

@@ -1,0 +1,13 @@
+---
+author: Ben Yakas
+date: April  8, 2011 10:54 AM
+title: Pawwww: Minnie The Cat Comments On McSorley's Ban
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="4811minnie.jpg" src="https://web.archive.org/web/20110515090903im_/http://gothamist.com/attachments/byakas/4811minnie.jpg" width="365" height="358" class="image-left"> </span>Yesterday, we were very sad <a href="https://web.archive.org/web/20110515090903/http://gothamist.com/2011/04/07/doh_bans_minnie_the_cat_from_mcsorl.php">to report</a> on a cat-astrophe at <a href="https://web.archive.org/web/20110515090903/http://gothamist.com/tags/mcsorleys">McSorley&apos;s Old Ale House</a>: Minnie the Second, the latest in a long line of cats who have lived at the East Village institution since 1854, has been banned from the bar during drinking hours. We talked to Minnie, and she clarified a few things about the ban and her place at the bar: &quot;I would hate for the DOH to think I&apos;m still up in the bar during business hours. <strong>I did not mean to imply that I am in any way violating the rules of mouse or men, no matter how silly and unjust.</strong>&quot;</p>
+
+<p>Yesterday, she was quoted as saying she was not allowed in the bar &quot;officially,&quot; but she made it clear that she was in full compliance of all Health Department codes, even though everyone knows cats make everything better, and was keeping paw-sitive at this trying time:</p>
+
+<blockquote>Please remember that I am only a young cat, still, and prone to a little rebellion much like human adolescents. Curiousity, however, killed the cat -- and bad press with this administration may do the same to me. Although I should be clear, that Mr. Maher -- the owner who speaks for the city&apos;s oldest saloon where I do not -- has forgiven Hizonner for his sleights against the Irish and even declared him our best mayor, in an effort to show good will.</blockquote>
+
+<p>Minnie added that she was a huge fan of Gothamist, and offered her services if we &quot;ever want a four-legged guest columnist to fill in.&quot; If you want to support Minnie, she has a <a href="https://web.archive.org/web/20110515090903/http://www.facebook.com/pages/Minnie-the-McSorleys-Cat/173026766068308?v=wall">Facebook fan page</a>, or you could have a drink in her honor tonight at the famous bar, while she&apos;s in the basement on her mini va-cat-tion.</p>

@@ -1,0 +1,19 @@
+---
+author: Jen Chung
+date: Mar 31, 2016 2:45 pm
+title: Hamilton Tour Casting Will Make Sure White People Finally Get A Shot
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2015_08_ham2.jpg" src="https://web.archive.org/web/20160905211414im_/http://gothamist.com/attachments/jen/2015_08_ham2.jpg" width="640" height="427"> <br> <i> Hamilton</i></div> <p></p>
+
+<p>Nine months after its Broadway debut, blockbuster musical <em><a href="https://web.archive.org/web/20160905211414/http://gothamist.com/2015/02/19/hamilton_miranda_review.php">Hamilton</a></em> is driving desperate theater lovers to <a href="https://web.archive.org/web/20160905211414/http://gothamist.com/2016/01/17/pro_tip_dont_buy_fake_hamilton_tick.php">empty their wallets</a> for fake tickets. The show, which marries inspiration from Ron Chernow&apos;s biography of a Founding Father with hip-hop, is re-writing the books on how musicals can relate to audiences. It&apos;s an unlikely smash hit, but is its diverse casting doing enough to create work for disadvantaged white actors? Wait, what?</p>
+
+<p>Last week, producers <a href="https://web.archive.org/web/20160905211414/http://www.playbill.com/article/don-39-t-throw-away-your-shot-hamilton-holds-open-auditions">announced &quot;open casting calls&quot;</a> would be held for roles in the New York cast as well as the casts of <a href="https://web.archive.org/web/20160905211414/http://sfist.com/2016/01/26/hamilton_comes_to_sf_for_five_month.php">upcoming national tours</a>, specifically seeking &quot;non-white men and women, ages 20s to 30s.&quot; But now a lawyer, Randolph McLaughlin, has come forward to argue that the ad appeared to violate NYC Human Rights Laws: &quot;What if they put an ad out that said, &#x2018;Whites only need apply?&#x2019; Why, African-Americans, Latinos, Asians would be outraged...  You cannot advertise showing that you have a preference for one racial group over another. As an artistic question &#x2014;sure, he can cast whomever he wants to cast, but he has to give every actor eligible for the role an opportunity to try.&quot; </p>
+
+<p>Even though the musical needs its cast of largely non-white performers to bolster the show&apos;s themes and ideas about American history, the <em>Hamilton</em> team will re-write the ad. <a href="https://web.archive.org/web/20160905211414/http://gothamist.com/2014/06/10/brooklyns_club_freeze_is_hiring_but.php">The NY Times reports</a>:</p><blockquote> At the end of the day, the producers of &#x201C;Hamilton&#x201D; said that they would change the posting that had drawn criticism, to make it clear that people of all ethnicities are welcome to audition, but would not back away from the show&#x2019;s commitment to hire a diverse cast. In a written statement, the producers said that they &#x201C;regret the confusion that&#x2019;s arisen from the recent posting of an open call casting notice for the show&#x201D; but also that &#x201C;it is essential to the storytelling of &#x2018;Hamilton&#x2019; that the principal roles, which were written for nonwhite characters (excepting King George), be performed by nonwhite actors.&#x201D;<p></p>
+
+<p>&#x201C;&#x2018;Hamilton&#x2019; depicts the birth of our nation in a singular way,&#x201D; the show&#x2019;s lead producer, Jeffrey Seller, said in a statement. &#x201C;We will continue to cast the show with the same multicultural diversity that we have employed thus far.&#x201D;</p></blockquote>Great, now will someone please tell me how I can get a ticket? I have a spare kidney!<p></p>					
+										
+									
+				

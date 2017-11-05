@@ -1,0 +1,17 @@
+---
+author: Ben Yakas
+date: Sep 19, 2010 1:21 pm
+title: New Report Alleges Fraud at Vito Lopez Nonprofit
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="91910lopez.jpg" src="https://web.archive.org/web/20170326011701im_/http://gothamist.com/attachments/byakas/91910lopez.jpg" width="250" height="348" class="image-left"> </span>Last week, a damning new report of the nonprofit founded by Democratic Brooklyn party boss <a href="https://web.archive.org/web/20170326011701/http://gothamist.com/tags/vitolopez">Vito Lopez&apos;s</a> alleged serious fraud and questionable management, including lucrative payouts to Lopez&apos;s girlfriend. The results of the Department of Investigation&apos;s report may also have caused a serious schism between old pals Lopez and Mayor Bloomberg.</p>
+
+<p>The <a href="https://web.archive.org/web/20170326011701/http://www.nydailynews.com/news/ny_crime/2010/09/15/2010-09-15_probe_finds_brooklyn_dem_vito_lopezs_nonprofit_empire_riddled_with_fraud.html">DOI probe uncovered</a> at least $343,000 in fraudulent or sketchy claims submitted to the city by the Ridgewood Bushwick Senior Citizens Council and affiliated groups. Workers either falsified attendance sheets, or kept no records, aned one employee at  Bushwick&apos;s Hope Gardens senior center was arrested for falsifying records; other supervisors double-billed agencies and procured cushy jobs for relatives.</p>
+
+<p>Lopez founded the group, and has no official position in it, but his campaign treasurer Christiana Fisher is the center&apos;s director, his girlfriend Angela Battaglia is its housing director, and Lopez helps send taxpayer-funded centers state grants as an assemblyman. He sent $335,000 in state &quot;member item&quot; cash to the group since last year <a href="https://web.archive.org/web/20170326011701/http://www.nypost.com/p/news/opinion/editorials/vito_reign_wDP6f4o0JHiCbTpNLW8e7J#ixzz0zz0uWHfm">according to the Post</a>. Fisher made $659,591 in &quot;base compensation&quot; last year, only working 17 1/2 hours a week; Battaglia made $329,910, which was 73 percent more than she made two years prior. <a href="https://web.archive.org/web/20170326011701/http://www.nypost.com/p/news/local/brooklyn/wealth_of_friends_lop150EDHUzB9M4w4QrLqK">According to sociologist Nicole Marwell</a>, the group is the hub of Lopez&apos;s political machine, providing him with volunteers. It&apos;s even closed on Election Day so employees can do get-out-the-vote campaigns</p>
+
+<p>After the report was first released, Lopez allegedly demanded a meeting with Mayor Bloomberg and his team of advisors. When they suggested that the group would have to install real oversight and accept a monitor to examine its books, Lopez stormed out of that meeting. <a href="https://web.archive.org/web/20170326011701/http://www.nydailynews.com/ny_local/2010/09/19/2010-09-19_may_have_pushed_mike_too_far_this_time.html">The Daily News calls it</a> his &quot;standard tactic:&quot; ruling by raw threats and fear, even when it involves <a href="https://web.archive.org/web/20170326011701/http://www.nypost.com/p/news/local/brooklyn/vito_browbeats_klyn_grannies_jjecfIC1fCrMgDdw4gfOlJ">intimidating old lady pollsters</a> into backing his judicial candidate. But Bloomberg didn&apos;t cave to his threats this time, perhaps because in his third term, Bloomberg doesn&apos;t need Lopez as much as Lopez needs him.</p>					
+										
+									
+				

@@ -1,0 +1,9 @@
+---
+author: Ben Yakas
+date: September  3, 2010  2:20 PM
+title: Queens Man Unsuccessfully Tries Stashing Pot In Cop Car
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="9310pot.jpg" src="https://web.archive.org/web/20110611050246im_/http://gothamist.com/attachments/byakas/9310pot.jpg" width="200" height="152" class="image-left"> </span>Just because new research suggests that marijuana <a href="https://web.archive.org/web/20110611050246/http://gothamist.com/2010/09/02/pot_isnt_really_a_gateway_drug_says.php">isn&apos;t really a gateway drug</a> doesn&apos;t mean we should be encouraging every numbskull with a pair of lips to smoke. <a href="https://web.archive.org/web/20110611050246/http://www.nypost.com/p/news/local/nyc_man_attempted_car_stash_marijuana_Iho8N5MZGVn4Wy3IoEy9mM?CMP=OTC-rss&amp;FEEDNAME=">Case-in-point</a>: A Delaware state trooper stopped Edward Peterson, 24, and an unnamed companion early this morning for speeding on the Coastal Highway in Dewey Beach, Del.. He strongly suspected they had been smoking marijuana, but didn&apos;t realize they had been smoking idiotjuana. </p>
+
+<p>The officer made Peterson, of Jamaica, Queens, and the friend wait in his patrol car while he searched their Chevy Impala. He found nothing, and returned to his car, where it smelled a little like a Phish concert. After a search, he discovered that Peterson had tried to hide 1.8 grams of weed in the seat of his patrol car. Back in March, a <a href="https://web.archive.org/web/20110611050246/http://gothamist.com/2010/05/09/man_leaves_stash_in_patrol_car.php">similar incident</a> occurred, but at least that guy had the decency to <em>mistakenly</em> leave it in the cop car. Grandmas everywhere are <a href="https://web.archive.org/web/20110611050246/http://gothamist.com/2010/05/20/grandma_upset_after_wilson_chandler.php">disappointed</a>.</p>

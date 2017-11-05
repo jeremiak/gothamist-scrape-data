@@ -1,0 +1,26 @@
+---
+author: Jen Chung
+date: Sep 3, 2013 10:38 AM
+title: Father Not Helping Investigation Into One-Year-Old's Fatal Shooting
+---
+
+
+                            
+                            
+                            
+                            <p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="22013_08_antiqhennis.jpg" src="https://web.archive.org/web/20130905205453im_/http://gothamist.com/attachments/jen/22013_08_antiqhennis.jpg" width="640" height="426"> <br> <i> Antiq Hennis</i></div> <p></p>
+
+<p>Police are offering a $12,000 reward for information about the suspect who fatally shot a one-year-old boy in his stroller as he was being walked to his great-grandmother&apos;s house on Sunday. <a href="https://web.archive.org/web/20130905205453/http://www.nypost.com/p/news/local/brooklyn/baby_slayer_hunt_eFEM4bZumxRsc3RBfGqD0K?utm_medium=rss&amp;utm_content=Brooklyn">A community activist told the Post</a>, &quot;We know exactly who the shooter is. It was a beef between the shooter&#x2019;s brother and the baby&#x2019;s father,&quot; but the boy&apos;s father, Anthony Hennis, 21, has been silent about who might have been targeting him.</p>
+
+<p>According to police, Hennis went to Rockaway Avenue in Brooklyn to pick up his son, 16-month-old Antiq, from the boy&apos;s mother. Police Commissioner Kelly said, &quot;The purpose of the visit was to pick-up the child and to take the child to visit Hennis&#x2019; grandmother. He puts him in the stroller, and when they get to the intersection of Livonia Avenue and Bristol Street on the northwest corner, four shots are fired. Anthony Hennis is not hit; Antiq Hennis is hit once on the left side of his head. The bullet exits his head... Four .45 caliber shell casings are found on the corner. One fired bullet was found at 360 Bristol Street. The stroller had four bullet holes in it. It appears to be two entrance and two exit holes.&quot;</p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-right"> <img alt="2013_08_hennishot.jpg" src="https://web.archive.org/web/20130905205453im_/http://gothamist.com/attachments/jen/2013_08_hennishot.jpg" width="365" height="272"> <br> <i style=" width:365px; ;display:block"> Mourners near the scene of the shooting (AP)</i></div> Kelly also said that Anthony Hennis <a href="https://web.archive.org/web/20130905205453/http://www.nydailynews.com/new-york/brooklyn/father-1-year-old-child-killed-brooklyn-helping-police-track-son-killer-cops-article-1.1443546">wasn&apos;t answering any questions</a>, &quot;We&#x2019;re still trying to, obviously, determine his contacts &#x2014; and he has an extensive arrest record, so we are looking into his relationships.&quot;<p></p>
+
+<p><a href="https://web.archive.org/web/20130905205453/http://www.nytimes.com/2013/09/03/nyregion/after-1-year-old-is-killed-father-is-silent-about-suspects.html?partner=rss&amp;emc=rss"> The NY Times reports</a>, &quot;Mr. Hennis, a 22-year-old with a history of drug arrests, including for selling heroin, would not answer questions from a reporter on Monday. A rail-thin man whose angular shoulders protruded from a white undershirt, he stood amid friends on the porch of his home on Bristol Street in Brownsville, near the shooting scene. &apos;My son is gone,&apos; he said softly to himself. &apos;There&#x2019;s pictures of him everywhere, but my son is gone.&apos;&quot;</p>
+
+<p>A police source told the Post, &quot;You would think he would want to see the killer of his own son brought to justice. Luckily we do have some people who are trying to help us.&quot; Hennis&apos;s grandmother, though, was focused on the horror, <a href="https://web.archive.org/web/20130905205453/http://www.nbcnewyork.com/news/local/Baby-Stroller-Shot-Killed-Brownsville-Brooklyn-Antiq-Police-Reward-222141851.html">telling reporters yesterday that her grandson</a> &quot;fell on the ground and said, &apos;Grandma, my baby got shot! My baby got shot, Grandma!&apos; He was such a beautiful little baby, smiling and talking to everybody.&quot;</p>
+
+<p>Mayor Bloomberg condemned the violence and use the opportunity to criticize illegal guns and blame Washington D.C., &quot;We are still gathering all the facts on these incidents, but if past is any prologue, you can bet that the guns the perpetrators used were illegally possessed and originally purchased in a different state. The constant flow of illegal guns into our city and into the hands of criminals happens for one reason and one reason alone: it&#x2019;s caused by broken federal gun laws that Washington refuses to fix and broken gun laws in many states, which allow weapons to easily pass into the hands of criminals. When background checks aren&#x2019;t conducted on gun sales, weapons flow to the illegal market and into the hands of people like last night&#x2019;s shooters.&quot;</p>
+                            
+                            
+                            

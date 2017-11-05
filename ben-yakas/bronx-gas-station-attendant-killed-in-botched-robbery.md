@@ -1,0 +1,7 @@
+---
+author: Ben Yakas
+date: October 29, 2010  2:50 PM
+title: Bronx Gas Station Attendant Killed In Botched Robbery
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="102910shell.jpg" src="https://web.archive.org/web/20120602120129im_/http://gothamist.com/attachments/byakas/102910shell.jpg" width="100" height="85" class="image-right"> </span>One gas station attendant was killed and another was injured last night in the Bronx during a botched robbery. <a href="https://web.archive.org/web/20120602120129/http://www.nypost.com/p/news/local/bronx/gunman_opens_fire_at_bx_gas_station_XXsUwTKEDYUt3sqpmKYB0I">Police say</a> that the suspect entered the Shell station in Baychester, just off the New England Thruway, around 11:45 p.m. He entered the snack shop and picked up a candy bar, then got into a dispute with the two attendants. A police source told <a href="https://web.archive.org/web/20120602120129/http://www.nydailynews.com/news/ny_crime/2010/10/29/2010-10-29_bronx_gas_station_attendant_gunned_down_in_botched_robbery_wouldbe_thief_fled_em.html">the News</a>, &quot;he pulled out a gun and demanded money and for some reason the attendants put up a struggle.&quot; Lamine Diop, 35, was struck three times in the leg and killed; Papa Ly, 37, was struck twice, but is currently in stable condition. The perp escaped empty-handed, possibly in a white BMW.</p>

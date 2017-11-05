@@ -1,0 +1,11 @@
+---
+author: Ben Yakas
+date: January 21, 2011  2:43 PM
+title: Marriott Hotels To No Longer Offer Guests Porn
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="12111adult.jpg" src="https://web.archive.org/web/20110412180017im_/http://gothamist.com/attachments/byakas/12111adult.jpg" width="220" height="165" class="image-left"> </span></p>
+
+<p>The hotel sector in NYC has been <a href="https://web.archive.org/web/20110412180017/http://gothamist.com/2008/10/18/nyc_hotels_feeling_effects_of_downt.php">relatively</a> stable in the past couple years; despite our <a href="https://web.archive.org/web/20110412180017/http://gothamist.com/2011/01/21/moronic_survey_says_new_yorkers_are.php">rudeness</a> and the risk of being hit by something, 48.7 million tourists <a href="https://web.archive.org/web/20110412180017/http://gothamist.com/2011/01/04/tourists_really_liked_new_york_in_2.php">visited</a> the city last year, spending over $30 billion on our junk and stuff. But the hotel industry might be facing an insurrection of sorts soon: Marriott International has announced plans to discontinue offering adult movies in their new hotel rooms, and eventually, from all their thousands of hotel. </p>
+
+<p>In <a href="https://web.archive.org/web/20110412180017/http://travel.usatoday.com/hotels/post/2011/01/marriott-hotels-to-remove-porn-new-hotels/139423/1">a statement</a>, they discussed this game-changing decision, focusing on the advent of Internet-based video-on-demand: &quot;Changing technology and how guests access entertainment has reduced the revenue hotels and their owners derive from in-room movies, including adult content...As we transition to this new platform, adult content will be off the menu for virtually all of our newly built hotels. Over the next few years, this will be the policy across our system.&quot; But what are lonely people to do while twiddling their thumbs late at night inundated with the sounds of other people having sex? Call an <a href="https://web.archive.org/web/20110412180017/http://gothamist.com/2011/01/21/hero_suing_escort_service_for_18m_f.php">escort service?</a></p>

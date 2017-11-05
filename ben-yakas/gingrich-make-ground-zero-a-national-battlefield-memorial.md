@@ -1,0 +1,11 @@
+---
+author: Ben Yakas
+date: September  3, 2010  5:55 PM
+title: Gingrich: Make Ground Zero A "National Battlefield Memorial"
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="9310gingrich.jpg" src="https://web.archive.org/web/20110611052855im_/http://gothamist.com/attachments/byakas/9310gingrich.jpg" width="240" height="166" class="image-left"> </span>Two-thirds of New Yorkers want the <a href="https://web.archive.org/web/20110611052855/http://gothamist.com/tags/mosque">Park 51 mosque and community center project</a> to be relocated to a less controversial site farther away from Ground Zero, according to today&apos;s new <a href="https://web.archive.org/web/20110611052855/http://gothamist.com/2010/09/03/ny_times_67_of_nyc_residents_says_m.php">Times poll.</a> But if <a href="https://web.archive.org/web/20110611052855/http://gothamist.com/tags/newtgingrich">Newt Gingrich</a> had his way, nobody would be able to build near Ground Zero, because it would be a battlefield memorial.</p>
+
+<p>Gingrich <a href="https://web.archive.org/web/20110611052855/http://tpmmuckraker.talkingpointsmemo.com/2010/09/gingrich_make_ground_zero_a_national_battlefield_t.php">said</a> during a radio interview today, &quot;I think the Congress has the ability to declare the area a national battlefield memorial because I think we should think of the World Trade Center as a battlefield site; this is a war.&quot; And if making the WTC a national park doesn&apos;t dissuade those religious hippies, then Gingrich thinks the federal government should step in: &quot;The Attorney General of New York, Andrew Cuomo, could intervene <strong>because frankly he has the ability to slow it down for decades if he wants to</strong>.&quot; </p>
+
+<p>Gingrich has been an outspoken anti-Park 51 advocate, but in calling for the battlefield declaration, he reveals who he really is: <a href="https://web.archive.org/web/20110611052855/http://gothamist.com/2010/07/22/gingrich_paladino_palin_form_anti-m.php">Carl Paladino</a>. </p>

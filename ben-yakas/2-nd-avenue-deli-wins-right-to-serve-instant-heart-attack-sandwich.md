@@ -1,0 +1,13 @@
+---
+author: Ben Yakas
+date: July  8, 2012  4:45 PM
+title: 2nd Avenue Deli Wins Right To Serve "Instant Heart Attack Sandwich"
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="7812deli.jpeg" src="https://web.archive.org/web/20130527165913im_/http://gothamist.com/attachments/byakas/7812deli.jpeg" width="640" height="427"> <br> <i> Courtesy of the 2nd Avenue Deli</i></div> <p></p>
+
+<p>For the better part of the last year, we&apos;ve had frequent heart palpitations at the thought of the 2nd Avenue Deli <a href="https://web.archive.org/web/20130527165913/http://gothamist.com/2011/05/11/2nd_avenue_deli_sues_for_the_right.php">losing the right to serve us the meat-infused pancake sandwich</a> that gives our veggie-less lives meaning: the Instant Heart Attack Sandwich. And finally this week, a judge dismissed a Las Vegas restaurant&#x2019;s claim that the deli stole the name. &#x201C;We feel that we&#x2019;ve been vindicated,&#x201D; delighted deli owner Jeremy Lebewohl <a href="https://web.archive.org/web/20130527165913/http://www.nydailynews.com/new-york/rye-t-2nd-ave-deli-wins-sandwich-suit-article-1.1109444">told the News</a>. &#x201C;We&#x2019;re doing what we&#x2019;ve always done, what we do best, selling sandwiches.&#x201D;</p>
+
+<p>The 2nd Avenue Deli <a href="https://web.archive.org/web/20130527165913/http://www.dnainfo.com/new-york/20120707/murray-hill/second-avenue-deli-entitled-heart-attack-judge-says">had been sued by</a> The Heart Attack Grill, once a Phoenix-based chain that is now just a sole restaurant Vegas. &#x201C;We believe you copied Heart Attack Grill&apos;s family of medically themed food items,&#x201D; the restaurant said in its cease and desist letter. The Vegas restaurant has a whole medical-theme thing going on: waitresses wear sexy nurses uniforms, call customers patients, and &#x201C;proudly represents that its food is unhealthful.&#x201D; But the judge rules, &#x201C;The deli, by contrast, is a kosher deli which serves kosher food in the style of a traditional Manhattan deli,&#x201D; the judge said. &#x201C;Its market does not remotely resemble that of HAG.&#x201D;</p>
+
+<p>Best of all, now the 2nd Avenue Deli can unleash its newest creation: the $34.95 &#x201C;Triple Bypass&#x201D; sandwich, which includes sliced deli meat made up of corned beef, pastrami, salami or turkey, and three latkes. Or as Lebewohl described it, &#x201C;everything but the kitchen sink.&#x201D;</p>

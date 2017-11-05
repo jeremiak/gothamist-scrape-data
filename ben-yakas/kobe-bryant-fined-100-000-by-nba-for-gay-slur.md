@@ -1,0 +1,21 @@
+---
+author: Ben Yakas
+date: Apr 14, 2011 10:20 am
+title: Kobe Bryant Fined $100,000 By NBA For Gay Slur
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:260px; "> <img alt="41411kobe.jpg" src="https://web.archive.org/web/20150415005416im_/http://gothamist.com/attachments/byakas/41411kobe.jpg" width="260" height="173"> <br> <i>AP</i></div> Thirteen-time NBA All-Star Kobe Bryant was handed <a href="https://web.archive.org/web/20150415005416/http://www.nytimes.com/2011/04/14/sports/basketball/14lakers.html?_r=1&amp;ref=sports">a hefty fine</a> of $100,000 by the NBA after he was caught on camera mouthing an obscene homophobic slur at a referee this week. Bryant was given a technical foul midway through the Lakers-Spurs game on Tuesday night, and could be seen on camera angrily yelling at ref Bennie Adams; he seems to have called him a &#x201C;f**king f****t.&#x201D; Watch the video below:<p></p>
+
+<div style="text-align: center;"><iframe title="YouTube video player" width="640" height="390" src="https://web.archive.org/web/20150415005416if_/http://www.youtube.com/embed/t84p7mcK2Pk" frameborder="0" allowfullscreen></iframe></div>
+
+<p>Bryant, the 2008 NBA MVP, apologized for the slur yesterday, saying his comments &quot;do NOT reflect my feelings toward the gay and lesbian communities and were NOT meant to offend anyone,&quot; adding that his homophobic slur &#x201C;should not be taken literally,&#x201D; adding that his actions stemmed from frustration &#x201C;during the heat of the game.&#x201D; Were they not intended to be a factual statement, <a href="https://web.archive.org/web/20150415005416/http://joemygod.blogspot.com/2011/04/not-intended-to-be-factual-statement.html">too</a>? </p>
+
+<p>NBA commissioner David Stern acknowledged Bryant&apos;s apology while explaining the fine: &quot;While I&apos;m fully aware that basketball is an emotional game, such a distasteful term should never be tolerated,&quot; he said. Tennis star Martina Navritalova, who is a lesbian, chided Bryant as well: &quot;Kobe Bryant has some life lessons to learn...What he probably doesn&apos;t know is in schools, if a kid is called a gay derogatory slur, 93% of the time, the teachers don&apos;t do anything, because it&apos;s still OK to gay bash,&quot; Navritalova <a href="https://web.archive.org/web/20150415005416/http://www.nydailynews.com/sports/basketball/2011/04/13/2011-04-13_kobe_bryant_slammed_by_gay_rights_group_after_appearing_to_direct_antigay_slur_a.html">told the News</a> at the 10th annual Ellis Island Family Heritage Awards.</p>
+
+<p>Bryant apparently called Joe Solmonese, president of the Human Rights Campaign, a civil rights organization working for equality for all sexualities, and apologized more profusely: &quot;At the end of a difficult day, I applaud Kobe for coming forward and taking responsibility for his actions,&quot; Solmonese said. Other basketball commentators around the league don&apos;t think his excuseplination was good enough though: &quot;You issue an initial apology with no admission that you were wrong or the word was wrong, an apology that puts the onus on everyone else for taking it wrong. This isn&apos;t flying, Kobe,&quot; wrote <a href="https://web.archive.org/web/20150415005416/http://www.latimes.com/sports/basketball/nba/lakers/la-sp-plaschke-kobe-bryant-20110414,0,7666495.column">the LA Times</a>.</p>
+
+<p>As the Daily What <a href="https://web.archive.org/web/20150415005416/http://thedailywh.at/2011/04/13/d-bag-of-the-day/">points out</a>, comedian Rob Delaney wins the story with the <a href="https://web.archive.org/web/20150415005416/http://twitter.com/robdelaney/status/58274801466355712">punchline of the day</a>: &quot;Kobe called a ref &apos;faggot&quot;&apos; last night. Apparently he felt the ref&apos;s lifestyle of <a href="https://web.archive.org/web/20150415005416/http://en.wikipedia.org/wiki/Kobe_Bryant_sexual_assault_case">CONSENSUAL</a> anal sex made him look bad.&quot;</p>					
+										
+									
+				

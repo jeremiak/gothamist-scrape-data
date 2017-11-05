@@ -1,0 +1,28 @@
+---
+author: Ben Yakas
+date: Oct 10, 2013 1:55 PM
+title: New "Global Bloomberg" Feels Sorry For Poor Losers In Mississippi
+---
+
+
+                            
+                            
+                            
+                            <p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="101013bloom1.jpeg" src="https://web.archive.org/web/20131013015859im_/http://gothamist.com/attachments/byakas/101013bloom1.jpeg" width="640" height="428"> <br> <i> Charles Ommanney&#x2014;Reportage by Getty Images for TIME</i></div> <p></p>
+
+<p>With approximately three months left in office, <a href="https://web.archive.org/web/20131013015859/http://gothamist.com/tags/bloomberg">Mayor Bloomberg</a> has been alternatively <a href="https://web.archive.org/web/20131013015859/http://gothamist.com/2013/09/07/bloomberg_calls_bill_de_blasio_camp.php">giving candid interviews about his tenure as mayor</a> and also <a href="https://web.archive.org/web/20131013015859/http://gothamist.com/2013/09/19/crotchety_mayor_bloomberg_reaches_p.php">lashing out at the press</a> <a href="https://web.archive.org/web/20131013015859/http://gothamist.com/2013/09/27/bloomberg_threatens_to_stop_press_c.php">for asking questions</a> about said tenure. But while journalists and seventh graders are both concerned <a href="https://web.archive.org/web/20131013015859/http://gothamist.com/2013/10/03/bloombergs_legacy_now_an_essay_ques.php">with questions about his legacy</a>, Bloomberg is already looking to the future&#x2014;and in a cover feature for Time Magazine, he opens up about his plans to <strike>take over the world</strike> bring his philanthropic efforts abroad.</p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="101013bloom2.jpeg" src="https://web.archive.org/web/20131013015859im_/http://gothamist.com/attachments/byakas/101013bloom2.jpeg" width="250" height="331" class="image-right"> </span>Reporter Michael Scherer traveled with Bloomberg from Paris to London as he reviewed grant proposals, launched new philanthropic efforts and met with British Prime Minister David Cameron in September (you can see <a href="https://web.archive.org/web/20131013015859/http://lightbox.time.com/2013/10/10/bloombergs-world-photographing-the-billionaire-mayor-abroad/?iid=lb-gal-viewagn#1">some photos of the trip here</a>). </p>
+
+<p>&quot;I want to do things that nobody else is doing,&#x201D; he told them. He says he plans to spend most of his fortune on furthering his philanthropic, cultural, and social efforts, spreading the programs which he enacted in NYC (or tried to enact, in the case of <a href="https://web.archive.org/web/20131013015859/http://gothamist.com/tags/sodaban">certain failed health initiatives</a>) across the world. &#x201C;You can do things that the public does not think are appropriate or conventional for public moneys,&quot; he said about his vast wealth. &quot;<strong>If we didn&#x2019;t have private philanthropy, you never would have had Impressionism</strong>, for example. Nobody thought that that was art, and today that commands prices 10 times that of the old masters.&#x201D; </p>
+
+<p>Bloomberg, whose own personal wealth <a href="https://web.archive.org/web/20131013015859/http://gawker.com/helpless-mayor-bloomberg-cant-stop-himself-from-gettin-1350568789">has almost tripled</a> to $31 billion in the 12 years he&apos;s been office, recently said that, &#x201C;If we could get every billionaire around the world to move here, it would be a godsend.&quot; It&apos;s pretty clear what historical figures he is modeling his post-political career on: &#x201C;Look, there have been great billionaires all along...<strong>If you think of what the Rockefellers have done, or the Carnegies or Mellons</strong>, and there were plenty of others, and there were plenty back in the &#xAD;Renaissance days.&#x201D; </p>
+
+<p>But just because Bloomberg is going global doesn&apos;t mean he isn&apos;t still concerned with the way-of-life in America: he still plans to pour money into political races in places like Colorado, Arkansas and Virginia to try to get stricter gun laws. And he isn&apos;t giving up on his fight again tobacco and soda companies, who he says are enemies of long life: &#x201C;<strong>I feel sorry for the people of Mississippi</strong>,&#x201D; he said in regard to efforts to ban restrictions on &#xAD;soda size. &#x201C;In parts of Mississippi, by the delta, [life expectancy is] in the 60s. Now what did I miss here? Who&#x2019;s right, and who&#x2019;s winning? They are not winning.&#x201D;</p>
+
+<p>The whole piece, which is available in this week&apos;s Time, is worth checking out; you can also see <a href="https://web.archive.org/web/20131013015859/http://swampland.time.com/2013/10/10/time-interview-with-mike-bloomberg/">a few cutting floor quotes here</a>, including this gem about his immediate plans which reveals that Bloomberg picked up a few slang terms in London:</p>
+
+<blockquote>I&#x2019;ve said I&#x2019;m not a consultant. I would want to own the company. <strong>I&#x2019;m not a teacher. I want to learn, but that&#x2019;s not my bag</strong>. I&#x2019;m not an investor. I delegate that to others. I&#x2019;m not an author. I wrote one book, did a book party, know what it&#x2019;s like. I wrote every word in the book no matter what anybody says. But I&#x2019;ve done it once. I want to do things.</blockquote>
+                            
+                            
+                            

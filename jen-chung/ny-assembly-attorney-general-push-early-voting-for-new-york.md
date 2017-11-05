@@ -1,0 +1,23 @@
+---
+author: Jen Chung
+date: May 1, 2013 10:07 am
+title: NY Assembly, Attorney General Push Early Voting For New York
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="" src="https://web.archive.org/web/20150509141420im_/http://gothamist.com/upload/2012/11/2012_10_votingmessch.jpg" width="640" height="441"> <br> <i> Voting in Crown Heights last November (Tien Mao/Gothamist)</i></div> <p></p>
+
+<p>Yesterday, NY Assembly Speaker Sheldon Silver and NY Attorney General Eric Schneiderman <a href="https://web.archive.org/web/20150509141420/http://ag.ny.gov/press-release/assembly-pass-early-voting-legislation">announced</a> that the Assembly was ready to pass legislation to bring early voting to New York. Silver said, &quot;Democracy thrives when as many citizens as possible participate in the electoral process. <strong>Yet New Yorkers can only vote for a candidate or a ballot proposition during a set number of hours on a single day. </strong>For the health and vitality of our Democracy, our election law must be changed.&quot; </p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-right"> <img alt="2013_04_ballotjam.jpg" src="https://web.archive.org/web/20150509141420im_/http://gothamist.com/attachments/jen/2013_04_ballotjam.jpg" width="340" height="302"> <br> <i style=" width:340px; ;display:block">A jammed scanner during the 2012 general election in Washington Heights (via Bethany Mandel)<br>
+</i></div> While there was <a href="https://web.archive.org/web/20150509141420/http://gothamist.com/2008/11/04/finally_election_day_2008_today.php#photo-9">good turnout for the 2008 election</a>, this past November&apos;s election just days after Hurricane Sandy&#x2014;with the <a href="https://web.archive.org/web/20150509141420/http://gothamist.com/2012/11/06/a_scanner_crappily_jammed_voting_sc.php">new malfunctioning electronic scanners</a>&#x2014;<a href="https://web.archive.org/web/20150509141420/http://gothamist.com/2012/11/06/photos_new_yorkers_waiting_to_vote.php#photo-1">was a pretty big mess</a>. Turnout was just 59.5%, versus 64.2% in 2008. <p></p>
+
+<p>Election Law Committee Chair Michael Cusick pointed out, &quot;If you look at the history of low voter turnout and, certainly, the problems caused by Superstorm Sandy during this past Election Day, it only makes sense to institute early voting.<strong> This legislation will make it more convenient for workers with long commutes as well as seniors.</strong> It will also alleviate confusion and strain at the polls on Election Day evidenced by the fact that almost 30 percent of voters, nationally, chose to utilize early voting in presidential elections.&quot;</p>
+
+<p>Currently, 32 states and the District of Columbia <a href="https://web.archive.org/web/20150509141420/http://www.ncsl.org/legislatures-elections/elections/absentee-and-early-voting.aspx">offer in-person early voting</a>. The proposed legislation would give a 15-day early voting period for general elections and an eight-day early voting period for primaries and special elections. Schneiderman said, &quot;In recent years, we have seen increasingly aggressive efforts to make it harder for millions of Americans to vote. Here in New York we are pushing back.<strong> Early voting will reduce barriers to participation that particularly impact working people, and ensure that all New Yorkers have an opportunity to participate in our democratic process. </strong>The time has come for New York to join the dozens of states around country that allow early voting.&quot;</p>
+
+<p>However, Dean Skelos, who leads the Senate Republicans, doesn&apos;t like early voting because he thinks voters are fickle. <a href="https://web.archive.org/web/20150509141420/http://www.northcountrypublicradio.org/news/story/21895/20130501/new-york-considers-early-voting-system">North County Public Radio reports</a>, &quot;He says a voter could cast a ballot for candidate two weeks before the election, and then the candidate could be arrested a week later. The voter would have no opportunity to change his or her vote.&quot; Skelos emphasized, &quot;I think that&apos;s wrong. Election cycles should play out to the date of the election.&quot; Well, how about the voters decide when they vote?<br>
+</p>					
+										
+									
+				

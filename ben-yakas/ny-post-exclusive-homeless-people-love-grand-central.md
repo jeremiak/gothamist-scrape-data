@@ -1,0 +1,19 @@
+---
+author: Ben Yakas
+date: Feb 3, 2013 11:25 am
+title: NY Post Exclusive: Homeless People LOVE Grand Central!
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2313homeless.jpg" src="https://web.archive.org/web/20150405025517im_/http://gothamist.com/attachments/byakas/2313homeless.jpg" width="640" height="427"> <br> <i> <a href="https://web.archive.org/web/20150405025517/http://www.flickr.com/photos/atomox/8339942211/">atomox&apos;s flickr</a></i></div> <p></p>
+
+<p>It&apos;s been a big weekend for Grand Central, which is currently celebrating its 100th birthday&#x2014;there have been <a href="https://web.archive.org/web/20150405025517/http://gothamist.com/2013/01/31/grand_central_celebrates_100_years.php">1913 deals</a>, <a href="https://web.archive.org/web/20150405025517/http://gothamist.com/2013/02/01/14_photos_of_a_grand_central_youve.php#photo-1">beautiful photography</a>, <a href="https://web.archive.org/web/20150405025517/http://gothamist.com/2013/02/02/watch_4_vintage_nyc_rail_videos_in.php">vintage videos</a> and <a href="https://web.archive.org/web/20150405025517/http://gothamist.com/2013/02/01/photos_grand_central_terminal_celeb.php#photo-1">gala events</a>. The NY Post <a href="https://web.archive.org/web/20150405025517/http://www.nypost.com/p/news/local/manhattan/grand_central_bums_crush_fZl3UB1FANai4xNEkyP42H">decided to get in on the fun</a> with a SHOCKING report that is sure to blow your mind: homeless people love hanging out at Grand Central. Talk about dumping a bucket of cold water into a frozen lake.</p>
+
+<p>Using the same scientific research methods they deployed in their <a href="https://web.archive.org/web/20150405025517/http://gothamist.com/2013/01/17/the_5_best_parts_of_the_ny_posts_in.php">landmark Subway footlong investigation of 2013,</a> the Post (presumably) sent over a crack team of interns to scan the terminal for any homeless-looking people last Wednesday. And they spotted 40 of them! And they smell! &#x201C;It&#x2019;s nauseating,&#x201D; said Yvette Molina, a Tarrytown resident, who was dining in the concourse area. &#x201C;It&#x2019;s really disgusting. It makes you lose your appetite.&#x201D; Whereas normally, eating in the Grand Central concourse area is the height of exquisite cuisine. Who among us haven&apos;t turned to a loved one on a frigid Saturday evening and whispered, &quot;Let&apos;s go check out that romantic little Cafe Spice tonight.&quot;</p>
+
+<p>&#x201C;Every day you see new homeless. Sometimes they smell &#x2014; a bad smell,&#x201D; said Hafiza Supti, who works at a Hudson News stand. &#x201C;I have to move from one place to the other place.&#x201D; Police told them they were unwilling to do anything about the vagrants, probably because they are on the payroll of Big Homeless: &#x201C;Our hands are tied,&#x201D; one MTA cop told them. &#x201C;We can&#x2019;t really make them do anything. We can&#x2019;t just throw them in the cold.&#x201D; How dare they show any compassion for their fellow man. </p>
+
+<p>But maybe there&apos;s hope yet for the Post&#x2014;maybe if they could just get to know one of these <a href="https://web.archive.org/web/20150405025517/http://gothamist.com/2012/12/19/the_longest_night_of_the_year_will.php">disgusting, smelly, god-forsaken homeless people,</a> they could find some compassion. Enter one James Patrick McGrath: it seems the 59-year-old man stole their hearts &quot;through rheumy blue eyes...dressed in two ratty winter coats.&quot; &#x201C;I&#x2019;ve got an officer who accuses me of begging,&#x201D; the Flatbush native told them. &#x201C;He calls me a skell. I call him a schmuck.&#x201D; Sounds like love to us.</p>					
+										
+									
+				

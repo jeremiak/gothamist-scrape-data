@@ -1,0 +1,7 @@
+---
+author: Ben Yakas
+date: November 20, 2010  2:00 PM
+title: Jim Leyritz Acquitted On DUI Manslaughter Charge
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="112010leyritz.jpg" src="https://web.archive.org/web/20110412164901im_/http://gothamist.com/attachments/byakas/112010leyritz.jpg" width="100" height="122" class="image-right"> </span>Former Yankees catcher <a href="https://web.archive.org/web/20110412164901/http://gothamist.com/tags/jimleyritz">Jim Leyritz</a> was <a href="https://web.archive.org/web/20110412164901/http://www.nypost.com/p/news/local/ex_yank_leyritz_aquitted_of_dui_lao7sMgveVcpyraeE5wfHP">acquitted today</a> of a DUI manslaughter charge, stemming from the 2007 car collision which left one woman dead. Leyritz was found guilty of a lesser misdemeanor DUI charge, for which he faces six months in prison. On Dec. 28, 2007, after celebrating his birthday club-hopping in Fort Lauderdale, FL, Leyritz was in a car crash with 30-year-old Ann Veitch. Blood alcohol tests showed that both Veitch and Leyritz, who <a href="https://web.archive.org/web/20110412164901/http://gothamist.com/2008/11/16/exyank_leyritz_denies_full_culpabil.php">denied responsibility</a> for the crash back in 2008, were under the influence. Leyritz settled the civil suit earlier this year, and will pay $1,000 a month for 100 months to Veitch&apos;s family.</p>

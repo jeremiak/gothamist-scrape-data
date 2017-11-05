@@ -1,0 +1,27 @@
+---
+author: Jen Chung
+date: Apr 7, 2014 5:40 pm
+title: Rev. Al Sharpton Was FBI Mob Informant, Says The Smoking Gun
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2014_03_sharptongingrich.jpg" src="https://web.archive.org/web/20150505122011im_/http://gothamist.com/attachments/jen/2014_03_sharptongingrich.jpg" width="640" height="477"> <br> <i> Rev. Al Sharpton and Newt Gingrich at the White House in 2009; <a href="https://web.archive.org/web/20150505122011/http://gothamist.com/2009/05/07/bloomberg_sharpton_newt.php">not pictured: Mayor Bloomberg</a> (Getty Images)</i></div> <p></p>
+
+<p>Many things come to mind when you hear the Reverend Al Sharpton&apos;s name. Civil rights activist. <a href="https://web.archive.org/web/20150505122011/http://gothamist.com/2011/05/20/rev_al_sharpton_doesnt_regret_tawan.php">Tawana Brawley</a>. <a href="https://web.archive.org/web/20150505122011/http://gothamist.com/2007/04/20/the_reverend_al.php">The Sharpton Primary</a>. <a href="https://web.archive.org/web/20150505122011/http://gothamist.com/2011/04/07/president_obama_bros_out_with_rev_s.php#photo-1">Friend Of Obama</a>. MSNBC host. But definitely not FBI informant&#x2014;until now: <a href="https://web.archive.org/web/20150505122011/http://www.thesmokinggun.com/documents/investigation/al-sharpton-764312">The Smoking Gun reports that Sharpton was also &quot;CI-7,&quot;</a>  aiding the feds on its investigation against La Cosa Nostra: &quot;The fact that Sharpton was working as an informant was known only to members of the Genovese squad and a small number of other law enforcement agents. As with any Mafia informant, protecting Sharpton&#x2019;s identity was crucial to maintaining the viability of ongoing investigations. Not to mention keeping him alive.&quot;</p>
+
+<p><a href="https://web.archive.org/web/20150505122011/http://www.thesmokinggun.com/documents/investigation/al-sharpton-764312">According to The Smoking Gun</a>, Sharpton was &quot;flipped&quot; during an FBI investigation in 1983 but he &quot;vehemently denies having worked as an FBI informant. He has alleged that claims of government cooperation were attempts by dark forces to stunt his aggressive brand of civil rights advocacy or, perhaps, get him killed.&quot; </p>
+
+<center><iframe src="//web.archive.org/web/20150505122011if_/http://embed.gettyimages.com/embed/55859280?et=Nr8DXu5mGUKi2xxl2dHBlQ&amp;sig=FDK-jhJJgO107whQM88B7ZZDtrOVhr_lG7V2KUtJVXI=" width="594" height="463" frameborder="0" scrolling="no"></iframe></center>
+
+<p>In an interview this past weekend, &quot;Sharpton again denied working as a confidential informant, claiming that his prior cooperation with FBI agents was limited to efforts to prompt investigations of drug dealing in minority communities, as well as the swindling of black artists in the recording industry.&quot;</p>
+
+<p>He also denied that was &quot;flipped&quot; but &quot;when asked specifically about his recording of the Gambino crime family member, Sharpton was noncommittal: &apos;I&#x2019;m not saying yes, I&#x2019;m not saying no.&apos;&quot; <a href="https://web.archive.org/web/20150505122011/http://www.thesmokinggun.com/documents/investigation/al-sharpton-764312">From The Smoking Gun</a>: </p><blockquote>Genovese squad investigators--representing both the FBI and NYPD--recalled how Sharpton, now 59, deftly extracted information from wiseguys. In fact, one Gambino crime family figure became so comfortable with the protest leader that he spoke openly--during ten wired face-to-face meetings--about a wide range of mob business, from shylocking and extortions to death threats and the sanity of Vincent &#x201C;Chin&#x201D; Gigante, the Genovese boss who long feigned mental illness in a bid to deflect law enforcement scrutiny. As the mafioso expounded on these topics, Sharpton&#x2019;s briefcase--a specially customized Hartman model--recorded his every word.<p></p>
+
+<p>Task force members, who were interviewed separately, spoke on the condition of anonymity when describing Sharpton&#x2019;s work as an informant and the Genovese squad&#x2019;s activities. Some of these investigators provided internal FBI documents to a reporter.</p>
+
+<p>Records obtained by TSG show that information gathered by Sharpton was used by federal investigators to help secure court authorization to bug two Genovese family social clubs, including Gigante&#x2019;s Greenwich Village headquarters, three autos used by crime family leaders, and more than a dozen phone lines. These listening devices and wiretaps were approved during the course of a major racketeering investigation targeting the Genovese family&#x2019;s hierarchy.  </p></blockquote><a href="https://web.archive.org/web/20150505122011/http://nypost.com/2014/04/07/al-sharpton-secretly-worked-as-an-fbi-mob-informant-report/">Sharpton told the Post,</a> &quot;It&#x2019;s crazy. If I provided all the information they claimed I provided, I should be given a ticker-tape parade.&quot; Instead, he says he approached the FBI &quot;after a mobster threatened him while he was acting as a concert promoter.&quot;<p></p>
+
+<p>At any rate, it&apos;s great publicity for Sharpton&apos;s <a href="https://web.archive.org/web/20150505122011/http://nationalactionnetwork.net/convention-2014/">National Action Network Convention this week</a>&#x2014;President Obama is the headliner!</p>					
+										
+									
+				

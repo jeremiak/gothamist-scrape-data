@@ -1,0 +1,15 @@
+---
+author: Ben Yakas
+date: Sep 23, 2010 2:07 pm
+title: Man Given Summons For Hanging Out In Front Of His Apt.
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="92310trespass.jpg" src="https://web.archive.org/web/20150213074410im_/http://gothamist.com/attachments/byakas/92310trespass.jpg" width="240" height="268" class="image-left"> </span>A Brooklyn man who was given a ticket by police for trespassing outside of his own apartment has joined a class action lawsuit accusing cops of giving out illegal summonses to meet quotas. Lindsey Riddick and his brother Michael were standing outside of Lindsey&apos;s Flatbush home on August 18 when police approached them: &quot;I told the officer,<strong> &apos;I live here and I have the key.&apos; You&apos;re giving me a summons?</strong> Come on, man. You got to be kidding me,&quot; he told <a href="https://web.archive.org/web/20150213074410/http://www.nydailynews.com/ny_local/2010/09/23/2010-09-23_ticket_tenants_for_trespassing_on_own_homes.html">the Daily News.</a></p>
+
+<p>Despite his girlfriend and two daughters greeting him at the door of the apartment, he was still given a summons. Lindsey was able to record part of the exchange with police; when an officer told him to &quot;go inside,&quot; Lindsey argued that he had a right to stand outside his own building. <a href="https://web.archive.org/web/20150213074410/http://www.thechief-leader.com/news/2010-09-10/News_of_the_week/Suit_Contends_Cops_Issue_Summonses_Without_Cause.html">According to his lawsuit</a>, the cop (identified as rookie Officer Marvin Esson) responded: &#x201C;<strong>You don&#x2019;t own the street. You don&#x2019;t own the sidewalk. You don&#x2019;t own the building. You have no right to stand here.</strong>&quot;</p>
+
+<p>Lindsey and his brother have joined a class action lawsuit against the NYPD with 20 other plaintiffs who allege that false summonses are being issued across the city. In 19 of the cases, the summonses were dismissed after the fact; Lindsey and his brother&apos;s case is still pending. &quot;<strong>This is another example of police trespassing on people&apos;s constitutional rights just to fill a quota</strong>. There&apos;s something terribly wrong with how the NYPD operates and it has to be fixed,&quot; said the brothers&apos; lawyer, Jon Norinsberg. But despite <a href="https://web.archive.org/web/20150213074410/http://gothamist.com/2010/09/10/new_recordings_leave_no_doubt_that.php">mounting evidence</a> brought by the likes of <a href="https://web.archive.org/web/20150213074410/http://gothamist.com/2010/08/23/real-life_serpico_sues_nypd_for_tos.php">Officer Adrian Schoolcraft</a>, the NYPD continues to deny the existence of quotas, with Deputy Commissioner Paul Browne calling the idea <a href="https://web.archive.org/web/20150213074410/http://gothamist.com/2010/09/11/nypd_on_quota_recordings_just_good.php">&quot;absurd.&quot;</a></p>					
+										
+									
+				

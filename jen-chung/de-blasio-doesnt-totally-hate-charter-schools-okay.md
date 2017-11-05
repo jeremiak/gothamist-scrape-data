@@ -1,0 +1,29 @@
+---
+author: Jen Chung
+date: Mar 24, 2014 9:25 am
+title: De Blasio Doesn't Totally Hate Charter Schools, Okay?
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2014_03_charterdeblasio.jpg" src="https://web.archive.org/web/20150407023457im_/http://gothamist.com/attachments/jen/2014_03_charterdeblasio.jpg" width="640" height="426"> <br> <i> Photograph of Mayor de Blasio at Riverside Church from the Mayor&apos;s Office</i></div> <p></p>
+
+<p>In a speech designed to flesh out his education policy, Mayor de Blasio eased up on his critical position on charter schools. &quot;We made some decisions in the last weeks, striving for fairness. But I have to tell you I didn&#x2019;t measure up when it came to explaining those decisions to the people of this city,&quot; de Blasio said. &quot;So let me start to right the ship now. We want children to have good options. But good options have to serve both the children they are intended for while not displacing or harming other children in the schools to which they may go.&quot;</p>
+
+<p>The Post characterized this as the mayor&apos;s <a href="https://web.archive.org/web/20150407023457/http://nypost.com/2014/03/23/de-blasio-to-offer-truce-with-cuomo-over-charter-schools/">&quot;olive branch&quot;</a> to Governor Cuomo and charter school supporters, given the <a href="https://web.archive.org/web/20150407023457/http://gothamist.com/2014/03/18/poll_bill_bratton_scott_stringer_mo.php">mayor&apos;s dismal approval numbers</a>. The (pro-charter) Post reported, &quot;&apos;It&#x2019;s an effort to stop the bleeding,&apos; one source said of the ongoing war, in which the mayor took a severe public relations beating after blocking the opening of three charters this fall.&quot; </p>
+
+<p><iframe width="640" height="360" src="//web.archive.org/web/20150407023457if_/http://www.youtube.com/embed/ZMYWgibXDqg" frameborder="0" allowfullscreen></iframe></p>
+
+<p><a href="https://web.archive.org/web/20150407023457/http://www.nytimes.com/2014/03/24/nyregion/de-blasio-strikes-conciliatory-tone-on-charter-schools.html?ref=nyregion&amp;_r=0">The Times wrote of the mayor&apos;s speech</a> at Riverside Church, &quot;Mr. de Blasio struck a conciliatory tone, acknowledging missteps and emphasizing common ground. He quoted a theologian, Paul Tillich, saying, &apos;The noise of these shallow waters prevents us from listening to the sounds out of the depth.&apos; Charter schools and their backers represent perhaps the most formidable political threat to Mr. de Blasio&#x2019;s young administration, and the mayor has taken notice.&quot; </p>
+
+<p><a href="https://web.archive.org/web/20150407023457/http://www.nydailynews.com/news/politics/mayor-de-blasio-tone-charter-schools-article-1.1731467">The Daily News called it</a> a &quot;dramatic retreat&quot;: &quot;Mayor de Blasio admitted Sunday that he botched his fiery message against charter schools &#x2014; especially the Success Academy network, which is run by his longtime political foe Eva Moskowitz.&quot; </p>
+
+<p>Moskowitz had <a href="https://web.archive.org/web/20150407023457/http://gothamist.com/2014/03/05/charter_school_ceo_says_de_blasio_t.php">said of de Blasio</a>, &quot;We have a mayor in the City of New York who says he&#x2019;s a progressive on the one hand, but wants to deny poor kids in Harlem an opportunity, a shot at life. I was never expecting in my wildest dreams that the mayor of the city of New York&#x2014;a so-called progressive&#x2014;would throw children in Harlem out in the street.&quot; </p>
+
+<p>The de Blasio administration would have made sure those children were given places in school, but the <a href="https://web.archive.org/web/20150407023457/http://www.nydailynews.com/new-york/education/charter-group-pays-3-6m-tv-ads-ripping-de-blasio-article-1.1727587">well-financed charter school movement</a> has been spending millions in anti-de Blasio ads. (&quot;Longtime supporters of charter schools, including the Walton Family Foundation and the hedge fund billionaire Paul Tudor Jones, are helping finance the ad campaign, according to an individual involved in the effort,&quot; the Times explains.) </p>
+
+<p>De Blasio told reporters, &quot;Those 194 kids [from Success Academy] will have a great building to go into September, period.&quot; However, in his speech, he said, &quot;We will not do it at the expense of our special education children,&quot; referring to the data that shows Success Academy has <a href="https://web.archive.org/web/20150407023457/http://www.huffingtonpost.com/diane-ravitch/mayor-de-blasio-eva-moskowitz_b_4948262.html">significantly fewer special education students</a> than other schools (an <a href="https://web.archive.org/web/20150407023457/http://www.nydailynews.com/new-york/education/success-academy-tapes-reveal-attempt-transfer-student-article-1.1441098">audio tape also revealed</a> that Success Academy pressured a parent to transfer her child back to public school, ostensibly to keep their stats high).</p>
+
+<p>Yet only six percent of students in New York City attend charter schools. In his speech, the mayor also emphasized, &quot;We need to be able to say, that despite the good efforts of so many, the school system is still broken in so many ways. Our brothers and sisters in the charter movement point to this reality. And I acknowledge that many people of good will in that movement are trying to shake the foundation. And we will work with them in good faith. But we need to work on solutions for the whole.&quot;</p>					
+										
+									
+				

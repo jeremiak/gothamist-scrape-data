@@ -1,0 +1,27 @@
+---
+author: Jen Chung
+date: Nov 19, 2014 8:29 am
+title: Cops Arrest Suspect In Fatal Subway Shoving
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2014_11_kdarden1.jpg" src="https://web.archive.org/web/20150510011821im_/http://gothamist.com/attachments/jen/2014_11_kdarden1.jpg" width="640" height="517"> <br> <i> Photograph by <a href="https://web.archive.org/web/20150510011821/http://instagram.com/p/vk1sHnDCTa/">Lisa Colagrossi</a></i></div> <p></p>
+
+<p><a href="https://web.archive.org/web/20150510011821/http://gothamist.com/2014/11/18/subway_shover_manhunt.php">After an extensive manhunt</a>, police apprehended the suspect in <a href="https://web.archive.org/web/20150510011821/http://gothamist.com/2014/11/16/cops_man_fatally_struck_by_train_ma.php">Sunday&apos;s fatal subway shoving</a>. Kevin Darden, 34, was caught yesterday near his mother&apos;s house in the Bronx. And investigators believe he had also pushed a passenger in another violent incident earlier this month.</p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-right"> <img alt="2014_11_trainshoving1.jpg" src="https://web.archive.org/web/20150510011821im_/http://gothamist.com/attachments/jen/2014_11_trainshoving1.jpg" width="365" height="242"> <br> <i style=" width:365px; ;display:block">Kwok with one of his sons and his wife (Via Facebook)</i></div> The authorities believe that Darden is the man who threw Wai Kuen Kwok into an oncoming D train at the 167th Street station in the Bronx on Sunday morning. Kwok, 61, had been <a href="https://web.archive.org/web/20150510011821/http://gothamist.com/2014/11/17/wife_witnessed_stranger_shove_husba.php">waiting for the southbound train with his wife</a> so they could buy groceries and have lunch to celebrate her birthday in Chinatown. <p></p>
+
+<p>The <a href="https://web.archive.org/web/20150510011821/http://nypost.com/2014/11/17/subway-driver-laments-of-push-victim-nothing-i-could-do/">train&apos;s operator James Muriel said</a>, &quot;I see a body flying across the tracks. I knew that it wasn&#x2019;t an ordinary jump on the tracks. The guy didn&#x2019;t go straight down, he was actually in the air. I slammed the brakes when he was in the air. By the time I got to him he had just fallen onto the tracks, there was just nothing you can do. I need 300-400 feet to get a train to stop. It&#x2019;s a 100-ton train.&quot; Kwok was pronounced dead at the scene and Muriel added that Kwok&apos;s wife cried in his arms. </p>
+
+<p>Surveillance video after the shoving showed Darden taking a Bx35 bus and getting off to go to a bodega, where he bought a loosie cigarette and smoked outside. A man who was pushed at the West 4th Street subway station saw the video and recognized him as his attacker. <a href="https://web.archive.org/web/20150510011821/http://nypost.com/2014/11/18/subway-murder-suspect-is-wanted-for-previous-underground-attack/">According to the Post</a>, the West 4th Street victim is Asian like Kwok:</p><blockquote>Darden... assaulted the first man because he dared to walk in front of him, the sources said. &#x201C;I&#x2019;m warning you!&#x2019;&#x2019; Darden, 34, barked at the victim after shoving him to the ground at the West 4th Street station at around 5:30 p.m. on Nov. 6, the man told cops.<p></p>
+
+<p>Darden, who has more than 30 prior arrests, pushed him so hard that he suffered bruises to his hands and back and needed treatment at NYU Medical Center.</p>
+
+<p>The victim, 51, came forward Tuesday after seeing a surveillance photo of Darden that cops released following the fatal shove of Wai Kuen Kwok, 61, in The Bronx Sunday, sources said. He told police he could pick Darden out of a lineup, which helped them get a warrant for his arrest, the sources said.</p></blockquote><a href="https://web.archive.org/web/20150510011821/http://www.nydailynews.com/new-york/nyc-crime/man-arrested-subway-shoving-killed-bronx-man-article-1.2015432">The Daily News adds</a>, &quot;A second victim also identified Darden as the man who robbed him inside a nearby Bronx subway station just 30 minutes before Kwok&#x2019;s underground death.&quot;<p></p>
+
+<p>Darden has been arrested dozens of times. In Texas, he was arrested in 2011 for trying to burn down his brother&apos;s house and, on November 9th, he was arrested for trying to steal a tourist&apos;s wallet outside the Times Square McDonald&apos;s. The Post notes, &quot;At his arraignment then, bail was set at $1,000, an amount the homeless man had no chance of posting. But after five days in jail, Darden appeared for a court hearing &#x2014; where the supporting deposition wasn&#x2019;t filed because the complaining witness left the country and couldn&#x2019;t be reached, according to sources. The judge said he had no choice but to let Darden go without bail.&quot;</p>
+
+<p>Darden&apos;s mother Joyce Jones <a href="https://web.archive.org/web/20150510011821/http://nypost.com/2014/11/18/subway-murder-suspect-is-wanted-for-previous-underground-attack/">said he was mentally ill</a>, &quot;I&#x2019;m glad they got him off the streets and I&#x2019;m glad he&#x2019;s not dead. I feel so, so sorry for those people and what happened. I know that won&#x2019;t bring him back, but I am so, so sorry.&quot;</p>					
+										
+									
+				

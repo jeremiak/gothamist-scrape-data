@@ -1,0 +1,21 @@
+---
+author: Jen Chung
+date: Apr 8, 2013 3:40 pm
+title: Rupert Murdoch's Mustachioed Henchman Threatens To Take Fox Off Air If Aereo Sticks Around
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2013_04_rupertchase.jpg" src="https://web.archive.org/web/20150422214408im_/http://gothamist.com/attachments/jen/2013_04_rupertchase.jpg" width="640" height="464"> <br> <i> Top photo: Rupert Murdoch and Chase Carey at Sun Valley last year; below, more of Carey&apos;s amazing mustache (Getty Images)</i></div> <p></p>
+
+<p>Aereo, the Internet service that <a href="https://web.archive.org/web/20150422214408/http://gothamist.com/2012/03/14/new_technology_delivers_television.php">allows users to access live broadcast TV programs</a> via their non-TV electronic devices, has been up and running for over a year, despite broadcasters&apos; attempt to shut it down. Broadcast TV networks, like NBC, CBS, ABC, and Fox, have been trying to stop it by claiming copyright infringement, but a <a href="https://web.archive.org/web/20150422214408/http://www.nytimes.com/2013/04/02/business/media/aereo-wins-in-appeals-court-setting-stage-for-trial-on-streaming-broadcast-tv.html">recent court ruling supported Aereo</a>. So now Fox&apos;s parent company is threatening to take the network off broadcast (aka FREE) TV.</p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <a href="https://web.archive.org/web/20150422214408/http://gothamist.com/attachments/jen/2013_03_chasecarey.jpg"> <img alt="2013_03_chasecarey.jpg" src="https://web.archive.org/web/20150422214408im_/http://gothamist.com/assets_c/2013/04/2013_03_chasecarey-thumb-300x327-783664.jpg" width="250" height="272" class="image-left"> </a> </span>According to Bloomberg News, News Corp COO Chase Carey said that the &quot;Fox network will go off the air and become a cable channel if U.S. courts don&#x2019;t stop Internet startup Aereo Inc. from retransmitting shows like &apos;The Simpsons&apos; without permission... Fox and its affiliate stations would stop broadcasting and serve only pay-TV customers to protect the billions of dollars spent annually on programs, along with advertising revenue and hard-won fees from pay-TV systems.&quot;</p>
+
+<p>Carey said, &quot;We need to be able to be fairly compensated for our content. This is not an ideal path we look to pursue, but we can&#x2019;t sit idly by and let an entity steal our signal. We will move to a subscription model if that&#x2019;s our only recourse.&quot; A <a href="https://web.archive.org/web/20150422214408/http://www.twitlonger.com/show/n_1rjlgl6">News Corp statement expanded on his remarks</a>, &quot;We believe that Aereo is pirating our broadcast signal.  We will continue to aggressively pursue our rights in the courts, as well as pursue all relevant political avenues, and we believe we will prevail.&quot;</p>
+
+<p>Still, the NY Times&apos; media reporter <a href="https://web.archive.org/web/20150422214408/https://twitter.com/brianstelter/status/321320759601557504">Brian Stelter felt Carey&apos;s remarks</a> should be &quot;taken with a full shaker of salt.&quot;</p>
+
+<p><b>Update</b>: Aereo spokesperson Virginia Lam says, &quot;Aereo has invented a simple, convenient way for consumers to utilize an antenna to access free-to-air broadcast television, bringing television access into the modern era for millions of consumers. It&apos;s disappointing to hear that Fox believes that consumers should not be permitted to use  an antenna to access free-to-air broadcast television. Over 50 million Americans today access television via an antenna. When broadcasters asked Congress for a free license to digitally broadcast on the public&apos;s airwaves, they did so with the promise that they would broadcast in the public interest and convenience, and that they would remain free-to-air. Having a television antenna is every American&apos;s right.&quot;</p>					
+										
+									
+				

@@ -1,0 +1,13 @@
+---
+author: Ben Yakas
+date: April 24, 2011 11:44 AM
+title: Bronx Teen Allegedly Stabbed To Death Over $10
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:250px; "> <img alt="42411teenstab.jpg" src="https://web.archive.org/web/20110629182304im_/http://gothamist.com/attachments/byakas/42411teenstab.jpg" width="250" height="187"> <br> <i>Damien Martinez, pictured with his mother</i></div> A 17-year-old was <a href="https://web.archive.org/web/20110629182304/http://www.nydailynews.com/news/ny_crime/2011/04/23/2011-04-23_17yearold_damien_martinez_stabbed_over_10_tearful_sister_says.html">stabbed to death</a> early Saturday morning in the Bronx when he tried to get a $10 refund after he was kicked out of a house party. Police found Damien Martinez with a stab wound to the chest on Bathgate Avenue in Tremont; he was pronounced dead at the hospital. <strong>&quot;They killed my brother over $10. My brother didn&apos;t deserve to die over $10,&quot;</strong> said sister Starleena Vargas.<p></p>
+
+<p>Vargas said she, Martinez, and other partygoers were kicked out of a party at the Bathgate Avenue party which had gotten out of hand. But Martinez wanted his $10 cover fee back. Things escalated quickly: &quot;They threw him on the floor and started kicking him. When he tried to protect himself by curling up, they hit him in the head with a metal bat.&quot; She says the group, who are gang members, threw him down the stairs. &quot;They took out a kitchen knife and stabbed him in the neck. His friends ran away because the guys who did it are in a gang.&quot;</p>
+
+<p>Earlier this month, <a href="https://web.archive.org/web/20110629182304/http://gothamist.com/2011/04/21/police_say_dead_granny_closet_copul.php">police say</a> that a Harlem man killed his grandmother over $1, and hid her body in a bedroom closet. Police haven&apos;t confirmed the details of Martinez&apos;s killing, or apprehended any suspects, yet. Family and friends gathered yesterday to mourn Martinez, whose nickname was &quot;Cheese&quot; because of his frequent smile. &quot;He was very loved. We are all devastated,&quot; his sister Amanda Martinez said of him. </p>
+
+<p>Vargas said people weren&apos;t talking to police because they were afraid of retribution from the gang members: &quot;I&apos;m an eyewitness. I saw everything,&quot; she said. Martinez&apos;s cousin Aixa Soltren echoed her sentiments, asking for any other witnesses to come forward: &quot;We just want whoever knows something to come forward. Anybody who was there at the party should come forward.&quot; Martinez, was working toward getting his GED and planned to join the Army, leaves behind a pregnant girlfriend.</p>

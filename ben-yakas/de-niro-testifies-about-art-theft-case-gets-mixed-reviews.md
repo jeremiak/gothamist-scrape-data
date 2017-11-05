@@ -1,0 +1,15 @@
+---
+author: Ben Yakas
+date: Mar 19, 2011 6:04 pm
+title: De Niro Testifies About Art Theft Case, Gets Mixed Reviews
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:250px; "> <img alt="31911deniro.jpg" src="https://web.archive.org/web/20150405014116im_/http://gothamist.com/attachments/byakas/31911deniro.jpg" width="250" height="176"> <br> <i>AP</i></div> Actor <a href="https://web.archive.org/web/20150405014116/http://gothamist.com/tags/robertdeniro">Robert De Niro</a> was in court <a href="https://web.archive.org/web/20150405014116/http://www.nydailynews.com/ny_local/2011/03/18/2011-03-18_robert_de_niro_takes_stand_in_trial_of_gallery_director_accused_of_stealing_mone.html">yesterday</a> testifying against a gallery director accused of pocketing $77,000 from the sale of his father&apos;s paintings. Salander-O&apos;Reilly Galleries owner Lawrence Salander was <a href="https://web.archive.org/web/20150405014116/http://gothamist.com/2010/08/04/scheming_fraudulent_art_dealer_sent.php">already sentenced</a> to six years in prison for the $120 million fraud scheme over the summer, but De Niro claimed that gallery director Leigh Morse stole two of his father&apos;s paintings and sold them, pocketing the profits for herself. <p></p>
+
+<p>The News initially gave his testimony a <a href="https://web.archive.org/web/20150405014116/http://www.nydailynews.com/ny_local/2011/03/18/2011-03-18_robert_de_niro_takes_stand_in_trial_of_gallery_director_accused_of_stealing_mone.html">lukewarm review</a>, saying he &quot;was no raging bull on the witness stand.&quot; But the powers-that-be decided to run a <a href="https://web.archive.org/web/20150405014116/http://www.nydailynews.com/ny_local/2011/03/19/2011-03-19_robert_de_niros_testimony_in_fathers_art_fraud_case_reveals_a_peek_into_his_new_.html">rave review</a> of the actor today, recounting his every word, describing his every action lustily (&quot;twisted his face, body, and hands as tight as a butterfly knot&quot;).</p>
+
+<p>We&apos;re happy somebody has something nice to say about De Niro&apos;s &quot;actorly&quot; abilities these days, since he hasn&apos;t been in a halfway decent movie since the late 90s, at best. If anything, he&apos;s been doing everything he can to spoil all the good will we have for him with caricatured performances in films such as <em>Righteous Kill</em> and <em>What Just Happened</em>, garbage franchises like the <em>Fokers</em> series, and bizarrely miserable appearances on live TV such as SNL. If you&apos;re like us, and desperately want to remember the De Niro who is one of the best actors of the 20th century, <em>Taxi Driver</em> is playing <a href="https://web.archive.org/web/20150405014116/http://www.filmforum.org/films/taxidriver.html">at Film Forum</a> through the end of the month. And that is a movie worth talkin&apos; (to oneself in the mirror) about.</p>					
+										
+									
+				

@@ -1,0 +1,13 @@
+---
+author: Ben Yakas
+date: Apr 9, 2011 11:33 am
+title: Bronx Cops Targets Of Ticket-Fixing Scheme Probe
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:270px; "> <img alt="4911tickets.jpg" src="https://web.archive.org/web/20160304023727im_/http://gothamist.com/attachments/byakas/4911tickets.jpg" width="270" height="202"> <br> <i><a href="https://web.archive.org/web/20160304023727/http://www.flickr.com/photos/unlistedsightings/1062520435/">unlisted sightings&apos; flickr</a></i></div> Cycling tickets may be <a href="https://web.archive.org/web/20160304023727/http://gothamist.com/2011/04/06/cycling_tickets_nearly_doubled_i.php">on the rise</a> across the city, but at least there are still some hard-working cops out there &quot;taking care of&quot; tickets. A new grand jury probe is targeting up to 40 Bronx cops, including delegates from the city&apos;s largest police union, for a ticket-fixing scheme. &quot;Guys are being asked what do they know about cops getting gifts or asking for gifts. They&apos;re talking about indictments for larceny. They&apos;re talking about indictments for bribery. ... It&apos;s not going to be pretty,&quot; one source <a href="https://web.archive.org/web/20160304023727/http://www.nydailynews.com/news/ny_crime/2011/04/09/2011-04-09_up_to_40_bronx_cops_eyed_in_grand_jury_ticketfix_probe__bribery_larceny_charges_.html">told the News</a>. Noted scofflaw Anthony Weiner must really be wondering what he&apos;s <a href="https://web.archive.org/web/20160304023727/http://gothamist.com/2011/03/29/anthony_weiner_owed_2180_in_dc_park.php">doing wrong</a>.<p></p>
+
+<p>Internal Affairs investigators pulled summons records from all 12 Bronx precincts between August 2009 through last June. The investigation was jump started with a separate Internal Affairs probe into a delegate suspected of having ties to a drug dealer. During that investigation, the officer, who is on modified duty, was heard on a wire asking a PBA delegate to fix a summons. The source told the News that over two dozen cops are suspected of making summonses disappear in exchange for gifts, a felony. At least 10 others are suspected of lesser crimes, including losing tickets that they had &quot;taken care of.&quot; We thoroughly condemn this type of behavior...unless of course a cop wants to help us out with a few outstanding tickets.</p>					
+										
+									
+				

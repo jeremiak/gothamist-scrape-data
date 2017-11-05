@@ -1,0 +1,19 @@
+---
+author: Ben Yakas
+date: Jul 6, 2013 1:15 pm
+title: Hilarious NY Times Article Examines Rich Folks Who Dare Venture Below 59th Street
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="7613rich.jpg" src="https://web.archive.org/web/20150430041220im_/http://gothamist.com/attachments/byakas/7613rich.jpg" width="640" height="459"> <br> <i> <a href="https://web.archive.org/web/20150430041220/http://www.shutterstock.com/cat.mhtml?lang=en&amp;version=llv1&amp;anyorall=all&amp;safesearch=1&amp;searchterm=rich%20couple&amp;search_group=&amp;search_source=related_searches#id=95627596&amp;src=m72h0DHjGDd5hERo37EH9w-1-87">Shutterstock/Nejron Photo</a></i></div> <p></p>
+
+<p>The <a href="https://web.archive.org/web/20150430041220/http://gothamist.com/tags/nytimes">NY Times</a> Real Estate section is the Rosencrantz to the Style Section&apos;s Guildenstern, the yin and yang of out-of-touch manufactured high class trend stories. This weekend, the world&apos;s most unintentionally hilarious newspaper put forth yet another brilliant missive about the struggles of the oh so rich centered around <a href="https://web.archive.org/web/20150430041220/http://www.nytimes.com/2013/07/07/realestate/new-yorks-beau-monde-finds-downtown.html?smid=tw-nytimes&amp;_r=1&amp;&amp;pagewanted=all">a particularly relatable concern</a>: &quot;<strong>You are seeing people ask themselves: Do I have an affair, get a divorce or get a downtown apartment?&quot;</strong> said Michele Kleier, the president and chairwoman of Kleier Residential. &quot;It has become a very sexy thing to do, especially for those people living a sedate Park Avenue lifestyle.&quot;</p>
+
+<p>Yes, the hottest trend for NYC&apos;s upper elite is to venture below 59th Street, &quot;embracing downtown neighborhoods that would once have been considered unthinkable&quot; as the Times put it. &#x201C;Downtown is livelier &#x2014; we feel as though we have been in Milan for the weekend,&#x201D; said Brooke Garber Neidich, a chairwoman of the Whitney Museum whose resume reads like the ideal fit for a Weddings Section biography, and who apparently has never been to Milan....unless Milan opened up their own <a href="https://web.archive.org/web/20150430041220/http://gothamist.com/tags/welcometothejohnsons">Welcome To The Johnsons outpost</a> and no one told us.</p>
+
+<p>With all the kids stuck in <a href="https://web.archive.org/web/20150430041220/http://gothamist.com/2013/03/09/ny_times_reportage_on_brooklyn_gent.php">a gentrification loop in Brooklyn</a> or buying <a href="https://web.archive.org/web/20150430041220/http://gothamist.com/2013/07/03/couple_spend_1_million_to_live_in_b.php">$1 million condos in Bed-Stuy</a>, the olds have begun to cautiously venture to the abandoned Lower East Side, where the kickball games <a href="https://web.archive.org/web/20150430041220/http://gothamist.com/2013/06/05/les_residents_say_adult_kickball_le.php">go all night long</a>. </p>
+
+<p>&#x201C;I think there is a big romance about living downtown,&#x201D; said developer and (apparently) amateur anthropologist Izak Senbahar. &#x201C;It is much more diverse, it isn&#x2019;t all fund managers, but artists, literary people, then some Wall Street sprinkled in.&#x201D; These Upper East and West Siders are quickly discovering that life below the 59th Street fault line of Manhattan is wild and untamed, a wild west for the gaggles of Muffys and Thurstons: <strong>&#x201C;You can go out to dinner and you don&#x2019;t have to be dressed,&#x201D; said Linda Lambert. &#x201C;You don&#x2019;t have to wear jewelry.&#x201D;</strong></p>					
+										
+									
+				

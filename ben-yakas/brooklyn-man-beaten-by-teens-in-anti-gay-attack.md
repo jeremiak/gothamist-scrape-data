@@ -1,0 +1,13 @@
+---
+author: Ben Yakas
+date: March 17, 2011 11:16 AM
+title: Brooklyn Man Beaten By Teens In Anti-Gay Attack
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="31711bashing.jpg" src="https://web.archive.org/web/20130530154826im_/http://gothamist.com/attachments/byakas/31711bashing.jpg" width="640" height="354"> <br> <i>Barrie Shortell, before and after the attack (via <a href="https://web.archive.org/web/20130530154826/http://www.queerty.com/the-brutal-brooklyn-gay-bashing-of-barie-shortell-20110316/">Queerty</a>)</i></div> <p></p>
+
+<p>A Brooklyn man was brutally <a href="https://web.archive.org/web/20130530154826/http://www.queerty.com/the-brutal-brooklyn-gay-bashing-of-barie-shortell-20110316/">beaten</a> by a gang of teenagers in Wiliamsburg last month because the teens thought he was gay. Barie Shortell was attacked by a group of six teens on N. Fourth Street on Feb. 22 around 10 pm. The group mocked and taunted him with anti-gay slurs, including, &#x201C;Oh s-t, is that a guy or a girl?&#x201D; before jumping and attacking him. Shortell told <a href="https://web.archive.org/web/20130530154826/http://www.brooklynpaper.com/stories/34/11/wb_bariewythe_2011_3_18_bk.html">Brooklyn Paper</a>, &#x201C;I feel pretty confident they perceived me as a gay man and attacked me, but I can&#x2019;t understand why they did what they did. I looked horrible. Blood was everywhere.&#x201D;</p>
+
+<p>He wasn&apos;t robbed, but he was left with a broken nose, jaw and eye socket. Surgeons operated for nearly 10 hours resetting his jaw and putting three metal plates in his head&#x2014;one surgeon compared the force of impact to that of a car accident. The attack has now been deemed a hate crime, but no arrests have been made. </p>
+
+<p>Shortell is recovering now; since he has no health insurance, his friends have organized a fundraiser at Blackout Bar in Greenpoint next Wednesday for him, called &quot;Gay Bash: A Benefit For Barie Shortell.&quot; You can see all the information about the event <a href="https://web.archive.org/web/20130530154826/http://www.newyorkshitty.com/greenpoint-goodness/?p=56315">here</a>; there is also a <a href="https://web.archive.org/web/20130530154826/http://www.facebook.com/pages/The-Barie-Response/148248155238058?sk=info">Facebook page</a>, and a donation page for Shortell <a href="https://web.archive.org/web/20130530154826/http://bariebenefit.com/default.aspx">here.</a></p>

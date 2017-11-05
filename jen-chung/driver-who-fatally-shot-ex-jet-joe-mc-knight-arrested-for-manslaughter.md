@@ -1,0 +1,32 @@
+---
+author: Jen Chung
+date: Dec 6, 2016 2:04 pm
+title: Driver Who Fatally Shot Ex-Jet Joe McKnight Arrested For Manslaughter
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2016_12_mcknightshooting.jpg" src="https://web.archive.org/web/20161208132209im_/http://gothamist.com/attachments/jen/2016_12_mcknightshooting.jpg" width="640" height="426"> <br> <i> Police investigate the shooting scene on December 1 in Terrytown, La. (Michael DeMocker /NOLA.com The Times-Picayune via AP)</i></div> <p></p>
+
+<p>Five days after a <a href="https://web.archive.org/web/20161208132209/http://gothamist.com/2016/12/02/joe_mcknight_shot_killed.php">former Jets running back was killed</a> during an apparent road rage incident, Louisiana police have arrested the (white) man who shot him. And the sheriff has a message to critics who claimed that if the shooter was black, he would have been arrested sooner: &quot;Tough. I don&apos;t care. Because what I know is that I can put my head on the pillow knowing that we&apos;ve done the right thing for the right reasons.&quot;</p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-right"> <img alt="2016_12_rgasser.jpg" src="https://web.archive.org/web/20161208132209im_/http://gothamist.com/attachments/jen/2016_12_rgasser.jpg" width="250" height="320"> <br> <i style=" width:250px; ;display:block"> Ronald Gasser (JPSO)</i></div> Joe McKnight, who played for USC during college and then with Jets and Kansas City Chiefs in the NFL and Edmonton Eskimos and Saskatchewan Roughriders in the CFL, was driving in Terrytown, Louisiana, five miles from New Orleans, on December 1st when, around 2:45 p.m., he got into an altercation with Ronald Gasser. Gasser, <a href="https://web.archive.org/web/20161208132209/http://www.nola.com/crime/index.ssf/2016/12/ronald_gasser_joe_mcknight_sho.html#incart_river_index_topics">from inside his vehicle</a>, fired several shots at McKnight, who had exited his vehicle.<p></p>
+
+<p><a href="https://web.archive.org/web/20161208132209/http://www.nola.com/crime/index.ssf/2016/12/ronald_gasser_joe_mcknight_sho.html#incart_river_index_topics">The coroner said</a> &quot;one of the three bullets that struck McKnight, 28, entered his chest and traveled through his liver and kidney before exiting out his right lower back. Another bullet struck McKnight in his right shoulder and punctured his lung. The third bullet hit McKnight in his left hand.&quot; The vehicle McKnight was driving <a href="https://web.archive.org/web/20161208132209/http://www.cbsnews.com/news/joe-mcknight-shooting-ronald-gasser-charged-after-ex-nfl-players-death/">belonged to his stepfather</a>; his stepfather&apos;s gun was also found in the Audi SUV.</p>
+
+<p>Jefferson Parish police allowed Gasser, who was cited in 2006 for another <a href="https://web.archive.org/web/20161208132209/http://www.nola.com/crime/index.ssf/2016/12/joe_mcknights_shooter_was_cite.html#incart_river_index_topics">violent road rage incident in the same spot</a>, to remain free during their investigation, prompting criticism that authorities were being too lax because Gasser, 54, is white.  However, there have been other similar road rage shootings in the area <a href="https://web.archive.org/web/20161208132209/http://www.nola.com/crime/index.ssf/2016/12/joe_mcknight_gasser_vicknair_c.html#incart_most-read_">where black suspects</a> <a href="https://web.archive.org/web/20161208132209/http://www.nola.com/crime/index.ssf/2016/04/cardell_hayes_booked_with_seco.html">were taken into custody</a> more immediately. </p>
+
+<p>In a press conference where he finally announced Gasser&apos;s arrest on manslaughter charges, Jefferson Parish Sheriff Newell Normand said, &quot;In this state, whether we like it or not, we have a very forward-leaning &apos;Stand Your Ground&apos; self defense / justifiable homicide laws that... creates for us an obligation to make sure that we make sure we get it right&quot; when an arrest is made.</p>
+
+<p>Normand said that there was only one witness statement on the day of the shooting, and that &quot;justice has no time period. Justice is not a sprint. It is a marathon. These investigations are marathons.&quot; Normand also suggested that having Gasser free was a benefit: &quot;Mr. Gasser never asked for a lawyer,&quot; and police were able to conduct 10 hours of &quot;non-custodial interview&quot; plus got consent to search his home. </p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2016_12_jmcknight.jpg" src="https://web.archive.org/web/20161208132209im_/http://gothamist.com/attachments/jen/2016_12_jmcknight.jpg" width="640" height="449"> <br> <i> McKnight in a game against the Buffalo Bills in 2011 (Getty Images)</i></div> <p></p>
+
+<p>Police officers have since made 160 interviews. The sheriff also <a href="https://web.archive.org/web/20161208132209/http://profootballtalk.nbcsports.com/2016/12/06/sheriff-explains-joe-mcknight-shooting-with-another-bizarre-press-conference/">took the time to complain</a> about online criticism on the investigation. <a href="https://web.archive.org/web/20161208132209/http://www.espn.com/nfl/story/_/id/18218333/ronald-gasser-charged-manslaughter-shooting-former-new-york-jets-rb-joe-mcknight">According to ESPN</a>, Normand read some negative remarks about the investigation out loud, including &quot;racially charged comments,&quot; and told the press, &quot;We have sometimes unrealistic expectations of how these things work ... you don&apos;t just run out and start slapping cuffs on people.&quot;</p>
+
+<div><iframe src="https://web.archive.org/web/20161208132209if_/https://www.facebook.com/plugins/video.php?href=https%3A%2F%2Fwww.facebook.com%2FNOLAnews%2Fvideos%2F10154088955522060%2F&amp;width=640&amp;show_text=false&amp;height=345&amp;appId" width="640" height="345" style="border:none;overflow:hidden" scrolling="no" frameborder="0" allowtransparency="true"></iframe></div>
+
+<p>Gasser is being held on $500,000 bail. His lawyer says <a href="https://web.archive.org/web/20161208132209/http://www.tmz.com/2016/12/06/ronald-gasser-joe-mcknight-shooter-jail-release/">there&apos;s no probable cause</a>.<br>
+</p>					
+										
+									
+				

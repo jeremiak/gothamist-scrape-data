@@ -1,0 +1,17 @@
+---
+author: Ben Yakas
+date: Mar 16, 2011 7:06 pm
+title: Sexting Teens Are No Longer Child Pornographers In NJ
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="31611sexting.jpg" src="https://web.archive.org/web/20160318020750im_/http://gothamist.com/attachments/byakas/31611sexting.jpg" width="250" height="250" class="image-left"> </span>Up until this week, if a teenager was caught sending nude <a href="https://web.archive.org/web/20160318020750/http://gothamist.com/tags/sexting">sexts</a> to another minor in many states including NJ, they could have been prosecuted as sex offenders and risk years in prison, as happened earlier this year with one <a href="https://web.archive.org/web/20160318020750/http://blog.nj.com/njv_editorial_page/2010/02/sexting_foolish_teens_are_not.html">unlucky teen</a>. But this week, the NJ Assembly <a href="https://web.archive.org/web/20160318020750/http://www.pressofatlanticcity.com/news/ap/new_jersey/bill-lets-sexting-teens-avoid-charges/article_1dbc3d21-15b5-56eb-9665-3f2e83295f7b.html">voted unanimously</a> to loosen the rules on sexting, and try to avoid saddling <a href="https://web.archive.org/web/20160318020750/http://www.salon.com/life/sexting/?story=/mwt/feature/2011/03/15/sexting">sexually precocious</a>, probably stupid kids with criminal records.</p>
+
+<p>Now, instead of facing jail time, teens caught sexting under the new law will <a href="https://web.archive.org/web/20160318020750/http://www.nj.com/news/index.ssf/2011/03/nj_lawmakers_approve_education.html">be sent to</a> an educational program&#x2014;it may be writing an essay, or attending a responsibility management course, but the details are still being worked out. This is for first time offenders only though; repeat sexters may still have to register as Megan&apos;s Law offenders, or even face jail time. </p>
+
+<p>&quot;Juveniles do stupid things. With a click of a switch they could send it to somebody and that particular picture could be sent off to many other people with an additional click. We want to make sure these kids know that they did something wrong, but we don&#x2019;t want them to have a criminal record,&quot; said Assemblywoman Pamela Lampitt, one of the sponsors of the bill. </p>
+
+<p>Last year, NY State Assembly <a href="https://web.archive.org/web/20160318020750/http://www.wbng.com/news/state/NY-Senate-Eases-Sexting-Law-98761484.html">voted to</a> lessen their penalties for sexting&#x2014;if the messages are sent between two consenting minors, less than four years apart in age, those caught are not considered sex offenders. The Star-Ledger commends the new bill, but adds that the best thing is for parents and teachers to educate kids about how &quot;sending a picture across the classroom this morning means it could end up around the world by final period.&quot; So remember kids: always practice <a href="https://web.archive.org/web/20160318020750/http://gothamist.com/2011/02/18/a_handy_guide_to_sexting_by_foxnews.php">safe sexting</a>, unless you want to end up like a <a href="https://web.archive.org/web/20160318020750/http://gothamist.com/tags/brettfavre">disgraced, out of work, horny grandfather at 41.</a></p>					
+										
+									
+				

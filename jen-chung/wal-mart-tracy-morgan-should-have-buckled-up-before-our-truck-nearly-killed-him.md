@@ -1,0 +1,26 @@
+---
+author: Jen Chung
+date: Sep 30, 2014 12:00 pm
+title: Wal-Mart: Tracy Morgan Should Have Buckled Up Before Our Truck Nearly Killed Him
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2014_09_tracymorgan.jpg" src="https://web.archive.org/web/20150510013203im_/http://gothamist.com/attachments/jen/2014_09_tracymorgan.jpg" width="640" height="425"> <br> <i> Tracy Morgan in April (AP)</i></div> <p></p>
+
+<p>After a Wal-Mart tractor-trailer slammed into a van <a href="https://web.archive.org/web/20150510013203/http://gothamist.com/2014/06/07/tracy_morgan_in_critical_condition.php">carrying actor Tracy Morgan and his fellow comedians</a>, the retailing behemoth&apos;s CEO said, &quot;This is a tragedy and we are profoundly sorry that one of our trucks was involved...The facts are continuing to unfold. If it&apos;s determined that our truck caused the accident, Walmart will take full responsibility.&quot; Authorities said the <a href="https://web.archive.org/web/20150510013203/http://gothamist.com/2014/06/09/more_responsive_tracy_morgan_still.php">Wal-Mart truck driver had fallen asleep at the wheel</a>. But now Wal-Mart is claiming that Morgan and the other van occupants weren&apos;t acting responsibly.</p>
+
+<p>Morgan <a href="https://web.archive.org/web/20150510013203/http://gothamist.com/2014/06/08/dozing_truck_driver_charged_with_de.php">was critically injured in the June 7th crash</a> on the NJ Turnpike, and his friend and mentor James McNair was killed. <a href="https://web.archive.org/web/20150510013203/http://gothamist.com/2014/06/09/more_responsive_tracy_morgan_still.php">A criminal complaint said</a> that the 18-wheeler&apos;s driver, Kevin Roper, had been dozing and didn&apos;t notice slow-moving traffic in front of him. But now Wal-Mart is fighting back against a lawsuit that Morgan and other passengers filed against them. <a href="https://web.archive.org/web/20150510013203/http://www.nj.com/entertainment/index.ssf/2014/09/tracy_morgan_walmart_accident_no_seatbelt_to_blame.html">From NJ.com</a>: </p><blockquote>In federal court filings, the retailer faults Morgan and the rest of his injured entourage, stating, had the passengers been wearing safety restraints, &quot;all or a portion of the injuries could have been diminished or minimized.&quot;<p></p>
+
+<p>&quot;By failing to exercise ordinary care in making use of available seatbelts, upon information and belief, plaintiffs acted unreasonably and in disregard of plaintiffs&apos; own best interests,&quot; Walmart&apos;s lawyers write. &quot;Accordingly, all or a portion of the injuries could have been diminished or minimized by the exercise of reasonable conduct using the available seatbelts.&quot;</p></blockquote><a href="https://web.archive.org/web/20150510013203/http://www.huffingtonpost.com/2014/09/29/walmart-tracy-morgan_n_5903604.html">Morgan&apos;s attorney, Benedict Morelli, said,</a> &quot;It&#x2019;s not a defense. They&#x2019;re trying to mitigate their damages,&quot; adding, &quot;It&apos;s disingenuous. It&apos;s not what they said they were going to do initially, which was take full responsibility. I&apos;m very upset, not for myself but for the families I represent.&quot;<p></p>
+
+<p><a href="https://web.archive.org/web/20150510013203/http://www.nj.gov/oag/hts/seatbelts.html">NJ seatbelt law states that it</a> &quot;applies to all passengers, who are at least 8 years of age but less than 18 years of age, and each driver and front seat passenger of a passenger automobile, operated on a street or highway. All of these occupants are required to wear a properly adjusted and fastened seat belt system.&quot; Also, &quot;On January 18, 2010, legislation was signed into law requiring all occupants to buckle up, regardless of their seating position in a vehicle. A secondary offense, the new law allows police to issue summonses to unbuckled back seat occupants, 18 years of age and older, when the vehicle they are riding in is stopped for another violation.&quot;</p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2014_09_ntsbmorganvan.jpg" src="https://web.archive.org/web/20150510013203im_/http://gothamist.com/attachments/jen/2014_09_ntsbmorganvan.jpg" width="640" height="292"> <br> <i> The NTSB&apos;s 3D scan of the van carrying Morgan</i></div> <p></p>
+
+<p><a href="https://web.archive.org/web/20150510013203/https://www.ntsb.gov/investigations/fulltext/HWY14MH012_preliminary.html">An NTSB report determined</a> that Roper was speeding, driving 20 mph above the speed limit (it had been lowered to 45 mph that evening), and that Roper had been on the job for 13.5 hours, logging over 9 hours of driving time. </p>
+
+<p>Morgan <a href="https://web.archive.org/web/20150510013203/http://gothamist.com/2014/06/20/tracy_morgan_has_been_released_from.php">is still undergoing rehab</a>. Wal-Mart claims it still wants to work with him and the other plaintiffs.<br>
+</p>					
+										
+									
+				

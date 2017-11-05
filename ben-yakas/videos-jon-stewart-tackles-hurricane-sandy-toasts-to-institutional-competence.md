@@ -1,0 +1,19 @@
+---
+author: Ben Yakas
+date: Nov 1, 2012 11:10 am
+title: Videos: Jon Stewart Tackles Hurricane Sandy, Toasts To Institutional Competence
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="11112daily.jpg" src="https://web.archive.org/web/20141102031002im_/http://gothamist.com/attachments/byakas/11112daily.jpg" width="640" height="436" class="image-none"> </span></p>
+
+<p>After being derailed because of <a href="https://web.archive.org/web/20141102031002/http://gothamist.com/tags/hurricanesandy/1">Hurricane Sandy</a>, The Daily Show returned last night with reports from the powerless zones (&quot;Little North Korea&quot;), and to tackle the &quot;institutional competence&quot; regarding the response to the storm (with big praise to NJ Gov. Chris Christie and Bloomberg&apos;s ASL translator, <a href="https://web.archive.org/web/20141102031002/http://gothamist.com/2012/10/30/bloombergs_sign_langauge_translator.php">Lydia Callis</a>). &quot;Do you ever have one of those days where everything you ever loved as a child was under water?&quot; Stewart asked at the start of his show.</p>
+
+<center><div style="background-color:#000000;width:520px;"><div style="padding:4px;"><iframe src="https://web.archive.org/web/20141102031002if_/http://media.mtvnservices.com/embed/mgid:cms:video:thedailyshow.com:420652" width="512" height="288" frameborder="0"></iframe><p style="text-align:left;background-color:#FFFFFF;padding:4px;margin-top:4px;margin-bottom:0px;font-family:Arial, Helvetica, sans-serif;font-size:12px;"><b><a href="https://web.archive.org/web/20141102031002/http://www.thedailyshow.com/watch/wed-october-31-2012/hurricane-sandys-aftermath">The Daily Show with Jon Stewart</a></b><br>Get More: <a href="https://web.archive.org/web/20141102031002/http://www.thedailyshow.com/full-episodes/">Daily Show Full Episodes</a>,<a href="https://web.archive.org/web/20141102031002/http://www.indecisionforever.com/">Political Humor &amp; Satire Blog</a>,<a href="https://web.archive.org/web/20141102031002/http://www.facebook.com/thedailyshow">The Daily Show on Facebook</a></p></div></div></center>
+
+<p>Stewart gave praise to Christie, Andrew Cuomo, and Michael Bloomberg, who he argued proved that once you remove partisan gamesmanship from a situation, government performance improves dramatically: &quot;Mayor Bloomberg kicked ass at his job, and did it in two languages!&quot; Callis turned press briefings into &quot;an Alvin Ailey sign language recital;&quot; Cuomo made a statement about global warming that couldn&apos;t be refused; and Christie &quot;kicked crazy ass,&quot; even if he was a bit of a hypocrite.</p>
+
+<center><div style="background-color:#000000;width:520px;"><div style="padding:4px;"><iframe src="https://web.archive.org/web/20141102031002if_/http://media.mtvnservices.com/embed/mgid:cms:video:thedailyshow.com:420653" width="512" height="288" frameborder="0"></iframe><p style="text-align:left;background-color:#FFFFFF;padding:4px;margin-top:4px;margin-bottom:0px;font-family:Arial, Helvetica, sans-serif;font-size:12px;"><b><a href="https://web.archive.org/web/20141102031002/http://www.thedailyshow.com/watch/wed-october-31-2012/a-daily-show-tribute-to-institutional-competence">The Daily Show with Jon Stewart</a></b><br>Get More: <a href="https://web.archive.org/web/20141102031002/http://www.thedailyshow.com/full-episodes/">Daily Show Full Episodes</a>,<a href="https://web.archive.org/web/20141102031002/http://www.indecisionforever.com/">Political Humor &amp; Satire Blog</a>,<a href="https://web.archive.org/web/20141102031002/http://www.facebook.com/thedailyshow">The Daily Show on Facebook</a></p></div></div></center>					
+										
+									
+				

@@ -1,0 +1,21 @@
+---
+author: Jen Chung
+date: Jul 5, 2013 1:10 pm
+title: FYI: Assembly Speaker Sheldon Silver Makes $350,000-$450,000 From His Law Firm Job
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2013_07_sheldonsilver.jpg" src="https://web.archive.org/web/20150509141406im_/http://gothamist.com/attachments/jen/2013_07_sheldonsilver.jpg" width="640" height="427"> <br> <i> Speaker Silver in Albany in 2008 (Getty Images)</i></div> <p></p>
+
+<p>Late Tuesday afternoon, when everyone was tuned out and ready to plan their <a href="https://web.archive.org/web/20150509141406/http://gothamist.com/2013/07/05/photos_videos_2013_macys_july_4th_f.php#photo-1">July 4th fireworks-watching</a>, <a href="https://web.archive.org/web/20150509141406/http://gothamist.com/2013/07/04/nypd_investigating_weird_rope_dangl.php#photo-1">shimmying down from the Brooklyn Bridge</a>, or <a href="https://web.archive.org/web/20150509141406/http://gothamist.com/2013/07/05/man_brings_massive_smoker_grill_on.php">BBQ smoker-lugging</a>, the NY State Joint Commission on Public Ethics <a href="https://web.archive.org/web/20150509141406/http://www.jcope.ny.gov/elected%20officials/fdselectedofficials.html">released reports on lawmakers&apos; financial disclosures</a>. Most notably, Assembly Speaker Sheldon Silver&apos;s outside salary was revealed&#x2014;a hefty $350,000 and $450,000 from NYC law firm Weitz &amp; Luxenberg.</p>
+
+<p>It&apos;s unclear what <a href="https://web.archive.org/web/20150509141406/http://gothamist.com/2008/08/07/sheldon_silvers_financial_disclosur.php">Silver does there</a>&#x2014;the <a href="https://web.archive.org/web/20150509141406/http://www.nytimes.com/2013/07/04/nyregion/legislators-reap-benefits-of-part-time-jobs-at-law-firms-filings-show.html?partner=rss&amp;emc=rss&amp;_r=0">NY Times reports</a>, &quot;His actual job and pay have long been shrouded in mystery. His filing said that his job consisted of &apos;general practice of law with emphasis on representation of individual clients and personal injury actions,&apos; and his title is of counsel.&quot; The <a href="https://web.archive.org/web/20150509141406/http://www.nypost.com/p/news/local/firm_lot_counsel_silver_assembly_ABSXo8K57o7b1lBvoLHk9L?utm_medium=rss&amp;utm_content=%20%20%20%20%20%20%20%20Localhttp">Post points out</a>, &quot;His partners at Weitz &amp; Luxenberg are top board members of the firm. The Post previously reported that the firm loaned money at 18 percent interest to the law firm representing some 9,800 Ground Zero workers with toxic-illness suits against the city.&quot;</p>
+
+<p>The Times says Silver&apos;s fortune is &quot;at least $763,000 and potentially more than $1.1 million, including his legislative salary of $121,000. Mr. Silver also has an investment portfolio that was worth $778,000 to $2 million at the end of last year, according to his filing, and included blue chips like Oracle and Disney. Mr. Silver also reported deferred compensation plans and trusts that hold about $1.8 million to $2.3 million. A portion of his income last year came from securities sales, including a sale of Ford stock, which brought income of at least $150,000.&quot; </p>
+
+<p>The <a href="https://web.archive.org/web/20150509141406/http://www.nydailynews.com/news/politics/ny-speaker-sheldon-6m-man-disclosure-article-1.1389871">Daily News puts his worth</a> at anywhere from $3.8 million to $6 million. But a source tells the News &quot;that the speaker invests in several companies that stand to gain if a gas drilling technique known as hydrofracking is approved for upstate, yet Silver has pushed to stop it. &apos;If there was a conflict, why is he pushing for a (drilling) moratorium?&apos; the source said.&quot; </p>
+
+<p>Better question: Why the hell are taxpayers <a href="https://web.archive.org/web/20150509141406/http://gothamist.com/2013/06/30/well_pay_500hour_to_defend_sheldon.php">paying his legal bills in the Gropez lawsuit</a>?</p>					
+										
+									
+				

@@ -1,0 +1,19 @@
+---
+author: Ben Yakas
+date: Mar 11, 2011 4:50 pm
+title: Charges Dropped Against Accused Hamster Killer
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="31110hamster.jpg" src="https://web.archive.org/web/20150503151808im_/http://gothamist.com/attachments/byakas/31110hamster.jpg" width="640" height="480"> <br> <i><a href="https://web.archive.org/web/20150503151808/http://www.flickr.com/photos/victoriabelanger/4129954574/">victoria belanger&apos;s flickr</a></i></div> <p></p>
+
+<p>This week, a Brooklyn teenager was arrested and <a href="https://web.archive.org/web/20150503151808/http://gothamist.com/2011/03/09/brooklyn_woman_arrested_for_killing.php">charged with</a> killing her little brothers&apos; pet hamster; it turned out that there was a whole messy family backstory to it, including at least one other hamster homicide. But now, Monique Smith, who was facing up to two years in prison, has had the <a href="https://web.archive.org/web/20150503151808/http://cityroom.blogs.nytimes.com/2011/03/11/charges-dropped-in-hamster-killing-case/">charges dropped against her</a>, after family members recanted their accounts. Even so, in a jailhouse interview with <a href="https://web.archive.org/web/20150503151808/http://www.nydailynews.com/news/ny_crime/2011/03/11/2011-03-11_hamster_killer_suspect_monique_smith_insists_she_didnt_murder_rodent_sweetie_in_.html">the News</a> earlier today, she didn&apos;t sound like she had much love for hamsters: &quot;<strong>If I saw a hamster in this filthy place, I&apos;d kill it. I didn&apos;t kill that hamster, but I&apos;d kill one right now because that&apos;s what I&apos;m in here for - a b------t rodent.</strong>&quot;</p>
+
+<p>Smith, 19, <a href="https://web.archive.org/web/20150503151808/http://www.nydailynews.com/news/ny_crime/2011/03/11/2011-03-11_hamster_killer_suspect_monique_smith_insists_she_didnt_murder_rodent_sweetie_in_.html">blamed the whole mess</a> on her older brother, who allegedly killed one of the family&apos;s hamsters previously, and who she claims set her up for the fall: &quot;This is a family feud that has gone rotten - my brother is out to get me. I used to play with the hamster, I used to hold the hamster...<strong>Everyone is laughing at us. Even the police are calling me the hamster killer</strong>.&quot; Smith lives with ten of her twelve siblings in a house in Bushwick. The nine-year-old brother, Brandon, <a href="https://web.archive.org/web/20150503151808/http://gothamist.com/2011/03/10/9-year-old_called_aspca_about_siste.php">called the ASPCA</a> on Smith after the incident, which led to her arrest after a nine-month hunt.</p>
+
+<p>Smith is most incredulous that nobody is thinking about her two-month-old child:<strong> &quot;It wasn&apos;t a body, it was a f-----g rat. They think a hamster is more important than an infant,&quot;</strong> she said. She added that she&apos;s in school and was &quot;about to start an internship next month,&quot; and fears the toll the ordeal might have on her psyche: &quot;I could get postpartum depression. I&apos;m used to waking up every three hours to feed my daughter. To go a whole night and sleep a whole night without doing that - I can&apos;t take it.&quot; </p>
+
+<p>However, perhaps the person who should be most careful is the older brother, Aaron, who she says used to cut and burn snakes when he was younger. Now that the charges have been dropped, he&apos;ll have to face his sister: &quot;When I get out...when he sees me - its gonna be like he saw a ghost,&quot; she said ominously.</p>					
+										
+									
+				

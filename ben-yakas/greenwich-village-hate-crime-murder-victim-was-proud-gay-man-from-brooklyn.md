@@ -1,0 +1,29 @@
+---
+author: Ben Yakas
+date: May 19, 2013 10:05 am
+title: Greenwich Village Hate Crime Murder Victim Was "Proud Gay Man" From Brooklyn
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="51913hatecrime.jpg" src="https://web.archive.org/web/20160227073928im_/http://gothamist.com/attachments/byakas/51913hatecrime.jpg" width="640" height="480"> <br> <i> Mark Carson (<a href="https://web.archive.org/web/20160227073928/https://www.facebook.com/mark.carson.52/photos">via Facebook</a>)</i></div> <p></p>
+
+<p>On Friday evening, a 32-year-old man <a href="https://web.archive.org/web/20160227073928/http://gothamist.com/2013/05/18/man_fatally_shot_on_greenwich_villa.php">was fatally shot in the middle of Greenwich Village</a> in what police believe was &quot;clearly a hate crime.&quot; Brooklyn resident Mark Carson was walking with friend on Sixth Avenue near West 8th Street around midnight Friday when they were confronted by 33-year-old Elliot Morales and two others. &quot;Do you want to die here?&quot; Police Commissioner Ray Kelly said Morales asked Carson. Morales then allegedly pulled out a .38-caliber revolver and shot him once in the cheek. </p>
+
+<p>Carson and his 31-year-old friend were dressed in tank tops and cut-off shorts with boots. Police say when they first were approached by the suspects, Morales and pals started hurling gay epithets at them, including &#x201C;Look at these faggots&quot; and &#x201C;What are you, gay wrestlers?&#x201D; Even when Carson and friend started walking away, the suspects chased after them shouting &quot;faggot&quot; and &quot;queer.&quot; </p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-right"> <img alt="2013_05_investigation.jpg" src="https://web.archive.org/web/20160227073928im_/http://gothamist.com/attachments/jen/2013_05_investigation.jpg" width="365" height="275"> <br> <i style=" width:365px; ;display:block"> Via WCBS 2</i></div> <a href="https://web.archive.org/web/20160227073928/http://newyork.cbslocal.com/2013/05/18/man-shot-killed-at-busy-greenwich-village-intersection/">Kelly emphasized</a>, &#x201C;This fully looks to be a hate crime; a bias crime. There were no words that would aggravate the situation that were spoken by the victims. They did not know the confronter. There was no previous relationship.&quot;<p></p>
+
+<p>Carson was taken to Beth Israel Hospital, where he died. &#x201C;I thought that kind of hate stuff was gone, but I see that it&#x2019;s not,&#x201D; the victim&#x2019;s father, Mark Carson Sr., <a href="https://web.archive.org/web/20160227073928/http://www.nypost.com/p/news/local/manhattan/gay_slay_in_village_NGivdC7FqIArDqTfqNCaJJ?utm_medium=rss&amp;utm_content=Manhattan">told the Post</a>. &#x201C;It&#x2019;s simply ridiculous. People are what people are. They do what they do. You can&#x2019;t knock down who people are.&#x201D;</p>
+
+<p>Carson, who managed a yogurt store, had <a href="https://web.archive.org/web/20160227073928/http://www.nydailynews.com/new-york/gunman-shoots-32-year-old-man-dead-greenwich-village-bias-attack-officials-article-1.1347776">moved from Harlem to Brooklyn</a> recently. &#x201C;He was a courageous person,&#x201D; Carson&#x2019;s brother, Michael Bumpars, told the Daily News. &#x201C;My brother was a beautiful person...He was our foundation.&#x201D; Kay Allen, a friend for more than a decade, <a href="https://web.archive.org/web/20160227073928/http://www.nytimes.com/2013/05/19/nyregion/killing-in-greenwich-village-looks-like-hate-crime-police-say.html?hp&amp;_r=1&amp;">told the Times</a>: &quot;He was a proud gay man. A fabulous gay man&quot; She added that he loved going to the Village: &quot;His spirit was too big for this city. He didn&apos;t have a negative bone in his body.&quot;</p>
+
+<p>Morales ran from the scene after the shooting, but police caught up to him about five blocks away at West 3rd Street and MacDougal Street; they also added that they recovered the gun used. Cops had a tough time identifying Morales at first, because he was carrying a Pennsylvania man&#x2019;s ID and was &#x201C;very uncooperative with detectives.&#x201D; Eventually, police were able to identify him by using facial recognition technology. </p>
+
+<p>Kelly added that Morales was involved in another altercation 20 minutes before the shooting&#x2014;he allegedly urinated on the wall of bar Annisa, on Barrow and West Fourth Streets. When a bartender confronted him, the suspect threatened to shoot him if he called the cops, and said: &#x201C;Don&#x2019;t you know I&#x2019;m wanted? Do you know about the shooting in Sandy Hook? I&#x2019;m a wanted man.&#x201D;</p>
+
+<p>This was the <a href="https://web.archive.org/web/20160227073928/http://gothamist.com/tags/hatecrime">fourth such hate crime targeting a gay man</a> in the last two weeks in Manhattan. Police said this was also at least the 22nd anti-gay attack in the city so far this year (there were 13 during the same period last year).</p>
+
+<p>&quot;There was a time in New York City when hate crimes were a common occurrence,&quot; said Speaker Christine Quinn in a statement. &quot;There was a time in New York City when two people of the same gender could not walk down the street arm-in-arm without fear of violence and harassment. We refuse to go back to that time. This kind of shocking and senseless violence, so deeply rooted in hate, has no place in a City whose greatest strength will always be its diversity.&quot;</p>					
+										
+									
+				

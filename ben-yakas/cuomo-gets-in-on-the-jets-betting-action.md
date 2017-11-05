@@ -1,0 +1,9 @@
+---
+author: Ben Yakas
+date: January 22, 2011  3:18 PM
+title: Cuomo Gets In On The Jets Betting Action
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="12211snackjets.jpg" src="https://web.archive.org/web/20110412175741im_/http://gothamist.com/attachments/byakas/12211snackjets.jpg" width="115" height="86" class="image-right"> </span></p>
+
+<p>It seems that NY state politicians can&apos;t stop, won&apos;t stop betting on tomorrow&apos;s anticipated Jets/Steelers AFC Championship game. Considering NY politicians, does a proclivity for gambling really surprise you? Following Mayor Bloomberg&apos;s <a href="https://web.archive.org/web/20110412175741/http://gothamist.com/2011/01/21/bloomberg_announces_jetssteelers_be.php">mayoral bet</a> with Pittsburgh Mayor Luke Ravenstahl, Governor Andrew Cuomo, who had fruitlessly <a href="https://web.archive.org/web/20110412175741/http://gothamist.com/2011/01/22/president_obama_says_hes_rooting_fo.php">offered</a> a Jets hat to President Obama recently, has made his own <a href="https://web.archive.org/web/20110412175741/http://www.nypost.com/p/news/local/cuomo_pennsylvania_gov_bet_goodies_2RqAyXqC2viomOTy91mR1M?CMP=OTC-rss&amp;FEEDNAME=">snacktastic bet</a> with Pennsylvania Gov. Tom Corbett. If the Steelers win, Cuomo will send Corbett a basket including Nathan&#x2019;s hot dogs, chicken wings from Buffalo, and Hudson Valley apple cider as well as cheese and maple syrup. If the Jets win, Corbett will send Cuomo a gift basket with Pennsylvania-made foods and beverages. And the rest of us will hopefully get more Bart Scott <a href="https://web.archive.org/web/20110412175741/http://www.youtube.com/watch?v=QJshw2Axsqc">&quot;Hulk&quot;</a> impressions.</p>

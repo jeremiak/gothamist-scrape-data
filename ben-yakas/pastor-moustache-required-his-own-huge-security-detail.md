@@ -1,0 +1,9 @@
+---
+author: Ben Yakas
+date: November 20, 2010  2:10 PM
+title: Pastor Moustache Required His Own Huge Security Detail
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:644px; "> <img alt="112010jones.jpg" src="https://web.archive.org/web/20110412164841im_/http://gothamist.com/attachments/byakas/112010jones.jpg" width="644" height="428"> <br> <i>&quot;I don&apos;t even know the meaning of the word reasonable...&quot; (AP)</i></div> <p></p>
+
+<p>As if it wasn&apos;t bad enough that he got a <a href="https://web.archive.org/web/20110412164841/http://gothamist.com/2010/10/22/wannabe_koran-burner_in_nj_today_to.php">free car</a> for his hollow threats, it turns out that wannabe-Koran burner Pastor <a href="https://web.archive.org/web/20110412164841/http://gothamist.com/tags/terryjones">Terry Jones</a> required constant attention and protection over the course of his recent <a href="https://web.archive.org/web/20110412164841/http://gothamist.com/2010/11/17/pastor_wannabe-koran_burner_still_d.php">three-day trip</a> to NYC. Let us <a href="https://web.archive.org/web/20110412164841/http://www.nypost.com/p/news/local/rev_god_squad_x00uFqTYsFxSuUR77E2gsI">count the ways</a> he wasted tax payers money during his Dumb Announcement Tour: Jones had at least three members of the NYPD Intelligence Division serving as his own personal security detail, tailing him around the clock during his visit. Even worse, he was given a five detective detail, including a cop from the federal drug task force, to wait with him for five hours at LaGuardia Airport while waiting to catch a flight home. Then again, it&apos;s not like those cops had <a href="https://web.archive.org/web/20110412164841/http://gothamist.com/2010/11/13/murder_rate_on_pace_for_double-digi.php">anything better to do.</a></p>

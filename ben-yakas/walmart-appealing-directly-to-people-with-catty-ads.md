@@ -1,0 +1,11 @@
+---
+author: Ben Yakas
+date: January 30, 2011  3:55 PM
+title: Walmart Appealing Directly To People With Catty Ads
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="13011walmart.jpg" src="https://web.archive.org/web/20110412180532im_/http://gothamist.com/attachments/byakas/13011walmart.jpg" width="220" height="201" class="image-left"> </span></p>
+
+<p>Earlier this month, <a href="https://web.archive.org/web/20110412180532/http://gothamist.com/tags/walmart">Walmart</a> representatives <a href="https://web.archive.org/web/20110412180532/http://gothamist.com/2011/01/10/wal-mart_refuses_to_attend_city_cou.php">refused</a> to attend City Council hearings on their planned invasion of East New York, citing how unfair it was that everyone was ganging up on them while giving other chains an easy time. Now on the eve of another public hearing this Thursday, Walmart has decided to go on the offensive, with <a href="https://web.archive.org/web/20110412180532/http://www.nydailynews.com/news/2011/01/30/2011-01-30_walmart_refuses_to_back_down_in_new_york_location_case_launches_ad_campaign_agai.html">a series of</a> radio, newspaper and mailer ads to try to appeal to people directly, while ignoring the Council and other politicians/critics. And they&apos;re kind of bitchy ads. </p>
+
+<p>One such mailer <a href="https://web.archive.org/web/20110412180532/http://www.nydailynews.com/news/2011/01/30/2011-01-30_walmart_refuses_to_back_down_in_new_york_location_case_launches_ad_campaign_agai.html">reads</a>: &quot;<strong>You don&apos;t ask the special interests or the political insiders for permission to use the bathroom. So why should they decide where you&apos;re allowed to shop?</strong>&quot; The tone of the mailers makes it seem like Walmart has been indulging its critics thus far, and has had enough of playing nice. &quot;The key message here is that New Yorkers should decide where they shop and work. Some of the louder voices in the debate don&apos;t represent the interests of New Yorkers,&quot; said Walmart spokesman Steven Restivo. Council Speaker Christine Quinn said the ads reveal Walmart&apos;s desperation: &quot;People can run whatever ads they want. It really speaks volumes that they&apos;re not willing to show up in front of government and answer questions.&quot;</p>

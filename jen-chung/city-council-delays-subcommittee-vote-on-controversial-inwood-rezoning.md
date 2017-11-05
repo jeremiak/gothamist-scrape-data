@@ -1,0 +1,21 @@
+---
+author: Jen Chung
+date: Aug 9, 2016 2:02 pm
+title: City Council Delays Subcommittee Vote On Controversial Inwood Rezoning
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="080716Inwood2.JPG" src="https://web.archive.org/web/20171016015002im_/http://gothamist.com/attachments/nyc_gdelvalle/080716Inwood2.JPG" width="640" height="424"> <br> <i>At Saturday&apos;s <a href="https://web.archive.org/web/20171016015002/http://gothamist.com/2016/08/07/protesters_politicians_clash_at_inw.php">anti-gentrification rally</a> (Gaby Del Valle/Gothamist)</i></div> <p></p>
+
+<p>After <a href="https://web.archive.org/web/20171016015002/http://gothamist.com/2016/08/07/protesters_politicians_clash_at_inw.php">a heated rally</a> and <a href="https://web.archive.org/web/20171016015002/http://gothamist.com/2016/08/08/ydanis_rodriguez_inwood.php">mounting concerns</a> about gentrification, the City Council&apos;s Zoning Subcommittee decided to delay a meeting to vote on rezoning an Upper Manhattan tract eyed by a luxury developer. </p>
+
+<p>Acadia Realty Trust hopes to build a new apartment complex in a parking lot at Sherman Avenue and Broadway, and its request for a spot rezoning would be the first under <a href="https://web.archive.org/web/20171016015002/http://gothamist.com/2016/03/22/affordable_housing_vote_protest.php">Mayor de Blasio&apos;s affordable housing plans</a>. Some local residents say the proposed building <a href="https://web.archive.org/web/20171016015002/http://gothamist.com/2016/08/07/protesters_politicians_clash_at_inw.php">won&apos;t have enough affordable housing</a> for the community and will also drive up rents in the neighborhood. At a contentious rally on Saturday, some accused their City Council Member, Ydanis Rodriguez, of not doing enough for them; one woman who has lived in Inwood for 60 years said, &quot;From the moment we elect people to represent us, they&apos;re supposed to be committed to us. But really, all they do is defraud us.&quot;</p>
+
+<p>Rodriguez went on the Brian Lehrer Show yesterday to try to clarify the situation, which he blamed on people spreading rumors of &quot;Trump-like&quot; development to scare residents. He later sent a letter to constituents explaining the vote would be postponed for now: &quot;I have read your emails, from those of you in support as well as those of you with concerns and fears about what a rezoning could mean. These perspectives are of the utmost importance and weighing what is best for the community going forward will determine our final decision.&quot;</p><blockquote>&quot;The choice is not a simple one, by voting no, there is absolutely no opportunity to build desperately needed affordable housing at this site. The developers will be further empowered to build a luxury tower at a minimum of 14 stories, with 200 units at fully market price. This request has already been submitted to the relevant city agencies. <p></p>
+
+<p>&quot;By voting yes, the building proposed for this site would include 50% of the units below market rate, with 30% of the units at deeper affordability levels. Additionally, 50% of the affordable units mentioned would be designated to residents of community board 12. Negotiations with the developers have also produced lower rent for 10% of the retail space and 25,000 square feet of rent-free community space for local cultural/non-profit institutions.&quot; </p></blockquote>Former Community Board 12 member George Fernandez, who is running for State Assembly, isn&apos;t convinced, arguing on WNYC yesterday, &quot;Developers don&apos;t keep their promises. There&apos;s no law that can hold a developer accountable to their MOU [memorandum of understanding].&quot;<p></p>
+
+<p>Inwood resident Karen Fernandez gave us another theory on Saturday: &quot;[Acadia wants] the rezoning so they can flip the site and sell it for a profit. Once the site is rezoned, they can sell the site and whoever buys it is not obliged to any affordable housing agreements.&quot; </p>					
+										
+									
+				

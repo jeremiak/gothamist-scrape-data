@@ -1,0 +1,15 @@
+---
+author: Ben Yakas
+date: June 10, 2011  3:40 PM
+title: Teen's "Club" Outfit, Tattoos And Bra Strap Infuriate Judge
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:270px; "> <img alt="2011_06-lohannails.jpg" src="https://web.archive.org/web/20110629084908im_/http://gothamist.com/attachments/jen/2011_06-lohannails.jpg" width="270" height="241"> <br> <i>Lindsay Lohan and her F-U nails in court </i></div> Last spring,  five Brooklyn high school girls <a href="https://web.archive.org/web/20110629084908/http://gothamist.com/2011/04/15/teen_talent_show_gets_ugly_brooklyn.php">were accused of</a> beating up a fellow classmate with a padlock-in-a-sock. The victim, Shacara McLaurin, <a href="https://web.archive.org/web/20110629084908/http://gothamist.com/2011/04/22/brooklyn_teen_talks_vicious_padlock.php">said that</a> the vicious beating was fueled by jealousy over an upcoming talent show. Today, one of those alleged attackers, Chazmia Morrison, didn&apos;t do herself any favors while appearing in Brooklyn Supreme Court &#x2014;she came off as such a &quot;brat&quot; that the judge decided to <a href="https://web.archive.org/web/20110629084908/http://www.nydailynews.com/news/ny_crime/2011/06/10/2011-06-10_chazmia_morrison_17_called_a_brat_by_judge_as_plea_deal_for_girl_gang_padlock_at.html">rescind her no-jail plea deal</a>!<p></p>
+
+<p>Morrison drew the anger of Supreme Court Justice Patricia DiMango when she showed up to court wearing cut-up jeans and a low-slung blouse that exposed her shoulder tattoos and her bra strap. &quot;Are you going to a club or something? Are you going dancing? You&#x2019;re showing me your tattoos, your bra straps - that&#x2019;s how you&#x2019;re going to impress me?...You really are a brat,&quot; the Judge said to her. </p>
+
+<p>Morrison had been offered a five-year probation deal, requiring that she plead guilty to attempted felony assault and admit under oath to being part of the assault. But instead of admitting her guilt, <a href="https://web.archive.org/web/20110629084908/http://www.nypost.com/p/news/local/brooklyn/brooklyn_girl_attitude_costs_her_dj32bACE82ntAUdsD1jOcM">Morrison insisted that</a> she just got caught up in the brawl and wasn&#x2019;t part of the planned attack.</p>
+
+<p>To top all of this off, this was Morrison&apos;s second chance to accept the plea&#x2014;last week, her co-defendants Decory Fletcher, Ashanti Garner and Brittany Williams all agreed to the deal. But Morrison admitted at the time that she had gotten high before coming to court, postponing her allocution. &quot;I had heroin addicts for years and they don&apos;t shoot up before going to court,&quot; the angry Judge noted today.</p>
+
+<p>All of her behavior was too much for the Judge, who withdrew the plea bargain entirely: &quot;I&#x2019;m tired of you, your attitude and everything else,&#x201D; she said. She ordered Morrison to stand trial alongside Aaliyah Smith, the accused assailant and ringleader of the attack. Both girls now face the testimony of the three other girls who cut deals. </p>

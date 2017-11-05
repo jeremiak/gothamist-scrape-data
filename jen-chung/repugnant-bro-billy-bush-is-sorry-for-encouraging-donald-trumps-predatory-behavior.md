@@ -1,0 +1,62 @@
+---
+author: Jen Chung
+date: Oct 8, 2016 12:37 pm
+title: Repugnant Bro Billy Bush Is 'Sorry' For Encouraging Donald Trump's Predatory Behavior
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2016_10_billybush.jpg" src="https://web.archive.org/web/20171016020900im_/http://gothamist.com/attachments/jen/2016_10_billybush.jpg" width="640" height="435"> <br> <i> Billy Bush in August (Getty Images)</i></div> <p></p>
+
+<p>There are so many disturbing elements in the 2005 audio in which <a href="https://web.archive.org/web/20171016020900/http://gothamist.com/2016/10/07/trump_what_this_time_oh_god.php">Donald Trump brags about forcing himself on women</a>, kissing them with Tic-Tac-freshened breath, and trying to &quot;move on&quot; a married woman &quot;like a bitch.&quot; The big story, of course, is that this is a window into the Republican presidential candidate&apos;s <a href="https://web.archive.org/web/20171016020900/http://gothamist.com/2016/10/08/trump_apology_non_apology.php">entitled, rape-culture perspective</a>. But there&apos;s still an important subplot in the callow, encouraging behavior from Billy Bush, who is heard <em>laughing</em> when Trump says he can &quot;grab [women] by the p---y. You can do anything&quot; because he&apos;s famous.</p>
+
+<p>Here&apos;s the terribleness in its unedited filth:</p>
+
+<p><iframe width="640" height="360" src="https://web.archive.org/web/20171016020900if_/https://www.youtube.com/embed/WhsSzIS84ks" frameborder="0" allowfullscreen></iframe></p>
+
+<p>The exchange occurred in 2005, when Trump was invited to film a part as himself on <em>Days of Our Lives</em>, an NBC soap opera. NBC Entertainment also owns the entertainment news program <em>Access Hollywood</em> and Bush, a co-anchor, was doing a segment about Trump&apos;s appearance. Both Trump and Bush had microphones on and, while in the presence of Trump&apos;s team as well as Access Hollywood&apos;s crew, shot part of the segment on a backlot. </p>
+
+<p>Then Trump&apos;s people and the AH crew left the bus, and Trump revealed to Bush how he tried to score on Bush&apos;s colleague, Nancy O&apos;Dell, but failed&#x2014;&quot;I moved on her very heavily. In fact, I took her out furniture shopping. She wanted to get some furniture. I said, &#x2018;I&#x2019;ll show you where they have some nice furniture.&#x2019; I moved on her like a bitch, but I couldn&#x2019;t get there. And she was married.&quot;&#x2014;and then insulted her, &quot;Then all of a sudden I see her, she&#x2019;s now got the big phony tits and everything. She&#x2019;s totally changed her look.&quot;</p>
+
+<p>Bush&apos;s reaction: &quot;That&apos;s huge news!&quot;  Later, he alerts Trump that he sees the Days of Our Lives actress, Arianne Zucker, who will be in the segment, and that she&apos;s &quot;hot as s--t. In the purple. Whoa, the Donald is good! Whoa, my man!... The Donald scores!&quot; </p>
+
+<p>Later, this leads to Trump explaining, &quot;I&#x2019;ve gotta use some Tic Tacs, just in case I start kissing her. You know I&#x2019;m automatically attracted to beautiful &#x2014; I just start kissing them. It&#x2019;s like a magnet. Just kiss. I don&#x2019;t even wait. And when you&#x2019;re a star they let you do it. You can do anything.&quot; </p>
+
+<p>A man, apparently Bush, says, &quot;Whatever you want,&quot; to which Trump agrees, &quot;Grab them by the pussy. You can do anything.&quot;</p>
+
+<p>Finally, when they meet Zucker, Bush tells her, &quot;How about a little hug for the Donald? He just got off the bus&quot; and then says, &quot;How about a little hug for the Bushy?&quot;</p>
+
+<p>Bush, who moved from Access Hollywood to a high-profile role with NBC News&apos; Today Show, issued a statement last night: &quot;Obviously I&apos;m embarrassed and ashamed. It&apos;s no excuse, but this happened eleven years ago &#x2014; I was younger, less mature, and acted foolishly in playing along. I&apos;m very sorry.&quot; </p>
+
+<p>For the record, Bush, who is first cousins with Jeb and George W. Bush and has been married since 1998 with three daughters, is 44, which makes him 33 at the time of the video. </p>
+
+<center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">I still think he&apos;s an asshole, but at least this is a real apology <a href="https://web.archive.org/web/20171016020900/https://t.co/ZIlYIjWp2L">https://t.co/ZIlYIjWp2L</a></p>&#x2014; Jessica Valenti (@JessicaValenti) <a href="https://web.archive.org/web/20171016020900/https://twitter.com/JessicaValenti/status/784534477364224001">October 7, 2016</a></blockquote>
+<script async src="//web.archive.org/web/20171016020900js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<p>Apparently the<a href="https://web.archive.org/web/20171016020900/http://gothamist.com/2016/10/03/pervy_trump_sexist_pig.php"> AP&apos;s report about cast and crew members</a> from Trump&apos;s reality show <em>The Apprentice</em> recalling his sexist behavior prompted someone at Access Hollywood to remember this segment. AH says they were working for their own story, but it was going to air after tomorrow night&apos;s debate:</p>
+
+<blockquote class="twitter-video" data-lang="en"><p lang="en" dir="ltr">Watch: Access Hollywood addresses Billy Bush, Trump&apos;s comments on women <a href="https://web.archive.org/web/20171016020900/https://t.co/7sZfsNwR6G">https://t.co/7sZfsNwR6G</a> <a href="https://web.archive.org/web/20171016020900/https://t.co/J7thtUgCsk">pic.twitter.com/J7thtUgCsk</a></p>&#x2014; Hollywood Reporter (@THR) <a href="https://web.archive.org/web/20171016020900/https://twitter.com/THR/status/784538304767221760">October 7, 2016</a></blockquote>
+<script async src="//web.archive.org/web/20171016020900js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
+<p>Someone <a href="https://web.archive.org/web/20171016020900/http://money.cnn.com/2016/10/07/media/access-hollywood-donald-trump-tape/index.html">decided to leak the video</a> to the Washington Post&apos;s David Farenthold around 11 a.m. yesterday and the <a href="https://web.archive.org/web/20171016020900/https://www.washingtonpost.com/politics/trump-recorded-having-extremely-lewd-conversation-about-women-in-2005/2016/10/07/3b9ce776-8cb4-11e6-bf8a-3d26847eeed4_story.html">story was up by the afternoon</a>. </p>
+
+<p>A source told Page Six that Bush, who was already roundly criticized for his cozy coverage of Ryan Lochte&apos;s fake robbery, is <a href="https://web.archive.org/web/20171016020900/http://pagesix.com/2016/10/07/horribly-embarrassed-billy-bush-wont-lost-job-over-trump-tape/">&quot;embarrassed&quot; but won&apos;t lose his job</a> at the Today Show. However, that&apos;s what they are saying now&#x2014;many people have been swarming to <a href="https://web.archive.org/web/20171016020900/http://www.dailymail.co.uk/news/article-3828157/You-disgusting-pig-Trump-Billy-Bush-slammed-social-media-former-fans-call-fired-NBC.html">social media asking for his ouster</a>.</p>
+
+<center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr"><a href="https://web.archive.org/web/20171016020900/https://twitter.com/nbc">@NBC</a> FIRE BILLY BUSH</p>&#x2014; rose mcgowan (@rosemcgowan) <a href="https://web.archive.org/web/20171016020900/https://twitter.com/rosemcgowan/status/784530942002077698">October 7, 2016</a></blockquote>
+<script async src="//web.archive.org/web/20171016020900js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<p>And this unverified account of Bush&apos;s behavior is pretty galling (and sounds about right for a guy who laughs when someone talks about criminal sexual battery):</p>
+
+<center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">So lest anyone thing that Billy Bush was just &quot;playing along&quot; and is some kind of side-actor in all this, here&apos;s a brief story that took +</p>&#x2014; SaucissonSec (@saucissonsec) <a href="https://web.archive.org/web/20171016020900/https://twitter.com/saucissonsec/status/784558445391388672">October 8, 2016</a></blockquote> <script async src="//web.archive.org/web/20171016020900js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script>
+<blockquote class="twitter-tweet" data-conversation="none" data-lang="en"><p lang="en" dir="ltr">place about two years prior to this Trump &quot;incident&quot;. In either 2003 or 2004, he was the emcee at the reception at a client conference for +</p>&#x2014; SaucissonSec (@saucissonsec) <a href="https://web.archive.org/web/20171016020900/https://twitter.com/saucissonsec/status/784558703383048192">October 8, 2016</a></blockquote> <script async src="//web.archive.org/web/20171016020900js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script>
+<blockquote class="twitter-tweet" data-conversation="none" data-lang="en"><p lang="en" dir="ltr">a company I worked for at the time. The party was in October, so we had a costume party, where employees had to dress up, and clients were +</p>&#x2014; SaucissonSec (@saucissonsec) <a href="https://web.archive.org/web/20171016020900/https://twitter.com/saucissonsec/status/784558846274576384">October 8, 2016</a></blockquote> <script async src="//web.archive.org/web/20171016020900js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script>
+<blockquote class="twitter-tweet" data-conversation="none" data-lang="en"><p lang="en" dir="ltr">encouraged to do so, in the spirit of the month. Our most influential client came dressed as Anna Nicole Smith, and she wore it well. When +</p>&#x2014; SaucissonSec (@saucissonsec) <a href="https://web.archive.org/web/20171016020900/https://twitter.com/saucissonsec/status/784559010796142592">October 8, 2016</a></blockquote> <script async src="//web.archive.org/web/20171016020900js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script>
+<blockquote class="twitter-tweet" data-conversation="none" data-lang="en"><p lang="en" dir="ltr">she walked into the room, he went up to her as the host (it was a mock red-carpet as a tip of the hat to his then-gig on Access Hollywood +</p>&#x2014; SaucissonSec (@saucissonsec) <a href="https://web.archive.org/web/20171016020900/https://twitter.com/saucissonsec/status/784559202702397442">October 8, 2016</a></blockquote> <script async src="//web.archive.org/web/20171016020900js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script>
+<blockquote class="twitter-tweet" data-conversation="none" data-lang="en"><p lang="en" dir="ltr">planted his face in her bosom, and *motorboated* her, to turn a vulgar phrase. His shamefaced excuse when seeing how shocked people were +</p>&#x2014; SaucissonSec (@saucissonsec) <a href="https://web.archive.org/web/20171016020900/https://twitter.com/saucissonsec/status/784559397951397888">October 8, 2016</a></blockquote> <script async src="//web.archive.org/web/20171016020900js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script>
+<blockquote class="twitter-tweet" data-conversation="none" data-lang="en"><p lang="en" dir="ltr">was to say that he didn&apos;t realize she was a client. Because of course if she had been an employee that would have been fine, or something. +</p>&#x2014; SaucissonSec (@saucissonsec) <a href="https://web.archive.org/web/20171016020900/https://twitter.com/saucissonsec/status/784559572774256640">October 8, 2016</a></blockquote> <script async src="//web.archive.org/web/20171016020900js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<p>Another former Access Hollywood colleague, Shaun Robinson, spoke up:</p>
+
+<center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">Women were not put here to be objectified, abused, raped, ogled, groped or mistreated. A woman brought you into this world. <a href="https://web.archive.org/web/20171016020900/https://twitter.com/hashtag/RESPECTHer?src=hash">#RESPECTHer</a></p>&#x2014; Shaun Robinson (@shaunrobinson) <a href="https://web.archive.org/web/20171016020900/https://twitter.com/shaunrobinson/status/784760961487900672">October 8, 2016</a></blockquote> <script async src="//web.archive.org/web/20171016020900js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>					
+										
+									
+				

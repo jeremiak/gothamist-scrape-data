@@ -1,0 +1,13 @@
+---
+author: Ben Yakas
+date: Apr 21, 2011 3:17 pm
+title: Video: 30 Rock Gets Cartoonized
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:250px; "> <img alt="4211130rock.jpg" src="https://web.archive.org/web/20150509174041im_/http://gothamist.com/attachments/byakas/4211130rock.jpg" width="250" height="137"> <br> <i>Cartoonized Alec Baldwin and Brian Williams</i></div> <em><a href="https://web.archive.org/web/20150509174041/http://gothamist.com/tags/30rock">30 Rock</a></em> will celebrate five seasons of Reaganing, Dealbreakers and Werewolf Bar Mitzvahs tonight with their double-sized 100th episode. Michael Keaton and Condoleezza Rice will guest star in the hour-long episode, which is all about TGS trying to avoid cancellation by putting on a spectacular 100th episode. NBC is also celebrating, with a <a href="https://web.archive.org/web/20150509174041/http://insidetv.ew.com/2011/04/21/animated-30-rock/?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+entertainmentweekly%2Fausiellofiles+%28Entertainment+Weekly%2FEW.com%27s%3A+The+Ausiello+Files%29">planned trio</a> of animated <em>30 Rock</em> web adventures. Below, you can watch the first one, in which Alec Baldwin&#x2019;s Jack Donaghy uses his superpowers to mess with Brian Williams (who really should consider joining the cast fulltime next year):<p></p>
+
+<div style="text-align: center;"><object classid="clsid:d27cdb6e-ae6d-11cf-96b8-444553540000" id="dmlkZW9faWQ9MTMyMTU1Mg" width="512" height="354" align="middle"><param name="allowScriptAccess" value="always"><param name="allowFullScreen" value="true"><param name="movie" value="http://www.nbc.com/assets/video/5-0/swf/DirectWidget.swf?CXNID=1000004.10045NXC&amp;widID=4727a250e66f9723&amp;configXML=http://www.nbc.com/service/videowidget/params/dmlkZW9faWQ9MTMyMTU1Mg==/"><param name="quality" value="high"><param name="bgcolor" value="#000000"><embed src="https://web.archive.org/web/20150509174041oe_/http://www.nbc.com/assets/video/5-0/swf/DirectWidget.swf?CXNID=1000004.10045NXC&amp;widID=4727a250e66f9723&amp;configXML=http://www.nbc.com/service/videowidget/params/dmlkZW9faWQ9MTMyMTU1Mg==/" quality="high" bgcolor="#000000" width="512" height="354" align="middle" allowfullscreen="true" allowscriptaccess="always" type="application/x-shockwave-flash"></object></div>					
+										
+									
+				

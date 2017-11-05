@@ -1,0 +1,23 @@
+---
+author: Ben Yakas
+date: May 10, 2013 5:00 pm
+title: Everyone, Let's Blame JR Smith's Slump On Chris Brown
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="51013jr.jpg" src="https://web.archive.org/web/20150506144840im_/http://gothamist.com/attachments/byakas/51013jr.jpg" width="640" height="480"> <br> <i> Instagram photos <a href="https://web.archive.org/web/20150506144840/http://instagram.com/badgalriri/">via Badgalriri</a>; crotch-grabbing Rihanna via Getty Images; JR Smith via AP</i></div> <p></p>
+
+<p>JR Smith has picked a hell of a time to go <a href="https://web.archive.org/web/20150506144840/http://espn.go.com/blog/new-york/knicks/post/_/id/43949/melo-expects-smith-to-erase-slump">into a slump</a>&#x2014;ever since he <a href="https://web.archive.org/web/20150506144840/http://espn.go.com/new-york/nba/story/_/id/9219384/2013-nba-playoffs-new-york-knicks-jr-smith-suspended-one-game-elbow-boston-celtics-jason-terry">threw an elbow</a> at Jason Terry in game 3 of the Boston series and was suspended for game 4, he&apos;s shot only 26.3 percent from the field and 29.2 percent from 3-point range. <a href="https://web.archive.org/web/20150506144840/http://gothamist.com/tags/knicks">The Knicks</a> have sorely lacked on offense during this stretch, which led to the ugly game 5 against the Celtics and game 1 against the Pacers. There are a lot of things you could blame the slump on, but there&apos;s only one man who you <em>should</em> blame: Chris Brown.</p>
+
+<p>You&apos;re no doubt familiar with the concept of the butterfly effect, most likely thanks to the Ashton Kutcher-starring <a href="https://web.archive.org/web/20150506144840/http://www.imdb.com/title/tt0289879/awards">award winning film</a>. Smith&apos;s shooting slump has coincided with numerous reports that he is dating Rihanna&#x2014;at the very least, he&apos;s been spotted out <a href="https://web.archive.org/web/20150506144840/http://www.inflexwetrust.com/2013/05/08/photos-nba-let-the-gossip-begin-again-jr-smith-spotted-partying-with-rihanna-after-knicks-game-2-win/?wt=19">partying with her</a> <a href="https://web.archive.org/web/20150506144840/http://www.businessinsider.com/jr-smith-denies-clubbing-2013-5">at various</a> <a href="https://web.archive.org/web/20150506144840/http://hollywoodlife.com/2013/05/08/rihanna-parties-jr-smith-nyc-greenhouse/">NYC nightclubs</a> over the last two weeks. In that time, Smith has won the Sixth Man Of The Year award, thrown that errant elbow, gotten <a href="https://web.archive.org/web/20150506144840/http://www.nydailynews.com/sports/basketball/knicks/nba-hits-smith-5-000-fine-game-1-flop-article-1.1340595">fined $5,000 for a hilariously obvious flop</a>, and undergone his first extended shooting slump since the winter.</p>
+
+<p><iframe width="640" height="360" src="https://web.archive.org/web/20150506144840if_/http://www.youtube.com/embed/2GLgbMiM6kE" frameborder="0" allowfullscreen></iframe></p>
+
+<p>It&apos;s gotten to the point that Carmelo Anthony is being asked questions about Smith&apos;s <a href="https://web.archive.org/web/20150506144840/http://www.nydailynews.com/sports/basketball/knicks/melo-worried-rihanna-relationship-article-1.1340155">off-the-court exploits</a>: &#x201C;Whatever he&#x2019;s doing in his spare time, he does in his spare time. My thing to J.R. is I want him to remain positive, regardless of what&#x2019;s going on off the court, what&#x2019;s being said about him.&#x201D; Which kind of makes it sound like Carmelo knows that this romance is a ticking time bomb, one which will end with him supporting his old friend with a copy of <em>Love Actually</em> and a couple pints of Chunky Monkey.</p>
+
+<p>It&apos;d be easy to just blame Rihanna for Smith seemingly being distracted&#x2014;after all, keeping up with Rihanna seems like a full-time job (although, if anyone could do it, you&apos;d think the master of pipe would be the guy). But you can&apos;t blame Rihanna for being herself&#x2014;what you have to ask is, why is Rihanna even being rumored to be dating Smith? If she were still with Brown, you can be assured this would not happen. But Brown had to ditch Rihanna to celebrate his birthday with one of his other ex-girlfriends.</p>
+
+<p>So don&apos;t blame Rihanna; don&apos;t blame Smith&apos;s inflated ego after winning Sixth Man Of The Year; don&apos;t blame isolation ball; don&apos;t blame bad luck; and don&apos;t blame JR for <a href="https://web.archive.org/web/20150506144840/http://gothamist.com/2013/03/15/video_is_this_the_greatest_song_abo.php">shooting so much.</a> When in doubt, blame Chris Brown. </p>					
+										
+									
+				

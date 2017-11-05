@@ -1,0 +1,12 @@
+---
+author: Ben Yakas
+date: April 13, 2011  6:13 PM
+title: Handyman Allegedly Killed Bronx Grandmother In Crack Haze
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:250px; "> <img alt="41311klein.jpg" src="https://web.archive.org/web/20110414184052im_/http://gothamist.com/attachments/byakas/41311klein.jpg" width="250" height="186"> <br> <i>Victim Ethel Klein</i></div> An ex-con <a href="https://web.archive.org/web/20110414184052/http://www.nypost.com/p/news/local/bronx/junkie_ex_con_busted_in_bx_grandmother_T10z31jI1xnxwEzkIh5tMO">was arrested</a> yesterday for allegedly admitting to killing a Bronx grandmother while in a crack-addled daze. Tyrone Ragland allegedly admitted he was high on crack when he got into a fight over money with 70-year-old Ethel Klein, and stabbed her to death three months ago. &quot;<strong>Apparently there had been disputes in the past over that work. He alleges that she owed him $80</strong>,&quot; said NYPD Commissioner Ray Kelly.<p></p>
+
+<p>Neighbors in the Murphy Houses in Crotona Park said that Ragland, who previously served 15 years in prison for manslaughter, sometimes did odd jobs in Klein&apos;s house, like hanging shelves and changing light bulbs. Not that he was very good at it: &quot;He never finished anything. He just wanted money, not to do any work. He&apos;s disgusting,&quot; said neighbor Barbara Ross. Their fight was allegedly over $80 which Ragland claimed Klein owed him for work he did. &quot;He said that he was high on crack. He made statements that the woman he [stabbed] owed him money,&quot; said Kelly. </p>
+
+<p>Ragland has been charged with murder and criminal possession of a weapon. Klein, who had lived there for 40 years, had been married to a postman and raised four kids in the building. Her neighbors were relieved Ragland had been caught: &quot;She was a good lady. It should have never happened like that. That was cruel. It was selfish of him. He thought of nothing but himself,&quot; said Norma Plaza. Klein&apos;s children were also relieved: &quot;Do you have any idea how happy I am that finally, my mother gets to rest in peace? It was brutal what he did to her, and we knew it was him all along. Nobody had any reason to kill her,&quot;  Klein&apos;s daughter Hope <a href="https://web.archive.org/web/20110414184052/http://www.nydailynews.com/news/ny_crime/2011/04/13/2011-04-13_tyrone_ragland_charged_with_stabbing_slay_of_beloved_bronx_grandmother_ethal_par.html">told the News</a>.<br>
+</p>

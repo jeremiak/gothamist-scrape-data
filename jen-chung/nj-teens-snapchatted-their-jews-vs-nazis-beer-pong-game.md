@@ -1,0 +1,27 @@
+---
+author: Jen Chung
+date: Apr 8, 2016 4:06 pm
+title: NJ Teens Snapchatted Their "Jews Vs. Nazis" Beer Pong Game
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2016_04_beerpong.jpg" src="https://web.archive.org/web/20170817132058im_/http://gothamist.com/attachments/jen/2016_04_beerpong.jpg" width="640" height="360"> <br> <i> Via <a href="https://web.archive.org/web/20170817132058/https://jamaicaponder.wordpress.com/2016/04/06/drinking-games/">Jamaica Ponder</a></i></div> <p></p>
+
+<p>A group of NJ teens who decided to share their anti-Semitic drinking game on social media is being investigated by police as well as school administrators. Princeton schools superintendent <a href="https://web.archive.org/web/20170817132058/http://www.nj.com/mercer/index.ssf/2016/04/princeton_police_not_investigating_jews_vs_nazis_b.html">Steve Cochrane said the game</a>, known as Holocaust Pong or Alcoholocaust, had &quot;clearly anti-Semitic overtones.&quot;</p>
+
+<p>The game apparently took place in the basement of a student at Princeton High School. Another student, Jamaica Ponder, noticed it, told a guidance counselor and <a href="https://web.archive.org/web/20170817132058/https://jamaicaponder.wordpress.com/2016/04/06/drinking-games/">later posted about it on her blog</a>. She wrote:</p><blockquote>Right off of Snapchat in a harrowingly recognizable basement, with our classmates front and center. And no, your eyes aren&#x2019;t playing a trick on you. Yes, that&#x2019;s a swastika. Double yes- they&#x2019;re playing Jews vs Nazis beer pong. No again, this isn&#x2019;t a joke.<p></p>
+
+<p>Well, perhaps it is a joke. But then I guess the punchline would be: genocide. Pardon me if I don&#x2019;t find that to be hilarious. The real joke here is that these kids weren&#x2019;t only insensitive enough to play the game, but also silly enough to post it on Snapchat and leave it there long enough for me, and several others, to take a screenshot.</p>
+
+<p>Putting the picture on social media means that someone was proud enough of the game to want to show it off. Meaning that they must be trapped in the delusional mindset that making a drinking game based off of the Holocaust is cool. Or funny. Or anything besides insane. Because that&#x2019;s what this is: insanity.</p></blockquote>Ponder told NJ.com the students in question &quot;are athletes and student leaders. They&apos;re prominent individuals that everybody knows, captains of sports teams.&quot; She added, &quot;This isn&apos;t surprising necessarily. I&apos;m not astounded at who&apos;s in the picture.&apos;&apos;<p></p>
+
+<p>Here&apos;s a description of the game <a href="https://web.archive.org/web/20170817132058/http://en.metapedia.org/wiki/Jews_vs_Nazis_(drinking_game)">from Metapedia</a>: <em>&quot;The Nazis start off the game with a blitzkrieg, with each player shooting continuously until he misses, but this is only allowed for the first volley. Either before shooting starts or during gameplay, each side has a special ability they may use only once. The Jews have the &apos;Anne Frank cup&apos;, which allows them to take one of their cups and hide it anywhere in the room so long as it is shootable, while the Nazis can &apos;Auschwitz&apos; or &apos;concentration camp&apos; one of the Jews players, making that player sit out the game until the the two remaining players on the Jews team each make a cup. Also, during the game each team is supposed to &quot;say as many racist things as possible to make it more enjoyable.&quot;</em></p>
+
+<p>The Princeton police are investigating, in case &quot;someone bought alcohol for minors or provided a place specifically for them to consume it&quot; which &quot;is illegal,&quot; <a href="https://web.archive.org/web/20170817132058/http://www.nj.com/mercer/index.ssf/2016/04/princeton_police_not_investigating_jews_vs_nazis_b.html">an officer said</a>. <a href="https://web.archive.org/web/20170817132058/http://planetprinceton.com/2016/04/07/jews-vs-nazis-beer-pong-played-by-group-of-princeton-high-students/">Planet Princeton reports</a>, &quot;Students say the under-age drinking games are a common occurrence on weekends, sometimes without the knowledge of parents, but often with their knowledge and consent.&quot;</p>
+
+<p>The superintendent, Cochrane, <a href="https://web.archive.org/web/20170817132058/http://abc7ny.com/society/nj-hs-students-pictured-playing-jews-vs-nazis-beer-pong/1282343/">explained</a>, &quot;We are talking to those students and their families. We are also focused on the lessons this incident has for all of us. Underage drinking is not a new problem; nor is the misuse of social media; nor are actions of bias or bigotry. They are not new problems, but they do not have to be ongoing ones.&quot;</p>
+
+<p>Even though some people have criticized Ponder for sharing the image, <a href="https://web.archive.org/web/20170817132058/http://planetprinceton.com/2016/04/07/jews-vs-nazis-beer-pong-played-by-group-of-princeton-high-students/">she said</a>, &quot;People should know this is going on in Princeton. I&apos;m appalled that something like this would happen in our town. We have a large and prominent Jewish community. We pride ourselves on being open-minded yet people playing this in the basement of a Princeton house.&quot;</p>					
+										
+									
+				

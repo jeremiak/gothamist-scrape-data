@@ -1,0 +1,27 @@
+---
+author: Ben Yakas
+date: Jun 29, 2013 12:00 pm
+title: Bloomberg Thinks NYPD Stops-And-Frisks Too Many White People, Not Enough Minorities
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="62913bloomberg.jpg" src="https://web.archive.org/web/20150207105822im_/http://gothamist.com/attachments/byakas/62913bloomberg.jpg" width="640" height="480"> <br> <i> Just Deal With It (nycmayorsoffice&apos;s flickr)</i></div> <p></p>
+
+<p><a href="https://web.archive.org/web/20150207105822/http://gothamist.com/tags/mayorbloomberg/">Mayor Bloomberg</a> went full troll during <a href="https://web.archive.org/web/20150207105822/http://www.nydailynews.com/new-york/mayor-bloomberg-stop-and-frisk-disproportionately-stop-whites-minorities-article-1.1385410?localLinksEnabled=false">his weekly radio appearance on Friday</a>, offering his opinion that too many white people are being <a href="https://web.archive.org/web/20150207105822/http://gothamist.com/tags/stopandfrisk">stopped-and-frisked</a>...but the NYPD has really been lax when it comes to stop-and-frisking minorities! &quot;I think we disproportionately stop whites too much and minorities too little. It&apos;s exactly the reverse of what they say,&quot; Bloomberg said, referring to the City Council <a href="https://web.archive.org/web/20150207105822/http://gothamist.com/2013/06/28/bloomberg_veto_nypd_oversight_bills.php">passing two NYPD oversight bills</a> intended to check the NYPD&apos;s allegedly unconstitutional enforcement policies (bills he&apos;s already vowed to veto). &quot;I don&apos;t know where they went to school but they certainly didn&apos;t take a math course. Or a logic course.&quot;</p>
+
+<p>Where to begin: how about the fact that <a href="https://web.archive.org/web/20150207105822/http://gothamist.com/2013/03/14/happy_5_millionth_stop_and_frisk_ny.php">more than 86 percent of people stopped during the Bloomberg administration were black or Latino</a>, according to an analysis by the NYCLU based on an extrapolation of Police Department data. And 4.4 million of these stop-and-frisk encounters, or 88 percent, were of innocent people who were not arrested or issued a summons. During Bloomberg&apos;s first year in office, the NYPD conducted 97,296 street stops; in 2012, they racked up 533,042&#x2014;down from 685,724 in 2011.</p>
+
+<p>Only nine percent of stops were white people. Still, Bloomberg was undeterred in his assessment: &quot;That may be, but it&apos;s not a disproportionate percentage of those who witnesses and victims describe as committing the murders,&quot; he said, adding, &quot;most serious crimes in this city are committed by male minorities [age] 15 to 25.&quot; So does Bloomberg think it&apos;s good to <a href="https://web.archive.org/web/20150207105822/http://gothamist.com/2013/04/01/ray_kelly_wants_stop_and_frisk_to_i.php">&quot;instill fear&quot; in minorities</a>?</p>
+
+<p>Bloomberg also didn&apos;t address the fact that as stop-and-frisks have gone down over the last year&#x2014;due to several major lawsuits and NYPD &quot;policy considerations&quot;&#x2014;<a href="https://web.archive.org/web/20150207105822/http://gothamist.com/2013/05/07/stop_frisk_down_by_51_in_2013_as_cr.php">shootings and murders have also gone down in tandem.</a></p>
+
+<p>City council members and mayoral candidates <a href="https://web.archive.org/web/20150207105822/http://www.nypost.com/p/news/local/frisky_mike_ignites_mayoral_race_B5nZBCTJPGMBrxBaTdG6JJ">were appalled by his statements</a>: &#x201C;The mayor&#x2019;s comments seem to indicate that if you&#x2019;re black or Latino, you&#x2019;re automatically a murder suspect in the city of New York,&#x201D; said Bill Thompson. &#x201C;What he indicates to the hundreds of thousands of people who are stopped and frisked unnecessarily in past years is that &#x2018;we&#x2019;re sorry we didn&#x2019;t stop more people in the city of New York.&#x2019; &#x201D;</p>
+
+<p>Public Advocate Bill de Blasio, who is holding a press conference today to demand an apology from Bloomberg, said he was &#x201C;outraged.&#x201D; &#x201C;[The mayor] literally said the police aren&#x2019;t stopping black and Latino people enough &#x2014; that by the statistics, there should be more stops, particularly of young men,&#x201D; de Blasio said. &#x201C;That is unacceptable. It&#x2019;s out of touch, it&#x2019;s insensitive, and I dare say it is hurtful to people all over the city.&#x201D;</p>
+
+<p>Members of the Black, Latino and Asian Caucus also responded: &quot;His reckless and misleading remarks just reaffirm the racial profiling nature of stop and frisk. The program is founded on a biasbased profiling idea; ideas are not metrics to measure results and the effectiveness of a program,&quot; said co-chair and Council Member Fernando Cabrera. &quot;Our Mayor&#x2019;s comments prove he just doesn&#x2019;t get it! This is why we need the Community Safety Act (CSA). It will ensure that policies such as Stop, Question and Frisk are void of any discriminatory tactics,&#x201D; said fellow co-chair and Councilmember Robert Jackson.</p>
+
+<p>Even Christine Quinn criticized the mayor: &#x201C;I disagree strongly with the mayor on this point. We have too many stops that overwhelmingly focus on young men of color, yielding very few weapons,&#x201D; she said.</p>					
+										
+									
+				

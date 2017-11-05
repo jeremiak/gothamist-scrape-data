@@ -1,0 +1,21 @@
+---
+author: Ben Yakas
+date: Apr 1, 2011 6:41 pm
+title: Dumb Study: The Beautiful People Are The Happiest People
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="4111beautiful.jpg" src="https://web.archive.org/web/20150429122047im_/http://gothamist.com/attachments/byakas/4111beautiful.jpg" width="640" height="480"> <br> <i><a href="https://web.archive.org/web/20150429122047/http://www.flickr.com/photos/atestofwill/323614782/"> trespasserwill&apos;s flickr</a></i></div> <p></p>
+
+<p>Have you ever spent any time browsing through the USA Today &quot;Your Life&quot; section on their website? No, not the &quot;Life&quot; section&#x2014;that seems to be their area for all things arts, culture and entertainment. &quot;Your Life&quot; includes articles about health, recipes, pets, and most tantalizingly, endless amounts of studies telling you things you already know. For example: did you know that when overweight children feel left out or ostracized, <a href="https://web.archive.org/web/20150429122047/http://yourlife.usatoday.com/fitness-food/story/2011/03/Ostracized-overweight-kids-eat-more/45552036/1?csp=ylf">they tend to</a> eat more and exercise less?!? But this one really blew our minds: a new study <a href="https://web.archive.org/web/20150429122047/http://yourlife.usatoday.com/your-look/story/2011/03/Beautiful-people-are-happier-study-finds/45500558/1?csp=ylf">found that</a> &quot;beautiful&quot; people cash in on their looks! Why I never!</p>
+
+<p>Actually, it&apos;s even worse than that: beautiful people are <em>happier</em> than ugly people. It&apos;s just science! The study was done by economists at the University of Texas-Austin, who analyzed data from five large surveys conducted between 1971 and 2009 in the USA, Canada, Germany and Britain. People were asked about their level of happiness, while interviewers rated their looks. And their main conclusion: cash equals happy for most people. &quot;The majority of beauty&apos;s effect on happiness works through its impact on economic outcomes,&quot; says lead author Daniel Hamermesh, a Professor of Attractive-nomics. </p>
+
+<p>This effect holds true for both sexes, but supposedly is more beneficial for women: &quot;For a woman, it just matters to walk down the street being good-looking. For a man, beauty&apos;s direct relation to happiness is not as great. It will give you a better-looking wife, a higher-earning wife, and, most important, extra earnings,&quot; said Hammermesh. And don&apos;t think that plastic surgery or shiny new clothing is going to help you look better, because you&apos;re always going to be stuck with your own stupid face: &quot;It doesn&apos;t help much. Your beauty is determined to a tremendous extent by the shape of your face, by its symmetry and how everything hangs together.&quot;</p>
+
+<p>Unlike other such &quot;studies&quot; which have <a href="https://web.archive.org/web/20150429122047/http://gothamist.com/2011/03/30/is_brooklyn_the_new_barf_paris.php">raised our ire</a>, these ones chosen by USA Today for their &quot;Your Life&quot; section don&apos;t seem to be seeking out controversy. Instead, they seem content with pointing out the cliched and the obvious, through surface-level science with chosen-by-committee nuance. There are no insights to be gleamed, no discoveries to be found; they are at best intellectually-calcified. </p>
+
+<p>But if you are really interested <a href="https://web.archive.org/web/20150429122047/http://yourlife.usatoday.com/sex-relationships/dating/story/2011/03/More-hookups-on-campuses-but-more-virgins-too/45556388/1?csp=ylf">in learning that</a> college-age young adults are both having more casual sex AND holding onto their virginities longer, then &quot;Your Life&quot; is the perfect way to waste a few minutes of your day. Or you can just wait for us to see it and grumpily write about it here. We&apos;re off to check out the <a href="https://web.archive.org/web/20150429122047/http://nymag.com/daily/entertainment/2011/04/strange_sex_preview.html">woman with two vaginas</a> now&#x2014;now THAT&apos;S beautiful.</p>					
+										
+									
+				

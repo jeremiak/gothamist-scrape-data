@@ -1,0 +1,23 @@
+---
+author: Jen Chung
+date: Sep 12, 2013 12:15 pm
+title: Bill Thompson, Beware: Powerful Democrats Throw Support Behind De Blasio
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2013_09_billthreethompson.jpg" src="https://web.archive.org/web/20150428171433im_/http://gothamist.com/attachments/jen/2013_09_billthreethompson.jpg" width="640" height="426"> <br> <i> Bill Thompson waves three fingers&#x2014;as in three more weeks&#x2014;on Primary night (AP)</i></div> <p></p>
+
+<p>Former comptroller Bill Thompson <a href="https://web.archive.org/web/20150428171433/http://blogs.wsj.com/metropolis/2013/09/11/thompson-wants-to-ensure-every-vote-is-counted/">wants every vote counted</a> from Tuesday&apos;s mayoral primary, but he&apos;s getting signals that powerful Democratic players want him to just concede to Bill de Blasio already. For instance, Thompson&apos;s own <a href="https://web.archive.org/web/20150428171433/http://www.nytimes.com/2013/09/12/nyregion/for-thompson-pressure-to-let-de-blasio-win.html?partner=socialflow&amp;smid=tw-nytmetro&amp;_r=0">campaign chairwoman, Meryl Tisch, said</a>, &quot;I don&#x2019;t think there&#x2019;s much appetite within the Democratic Party to have a fight here.&quot;</p>
+
+<p>The NY Times also reported, &quot;A longtime ally of Mr. Thompson, the Rev. Al Sharpton, encouraged him to give up his campaign, and an influential labor group, the Hotel Trades Council, endorsed Mr. de Blasio.&quot;</p><blockquote> &#x201C;He should get out in the name of unity,&#x201D; Mr. Sharpton told two elected officials close to Mr. Thompson, according to a person told of the conversation. Mr. Sharpton, who is one of the city&#x2019;s most prominent black leaders, argued that Mr. Thompson&#x2019;s poor performance with black voters on Primary Day boded poorly for him in any runoff, when voter turnout might be even lower. Mr. Sharpton, who had already disappointed Mr. Thompson by staying neutral in the primary, has now invited Mr. de Blasio onto his MSNBC show on Thursday night.</blockquote>Sharpton was <a href="https://web.archive.org/web/20150428171433/http://www.nytimes.com/2013/09/11/nyregion/luck-and-a-shrewd-strategy-fueled-de-blasios-ascension.html">upset at Thompson</a> for not supporting the anti-stop and frisk initiatives the City Council was pushing.<p></p>
+
+<p>Big unions that had supported City Council Christine Quinn&#x2014;32BJ, the Retail, Wholesale and Department Store Union and United Food and Commercial Workers Union Local 1500&#x2014;have shifted their support to de Blasio as well. RWDSU president Stuart Appelbaum <a href="https://web.archive.org/web/20150428171433/http://politicker.com/2013/09/rwdsu-and-ufcw-get-behind-bill-de-blasio-too/">told Politicker</a>, &quot;There&#x2019;s a sense that it&#x2019;s time for Democrats to rally around Bill de Blasio. We think de Blasio will be an outstanding mayor who will listen to the concerns of all New Yorkers and not some.&quot;</p>
+
+<p>Still, Thompson said yesterday, &quot;Did Bill de Blasio get to 40%? I mean, at this point with an incomplete count, he might have... We don&#x2019;t know and it&#x2019;s an obligation to the voters, to the public, to make sure every vote is counted until someone gets to 40%.&quot; (De Blasio has 40.3% with 99% of precincts in; <a href="https://web.archive.org/web/20150428171433/http://gothamist.com/2013/09/11/de_blasio_has_402_of_the_vote_but_t.php">other ballots still haven&apos;t been counted</a>. </p>
+
+<p>Thompson supporter Rep. Charles Rangel told Capital New York they were having a <a href="https://web.archive.org/web/20150428171433/http://capitalnewyork.com/article/politics/2013/09/8533733/rangel-thompson-supporters-will-hold-strategy-meeting-tonight">strategy meeting tonight to discuss next steps</a>. Rangel also said of de Blasio&apos;s <a href="https://web.archive.org/web/20150428171433/http://gothamist.com/2013/08/08/de_blasios_son_dante_stars_in_first.php">commercial with son Dante</a> was more than effective, &quot;Hell, it was mind-blowing. That was the kid that they&apos;re looking for in stop-and-search. That is him! Big goddam afro, black kid, he&apos;s the one! In other words, the candidate&apos;s son.&quot; </p>
+
+<p><a href="https://web.archive.org/web/20150428171433/http://www.nydailynews.com/news/election/democratic-leaders-urge-thompson-quit-mayoral-race-article-1.1453192">Labor unions are rallying </a>behind de Blasio today at Brooklyn Borough Hall. </p>					
+										
+									
+				

@@ -1,0 +1,17 @@
+---
+author: Ben Yakas
+date: Mar 30, 2011 2:52 pm
+title: Is Brooklyn The New Paris, Or Is Huff Post The New Mad Libs?
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="33011frenchbk.jpg" src="https://web.archive.org/web/20150330063501im_/http://gothamist.com/attachments/byakas/33011frenchbk.jpg" width="640" height="480"> <br> <i><a href="https://web.archive.org/web/20150330063501/http://www.flickr.com/photos/jackie-factory/2581838985/">jackie factory nyc&apos;s flickr</a></i></div> <p></p>
+
+<p>Historically, trend-piece writers have <em>challenged</em> readers with hard hitting questions about the changing face of Brooklyn, engaging readers in meaningful arguments <a href="https://web.archive.org/web/20150330063501/http://stateoftheart.popphoto.com/blog/2007/09/the-brooklynite.html">about</a> the &quot;only borough that matters.&quot; Some have asked if Brooklyn is the <a href="https://web.archive.org/web/20150330063501/http://www.edgechicago.com/index.php?ch=nightlife&amp;sc=&amp;sc2=features&amp;sc3=&amp;id=116009">new Manhattan</a>, or if Brooklyn is the <a href="https://web.archive.org/web/20150330063501/http://www.brooklyntoday.info/features/284-is-brooklyn-the-new-garden-state.html">new Garden State</a>, or even if Brooklyn is the new hot spot <a href="https://web.archive.org/web/20150330063501/http://gothamist.com/2010/12/08/is_brooklyn_the_new_hot_spot_for_ra.php">for rabies</a>. But today, one brave Huffington Post journalist (stay with us) had the guts to cut the foreplay and ask the question on the tip of every self-important, would-be artist&apos;s lips: <a href="https://web.archive.org/web/20150330063501/http://www.huffingtonpost.com/paul-larosa/is-brooklyn-the-new-paris_b_842311.html">Is Brooklyn The New Paris</a>?</p>
+
+<p>The writer argues that Brooklyn is just like a less-smoky version of Ernest Hemingway&apos;s idealized Paris in the 1920s, filled with &quot;outdoor cafes, bookstores, bistros, writers, [and] drinking!&quot; But let&apos;s be clear here: he&apos;s not talking about <em>all</em> of Brooklyn. Only the cute, pale, gentrified parts: &quot;Of course, I&apos;m talking about the brownstone belt neighborhoods of Brooklyn Heights, Cobble Hill, Carroll Gardens, Park Slope, Fort Greene, but you can throw DUMBO, Williamsburg and Red Hook in there as well.&quot; So is his main argument that gentrification makes for great culture/art/literature? Because we&apos;re pretty sure nobody&apos;s going to mistake Jonathan Safran Foer, Nicole Krauss and Jonathan Ames for Hemingway, Henry Miller or Samuel Beckett. And if his only other major argument is that Brooklyn has independent bookstores and is pretty during a sunset...</p>
+
+<p>Anyway, instead of just enumerating how unconvincing his argument is, we&apos;ve come up with our own incredibly relevant series of controversy-sparking questions for you to discuss: Is Queens The New Long Island? Is Bronx The New Westchester? Is Staten Island now simply<em> The Island</em>, starring Ewan McGregor and Scarlett Johansson? Is Brooklyn The New Occupied Poland? Is Manhattan The New Amsterdam? </p>					
+										
+									
+				

@@ -1,0 +1,17 @@
+---
+author: Ben Yakas
+date: Nov 12, 2010 4:00 pm
+title: Death Threats Reveal Lesbian School Administrators' Affair
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:240px; "> <img alt="111210simmons.jpg" src="https://web.archive.org/web/20140506214323im_/http://gothamist.com/attachments/byakas/111210simmons.jpg" width="240" height="184"> <br> <i>Principal Crystal Simmons, via <a href="https://web.archive.org/web/20140506214323/http://www.edtechmag.com/k12/issues/november-december-2007/measuring-up.html">EdTech</a></i></div> The principal and assistant principal of a Harlem high school may lose their jobs after their two-year romance flamed out into a series of bad performance reviews and death threats. Academy for Social Action Principal Crystal Simmons <a href="https://web.archive.org/web/20140506214323/http://www.nypost.com/p/news/local/manhattan/manhattan_school_administrators_fF9zoEH9PBLSSWcoZPNG0I">is accusing</a> assistant principal Candy Jones of making the death threat after Simmons asked her to resign for her poor on-the-job performance. Is there some toxic reaction that occurs when you combine <a href="https://web.archive.org/web/20140506214323/http://gothamist.com/2010/07/09/lesbian_tryst_teachers_rendezvous_e.php">lesbian trysts</a> with high school administrators?<p></p>
+
+<p>The affair came to light after Simmons turned to the Special Commissioner of Investigation after the alleged death threat. Jones and Simmons began their secret relationship in August 2007. Simmons told investigators that she noticed a decline in Jones&#x2019; work ethic in Nov. 2009, and began to keep a record of her performance. In June 2010, Simmons asked Jones to resign, and then gave her an &quot;unsatisfactory&quot; rating in her evaluation. The two, whose relationship had already crumbled, had heated words, and Jones allegedly told another school employee that &quot;it was easy to purchase a gun down south&quot; and that her father &quot;had already purchased one.&quot; </p>
+
+<p>Jones <a href="https://web.archive.org/web/20140506214323/http://www.nydailynews.com/ny_local/2010/11/12/2010-11-12_manhattan_high_school_principal_assistant_principal_may_be_fired_for_lesbian_aff.html">told investigators</a> that she was only joking with the death threats, and was referring to the story about the female corrections officer <a href="https://web.archive.org/web/20140506214323/http://gothamist.com/2010/08/10/lesbian_cop_opens_fire_on_lover_in.php">who shot</a> her female lover, and compared her situation to that one, which she hopefully realized was a poor situation to compare/contrast with upon reflection. </p>
+
+<p>According <a href="https://web.archive.org/web/20140506214323/http://www.nypost.com/p/news/local/manhattan/manhattan_school_administrators_fF9zoEH9PBLSSWcoZPNG0I">to the Post</a>, 60 students protested this morning, demanding the well-liked Simmons, who is currently suspended, get her job back. At least one level-headed 10th grader wants answers, and doesn&apos;t get what the big deal is: &quot;I don&#x2019;t know why they would remove her for a personal reason. <strong>The school doesn&#x2019;t want to answer any of our questions...[Simmons and Jones] did a good job of keeping it secret,</strong>&quot; said Raheim Cruz.</p>					
+										
+									
+				

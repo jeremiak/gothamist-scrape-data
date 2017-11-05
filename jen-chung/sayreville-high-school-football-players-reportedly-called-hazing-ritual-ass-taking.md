@@ -1,0 +1,21 @@
+---
+author: Jen Chung
+date: Oct 20, 2014 10:58 am
+title: Sayreville High School Football Players Reportedly Called Hazing Ritual "Ass Taking"
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2014_10_sayrevillewarmem.jpg" src="https://web.archive.org/web/20150510012551im_/http://gothamist.com/attachments/jen/2014_10_sayrevillewarmem.jpg" width="640" height="427"> <br> <i> Outside Sayreville War Memorial High School (Getty Images)</i></div> <p></p>
+
+<p>As the authorities continue their investigation of the alleged hazing of football players at a high school in Sayreville, NJ, the NY Times says it has <a href="https://web.archive.org/web/20150510012551/http://www.nytimes.com/2014/10/20/nyregion/in-new-jersey-young-players-recall-hazing.html?ref=nyregion&amp;_r=0">compiled the &quot;most detailed public accounting of the hazing so far&quot;</a> based on interviews with players from the freshmen team: Older varsity team players &quot;tripped a freshman in a T-shirt and football pants, letting loud music muffle any noise the boy made as he fell. Two pinned the younger boy&#x2019;s arms, while others punched and kicked him &#x2014; not viciously, but hard enough to matter, two witnesses said. He curled into the fetal position and was groped by his attackers.&quot;</p>
+
+<p>An <a href="https://web.archive.org/web/20150510012551/http://www.nj.com/middlesex/index.ssf/2014/10/sayreville_high_school_football_hazing_parent_reveals_sexual_nature_of_locker_room_ritual_exclusive.html#incart_m-rpt-1">earlier story from the Star-Ledger</a>, based on a parent&apos;s account of the hazing, said, &quot;In the darkness, a freshman football player would be pinned to the locker room floor, his arms and feet held down by multiple upperclassmen. Then, the victim would be lifted to his feet while a finger was forced into his rectum. Sometimes, the same finger was then shoved into the freshman player&#x2019;s mouth.&quot; </p>
+
+<p>The Times reports, &quot;[T]wo victims who spoke to The Times, including one who said he was penetrated from behind with a finger, said they were wearing pants and did not consider what happened to be that serious. A witness to a third attack said the victim was also wearing football pants. The Times did not talk to anyone who saw the fourth attack.&quot;</p>
+
+<p>However, the Times acknowledges that some victims and students with knowledge of the attacks may be revising their stories, as other Sayreville War Memorial High School students, upset that the football season was cancelled, look to cast blame. Here&apos;s one victim trying to act as though it was no big deal:</p><blockquote>After practice that Monday, Sept. 29, the older students took their fourth victim, who shrugged off the assault. He sheepishly said last week that older players may have grabbed him and prodded his anus with their fingers, but said they did not push him to the floor. He insisted that this was only part of team bonding. &#x201C;You get your butt grabbed a lot, it wasn&#x2019;t, like, any big deal,&#x201D; he said. Later, he explained, &#x201C;They, like, poke you.&#x201D;</blockquote>And apparently the team had been hazing the younger players &quot;long enough to be codified with a name &#x2014; &apos;ass taking.&apos; Whenever the older students gathered around a victim, some would urge, &apos;Take the ass,&apos; witnesses said.&quot;<p></p>
+
+<p><a href="https://web.archive.org/web/20150510012551/http://www.nj.com/politics/index.ssf/2014/10/sayreville_football_scandal_has_nj_senate_dems_backing_new_bill_requiring_nj_educators_coaches_to_report_abuse.html#incart_m-rpt-1">NJ state legislators are proposing a bill</a> that will require educators and coaches to report sexual abuse. If you were wondering why there even needs to be a bill about that, NJ.com explains, &quot;Forty-eight states designate professions mandated by law to report child abuse, usually those whose members have frequent contact with children, like social workers, teachers, principals, physicians, nurses, guidance counselors, athletic coaches and child care providers. New Jersey and Wyoming require all persons to report suspected abuse, but do not name specific professions.&quot;</p>					
+										
+									
+				

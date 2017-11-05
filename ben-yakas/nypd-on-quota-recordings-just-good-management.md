@@ -1,0 +1,15 @@
+---
+author: Ben Yakas
+date: Sep 11, 2010 6:07 pm
+title: NYPD On Quota Recordings: "Just Good Management"
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="91110quotas.jpg" src="https://web.archive.org/web/20150510001831im_/http://gothamist.com/attachments/byakas/91110quotas.jpg" width="307" height="480" class="image-left"> </span>Yesterday, the lawyer for embattled Officer Adrian Schoolcraft <a href="https://web.archive.org/web/20150510001831/http://gothamist.com/2010/09/10/new_recordings_leave_no_doubt_that.php">released a new audio recording</a> made by a different officer that seemed to leave no doubt that quotas do exist within the NYPD. Today, the NYPD responded to the allegations and the tapes, and were quite unimpressed: &quot;<strong>What you&#x2019;re hearing on the tapes, assuming they&#x2019;re valid, is just good management</strong>,&quot; said Deputy Commissioner of Public Information, Paul Browne.</p>
+
+<p><a href="https://web.archive.org/web/20150510001831/http://www.nytimes.com/2010/09/11/nyregion/11quotas.html?partner=rss&amp;emc=rss">Browne told the Times</a> that the recording does not capture a discussion of quotas, but rather minimum productivity goals: &#x201C;It&#x2019;s absurd to think that managers can&#x2019;t establish goals that require minimum productivity. To suggest otherwise would mean no recourse but to let slackers do nothing.&#x201D; <a href="https://web.archive.org/web/20150510001831/http://newyork.cbslocal.com/2010/09/10/report-brooklyn-police-discussed-ticket-quotas/">He told CBS</a> that the Times was &#x201C;clearly confused and wrong&#x201D; about the discussions on the tape in their initial article about it yesterday: &#x201C;If you&#x2019;re in law enforcement, that means doing things like giving tickets and making arrests. We&#x2019;re looking for some net goal that indicates you&#x2019;re doing your job.&#x201D;</p>
+
+<p>New York Civil Liberties Union Director Donna Lieberman said she has long suspected officers were writing tickets to meet certain numbers, and she calls these recordings the proof: &#x201C;If its going on with regard to parking tickets, isn&#x2019;t it also happening, and we know it&#x2019;s happening with regard to stop and frisks.&quot; Currently, NY state has an antiquota statute, which outlaws them for tickets, summonses, arrests and stop, question-and-frisk encounters, and prohibits using quotas as a consideration for punishment. The <a href="https://web.archive.org/web/20150510001831/http://blogs.villagevoice.com/runninscared/archives/2010/09/shots_fired_nyc.php">Village Voice has a nice rundown</a> of all the local coverage and events involving Schoolcraft&apos;s allegations and lawsuit, and the subsequent fallout.</p>					
+										
+									
+				

@@ -1,0 +1,19 @@
+---
+author: Ben Yakas
+date: Apr 28, 2011 11:12 am
+title: Former '86 Mets Pitcher In Trouble For Homophobic Slurs
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="42811mets.jpg" src="https://web.archive.org/web/20140612024349im_/http://gothamist.com/attachments/byakas/42811mets.jpg" width="250" height="347" class="image-left"> </span>A former member of the World Champion &apos;86 Mets team is in trouble today after he hurled a series of homophobic insults at fans at a ballgame. So which legally-troubled member of that storied team is it? Not Lenny Dykstra, who is still dealing with his naked rubdown job interview <a href="https://web.archive.org/web/20140612024349/http://gothamist.com/2011/04/25/lenny_dykstra_probed_for_alleged_na.php">mess</a>. Not Darryl Strawberry, who is too busy with <a href="https://web.archive.org/web/20140612024349/http://strawberrysgrill.com/">Strawberry&apos;s Sports Grill</a> in Queens. Not even Dwight Gooden, who went to rehab after he was arrested for a DUI in NJ <a href="https://web.archive.org/web/20140612024349/http://gothamist.com/2010/03/24/dwight_gooden_busted_for_dwi.php">last year</a>. It&apos;s the <a href="https://web.archive.org/web/20140612024349/http://www.youtube.com/watch?v=wYkrjjTkjdk&amp;feature=related">magic loogie</a> spitter himself, former pitcher Roger McDowell, who told a dad last weekend, <strong>&quot;Kids don&apos;t f- - king belong at the baseball park.&quot;</strong> </p>
+
+<p>Last weekend, McDowell, the Atlanta Braves current pitching coach, <a href="https://web.archive.org/web/20140612024349/http://www.nypost.com/p/news/national/met_put_curse_on_me_fan_LrXimq45rAoMgbGxPtUX5J?CMP=OTC-rss&amp;FEEDNAME=">allegedly threatened</a> Justin Quinn in front of his twin 9-year-old daughters after Quinn complained that McDowell was using inappropriate language. During batting practice before Saturday&apos;s game in San Francisco, Quinn says he overheard McDowell asking three men,<strong> &quot;Are you three giving it to each other up the a- - ?&quot;</strong> and <strong>&#x201C;Are you guys a homo couple or a threesome?</strong>&#x201D; When Quinn complained to him, he barked back about kids not belonging in the park, then picked up a bat and made a lewd gesture before threatening Quinn with it. </p>
+
+<p>The incident comes only weeks after basketball star Kobe Bryant got in trouble for calling a referee a <a href="https://web.archive.org/web/20140612024349/http://gothamist.com/2011/04/14/kobe_bryant_fined_100000_by_nba_for.php">homosexual slur</a>. McDowell <a href="https://web.archive.org/web/20140612024349/http://www.advocate.com/News/Daily_News/2011/04/28/Atlanta_Braves_Coach_Sorry_for_Antigay_Slurs/">issued an apology</a> after the story got out: &quot;I am deeply sorry that I responded to the heckling fans in San Francisco on Saturday. I apologize to everyone for my actions.&quot; But Quinn, and his lawyer Gloria Allred, want MLB to fine McDowell, and GLAAD agrees: &#x201C;McDowell&#x2019;s apology is a start, but the Atlanta Braves and Major League Baseball must take real disciplinary action and send the message that anti-gay slurs have no place in sports,&quot; they said in a statement.</p>
+
+<p>Below, you can check out some vintage Mets action: young and sprightly McDowell and Dykstra visiting the adorable Martha Quinn on MTV. They discuss McDowell&apos;s appreciation for the band Level 42, Dykstra&apos;s appreciation for cheating (&quot;I&apos;m a good cheater&quot;), and watch the Mets&apos; ridiculous &quot;Let&apos;s Go Mets&quot; music video (skip to 2:34 for that gem):</p>
+
+<div style="text-align: center;"><iframe width="640" height="510" src="https://web.archive.org/web/20140612024349if_/http://www.youtube.com/embed/OzHwiDZ3pgQ" frameborder="0" allowfullscreen></iframe></div>					
+										
+									
+				

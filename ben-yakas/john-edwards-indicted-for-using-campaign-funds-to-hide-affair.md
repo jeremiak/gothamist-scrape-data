@@ -1,0 +1,13 @@
+---
+author: Ben Yakas
+date: June  3, 2011 11:09 AM
+title: John Edwards Indicted For Using Campaign Funds To Hide Affair
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="6311edwards.jpg" src="https://web.archive.org/web/20120128100017im_/http://gothamist.com/attachments/byakas/6311edwards.jpg" width="640" height="477"> <br> <i>AP</i></div> <p></p>
+
+<p>Two-time presidential candidate <a href="https://web.archive.org/web/20120128100017/http://gothamist.com/tags/johnedwards">John Edwards</a> has been indicted by a federal grand jury in Raleigh over campaign money he used to hide his affair with his mistress during his 2008 campaign for the White House. The <a href="https://web.archive.org/web/20120128100017/http://www.nytimes.com/2011/06/04/us/politics/04edwards.html">six count indictment</a> includes conspiracy, four counts of illegal campaign contributions and one count of false statements. You can read the full indictment <a href="https://web.archive.org/web/20120128100017/http://abcnews.go.com/Site/page?id=13752809">here</a>.</p>
+
+<p>The charges stem from a years-long investigation into whether Edwards used $750,000 in campaign funds to hide his mistress <a href="https://web.archive.org/web/20120128100017/http://gothamist.com/tags/riellehunter">Rielle Hunter</a>, with whom he had a child. Edwards met Hunter at the bar at the Regency Hotel while Edwards was on a press junket in 2005. She joined him on the road in 2007 to make a &quot;documentary&quot; about his campaign; for years, Edwards denied he was the father of Hunter&apos;s child, but finally tearfully admitted it last year. Former lacky Andrew Young testified that he estimated that it cost Edwards&apos; benefactors $1 million in cash, private jets and hotel rooms to cover up the affair and Hunter&apos;s pregnancy.</p>
+
+<p>According <a href="https://web.archive.org/web/20120128100017/http://www.latimes.com/news/politics/la-pn-edwards-indictment-20110603,0,472658.story">to the LA Times</a>, Edwards has reportedly been offered deals to lessen criminal penalties in return for admission of guilt, but he has refused to plead guilty to a felony offense. According to the Times, Edwards has chosen to fight the charges, which could lead to a long public trial and possible jail sentence for Edwards. It seems likely that no matter what, he will also lose his law license. </p>

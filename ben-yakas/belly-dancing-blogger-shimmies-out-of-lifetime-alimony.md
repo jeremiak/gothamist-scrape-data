@@ -1,0 +1,15 @@
+---
+author: Ben Yakas
+date: Apr 16, 2011 10:40 am
+title: Belly Dancing Blogger Shimmies Out Of Lifetime Alimony
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:260px; "> <img alt="41611belly.jpg" src="https://web.archive.org/web/20140430210406im_/http://gothamist.com/attachments/byakas/41611belly.jpg" width="260" height="260"> <br> <i>Belly dancing enthusiast Dorothy McGurk</i></div> And the internet ruins another life: a Staten Island woman who claimed she was too injured to work again <a href="https://web.archive.org/web/20140430210406/http://www.nydailynews.com/ny_local/2011/04/16/2011-04-16_wife_stripped_of_settlement_money_when_exhusband_sees_bellydancing_blog_that_pro.html">lost out on</a> lifetime alimony when her ex-husband discovered her belly dancing blog, complete with pictures of her shaking her pudge. &quot;My belly dancing is the reason why I adore myself so much...Today I decided to dedicate myself more to my dance. Even though I dance everyday, it&apos;s not enough. It won&apos;t be enough until I dance for you all, until you feel my euphoria,&quot; wrote Reikki spiritual healer Dorothy McGurk.<p></p>
+
+<p>McGurk, who testified that she can &quot;channel God&apos;s light to facilitate healing,&quot; had convinced the court that she couldn&apos;t work, and rarely left home or socialized because of injuries from a 1997 car accident. Three years ago, she won a settlement of $850 a month for life from ex Brian McGurk, as well as the couple&apos;s home. But after her ex discovered the belly dancing blog in which she claimed to have danced &quot;everyday for three years,&quot; he begged to differ about the severity of her injuries. &quot;She told outright lies. <strong>If she could blog for hours, if she could dance the day away in Manhattan, then how is it she couldn&apos;t hold down a job?</strong>&quot; argued his lawyer. And its not like anyone ever made a living out of blogging!</p>
+
+<p>In addition, <a href="https://web.archive.org/web/20140430210406/http://www.nypost.com/p/news/local/staten_island/si_belly_flop_on_alimony_h2PbCGW60EweNIkSQE1xyO">they highlighted</a> a Facebook entry where a friend asked the belly dancer why she had not posted photos of herself from a recent belly-dancing performance. &quot;Gotta be careful what goes on line pookies. The ex would love to fry me with that,&quot; she responded. The dancer defended herself in court, saying she was prescribed belly dancing as treatment for her injuries...a statement her doctor contradicted on the stand. Ultimately, Justice Catherine DiDomenico stripped her of her lifetime alimony settlement: &quot;The court credits husband&apos;s testimony that wife slept all day or otherwise spent her day on the computer participating in Internet blogs.&quot; The Judge awarded her $400 a month for only two years, ordered her to pay her ex-husband $5,000 plus interest for lawyer&apos;s fees, and awarded the husband 60 percent from the sale of their house because she &quot;worked only two years of this 11-year marriage.&quot;</p>					
+										
+									
+				

@@ -1,0 +1,59 @@
+---
+author: Jen Chung
+date: May 22, 2014 10:31 am
+title: How I Got Kicked Out Of The 9/11 Museum
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2014_05_911mus2.jpg" src="https://web.archive.org/web/20171007201123im_/http://gothamist.com/attachments/jen/2014_05_911mus2.jpg" width="640" height="427"> <br> <i> Inside the 9/11 Museum (Getty Images)</i></div> <p></p>
+
+<p>The National 9/11 Museum opened to the public yesterday, with dozens of museum employees on hand to assist visitors through exhibits, numerous Red Cross workers and chaplains eager to help those who needed comfort, and at least three security guards who tracked me down and ultimately threw me out. For asking a single question.</p>
+
+<p>President Obama dedicated the museum last week <a href="https://web.archive.org/web/20171007201123/http://gothamist.com/2014/05/15/photos_inside_the_911_museum_dedica.php">during a special ceremony</a> open to politicians, victims&apos; families and select members of the media. I was curious about it, because I wondered if the museum really was <a href="https://web.archive.org/web/20171007201123/http://nypost.com/2014/05/15/new-911-museum-is-as-beautiful-as-it-is-horrific/">&quot;as beautiful &#x2014; at times, disturbingly so &#x2014; as it is horrific,&quot;</a> as the Post&apos;s Steve Cuozzo put it, and <a href="https://web.archive.org/web/20171007201123/http://www.nytimes.com/2014/05/14/arts/design/sept-11-memorial-museum-at-ground-zero-prepares-for-opening.html?partner=rss&amp;emc=rss&amp;_r=0">&quot;emotionally overwhelming,&quot;</a> as the NY Times&apos; Holland Cotter declared. Jake and I had no luck in getting into the media previews (<a href="https://web.archive.org/web/20171007201123/http://gothamist.com/2011/06/27/exclusive_world_trade_center_progre.php#photo-16 ">although he&#x2019;d visited the museum when it was under construction</a>), so when a friend offered his extra ticket for today&apos;s opening day, I took it.</p>
+
+<p>Yes, the museum is very beautiful, well-laid out, enormous (110,000 square feet) and full of details. But it&apos;s also somewhat excruciating to walk through. You&apos;re forced to remember that bright, sunny day and how horrifically it unfolded. I was unemployed, so I was at home on the Upper West Side and saw what happened on TV. My dad was flying from Logan Airport to San Francisco and we had no idea what happened with him (luckily, his United flight was still on the tarmac, but it took forever for him to get through to call us). The burning smell drifted up to my neighborhood and I went to Fairway to buy water&#x2014;other confused people had the same idea&#x2014; and started to see people who had walked from their offices downtown, because the subways were shut down. </p>
+
+<p>The photographs of victims will tear your heart out. The scale of the destruction, with the wrecked fire engines and World Trade Center elevator motor, is also distressing. The audio recordings are particularly harrowing, whether they document a 911 call from someone on the 106th floor or a survivor describing how he carried a quadriplegic coworker down the North Tower and didn&apos;t realize the extent of the attacks until he went to look for the South building and discovered it no longer existed.</p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2014_05_911mus3.jpg" src="https://web.archive.org/web/20171007201123im_/http://gothamist.com/attachments/jen/2014_05_911mus3.jpg" width="640" height="427"> <br> <i> Inside the 9/11 Museum (Getty Images)</i></div> <p></p>
+
+<p>It&apos;s a very somber, reflective place. And even though I was curious about how some people <a href="https://web.archive.org/web/20171007201123/http://www.nytimes.com/2014/05/17/nyregion/9-11-museum-not-a-must-see-site-for-all-new-yorkers.html?_r=0">felt about the museum</a>, I decided against asking anyone questions, including a woman who fell and skinned her knee in the remains of the old WTC&apos;s foundation. But then I overheard part of an exchange at the most gut-wrenching portion of the exhibit.</p>
+
+<p>In the heart of the museum, at the deepest level, you&apos;ll find the <em>September 11, 2001</em> galleries with all the awful images and videos of the day. There&apos;s a warning in front of the entrance, &quot;The exhibition may not be appropriate for visitors 10 years old and younger. Adults accompanying younger visitors should exercise discretion before entering.&quot; The more intense scenes, like people jumping out of the buildings, are in alcoves (there are tissues handy), but even in the main space, there&apos;s a succession of photographs of the burning towers and TV coverage from 9/11. </p>
+
+<p>Towards the middle of the exhibit, I overheard some loud voices. A young woman was berating a middle-aged woman who was talking on the cellphone. The middle-aged woman moved herself&#x2014;and her conversation&#x2014;to a corner of the room, her light, almost jovial phone chatter echoing loudly around the room. Finally, she got off the phone, and the young woman, who appeared to be disgusted, called her &quot;disrespectful.&quot; I approached the young woman and said, &quot;Hi, I&apos;m a reporter. I was wondering, what happened just now?&quot;</p>
+
+<p>The young woman began to answer, but then a security guard interrupted us, asking, &quot;What are you? You&apos;re a reporter?&quot; I said yes, and he told me, &quot;You can&apos;t ask any questions. You have to go through the 9/11 Memorial people.&quot; I said okay and left the woman alone.</p>
+
+<p>I continued to walk through the exhibit, and a second guard came up to me. &quot;You&apos;re the reporter?&quot; he said. &quot;You can&apos;t ask questions here. You can&apos;t.&quot; I said I understood and reassured him I had only spoken to one person, and she seemed perfectly willing to talk.</p>
+
+<p>I exited that exhibit and went to the bathroom. When I emerged, a third security guard&#x2014;he appeared to be more senior-ranking because he was wearing a white shirt&#x2014;pulled me aside. He inquired if I was the reporter. I said I was, and then he asked for my name and organization. I presented my <a href="https://web.archive.org/web/20171007201123/http://gothamist.com/2012/03/26/after_high-profile_lawyer_intervene.php">NYPD-issued press credentials</a> and he started to write down my name on a pad. Then he took a picture of my press card before saying, &quot;I&apos;m going to have to escort you out of the museum.&quot;</p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2014_05_jenbusted.jpg" src="https://web.archive.org/web/20171007201123im_/http://gothamist.com/attachments/jen/2014_05_jenbusted.jpg" width="640" height="480"> <br> <i> Taking Jen Chung&apos;s info to place it on a &quot;Do not allow inside museum&quot; list (Gothamist)</i></div> <p></p>
+
+<p>&quot;Really?&quot; I asked. Yes, he explained, because reporters aren&apos;t allowed to ask questions at the museum&#x2014;all press requests had to go through the media team. I pointed out that I only asked one person a question, and when I was asked&#x2014;twice&#x2014;to stop asking questions, I did. I then told him that the woman I spoke to had just been criticizing another museum goer for her phone use. But the guard said he had to follow the rules and make me leave.</p>
+
+<p>As we traveled up one of the many escalators, the guard asked me, &quot;If you were at a museum, wouldn&apos;t you ask for the museum&apos;s permission before asking someone a question?&quot; &quot;Well, if I were at an art museum,&quot; I replied, &quot;and I was going to ask someone what they thought about a painting, no, I wouldn&apos;t ask for permission.&quot; He seemed to understand that, and then suggested, &quot;You know, you should contact our press people&#x2014;there&apos;s Michael&#x2014;&quot;</p>
+
+<p>&quot;Frazier,&quot; I supplied. &quot;Yes, I&apos;ve emailed him many times to request access to the museum. Never heard from him.&quot;</p>
+
+<p>Last night we emailed Frazier, the Vice President of Communications for the 9/11 Memorial and Museum, to ask about the museum&apos;s policy regarding journalists. He told us, &quot;If you go to our website, it clearly states that all media access has to be cleared through my office. I don&apos;t recall providing Mrs. Chung a pass for reporting purposes. Chung was welcome to join the countless of other reporters on the memorial plaza. Our security team acted accordingly per our guidelines and rules. It wasn&apos;t personal.&quot;</p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2014_05_911mus1.jpg" src="https://web.archive.org/web/20171007201123im_/http://gothamist.com/attachments/jen/2014_05_911mus1.jpg" width="640" height="427"> <br> <i> Inside the 9/11 Museum (Getty Images)</i></div> <p></p>
+
+<p>The <a href="https://web.archive.org/web/20171007201123/https://www.911memorial.org/visitor-rules-and-regulations">long list of rules and regulations for the 9/11 Memorial and Museum</a> states, </p>
+
+<blockquote>Any apparent loitering or harassment of Memorial, Preview Site, or Memorial Museum visitors who do not wish to be interviewed, photographed or filmed will result in dismissal from 9/11 Memorial &amp; Museum Property, at the sole discretion of 9/11 Memorial &amp; Museum Staff...Credentialed members of the news media must receive prior written authorization from, and make advance arrangements with, the 9/11 Memorial &amp; Museum&#x2019;s Communications &amp; Digital Media Department prior to their arrival. Authorized members of the news media will receive access to the Memorial Museum and the Preview Site for a specified period of time for reporting, which may include photography, videography, or audio recording.</blockquote>
+
+<p>I should have read the rules first, because my intention was not to ruin someone&apos;s moment in a hallowed space. But as a reporter, I&apos;m curious about anything unusual happening around me. When a brazen museum-goer&apos;s cellphone conversation ruined someone else&apos;s experience, my first instinct was to find out more. If I hadn&apos;t identified myself as a reporter, I probably would have found out what happened, since the young woman was so infuriated at the cellphone lady and was willing to talk to me. </p>
+
+<p>I don&apos;t believe my dozen words to her could be construed as harassment. Also, I got the message after I was asked by the two guards to stop asking questions. But to have a third guard waiting for me outside the bathroom?</p>
+
+<p>Frazier explained to us that it wasn&apos;t possible to accommodate every media outlet during the media preview. He added, &quot;If we were contacted before your visit today, we would have explained the right path now that we are open to the general public. Skirting our operations policy isn&apos;t the answer. Our security team acted accordingly... Again, it had nothing to do with your work. It had everything to do with the lack of authorization.&quot;</p>
+
+<p>The guard who escorted me out of the building was apologetic, &quot;I&apos;m just trying to do my job.&quot; I understood and said, &quot;I&apos;m just trying to do mine, too.&quot;</p>
+
+<p>Incidentally, the <a href="https://web.archive.org/web/20171007201123/https://www.911memorial.org/visitor-rules-and-regulations">museum&apos;s rules also say</a> that making cellular phone calls is prohibited inside the museum&apos;s exhibitions. As far as I know, the woman who was on her cellphone was allowed to remain in the museum. </p>					
+										
+									
+				

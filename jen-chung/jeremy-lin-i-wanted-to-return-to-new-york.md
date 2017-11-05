@@ -1,0 +1,23 @@
+---
+author: Jen Chung
+date: Jul 18, 2012 2:08 pm
+title: Jeremy Lin: "I Wanted To Return To New York"
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2012_07_jeremylinmural.jpg" src="https://web.archive.org/web/20150506173244im_/http://gothamist.com/attachments/jen/2012_07_jeremylinmural.jpg" width="640" height="464"> <br> <i> Photograph by <a href="https://web.archive.org/web/20150506173244/http://www.flickr.com/photos/bitchcakes/6828992702/">bitchcakesny on Flickr</a></i></div> <p></p>
+
+<p>The newest Houston Rocket point guard&#x2014;and <a href="https://web.archive.org/web/20150506173244/http://gothamist.com/2012/07/18/knicks_lose_the_linsanity_james_dol.php">latest spurned New York Knick</a>&#x2014;is giving <em>his</em> side of the soap opera.  <a href="https://web.archive.org/web/20150506173244/http://sportsillustrated.cnn.com/2012/basketball/nba/07/18/jeremy-lin-exclusive/index.html">Jeremy Lin tells Sports Illustrated</a>, &quot;Honestly, I preferred New York. But my main goal in free agency was to go to a team that had plans for me and wanted me. I wanted to have fun playing basketball. ... Now I&apos;m definitely relieved.&quot;  But... &quot;I love the New York fans to death. That&apos;s the biggest reason why I wanted to return to New York. The way they embraced me, the way they supported us this past season, was better than anything I&apos;ve ever seen or experienced. I&apos;ll go to my grave saying that. What New York did for me was unbelievable. <strong>I wanted to play in front of those fans for the rest of my career.</strong>&quot;</p>
+
+<p>According to Lin, just a few weeks ago, he flew to Los Angeles to meet up with Knicks coach Mike Woodson, who said, &quot;You&apos;re going to be a starter, you&apos;re going to be a big part of the team.&quot; But the Knicks told his agents they were also going after other point guards&#x2014;Steve Nash, Jason Kidd, Andre Miller and Raymond Felton: &quot;The Knicks would not make a formal offer to Lin -- not then, or, ultimately, ever -- instead opting to steer him toward the open market so he could assess his own price.&quot;</p>
+
+<p>Houston&apos;s overtures impressed Lin, as did their <a href="https://web.archive.org/web/20150506173244/http://gothamist.com/2012/07/06/lindecent_proposal_jeremy_lin_agree.php">initial four-year $28 million</a> offer (&quot;Lin&apos;s camp says they did not communicate anything to the Knicks before an offer sheet was actually signed&quot;) and Woodson made it publicly clear that the Knicks were re-signing Lin.  Then the Rockets came up with the <a href="https://web.archive.org/web/20150506173244/http://gothamist.com/2012/07/15/luxury_of_linsanity_knicks_may_ditc.php">$25 million, three-year offer</a>: &quot;By this point, Lin had no real idea what the Knicks would do. But there also wasn&apos;t much choice: there was all of one offer sheet in front of him to consider.&quot;  Then Lin read online that the Knicks were signing Felton!</p>
+
+<p>Referring to the playoffs and criticism that he should have played in spite of a knee injury (hello, <a href="https://web.archive.org/web/20150506173244/http://espn.go.com/new-york/nba/story/_/id/8168960/stephen-smith-new-york-knicks-better-jeremy-lin">Stephen A. Smith</a>), Lin said, &quot;Every single vet on our team that has been in the league longer than five years pulled me aside and told me that I shouldn&apos;t play. And I had arguments with them about why I should.&quot;  Lin says that James Dolan was supportive of his decision not to play. Dolan had been &quot;really nice to me&quot; and said, &quot;I have plans for you in the future. This is a long-term investment. Don&apos;t rush back.&quot;</p>
+
+<p>The 23-year-old seemed touchy that the free agency period and talk of multi-million dollar deals has made him seem greedy (hello, <a href="https://web.archive.org/web/20150506173244/http://www.buzzfeed.com/jpmoore/21-knicks-fans-who-are-disgustingly-mad-at-the-wro">racist, homophobic idiots on Facebook</a>).  He noted that he&apos;s only signed with three sponsors, &quot;A year ago, I was just trying to stay alive and fight day by day, just to be on a roster. What I have now is way more than I ever would have dreamed of, and way more than I need.&quot; Cue the Gotye parody:</p>
+
+<p><iframe width="640" height="360" src="https://web.archive.org/web/20150506173244if_/http://www.youtube.com/embed/t45jqsVSJWI" frameborder="0" allowfullscreen></iframe></p>					
+										
+									
+				

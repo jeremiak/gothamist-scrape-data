@@ -1,0 +1,27 @@
+---
+author: Ben Yakas
+date: Jan 24, 2013 5:26 pm
+title: Some "Sugar Babies" Don't Understand The Definition Of Prostitution
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="12413sugarbabies.jpeg" src="https://web.archive.org/web/20160628075456im_/http://gothamist.com/attachments/byakas/12413sugarbabies.jpeg" width="640" height="427"> <br> <i> <a href="https://web.archive.org/web/20160628075456/http://www.shutterstock.com/cat.mhtml?lang=en&amp;search_source=search_form&amp;version=llv1&amp;anyorall=all&amp;safesearch=1&amp;searchterm=old+man+young+woman&amp;search_group=#id=62351476&amp;src=f69c156a17a44a0ed568a5f5bd7156f9-1-30">Shutterstock/Creatista</a></i></div> <p></p>
+
+<p>We&apos;ve <a href="https://web.archive.org/web/20160628075456/http://gothamist.com/2013/01/15/lots_of_nyu_students_are_sugar_babi.php">written</a> <a href="https://web.archive.org/web/20160628075456/http://gothamist.com/2011/09/15/do_nyu_co-eds_make_the_best_sugar_b.php">previously</a> about the popularity of &quot;sugar daddy&quot; dating website SeekingArrangement.com, and how nubile NYU coeds are signing up faster than you can click <a href="https://web.archive.org/web/20160628075456/http://gothamist.com/2012/11/28/all_40000_nyu_students_united_in_an.php">&quot;reply-all.&quot;</a> The Daily News <a href="https://web.archive.org/web/20160628075456/http://www.nydailynews.com/life-style/sugar-babies-rely-older-sugar-daddies-article-1.1246213?localLinksEnabled=false">has a feature on the phenomenon today</a> which focuses on 20-year-old Fashion Institute of Technology student Lovely Phillips. Phillips, an aspiring celebrity stylist living in Chelsea, has been dating a 60-year-old she met online for the last seven months. But something smells funny here, and it isn&apos;t just her terrible clothing line: &#x201C;I don&#x2019;t call it prostitution, because you are not being paid directly for sex,&#x201D; she says. &#x201C;You are helped financially in different ways: You go shopping, you go out to eat, you go to see plays, you have fun. It&#x2019;s just like dating.&#x201D;</p>
+
+<p>Now, we firmly believe that consenting adults should be allowed to do what they want within the bounds of the law and whatnot. But Phillips&#x2014;who wasn&apos;t yet born when Nirvana&apos;s <em>Nevermind</em> was first released&#x2014;doesn&apos;t seem to quite understand what she&apos;s involved in. &#x201C;I am really strict with my sexual partners,&#x201D; Phillips says, &#x201C;and this is a monogamous relationship. We don&#x2019;t use &#x2018;sugar daddy&#x2019; or &#x2018;sugar baby&#x2019; in our vocabulary. He calls me his girlfriend.&#x201D; Just like how Brande Roderick, Izabella St. James, Tina Marie Jordan, Holly Madison, Bridget Marquardt, and Kendra Wilkinson all called Hugh Hefner their boyfriend.</p>
+
+<p>According to Websters, prostitution is &quot;the act or practice of engaging in promiscuous sexual relations especially for money.&quot; The old man is still &quot;direct paying&quot; if you are <em>benefiting</em> directly from him in every area of your life that you would have spent said money on. Or to simplify things, how about this: if you have to clarify that something is <strong>&quot;just like dating,&quot;</strong> then it definitely isn&apos;t.</p>
+
+<p>The News has a few more interviews with women involved with the site, including NYU student Minoo Mirsaidi who dated someone in his 70s (&#x201C;He couldn&#x2019;t always have sex because he was too old...but usually he was fine&#x201D;), and 20-year-old Queens College student &quot;Andrea,&#x201D; who gave this confusing defense of the practice:</p>
+
+<blockquote>&#x201C;I don&#x2019;t see anything wrong with it, but just because it&#x2019;s so many younger women &#x2014; like 20- and 21-year-old girls &#x2014; and a lot of older men, (other people) really see it as an exchange of sex for money, it&#x2019;s not necessarily that,&#x201D; she says. Although she admits that sex just, well, happens.
+
+<p>&#x201C;It&#x2019;s an arrangement, but not prostitution. It&#x2019;s more for companionship,&#x201D; she explains. &#x201C;They want to go out for dinner, or go to a movie. Honestly, we only spend time having sex for an hour, less than that; the rest of the night we&#x2019;re out for dinner or for a show.&#x201D;<br>
+ <br>
+Like Phillips, she gets to know her Daddy Warbucks over a couple of dates before slipping between the sheets. &#x201C;Most of these guys just want to meet and have a drink,&#x201D; Andrea says. &#x201C;Usually we talk on the phone and text, and then we having a meeting first where we don&#x2019;t do anything, and then we meet again. &#x201C;You don&#x2019;t just go straight to sex. You transition into it.&#x201D;</p></blockquote><p></p>
+
+<p>Does the amount of time one is physically capable of having sex change the basic nature of the exchange of services and goods that defines one of these &quot;sugar daddy/baby&quot; relationships? Does a monetary transaction by any other name still <a href="https://web.archive.org/web/20160628075456/http://www.scientificamerican.com/article.cfm?id=old-person-smell">smell like kareishuu</a>?</p>					
+										
+									
+				

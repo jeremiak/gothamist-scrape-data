@@ -1,0 +1,17 @@
+---
+author: Ben Yakas
+date: Mar 10, 2011 5:39 pm
+title: Sixth Annual "Ghost Bike" Memorial Ride This Sunday
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="31011bike.jpg" src="https://web.archive.org/web/20170326063321im_/http://gothamist.com/attachments/byakas/31011bike.jpg" width="640" height="427"> <br> <i><a href="https://web.archive.org/web/20170326063321/http://www.flickr.com/photos/1987porsche944/2697528792/">1987porsche944&apos;s flickr</a></i></div> <p></p>
+
+<p>The Sixth Annual Memorial Bike Ride, taking participants across the city to <a href="https://web.archive.org/web/20170326063321/http://gothamist.com/2009/01/05/ghost_bike_memorial_ride_2009_honor.php#photo-1">commemorate</a> and <a href="https://web.archive.org/web/20170326063321/http://gothamist.com/2010/01/04/ghost_bike_ride_remembers_cyclists.php#photo-3">honor</a> bikers who died this year, will <a href="https://web.archive.org/web/20170326063321/http://ghostbikes.org/">take place</a> this Sunday. Five groups of bike riders and walkers will travel past the &quot;ghost bikes,&quot; which are painted white bikes with small plaques placed around the boroughs as detailed reminders of bike fatalities. </p>
+
+<p>This years ride will memorialize 14 cyclists who have lost their lives since last January. There is a Bronx-Manhattan ride, a Staten Island ride, a Brooklyn pedestrian memorial walk, a North Brooklyn ride and a South Brooklyn ride; everyone will eventually meet at Brooklyn Borough Hall for the official memorial service for bikers and pedestrians, with an afterparty at Rabbit Hole Studios in Dumbo. You can check out the full schedule and info <a href="https://web.archive.org/web/20170326063321/http://ghostbikes.org/events">here.</a></p>
+
+<p>There are now more than 50 &quot;ghost bikes&quot; throughout the city; last year, the Sanitation Department <a href="https://web.archive.org/web/20170326063321/http://gothamist.com/2010/06/22/city_backpedals_on_ghost_bike_remov.php">backed off</a> on a plan to remove all of them after an outcry. Among those who will be memorialized this year are <a href="https://web.archive.org/web/20170326063321/http://gothamist.com/2010/08/25/bicyclist_on_life_support_after_bei.php">Alprentice (A.J.) Gray</a>, <a href="https://web.archive.org/web/20170326063321/http://gothamist.com/2010/04/09/memorial_ride_tomorrow_for_bronx_cy.php">Megan Charlop</a>, <a href="https://web.archive.org/web/20170326063321/http://gothamist.com/2011/02/04/how_to_kill_a_cyclist_and_walk_away.php">Marcus Ewing</a>, <a href="https://web.archive.org/web/20170326063321/http://gothamist.com/2010/09/06/bike-riding_hofstra_music_professor.php">Bob Bowen</a>, <a href="https://web.archive.org/web/20170326063321/http://gothamist.com/2010/04/19/greenpoint_hit-and-run_leaves_man_a.php">Neil Chamberlain</a>, <a href="https://web.archive.org/web/20170326063321/http://gothamist.com/2010/04/15/driver_charged_cyclist_identified_i.php">Jake McDonough</a>, and <a href="https://web.archive.org/web/20170326063321/http://gothamist.com/2010/09/13/bike_accident_victim_rode_her_bike.php">Jasmine Herron.</a></p>					
+										
+									
+				

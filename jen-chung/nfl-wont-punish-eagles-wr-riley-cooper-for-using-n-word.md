@@ -1,0 +1,27 @@
+---
+author: Jen Chung
+date: Aug 1, 2013 3:48 pm
+title: NFL Won't Punish Eagles' WR Riley Cooper For Using N-Word
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2013_07_rileycooper.jpg" src="https://web.archive.org/web/20160906210549im_/http://gothamist.com/attachments/jen/2013_07_rileycooper.jpg" width="640" height="491"> <br> <i> Riley Cooper speaks to the media (AP/Philadelphia Daily News)</i></div> <p></p>
+
+<p>Yesterday, a video showing Philadelphia Eagles wide receiver Riley Cooper yelling, &quot;I will jump that fence and fight every nigger here, bro,&quot; at a Kenny Chesney concert <a href="https://web.archive.org/web/20160906210549/http://www.crossingbroad.com/2013/07/heres-video-of-riley-cooper-saying-he-will-fight-every-n-word-at-the-kenny-chesney-concert.html">was posted on CrossingBroad</a>, a Philadelphia sports website. By the afternoon, Cooper was <a href="https://web.archive.org/web/20160906210549/https://twitter.com/RileyCooper_14/statuses/362672311092002816">apologizing on Twitter</a>, &quot;I am so ashamed and disgusted with myself. I want to apologize. I have been offensive.&quot;</p>
+
+<p>Cooper also told the media, &quot;It&apos;s going to be very difficult for me [to face my teammates]. I&apos;m going to tell them, &apos;I&apos;m extremely sorry,&apos; tell them exactly what I&apos;m telling you guys. There was a confrontation and I handled it extremely, extremely poorly. This is kind of the lowest of lows. This isn&apos;t the type of person I want to be portrayed as. This isn&apos;t the type of person that I am.&quot; Apparently Cooper was <a href="https://web.archive.org/web/20160906210549/http://deadspin.com/riley-cooper-was-pissed-he-couldnt-go-backstage-at-ken-981432082">upset because he couldn&apos;t go backstage</a>. Because this is totally a normal reaction to not meeting Kenny Chesney:</p>
+
+<p><iframe width="640" height="360" src="//web.archive.org/web/20160906210549if_/http://www.youtube.com/embed/-dEQxO8Yuas" frameborder="0" allowfullscreen></iframe></p>
+
+<p>Cooper claimed, &quot;I was drinking But that is no excuse for what I said and what I did. I&apos;m willing to accept any consequences.&quot; He is also described as acting <a href="https://web.archive.org/web/20160906210549/http://www.crossingbroad.com/2013/08/besides-using-the-n-word-riley-cooper-acted-like-a-jackass-throughout-much-of-the-kenny-chesney-concert.html">like a &quot;jackass&quot; at the concert</a>.</p>
+
+<p>The Eagles fined him for &quot;conduct detrimental&quot; to the team, and based on his salary, <a href="https://web.archive.org/web/20160906210549/http://www.philly.com/philly/blogs/red_zone/NFL-will-not-add-additional-punishment.html">the fine is no more than $37,000</a>. The NFL has said it will not discipline him further, with Commissioner Roger Gooddell <a href="https://web.archive.org/web/20160906210549/http://www.latimes.com/sports/sportsnow/la-sp-sn-cooper-goodell-20130801,0,3229785.story#axzz2ajc0TKdM">saying on ESPN Radio</a> this morning, &quot;We do not penalize at the club level and league level for same incident. We will not be taking action separately from the club.&quot; </p>
+
+<p>Philadelphia Inquirer columnist Phil Sheridan was <a href="https://web.archive.org/web/20160906210549/http://www.philly.com/philly/sports/eagles/20130801_Eagles_didn_t_go_far_enough_in_disciplining_Riley_Cooper.html">unhappy with the light punishment</a>, &quot;A suspension would have been more appropriate. Releasing Cooper from the team would have been within reason. The message would be clear, that racism simply is not tolerated by the Eagles or the NFL. Now the message is that racism will cost you a few bucks,&quot; while a Philadelphia Daily News columnist <a href="https://web.archive.org/web/20160906210549/http://www.philly.com/philly/sports/eagles/20130801_Don_t_rush_to_judge_Cooper.html?c=r">John Smallwood says</a>, &quot;I don&apos;t know Eagles receiver Riley Cooper, so I certainly don&apos;t know him well enough to judge whether his apology for using a racial slur was from his heart or from his head. What I have learned, however, is that it is usually best to let emotion and shock value wear down a bit before drawing any true opinion on what an incident may or may not truly mean.&quot;</p>
+
+<p>FWIW, Eagles quarterback Michael Vick, no stranger to controversy, forgives Cooper, &quot;What if your son or daughter made a mistake of this factor? How would you want people to perceive it? I&apos;ve been there before... Him being my brother, knowing him for so long, it&apos;s hard to defend him saying that. At the same, time, it happened. We talked about it man to man, one on one. We just know that we have to some way move on. It&apos;s a very delicate situation. But we all understand. Somehow we all have to find a way to get past it. That&apos;s maturity in itself.&quot; But Vick&apos;s brother <a href="https://web.archive.org/web/20160906210549/http://www.philly.com/philly/blogs/pattisonave/Marcus-Vick-places-bounty-on-Riley-Coopers-head.html">wasn&apos;t so nice</a>.</p>
+
+<p>Also, Kenny Chesney wants you to know his <a href="https://web.archive.org/web/20160906210549/http://espn.go.com/nfl/trainingcamp13/story/_/id/9526303/riley-cooper-philadelphia-eagles-issues-apology-uttering-racial-slur-video">fans aren&apos;t as stupid as Cooper</a>.</p>					
+										
+									
+				

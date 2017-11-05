@@ -1,0 +1,21 @@
+---
+author: Jen Chung
+date: Jun 2, 2014 9:55 am
+title: Woolworth Building Penthouse Condo Will Cost $110 Million
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2014_06_woolworth.jpg" src="https://web.archive.org/web/20171031013742im_/http://gothamist.com/attachments/jen/2014_06_woolworth.jpg" width="640" height="427"> <br> <i> Photograph by <a href="https://web.archive.org/web/20171031013742/https://www.flickr.com/photos/onesevenone/14314585164/">Stefan Georgi on Flickr</a></i></div> <p></p>
+
+<p><a href="https://web.archive.org/web/20171031013742/http://gothamist.com/2012/08/07/woolworth_building_to_become_luxury.php">After years of speculation</a>, the developer behind the Woolworth Building&apos;s condo conversion has put a price-tag on living at the top of <a href="https://web.archive.org/web/20171031013742/http://gothamist.com/2013/04/25/happy_belated_birthday_woolworth_bu.php">NYC&apos;s oldest and grandest skyscraper</a>: <strong>$110 million</strong>. (<a href="https://web.archive.org/web/20171031013742/http://gothamist.com/2014/06/01/reminder_you_cant_afford_to_live_in.php">Now, read this</a>.)</p>
+
+<p><a href="https://web.archive.org/web/20171031013742/http://www.bloomberg.com/news/2014-06-02/nyc-woolworth-tower-condo-priced-at-record-110-million.html">Bloomberg reports</a> that the $110 million was disclosed in &quot;a proposed offering plan filed with New York State Attorney General Eric Schneiderman&#x2019;s office.&quot; Appraiser Jonathan Miller said it was the highest price for a lower Manhattan residential home, &quot;The price is more reflective of the unique historical nature of the property... We&#x2019;ve seen rapid absorption downtown, but this project is unlike anything that&#x2019;s come online.&quot; Completed in 1913, the 58-story limestone building designed by Cass Gilbert has neo-Gothic and Art Deco touches, including the elaborate roof and terra-cotta details framing windows. </p>
+
+<p>Alchemy Properties <a href="https://web.archive.org/web/20171031013742/http://ny.curbed.com/archives/2014/01/28/woolworth_building_unveils_teaser_site_for_34_condostobe.php">is developing</a> the top 30 floors which will house 34 apartments&#x2014;from Bloomberg:</p><blockquote>Prices for the condos start at $3.5 million for a 1,209-square-foot (112-square-meter) unit on the 44th floor, according to the proposed offering plan, which is under review by the attorney general&#x2019;s office. Three units in addition to the penthouse are listed at more than $20 million, including a 6,084-square-foot full-floor apartment with a terrace on the 31st story for $24 million.<p></p>
+
+<p>The $110 million penthouse is about 8,975 square feet with a 584-square-foot terrace. The four-bedroom condo with a private elevator spans nine stories, with the primary living space on the 50th and 51st floors, according to the offering plan. A great room and wine cellar make up the 53rd floor, and the 55th through 58th levels in the cupola include a library or media room and an observation deck at the top, the plan shows.</p></blockquote>You could also just buy a penthouse topped with <em>two</em> cupolas for <a href="https://web.archive.org/web/20171031013742/http://gothamist.com/2013/11/07/manhattans_most_beautiful_fixer-upp.php#photo-1">the low price of $20 million</a>.<p></p>
+
+<p>When Alchemy president Ken Horn <a href="https://web.archive.org/web/20171031013742/http://www.cbsnews.com/news/living-large-the-market-for-super-luxury-homes/">was interviewed by CBS News</a>, he was asked &quot;What does the luxury customer who will buy in a building like this want?&quot; Horn replied, &quot;The best kitchen you can imagine. The most spectacular bathrooms. They&apos;re gonna be spectacular pieces of art.&quot; He also likened the penthouse to a &quot;castle in the sky. We can&apos;t think of anything in the world that will be similar to that.&quot;</p>					
+										
+									
+				

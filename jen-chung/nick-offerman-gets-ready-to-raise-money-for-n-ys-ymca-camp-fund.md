@@ -1,0 +1,39 @@
+---
+author: Jen Chung
+date: May 2, 2014 2:53 pm
+title: Nick Offerman Gets Ready To Raise Money For NY's YMCA Camp Fund
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-right"> <img alt="2014_05_nickoffer1.jpg" src="https://web.archive.org/web/20140505070223im_/http://gothamist.com/attachments/jen/2014_05_nickoffer1.jpg" width="350" height="525"> <br> <i style=" width:350px; ;display:block"> Nick Offerman at &quot;The LEGO Movie&quot; premiere in February (Getty Images)</i></div> <em><a href="https://web.archive.org/web/20140505070223/http://offermanwoodshop.com/">Nick Offerman</a>, one of the stars of</em> Parks &amp; Recreation, <em>has been in New York the past few months, performing alongside his wife, Megan Mullally, in the off-Broadway play <a href="https://web.archive.org/web/20140505070223/http://www.newyorkcitytheatre.com/theaters/acorntheater/annapurna.php">Annapurna</a>. This Monday, on his day off, he&apos;ll be hosting</em>, <a href="https://web.archive.org/web/20140505070223/https://tix.smarttix.com/Modules/Sales/SalesMainTabsPage.aspx?ControlState=1&amp;DateSelected=&amp;DiscountCode=&amp;SalesEventId=2938&amp;DC=">Nick Offerman&apos;s Night of 23 Stars</a>, <em>a fundraiser for New York YMCA Camp scholarship fund, which provides a traditional summer camp experience to New York City children who have little access to the great outdoors. Ron Swanson would approve!</em><p></p>
+
+<p><em>There are <a href="https://web.archive.org/web/20140505070223/https://tix.smarttix.com/Modules/Sales/SalesMainTabsPage.aspx?ControlState=1&amp;DateSelected=&amp;DiscountCode=&amp;SalesEventId=2938&amp;DC=">still 100 tickets left</a>, and Offerman will be joined by Jason Sudeikis, David Cross, Fred Armisen, Cristin Milioti, Rachel Dratch, Jane Krakowski, Jon Glaser, Michael Shannon, Mike Birbiglia, Seth Herzog, and many others in an evening of comedy, music, and improv. We caught up with Offerman to ask him a few questions before the show:</em></p>
+
+<p><strong>How did you get involved with the NY YMCA Camp scholarship fund?</strong> My friend Asa Christiana of <a href="https://web.archive.org/web/20140505070223/http://www.finewoodworking.com/">Fine Woodworking Magazine</a> is on the board. He mentioned that they were looking for some ways to drum up some budget, so we thought a night of raillery might serve nicely.</p>
+
+<p><strong>Was growing up in Illinois like camp?</strong> My childhood had a lot of camp to it. We fished often and I spent a lot of time in boats, rowing and paddling. There were also a lot of bonfires, hayrack rides and grilling discipline. I guess my large farm family was like our own personal camp.</p>
+
+<p><strong>What kind of antics do you anticipate on Monday night?</strong> Well, there will be some amazing musical performances by the likes of Jane Krakowski, Cristin Milioti, Mike Shannon and Fred Armisen, backed by the band from <em>ONCE</em> on Broadway, tempered by an amazing menu of comedy with Jason Sudeikis, Rachel Dratch, Jon Glaser, Mike Birbiglia, and Eugene Mirman. David Cross, for crying out loud. I understand Fred is planning to work without pants, so the show will skew adult.</p>
+
+<p><strong>How much of the character of Ron Swanson was based on your real life (ie, woodworking)? I saw the video of the gazebo you built for the Japan House at U. Illinois, and your sense of honor, commitment and hard work seem <a href="https://web.archive.org/web/20140505070223/https://www.youtube.com/watch?v=4Pk4Qn1zJCk">very in line with Swanson&apos;s</a>.</strong> Ron Swanson&apos;s life is written by the best comedy writers in the country, while mine is penned by nature, therefore my own life must needs be much messier and rife with weakness than Ron&apos;s life. That azumaya (gazebo) took many hands many hours to complete, and Ron probably would have knocked it out in a weekend with just a couple bottles of Lagavulin.</p>
+
+<p><strong>Have you been able to do any woodworking while in NYC?</strong> Not really, I&apos;m spending my time off-stage working on book 2 [a follow-up to <a href="https://web.archive.org/web/20140505070223/http://offermanwoodshop.com/shop/paddle-your-own-canoe-autographed-copy/">Paddle Your Own Canoe</a>].</p>
+
+<p><strong>Have you visited <a href="https://web.archive.org/web/20140505070223/http://www.nakashimawoodworker.com/">George Nakashima</a>&#x2019;s home?</strong> I have not, it&apos;s on my wish list. His daughter Mira is still running the operation with aplomb as I understand.</p>
+
+<p><strong>Does it bother you that fans seem to enjoy seeing your <a href="https://web.archive.org/web/20140505070223/https://www.google.com/search?client=safari&amp;rls=en&amp;q=nick+offerman+deadwood&amp;ie=UTF-8&amp;oe=UTF-8">full-frontal scene on Deadwood</a> and sharing them on the Internet?</strong> I haven&apos;t found that to be a prevalent issue, which leads me to wonder about the proclivities of the interviewer? Deadwood, particularly Ian McShane&apos;s portrayal of Al Swearingen, is one of the finest portrayals of honest Americanism that I&apos;ve seen. I am very much enlarged to have enjoyed a brief dance with David Milch, its creator.</p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left"> <img alt="2014_05_nickmegan.jpg" src="https://web.archive.org/web/20140505070223im_/http://gothamist.com/attachments/jen/2014_05_nickmegan.jpg" width="400" height="267"> <br> <i style=" width:400px; ;display:block"> Nick Offerman and Megan Mullally at the opening of Annapurna last month (Getty Images)</i></div> <strong>How is Annapurna going?</strong> Going great, thank you, the New Group is an excellent company and we&apos;re really enjoying the New York audiences. Megan and I feel very grateful to have the chance to assay such a splendid piece of writing from Sharr White.<p></p>
+
+<p><strong>How do you and Megan keep the romance alive, especially with your performance schedule?</strong> Well. A lot of hand jobs. And then she also does stuff to me. We feel very lucky that we get along well enough to do 8 shows a week and still want to go to the movies together, but, I mean, look at her. Those curves&apos;ll make your hat fly off.</p>
+
+<p><strong>You lived in Chicago for a while, so please weigh in: What pizza is better, NYC or Chicago?</strong> As I have asserted previously, what passes for pizza in NY should be dried and folded into boxes in which the vastly superior Chicago pies might be delivered.</p>
+
+<p><strong>What restaurants/stores/places do you like in NYC?</strong> Every morning I stand in the lobby of the American Museum of Natural History and soak in Teddy Roosevelt&#x2019;s paeans to Manhood, Nature, Youth and the State. The walls state: &#x201C;The nation behaves well if it treats the natural resources as assets which it must turn over to the next generation increased; and not impaired in value.&#x201D; </p>
+
+<p><strong>Bonus U. Illinois question: Do you miss burritos as big as your head from <a href="https://web.archive.org/web/20140505070223/http://www.labambaburritos.com/">La Bamba Burritos</a> in Champaign</strong> As with many aspects of my youth, I long, not only for a La Bamba burrito, but further, for the capacity to pack one away with a six-pack of cold beer, as was my habit circa 1989 or so. That was one delicious and gargantuan burrito.</p>
+
+<p><em>Nick Offerman&apos;s</em> Night Of 23 Stars <em>performs Monday, May 5th at St. Patrick&apos;s Youth Center, 268 Mulberry St., NYC (Mulberry and Houston).</em> Annapurna <em>runs through June 1st at the <a href="https://web.archive.org/web/20140505070223/http://www.newyorkcitytheatre.com/theaters/acorntheater/theater.php">Acorn Theatre</a>.</em></p>					
+										
+									
+				

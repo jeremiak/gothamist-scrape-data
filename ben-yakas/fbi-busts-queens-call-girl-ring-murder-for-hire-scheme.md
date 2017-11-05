@@ -1,0 +1,13 @@
+---
+author: Ben Yakas
+date: December 10, 2010  5:39 PM
+title: FBI Busts Queens Call-Girl Ring, Murder-For-Hire Scheme
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="121010murder.jpg" src="https://web.archive.org/web/20111101203232im_/http://gothamist.com/attachments/byakas/121010murder.jpg" width="240" height="240" class="image-left"> </span></p>
+
+<p>Nothing livens up a gray Friday afternoon like a busted sex trafficking ring involving the FBI, a Russians call-girls, and a murder-for-hire scheme. <a href="https://web.archive.org/web/20111101203232/http://www.nydailynews.com/news/ny_crime/2010/12/10/2010-12-10_lusty_ring_busted_up_qns_man_ukrainian_teen_in_charges.html">Police arrested</a> alleged pimp Salah Youssef, 37, and assistant Victoriya Makogonyuk, 18, and accused them of running a call-girl ring out of Astoria. In addition, Youssef is accused of trying to get revenge on an associate who owed him money by hiring a friend to either accuse the associate of rape or murder him.</p>
+
+<p>The FBI claims that Youssef asked his friend about planting drugs on the associate in debt, and said he wanted the young daughter of a Russian pal to have sex with the man and claim rape. Youssef also allegedly said he&apos;d be willing to pay $10,000 to have a hit on the man. According to court papers, Youssef told the man he was &quot;in the escort business,&quot; and said &quot;the best way to deal with [him] is just to shoot him.&quot; Unfortunately, Youssef was so taken by his many revenge schemes, he didn&apos;t stop to consider that his friend was actually an FBI informant. So the FBI had an agent pose as a &quot;Jersey guy&quot; mobster and another pose as a call girl, and they met with Youssef and his assistant several times to hammer out the details of the hit.</p>
+
+<p>Youssef is being held on charges of murder for hire, witness tampering and sex trafficking. His Ukranian assistant, Makogonyuk, who allegedly ran the call-girl ring by putting ads in Russian newspapers for escorts and answering phones at an Astoria apartment used for the illegal hookups, wavered on her story, and was only charged with sex trafficking. According to the feds, Makogonyuk told them that &quot;at first, she thought the &apos;escort&apos; business was a legitimate business, but that she became suspicious after a number of prospective customers asked her about whether she would perform various sexual acts.&quot; After she was released on bail however, the teen told the News, &quot;I don&apos;t know what it&apos;s about. I didn&apos;t know why I was here until just 10 minutes before I went to court.&quot;</p>

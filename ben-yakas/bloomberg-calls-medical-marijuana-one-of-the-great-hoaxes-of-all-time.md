@@ -1,0 +1,21 @@
+---
+author: Ben Yakas
+date: May 31, 2013 4:11 pm
+title: Bloomberg Calls Medical Marijuana "One Of The Great Hoaxes Of All Time"
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="53113bloomberg.jpeg" src="https://web.archive.org/web/20150502144831im_/http://gothamist.com/attachments/byakas/53113bloomberg.jpeg" width="640" height="428" class="image-none"> </span></p>
+
+<p><a href="https://web.archive.org/web/20150502144831/http://gothamist.com/tags/bloomberg">Mayor Bloomberg</a> has always been somewhat consistent in his views on <a href="https://web.archive.org/web/20150502144831/http://gothamist.com/tags/marijuana">marijuana</a>: <a href="https://web.archive.org/web/20150502144831/http://www.nytimes.com/2002/04/10/nyregion/bloomberg-says-he-regrets-marijuana-remarks.html">he used to love smoking it</a>, but he regrets telling people that, because he&apos;s vehemently against legalization, because the new stuff is just too strong. See, simple! But now he&apos;s becoming even more extreme in his anti-pot rhetoric: &quot;Medical, my foot,&quot; the mayor <a href="https://web.archive.org/web/20150502144831/http://www.nypost.com/p/news/local/bloomberg_huffs_puffs_all_plan_time_MwCZnVF6t4o0B1qTtwZrnL">said this morning on his radio show</a>, referring to efforts to legalize medical marijuana. &quot;There&apos;s no medical. This is one of the great hoaxes of all time.&quot; </p>
+
+<p>Bloomberg further clarified that he didn&apos;t mean to say that no one can benefit from medical marijuana&#x2014;only that he personally doesn&apos;t feel that it should be available for people who are suffering, because drug dealers need to feed their families as well and&#x2014;wait, what? &quot;The bottom line is, I&apos;m told marijuana is much stronger today than it was 20, 30 years ago,&quot; Bloomberg said before getting to the REALLY stupid part. &quot;That&apos;s one problem. <strong>No 2, drug dealers have families to feed. If they can&apos;t sell marijuana, they&apos;ll sell something else.</strong> And the something else will be something worse. The push to legalize this is wrongheaded.&quot; </p>
+
+<p>So, Bloomberg&apos;s illogical logic here is: if you make medical marijuana legal (mind you, the discussion was about legalizing <em>medical marijuana</em>, not regular Purple Haze marijuana), then drug dealers will be forced to sell other drugs (<a href="https://web.archive.org/web/20150502144831/http://gothamist.com/2013/02/15/bloomberg_against_legalizing_weed_b.php">like cocaine</a>). Thank god someone is both looking out for marijuana dealers&apos; best interests! It&apos;s almost as if Bloomberg doesn&apos;t believe that people have the capacity to go from selling marijuana to a different regular job&#x2014;as if he can&apos;t believe that a person could go from loving smoking marijuana to <a href="https://web.archive.org/web/20150502144831/http://gothamist.com/2011/03/16/nyc_taxpayers_spent_75_million_on_t.php#photo-1">disowning any such experiences.</a> </p>
+
+<p>It&apos;s just too bad that countless medical experts disagree with Bloomberg&apos;s initial statements about medical marijuana; in fact, NY Physicians for Compassionate Care held a press conference announcing the support of more than 600 physicians from across New York for medical marijuana legislation (that was <a href="https://web.archive.org/web/20150502144831/http://gothamist.com/2013/05/29/marijuana-hating_pot_smoking_assemb.php">passed in the Assembly this week</a>). </p>
+
+<p>&quot;Mayor Bloomberg&apos;s statement that medical marijuana is a hoax is tantamount to saying that the moon landing was faked,&#x201D; said Dr. Sunil Aggarwal, MD, PhD, Associate Member of the New York Academy of Medicine and Vice-Chair of NY Physicians for Compassionate Care. &#x201C;Marijuana, given in oral and inhaled forms, has been shown in large, gold-standard, double-blinded, randomized, placebo-controlled trials conducted at major medical centers to relieve pain and muscle spasm, and stimulate appetite and weight gain in patients with wasting syndromes. The data is published for all to see and has been backed up by biochemistry.&quot;</p>					
+										
+									
+				

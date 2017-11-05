@@ -1,0 +1,13 @@
+---
+author: Ben Yakas
+date: December 22, 2010 12:51 PM
+title: Joan Rivers Supports Bitches, Hates Sons Of Bitches
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="122210rivers.jpg" src="https://web.archive.org/web/20130315001307im_/http://gothamist.com/attachments/byakas/122210rivers.jpg" width="220" height="275" class="image-left"> </span></p>
+
+<p>The City Council recently introduced a <a href="https://web.archive.org/web/20130315001307/http://gothamist.com/2010/12/18/new_dog_bill_would_put_three_hour_l.php">new measure</a> that would bar dog owners from tethering their pets outside for longer than three hours. It&apos;s a measure that was previously proposed by Councilman Peter Vallone almost <a href="https://web.archive.org/web/20130315001307/http://www.ny1.com/?SecID=1000&amp;ArID=67084">four years ago</a>, but has been shot down time and again because of logistical concerns. So who will come to the aid of our bitches? Who else: Joan Rivers.</p>
+
+<p>The comedian <a href="https://web.archive.org/web/20130315001307/http://vegetarianstar.com/2010/12/21/joan-rivers-supports-nyc-law-against-prolonged-dog-chaining/">wrote</a> a letter to City Council Speaker Christine Quinn supporting the tethering bill, as well as a second bill encouraging owners to spray-and-neuter their pets. She wrote: &#x201C;I hope this Tethering Bill passes not just for the sake of the poor dogs tied up outside in the cold, but for the sake of the sons of bitches* who do this&#x2014;because what I&#x2019;d do to the creeps would be far worse than what any police officer would do!&#x201D; Project Runway star Tim Gunn also wrote a personal note to  Quinn in favor of these bills, according <a href="https://web.archive.org/web/20130315001307/http://www.peta.org/b/thepetafiles/archive/2010/12/21/joan-rivers-wants-change-for-chained-dogs.aspx">to PETA</a> (who has had a <a href="https://web.archive.org/web/20130315001307/http://nymag.com/nymetro/news/people/columns/intelligencer/n_9623/">love/hate</a> relationship with Rivers). </p>
+
+<p>Because this was Joan Rivers we&apos;re talking about, she couldn&apos;t let an opportunity pass to make a joke about the openly gay Quinn&#x2014;for Rivers has yet to meet the gay joke she doesn&apos;t love: &quot;I&#x2019;ve always admired your work on gay issues. <strong>I just wish more animals were gay&#x2014;people would pay more attention!&quot; </strong></p>

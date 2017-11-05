@@ -1,0 +1,33 @@
+---
+author: Jen Chung
+date: May 30, 2017 10:48 am
+title: Tiger Woods DUI Means Double 'DUI Of The Tiger' Tabloid Front Pages
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2017_05_tigerw.jpg" src="https://web.archive.org/web/20170624153118im_/http://gothamist.com/attachments/jen/2017_05_tigerw.jpg" width="640" height="521"> <br> <i> Tiger Woods in NYC earlier this year (Getty Images)</i></div> <p></p>
+
+<p>Golf superstar Tiger Woods was arrested for driving under the influence near his Jupiter, Florida home early Monday morning, and the Palm Beach County Sheriff&apos;s officers <a href="https://web.archive.org/web/20170624153118/http://www.wptv.com/news/region-n-palm-beach-county/jupiter/golfer-tiger-woods-arrested-on-dui-charges-in-jupiter">reportedly found him asleep at the wheel</a>. Woods released a statement to emphasize that his condition was not alcohol-related: &quot;I understand the severity of what I did and I take full responsibility for my actions. I want the public to know that alcohol was not involved.  What happened was an unexpected reaction to prescribed medications. I didn&apos;t realize the mix of medications affected me so strongly.</p>
+
+<p>&quot;I would like to apologize with all my heart to my family, friends, and the fans.  I expect more from myself, too. I will do everything in my power to ensure this never happens again. I fully cooperated with law enforcement, and I would like to personally thank the representatives of the Jupiter Police Dept. and the Palm Beach County Sheriff&apos;s Office for their professionalism,&quot; he said.</p>
+
+<p>Woods was arrested around 3 a.m., and<a href="https://web.archive.org/web/20170624153118/http://www.tmz.com/2017/05/29/tiger-woods-busted-for-dui/"> TMZ reports</a> that he was allegedly &quot;driving erratically, all over the road&quot; when officers pulled him over. The gossip website added, &quot;We&apos;re told the officer asked him to blow into a breathalyzer but he refused. In Florida that means automatic arrest and license suspension... Our sources say Woods&apos;s people have been calling the police all morning asking if the cop had a body cam.&quot;</p>
+
+<p><a href="https://web.archive.org/web/20170624153118/http://www.wptv.com/news/region-n-palm-beach-county/jupiter/golfer-tiger-woods-arrested-on-dui-charges-in-jupiter">According to WPTV</a>, his blood alcohol was .000: &quot;Court documents say there were six witnesses to the arrest. He was also cited for improper parking. His ticket noted his car was stopped on the roadway in the right-hand lane and right shoulder.&quot;</p>
+
+<p>The Palm Beach County Sheriff&apos;s Office also released a depressing mugshot, and both NYC tabloids put the latest chapter in <a href="https://web.archive.org/web/20170624153118/http://www.golfdigest.com/story/the-sad-story-of-tiger-woods-grows-even-sadder">Woods&apos;s apparent downward spiral</a> on their covers. In 2009, <a href="https://web.archive.org/web/20170624153118/http://gothamist.com/2009/11/27/tiger_woods_seriously_hurt_in_flori.php">Woods crashed his car into a fire hydrant</a> after his <a href="https://web.archive.org/web/20170624153118/http://gothamist.com/2009/11/28/report_wife_scratched_tiger_woods_f.php">then-wife found out about his affairs</a>.</p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2017_05_duitiger.jpg" src="https://web.archive.org/web/20170624153118im_/http://gothamist.com/attachments/jen/2017_05_duitiger.jpg" width="640" height="380" class="image-none"> </span></p>
+
+<div><center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">A DUI mugshot pretty much guarantees the front page of the New York tabloids. <a href="https://web.archive.org/web/20170624153118/https://t.co/yXSS0JdwGL">https://t.co/yXSS0JdwGL</a></p>&#x2014; Pat Kiernan (@patkiernan) <a href="https://web.archive.org/web/20170624153118/https://twitter.com/patkiernan/status/869361538842456064">May 30, 2017</a></blockquote>
+<script async src="//web.archive.org/web/20170624153118js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center></div>
+
+<p>Woods <a href="https://web.archive.org/web/20170624153118/http://www.nydailynews.com/sports/more-sports/tiger-woods-arrested-charged-dui-florida-article-1.3204303?utm_content=buffer3be8d&amp;utm_medium=social&amp;utm_source=twitter.com&amp;utm_campaign=NYDailyNewsTw">has a history of back problems</a> and had a fourth back surgery in April. He <a href="https://web.archive.org/web/20170624153118/http://news.tigerwoods.com/tigers-blog-updates-on-tiger-jam-and-my-recovery/">had recently written on his website</a>, &quot;It has been just over a month since I underwent fusion surgery on my back, and it is hard to express how much better I feel. It was instant nerve relief. I haven&#x2019;t felt this good in years... The long-term prognosis is positive. My surgeon and physiotherapist say the operation was successful. It&apos;s just a matter of not screwing up and letting it fuse. I&apos;m walking and doing my exercises, and taking my kids to and from school. All I can do is take it day by day. There&apos;s no hurry. But, I want to say unequivocally, I want to play professional golf again.&quot;</p>
+
+<p>The 14-time major champion was in New York to promote his book before his back surgery; <a href="https://web.archive.org/web/20170624153118/http://www.reuters.com/article/us-golf-tiger-book-idUSKBN16R2G7">in an interview with Reuters,</a> a fan said he chatted with Woods about that, &quot;He was very nice. I suffer back pains and I expressed that he should maybe get acupuncture and he said that he does try it and enjoys it.&quot;</p>
+
+<p>Woods&apos;s longtime friend Notah Begay III <a href="https://web.archive.org/web/20170624153118/http://www.espn.com/golf/story/_/id/19490176/tiger-woods-arrested-dui-florida">told the Golf Channel</a> he had texted with Woods after the arrest: &quot;[H]e seemed like he was in a better place... People in the world of golf are not going to turn their back on Tiger Woods. I think you are going to see an outpouring of support and encouragement for him as he works through personal issues and challenges that many people in this country face. Millions upon millions of people deal with these types of issues on a daily basis, and it&apos;s one of those things that once he understands and realizes that people are supporting him as he works through this, it&apos;s going to hopefully see those changes come to fruition.&quot;<br>
+</p>					
+										
+									
+				

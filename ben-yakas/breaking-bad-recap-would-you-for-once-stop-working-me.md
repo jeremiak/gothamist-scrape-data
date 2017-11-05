@@ -1,0 +1,65 @@
+---
+author: Ben Yakas
+date: Aug 26, 2013 12:27 pm
+title: Breaking Bad Recap: "Would You For Once Stop Working Me?"
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="82613breakbad.jpg" src="https://web.archive.org/web/20150107115739im_/http://gothamist.com/attachments/byakas/82613breakbad.jpg" width="640" height="426"> <br> <i> AMC</i></div> <p></p>
+
+<p><a href="https://web.archive.org/web/20150107115739/http://gothamist.com/2013/08/19/breaking_bad_recap_you_have_to_get.php">Last week</a> on <a href="https://web.archive.org/web/20150107115739/http://gothamist.com/tags/breakingbad"><em>Breaking Bad</em></a>, Walt took a trip to the desert, Huell rolled around in a pile of money, and Skyler asked if she was under arrest. This week, Todd told a story, Walt made a confession, and Jesse got some gasoline. Check out some thoughts about the newest episode, &quot;Confessions,&quot; below.</p>
+
+<p><iframe width="640" height="480" src="//web.archive.org/web/20150107115739if_/http://www.youtube.com/embed/a6dQLMLHTFE" frameborder="0" allowfullscreen></iframe></p>
+
+<p><strong>&quot;Confessions&quot;:</strong> Todd starts the episode by telling his neo-Nazi pals about the great methylene train robbery of 2012; Hank opens up to Jesse about how much he wants to catch Walt; Walt admits to Flynn that his cancer has returned; Hank and Marie watch in horror at Walt&apos;s videotaped &quot;confession;&quot; Jesse begs Walt to be honest with him about leaving town, about anything for once; and Jesse holds a gun at Saul&apos;s head until he admits to his part in stealing the ricin cigarette from his pocket toward the end of season four.</p>
+
+<p><strong>Hank and Jesse:</strong> Hank wasn&apos;t kidding when he mentioned last week that Jesse hates his guts&#x2014;even though Hank says all the right things, even though both he and Jesse realize they&apos;ve been abused by Walt, Jesse can&apos;t bring himself to work with Hank. &quot;Not you,&quot; Jesse seethes at the end of the first scene between the two men since season three. But will the ricin revelation push Jesse into taking Hank up on his offer to put Walt behind bars? </p>
+
+<p><strong>Meth Damon and Jesse:</strong> Before we got the conclusion to last week&apos;s cliffhanger, we spent the start of the episode with Todd and his neo-Nazi buds. He is practically giddy recounting every heart-stopping moment of the train robbery...except that one thing that happened at the end. You know, that thing with the dead kid. Todd yet again proves he is bizarro Jesse: while Jesse focuses on (and absorbs) all the horror his and Walt&apos;s actions have incurred, Todd only recalls the rush.</p>
+
+<center><blockquote class="twitter-tweet"><p>He&#x2019;s someone who views Walt&#x2019;s life as a kickass adventure, not a morality tale.</p>&#x2014; emilynussbaum (@emilynussbaum) <a href="https://web.archive.org/web/20150107115739/https://twitter.com/emilynussbaum/statuses/371770861906571265">August 25, 2013</a></blockquote>
+<script async src="//web.archive.org/web/20150107115739js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<p>And like Jesse of old, Todd is looking for some sort of parental approval from Walt&#x2014;hence his phone call getting him up to speed about the change in management.</p>
+
+<p>Making it all more tense: Todd slipped in the comment about Walt saying the train robbery could be the most lucrative one ever. Do you think those neo-Nazis&#x2014;who, mind you, nonchalantly murdered a group of meth manufacturers last week&#x2014;are going to forget that?</p>
+
+<p><strong>&quot;Would You For Once Stop Working Me?&quot;:</strong> Jesse&apos;s desert breakdown/breakthrough&#x2014;one of several high points (literal and figurative) in the episode for the character&#x2014;was Aaron Paul&apos;s best scene so far this season, perhaps in the whole of season five thus far. How many times can he find new ways to break our hearts? And has there ever been a stranger mix of cruelty and love in one gesture like there was in the hug between him and Walt? Jesse called him out for playing the &quot;dad routine&quot; when Walt was so clearly manipulating him to protect his own neck&#x2014;at the same time, Jesse does need that parental figure still, and even knowing Walt killed Mike, Jesse was too raw to not accept Walt&apos;s comfort. And for his part, Walt probably has convinced himself that this is in Jesse&apos;s best interest (to start a new life somewhere far away)&#x2014;it&apos;s just in everybody&apos;s mutual interest. </p>
+
+<p>Jesse&apos;s probably regretting that hug now. We can&apos;t imagine any more of them for those two in the final five episodes. Then again, this isn&apos;t the first time Jesse&apos;s wanted to kill Walt&#x2014;and he bought him a watch last time!</p>
+
+<p><strong>Walt, Lies And Videotape:</strong> Last week, Lydia tried to convince Declan to take Todd on as his new cook; by the time Declan refused, Lydia&apos;s backup plan had already arrived. When Walt and Skyler meet with Hank and Marie to ask them to back-off their family&#x2014;and Hank assures them that will <em>never</em> happen&#x2014;Walt carefully drops the DVD containing his atomic backup plan, a cruel funhouse mirror of Walt&apos;s season one video confession. Marie keeps telling Hank they have to get in front of the Walt revelations with the police, but Walt is always two steps ahead of everyone.</p>
+
+<p>And in an episode filled with half a dozen all time great scenes, none was as stupefying as Walt&apos;s taped confession, and Hank and Marie&apos;s dumbfounded reaction to the monologue. At this point, Walt had melded with Heisenberg, and he can perfectly weave between lies and truth. He seems to be abiding by the <a href="https://web.archive.org/web/20150107115739/http://www.youtube.com/watch?v=vn_PSJsl0LQ">George Costanza philosophy of life</a>: &quot;It&apos;s not a lie...if you believe it.&quot; And Walt is always able to dig out just the right amount of truth to sell his bullshit. </p>
+
+<p>He masterfully manipulates the truth about all the major events of the last five seasons, about his cancer diagnosis and how he got his start in the business, about the Cousins and Hank&apos;s injury, about Gus Fring and Hector Salamanca and the wheelchair bomb. He talks in detail and goes on too long and cries a bit. And the thing that&apos;s truly amazing is that it isn&apos;t <em>just</em> a threat&#x2014;Walt is also truly confessing to Hank and Marie. He wants them to understand him a little better&#x2014;and he doesn&apos;t want to kill Hank. Ultimately, he&apos;s begging them to let it go <em>and</em> to tread carefully at the same time, and doing so with a giant bluff.</p>
+
+<p><strong>&quot;You Should Just Kill Yourself Walt&quot;:</strong> Again and again this season, we&apos;ve seen the people closest to Walt forced to confront and contemplate just how diseased his soul is. Last week, Marie stammered as she pieced together how long her sister has known about Walt&apos;s activities (before Hank&apos;s injury)&#x2014;and this week, she delivered the line of the night at the cheery Mexican restaurant meeting. And then in his confession, Walt mentions that he has considered suicide, but he&apos;s too much of a coward to go through with it&#x2014;and that&apos;s something that definitely sounds like the truth.</p>
+
+<p><strong>Chekov&apos;s Ricin:</strong> It may not have been used directly yet, but the ricin that has been kicking around in one form or another since season two finally did some direct damage in this episode. Jesse lost out on a chance to move to Alaska and become Mr. Credit To Society when he finally figured out how he lost the ricin cigarette...and what that means about Walt poisoning Brock and turning Jesse against Gus. There&apos;s no longer any chance that Jesse could possibly help Mr. White out again now that he knows he harmed a child.</p>
+
+<p><strong>Lex Luthor</strong>: It seems more appropriate than ever that Bryan Cranston will <a href="https://web.archive.org/web/20150107115739/http://movies.cosmicbooknews.com/content/exclusive-bryan-cranston-lex-luthor-batman-superman-matt-damon-aquaman-mark-strong-sinestro">likely/maybe/probably/definitely/perhaps/who the hell knows? be playing</a> Superman&apos;s greatest nemesis in the sequel to <em>Man Of Steel</em>. As every character learns something new and terrible about Walter White, his vile actions loom larger and larger. Walt&apos;s superhuman power will always be his ability to lie and to justify his own morally bankrupt actions, but now Jesse and Hank both have their eyes wide open about Walt&apos;s willingness to cross lines and murder anyone who gets in his way. Last week, Walt threatened to send Saul to Belize for bringing up the idea of killing Hank (&quot;He&apos;s family&quot;)&#x2014;but is it just a matter of time before Walt crosses one more line with one of his two &quot;family&quot; members? </p>
+
+<p><strong>The Return Of Flynn Or Walt Jr. Or Whatever Name He&apos;s Going By These Days:</strong> It was nice to see him, even if he wasn&apos;t eating breakfast. At this point, he and Holly are the only characters orbiting Walt&apos;s universe that don&apos;t know anything about Heisenberg. So of course Walt plays the cancer card to keep him close. </p>
+
+<p>We also know from the flash-forward that the house hasn&apos;t been burned to the ground. So will he be the one Jesse runs into next week in the house? It would be an appropriately horrible time for Walt&apos;s two sons to finally meet in person.</p>
+
+<p><strong>Weird Camera Angles Of The Night</strong>: Just about every time Jesse was on camera, we seemed to get some literal representation of his haggard perspective. The slowed down, druggy Jesse vision before Hank stepped in for his interrogation was pretty neat, as was the shaky cam when he goes into rage mode after having the ricin revelation. But The Honorary Roomba POV Shot Award Of The Night went to the Gasoline Cam at the very end. </p>
+
+<p><strong>Burning Down The House:</strong> Aaron Paul said we&apos;d <a href="https://web.archive.org/web/20150107115739/https://twitter.com/aaronpaul_8/status/371790853838082048">poop our pants and like it</a>, and he was right. The show has been in blitzkrieg mode during these first three episodes, burning through emotionally ecstatic revelations and plot lines faster than Jesse whipping out joints in Saul&apos;s office. And every episode has ended with an intense cliffhanger, an edge-of-your-seats moment (even if we know the house isn&apos;t going to burn down). In the course of one week&apos;s time in the ABQ, we may be witness to the downfall that leads Walt to becoming Mr. Lambert. </p>
+
+<p>And even though Walt was definitely at the center of tonight&apos;s episode, this was one of the best Jesse showcases we&apos;ve gotten in a long time. And he now owns a Hello Kitty cell phone. Look at some of the responses he got on Twitter:</p>
+
+<center><blockquote class="twitter-tweet"><p>Breaking bad thoughts? Concerns? Let me talk you thru it. Number please.</p>&#x2014; Aaron Paul (@aaronpaul_8) <a href="https://web.archive.org/web/20150107115739/https://twitter.com/aaronpaul_8/statuses/371817592605773826">August 26, 2013</a></blockquote>
+<script async src="//web.archive.org/web/20150107115739js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<p><strong>Talking Bad</strong>: If you&apos;re like us, then you stick around after <em>Breaking Bad</em> every week and leave Moody Bald Cop Does Something Bad (aka <em>Low Winter Sun</em>) on mute until <em>Talking Bad</em> comes on at 11 p.m. The best part of the show is discovering what celebrities are as obsessed with the show as we are. A few weeks ago, Julie Bowen was hyperventilating with Chris Hardwick; this week, Samuel L. Jackson took his outfit very seriously:</p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="82613bad2.jpg" src="https://web.archive.org/web/20150107115739im_/http://gothamist.com/attachments/byakas/82613bad2.jpg" width="640" height="480" class="image-none"> </span></p>
+
+<p><strong>Next Week: </strong> &quot;Mr. White...he&apos;s the devil,&quot; Jesse says in the preview for the next episode, &quot;Rabid Dog.&quot; You may recall that there was a season four episode called &quot;Problem Dog,&quot; in which Jesse briefly tries to open up about killing Gale, by relating the story of killing an innocent (but problematic) dog to his support group. Something tells us Jesse&apos;s going to do something more than just tell a guarded story this time.</p>
+
+<p><iframe width="640" height="480" src="//web.archive.org/web/20150107115739if_/http://www.youtube.com/embed/FGTvDQHJ4x4" frameborder="0" allowfullscreen></iframe></p>					
+										
+									
+				

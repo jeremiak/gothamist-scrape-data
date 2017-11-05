@@ -1,0 +1,21 @@
+---
+author: Jen Chung
+date: Jun 19, 2013 1:30 pm
+title: FBI Arrests Alleged KKK Member For Selling Lethal X-Ray Weapon
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2013_05_radiationm.jpg" src="https://web.archive.org/web/20150505122025im_/http://gothamist.com/attachments/jen/2013_05_radiationm.jpg" width="640" height="427"> <br> <i> Image from <a href="https://web.archive.org/web/20150505122025/http://www.shutterstock.com/gallery-103308p1.html">Pindyurin Vasily</a>/Shutterstock</i></div> <p></p>
+
+<p>This is really weird: The FBI revealed it had arrested an upstate NY General Electric mechanic Glendon Scott Crawford for allegedly trying to sell a mobile radiation weapon to Jewish groups... and then the KKK. His acquaintance, Eric Feight, whom he knew from GE and who allegedly helped design the electric controls for the device, was also arrested. Oh, and Crawford <a href="https://web.archive.org/web/20150505122025/http://www.timesunion.com/local/article/Terrorism-radiation-plot-uncovered-in-Albany-4609567.php">may also be a member of the KKK, too</a>. </p>
+
+<p>According to the Justice Department:</p><blockquote>The arrests followed a lengthy investigation by the Albany FBI Joint Terrorism Task Force that began in April 2012 when authorities received information that Crawford had approached local Jewish organizations seeking out individuals who might offer assistance in helping him with a type of technology that could be used against people he perceived as enemies of Israel... <p></p>
+
+<p>[T]he essence of the defendants&#x2019; scheme was the creation of a mobile, remotely operated, radiation emitting device capable of killing targeted individuals silently with lethal doses of X-ray radiation. The defendants plotted to use this device against unwitting victims who would not immediately be aware that they had absorbed lethal doses of radiation, the harmful effects of which would only appear days after the exposure. This was an undercover investigation and, unbeknownst to the defendants, the device that the defendants designed and intended to use was rendered inoperable at all times and posed no danger to the public.</p></blockquote>For more color about what the device would do, the federal complaint accuses Crawford, a Galway, NY resident, of developing &quot;a radiation emitting device that could be placed in the back of a van to covertly emit ionizing radiation strong enough to bring about radiation sickness or death against Crawford&apos;s enemies.&quot; Who did Crawford think were enemies? Oh, he apparently called Muslims and enemies of the U.S. &quot;medical waste.&quot;<p></p>
+
+<p>The <a href="https://web.archive.org/web/20150505122025/http://www.timesunion.com/local/article/Terrorism-radiation-plot-uncovered-in-Albany-4609567.php">Times Union reports</a>:</p><blockquote>The two men met May 20 in Albany and Feight gave a remote-transmission device to Crawford. They had planned a test to take place at an undisclosed hotel in the Albany area.<p></p>
+
+<p>The suspects had successfully tested the remote triggering system that could work from a little less than a half mile away from the weapon, the complaint states. On June 12, they planned to have a dinner where Crawford would be provided with the radiation system, which was not finished. When the men were meeting, the FBI was monitoring their activities, including using undercover informants who posed as members of a South Carolina Ku Klux Klan group interested in purchasing the device and financing the project.</p></blockquote>The pair were arrested yesterday. GE issued a statement, &quot;We have no reason to believe the act took place on GE property nor is there any information indicating that our employees&apos; safety was ever compromised. Since this incident, Mr. Crawford has been suspended. We are cooperating fully with the authorities on their investigation.&quot;<p></p>					
+										
+									
+				

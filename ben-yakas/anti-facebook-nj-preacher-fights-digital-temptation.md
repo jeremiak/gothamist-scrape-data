@@ -1,0 +1,17 @@
+---
+author: Ben Yakas
+date: Nov 18, 2010 1:55 pm
+title: Anti-Facebook NJ Preacher Fights Digital Temptation
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="111810facebook.jpg" src="https://web.archive.org/web/20150808084918im_/http://gothamist.com/attachments/byakas/111810facebook.jpg" width="240" height="172" class="image-left"> </span></p>
+
+<p>Facebook is making all sorts of moves these days, <a href="https://web.archive.org/web/20150808084918/http://gothamist.com/2010/11/12/facebook_to_unveil_new_gmail_killer.php">introducing</a> their new &quot;Gmail Killer&quot; email service, and making <a href="https://web.archive.org/web/20150808084918/http://gothamist.com/2010/11/18/myspace_facebook_call_mysterious_jo.php">mysterious announcements</a> with MySpace. But you can never please some people: a NJ preacher has started calling on congregants and elders in his church to give up Facebook...because of all that digital temptation lurking in every friend request!</p>
+
+<p>Rev. Cedric Miller has demanded that the 50 or so high-ranking officers in his Living Word Christian Fellowship Church give up Facebook by this Sunday, to lead by example. &quot;<strong>I&apos;m going to say if the potential for evil is there, then cut it off, and I will make a strong biblical case for them to oblige</strong>,&quot; Miller <a href="https://web.archive.org/web/20150808084918/http://www.nypost.com/p/news/local/jersey_preacher_commands_straying_IOuM3voKX1nOPZbdwxvt7M">told the Post</a>. He says he started his anti-Facebook campaign because at least 20 couples in his church broke up (or almost did) due to Facebook-related dalliances. &quot;I&apos;ve been in extended counseling with couples with marital problems because of Facebook for the last year and a half. <strong>What happens is someone from yesterday surfaces, it leads to conversations and there have been physical meet-ups. The temptation is just too great</strong>.&quot; Boy, if he thinks Facebook is bad, just wait till he hears about <a href="https://web.archive.org/web/20150808084918/http://gothamist.com/mt/mt-search.fcgi?IncludeBlogs=1&amp;limit=30&amp;search=craigslist&amp;x=0&amp;y=0">Craigslist.</a></p>
+
+<p>One such couple in Miller&apos;s congregation <a href="https://web.archive.org/web/20150808084918/http://www.nypost.com/p/news/local/web_flirts_sent_wife_into_fury_couc3Ur4YV3x9Kaqtyxd6O">told the Post</a> about their marital troubles, and how it was all caused by that demon Facebook. &quot;I would get several e-mails a week saying how gorgeous I was and here&apos;s my phone number. These girls didn&apos;t care that I was married, and my page said so. <strong>I didn&apos;t want to cheat on my wife, but these women were throwing themselves at me</strong>,&quot; said P.R. professional, personal trainer, and tortured babe-magnet Elliott Subervi. All that temptation, just thrown at his feet! Only a completely unreasonable person could expect an adult to responsibly handle such unbridled desire without succumbing to adultery. But as we noted before, if Subervi truly wants to examine his resolve, he must face The Last Temptation Of Craigslist.</p>					
+										
+									
+				

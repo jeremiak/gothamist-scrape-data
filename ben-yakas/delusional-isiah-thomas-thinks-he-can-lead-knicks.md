@@ -1,0 +1,17 @@
+---
+author: Ben Yakas
+date: Nov 6, 2010 12:50 pm
+title: Delusional Isiah Thomas Thinks He Can Lead Knicks
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:250px; "> <img alt="11610thomas.jpg" src="https://web.archive.org/web/20150506172908im_/http://gothamist.com/attachments/byakas/11610thomas.jpg" width="250" height="247"> <br> <i>AP</i></div> <p></p>
+
+<p>Let&apos;s get one thing clear: the NY Knicks are in an abusive relationship with <a href="https://web.archive.org/web/20150506172908/http://gothamist.com/tags/isiahthomas">Isiah Thomas</a>. He abused the fans, the salary cap, and the development system with gruesome move after gruesome move as Knicks team president and head coach in the last decade. When James Dolan <a href="https://web.archive.org/web/20150506172908/http://gothamist.com/2010/08/12/nba_rules_be_damned_james_dolan_wil_1.php">made motions to re-hire</a> Thomas as a consultant over the summer, fans were enraged. Thomas was a bad luck charm, an emblem of the worst era in Knicks history, and just bad at his job. And yet, Thomas loves us. He coos into our ears, &quot;C&apos;mon baby, you know I didn&apos;t mean it. I&apos;ll be better this time.&quot; Of course he won&apos;t actually acknowledge he did anything wrong, but he desperately wants back into our hearts and our pants.</p>
+
+<p>Thomas gave an insane, reality-challenged interview to <a href="https://web.archive.org/web/20150506172908/http://sports.espn.go.com/new-york/columns/story?columnist=oconnor_ian&amp;id=5766026">ESPN yesterday</a> that revealed the depths of his psychosis: he told them he had always planned on pursuing LeBron James in 2010, and he truly believes he, the Great Gazoo Isiah Thomas, could have singlehandedly brought him to NY. He thinks that occasional bench warmer Eddy Curry was a perfect complimentary player for James, and would have given up his contract to make room for him! As the <a href="https://web.archive.org/web/20150506172908/http://offthedribble.blogs.nytimes.com/2010/11/05/the-alternate-universe-of-isiah-thomas/">Times puts it</a>, &quot;Even if Curry surrendered the remaining $11 million (unlikely), the Knicks would still have been over the cap with Thomas&#x2019;s roster. <strong>The Knicks only had a chance to sign James because Walsh spent the last two years unloading Thomas&#x2019;s worst contracts</strong>.&quot;</p>
+
+<p>And now he&apos;s dangling the prospect of bringing LeBron and a championship to NY in 2014 as a way to get back on our good side: &quot;I want to be on the float and I want to get my ring.&quot;  Asked if he thinks about succeeding Donnie Walsh, who replaced Thomas as team president in 2008, Thomas replied, &#x201C;<strong>Every single day of the week</strong>.&#x201D; Walsh, who still is rehabbing from spinal-cord surgery, <a href="https://web.archive.org/web/20150506172908/http://www.nypost.com/p/sports/knicks/thomas_attention_grab_vmXLYA4uHimAG8DdIAtqwJ">was asked about</a> Thomas&apos;s comments yesterday, and snapped at a reporter, &quot;When I hear the word retirement, it&apos;s a choice I make.&quot; As one Knicks executive told the Post about Thomas&apos;s ego-stroking interview, &quot;Great timing, wasn&apos;t it?&quot; Let&apos;s just hope that even if Thomas is still cooing in one of Dolan&apos;s ears, a whole lot of other people are shouting in his other one.</p>					
+										
+									
+				

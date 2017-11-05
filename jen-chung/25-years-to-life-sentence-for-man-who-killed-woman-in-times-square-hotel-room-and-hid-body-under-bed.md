@@ -1,0 +1,27 @@
+---
+author: Jen Chung
+date: Apr 18, 2017 10:13 am
+title: 25 Years-To-Life Sentence For Man Who Killed Woman In Times Square Hotel Room And Hid Body Under Bed
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2017_04_hotelcarter.jpg" src="https://web.archive.org/web/20171016015558im_/http://gothamist.com/attachments/jen/2017_04_hotelcarter.jpg" width="640" height="462"> <br> <i> Hotel Carter (Google Maps)</i></div> <p></p>
+
+<p>Ten years after the murder of a 33-year-old woman in Times Square, her killer was finally sentenced. Clarence Dean, a sex offender from Alabama, will now serve 25 years to life in a state prison. </p>
+
+<p>&quot;Clarence Dean committed a merciless and brutal act of violence against a vulnerable woman,&quot; Manhattan District Attorney Cy Vance said in a statement. &quot;After inviting the victim to his hotel room, Dean repeatedly struck her with such force that he reduced her bones to dust. He squeezed her neck so tightly that it snapped. He showed a complete disregard for human life, and now he will serve the maximum sentence possible for this barbaric crime.&quot;</p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-right"> <img alt="2017_04_clarencedean.jpg" src="https://web.archive.org/web/20171016015558im_/http://gothamist.com/attachments/jen/2017_04_clarencedean.jpg" width="300" height="368"> <br> <i style=" width:300px; ;display:block"> An undated mugshot of Clarence Dean</i></div> The body of Kristine Yitref was <a href="https://web.archive.org/web/20171016015558/http://gothamist.com/2007/08/31/womans_body_wra.php">discovered by a housekeeper</a> at the Hotel Carter, at 242 West 43rd street in Times Square, on August 30, 2017. The housekeeper apparently entered the room and found it, the DA&apos;s office says, &quot;meticulously cleaned and vacuumed,&quot; but then found a body &quot;stuffed in a plastic garbage bag, along with blood-soaked sheets and towels&quot; under the bed. <p></p>
+
+<p>Yitref had been strangled, and investigators found that her head was fractured, neck bone fractured and breast bone shattered&#x2014;in addition to at least twelve broken ribs. Authorities say that Dean met Yitref, who was a prostitute, in Times Square and invited her back to his room on August 28; he checked out the next day.</p>
+
+<p>Dean <a href="https://web.archive.org/web/20171016015558/http://gothamist.com/2007/09/01/suspect_questio.php">was a suspect immediately</a>, and, when he was taken out of a police precinct, <a href="https://web.archive.org/web/20171016015558/http://gothamist.com/2007/09/02/police_charge_s.php">apparently mumbled</a>, &quot;I was protecting myself.&quot; But the case only went to trial last year; <a href="https://web.archive.org/web/20171016015558/http://bigstory.ap.org/article/2008d4204ae94614b0fbe9f2887ba043/after-8%C2%BD-years-no-trial-yet-times-square-hotel-killing">the AP reported</a>, &quot;It languished partly because of a long legal fight over the validity of forensic evidence involving a bite mark on the victim&apos;s body. Lawyers, experts and a civil liberties group have been arguing for years over whether testimony from bite-mark analysts was reliable enough for use in a criminal courtroom. Yitref&apos;s family also hasn&apos;t pushed prosecutors for a trial, which could dredge up painful memories of the dark turns her life took at the end, even before she met Dean.&quot;</p>
+
+<p>Yitref, who grew up in Washington State, had modeled and attended Parsons School of Design before succumbing to drug addiction and turning to prostitution. Her sister, Cassandra Johnson, <a href="https://web.archive.org/web/20171016015558/http://nypost.com/2017/04/17/sex-fiend-gets-maximum-prison-sentence-for-prostitutes-murder/">said during the victim impact statement</a>, &quot;I&#x2019;m here to tell you she wasn&#x2019;t trash. She didn&#x2019;t deserve to die like that, put in a garbage bag,&quot; and <a href="https://web.archive.org/web/20171016015558/http://www.nydailynews.com/new-york/nyc-crime/25-to-life-2007-prostitute-slay-times-sq-hotel-carter-article-1.3067228">said she was</a> &quot;a small-town girl who got lost in the big city.&quot;</p>
+
+<p>It took the jury 25 minutes to find Dean guilty of second-degree murde. Judge Bonnie Wittner said, &quot;I&#x2019;ve tried a lot of homicide trials. I have. And this was one of the most brutal and depraved beatings and strangulations of someone for no reason at all.&quot;</p>
+
+<p>Dean&apos;s defense claimed that Yitref and her pimp <a href="https://web.archive.org/web/20171016015558/http://www.cbsnews.com/news/clarence-dean-convicted-in-killing-of-kristine-yitref-prostitute-in-times-square-hotel-9-years-later/">had attacked him during a robbery</a> and that he blacked out. <a href="https://web.archive.org/web/20171016015558/http://www.nydailynews.com/new-york/nyc-crime/25-to-life-2007-prostitute-slay-times-sq-hotel-carter-article-1.3067228">Dean&apos;s attorney Sean Maher said</a>, &quot;No motive has ever been established whatsoever. There were no eyewitnesses to this case.&quot;</p>					
+										
+									
+				

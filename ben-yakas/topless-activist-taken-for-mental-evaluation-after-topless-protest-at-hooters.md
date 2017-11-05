@@ -1,0 +1,25 @@
+---
+author: Ben Yakas
+date: Jul 8, 2012 3:00 pm
+title: Topless Activist Taken For Mental Evaluation After Topless Protest At HOOTERS
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="7812voast.jpg" src="https://web.archive.org/web/20150512060609im_/http://gothamist.com/attachments/byakas/7812voast.jpg" width="640" height="474"> <br> <i> Holly Van Voast being taken away in an ambulance after her going topless in front of HOOTERS (<a href="https://web.archive.org/web/20150512060609/http://www.facebook.com/photo.php?fbid=10150955211590326&amp;set=p.10150955211590326&amp;type=1&amp;theater">via</a> <a href="https://web.archive.org/web/20150512060609/http://www.facebook.com/photo.php?fbid=355337131202129&amp;set=a.111694652233046.11448.100001775347788&amp;type=1&amp;theater">Facebook</a>)</i></div> <p></p>
+
+<p>Yesterday was the twenty year anniversary of the <a href="https://web.archive.org/web/20150512060609/http://gothamist.com/2007/06/17/bare_breast_lan.php">court ruling</a> which made it <a href="https://web.archive.org/web/20150512060609/http://gothamist.com/2011/06/12/was_mysterious_topless_bowery_woman.php">legal to go topless</a> in NY State&#x2014;most topless activists celebrate the ruling on August 21st (<a href="https://web.archive.org/web/20150512060609/http://gothamist.com/tags/toplessday">&quot;Topless Day&quot;</a>), but notorious topless enthusiast <a href="https://web.archive.org/web/20150512060609/http://gothamist.com/tags/hollyvanvoast">Holly Van Voast</a> wanted to do something special for the actual anniversary. So she went <a href="https://web.archive.org/web/20150512060609/http://gothamist.com/tags/topless">topless</a> in front of the HOOTERS in midtown&#x2014;and soon after was <a href="https://web.archive.org/web/20150512060609/http://www.facebook.com/photo.php?fbid=355337131202129&amp;set=a.111694652233046.11448.100001775347788&amp;type=1&amp;theater">taken by ambulance</a> to Roosevelt Hospital for a mental evaluation, &quot;where the doctor had no idea it was legal to be topless in NY. He checked it out, said it was very interesting to hear.&quot;</p>
+
+<p>Van Voast told us she was ready to go inside and join her friends for some wings when police showed up: &quot;The police said that they had gotten some calls, they did not mention getting a call from Hooters, and usually they mention it when the business I am outside (I have done this alot) complains, so I am not sure HOOTERS themselves were involved. The police always mention children being in the area, so it&apos;s likely that that is what bothered some people, because children do often walk on the sidewalks where they could see me.&quot;</p>
+
+<p>She was handcuffed, and then held at the hospital for three hours. She said she felt lucky a photographer was there to document what had happened, because &quot;this is not an uncommon occurrence for me. Most of the times I end up in an ambulance I can reason with people and I can leave... but nobody tells people who call 911 on me that this is legal behavior. Blaming the topless woman for wasting everyone&apos;s time is more understandable to almost everyone.&quot;</p>
+
+<p>Van Voast also explained why she celebrated as she did yesterday:</p>
+
+<blockquote>I wanted to have a fun time eating chicken wings and honoring a day that is important to me, it wasn&apos;t even anything against HOOTERS for me. I just thought that it&apos;s funnier than doing a typical demonstration type event outside City Hall or something. I guess alot of people would prefer me to be an activist, but so many activists and activist activities don&apos;t seem to have a sense of humor, and that is important to reach people &#x2014; I feel. </blockquote>
+
+<p>So just to be absolutely clear, yet again: he NY State Appeals Court ruled in 1992 that exposure of a bare female breast violates the <a href="https://web.archive.org/web/20150512060609/http://ypdcrime.com/penal.law/article245.htm">NY state penal code</a> only when it takes place in a commercial context. Otherwise, ladies are free to flaunt their stuff, whether they&apos;re <a href="https://web.archive.org/web/20150512060609/http://gothamist.com/2011/10/11/topless_women_make_nypd_momentarily.php">in the park</a>, on the <a href="https://web.archive.org/web/20150512060609/http://gothamist.com/2011/06/12/was_mysterious_topless_bowery_woman.php">Lower East Side</a>, at <a href="https://web.archive.org/web/20150512060609/http://gothamist.com/2012/05/20/video_a_nsfw_interview_with_the_eas.php">Union Square</a> or <a href="https://web.archive.org/web/20150512060609/http://gothamist.com/2012/07/01/nsfw_photo_topless_lady_spotted_on.php">on the subway.</a></p>
+
+<p><iframe width="640" height="480" src="https://web.archive.org/web/20150512060609if_/http://www.youtube.com/embed/m3YC6rnLEno" frameborder="0" allowfullscreen></iframe></p>					
+										
+									
+				

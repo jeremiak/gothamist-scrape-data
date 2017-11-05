@@ -1,0 +1,54 @@
+---
+author: Ben Yakas
+date: Dec 16, 2012 11:30 am
+title: Videos: Saturday Night Live Christmas Episode Jam-Packed With Special Guests
+---
+
+	
+					<div class="galleryEase" id="gallery-545930">
+<!-- gallery js -->
+<script type="text/javascript" src="https://web.archive.org/web/20151222062204js_/http://assets.gothamistllc.com/v5/js/gallery.js"></script>
+<!-- end gallery js -->
+
+<style type="text/css">
+#imgContainer {
+min-height: 300px;
+min-width: 300px;
+background: url('https://web.archive.org/web/20151222062204im_/http://assets.gothamistllc.com/v5/images/progress.gif') center center no-repeat;
+}
+</style>
+
+<!--start of gallery code-->
+<a name="gallery"></a>
+<div class="galleryEaseDisplayed">
+<div id="imgContainer">
+    <img id="galleryImg">
+</div>
+<div class="galleyEaseInfo"></div>
+<div class="galleryEaseNext"></div>
+<div class="galleryEasePrev"></div>
+</div>
+<div class="galleryEaseThumbs">
+		<img src="https://web.archive.org/web/20151222062204im_/http://gothamist.com/assets_c/2012/12/121612SNL-thumb-60x60-762334.jpg" title="" id="photo_1" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":1, "image": "https://web.archive.org/web/20151222062204/http://gothamist.com/upload/2012/12/121612SNL.jpg", "caption": "", "credit":""};galleryObj['photo_1'] = photo;</script>
+		<img src="https://web.archive.org/web/20151222062204im_/http://gothamist.com/assets_c/2012/12/121612snl2-thumb-60x60-762326.jpg" title="" id="photo_2" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":2, "image": "https://web.archive.org/web/20151222062204/http://gothamist.com/upload/2012/12/121612snl2.jpg", "caption": "In one of the best sketches of the night, Short played a buck-toothed liaison to the royal family who gets to explain all the official terms and greetings for Kate Middleton\'s Dame Judi Dench. Hader does his best not to crack up several times.\r\n\<br\>\<br\>\r\n\<center\>\<iframe id=\"nbc-video-widget\" width=\"560\" height=\"315\" src=\"http://www.nbc.com/assets/video/widget/widget.html?vid=1426981\" frameborder=\"0\"\>\<\/iframe\>\<\/center\>", "credit":""};galleryObj['photo_2'] = photo;</script>
+		<img src="https://web.archive.org/web/20151222062204im_/http://gothamist.com/assets_c/2012/12/2012_12_snlms_charliebrown-thumb-60x60-762329.jpg" title="" id="photo_3" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":3, "image": "https://web.archive.org/web/20151222062204/http://gothamist.com/upload/2012/12/2012_12_snlms_charliebrown.jpg", "caption": "In âYouâre a Rat Bastard, Charlie Brown,â Haderâs Al Pacino stars as Charlie, Jason Sudeikisâ Philip Seymour Hoffman is Pig-Pen, Kate McKinnonâs Edie Falco is Lucy, and Shortâs Larry David is Linus.\r\n\<br\>\<br\>\r\n\<center\>\<iframe id=\"nbc-video-widget\" width=\"560\" height=\"315\" src=\"http://www.nbc.com/assets/video/widget/widget.html?vid=1427024\" frameborder=\"0\"\>\<\/iframe\> \<\/center\>", "credit":""};galleryObj['photo_3'] = photo;</script>
+		<img src="https://web.archive.org/web/20151222062204im_/http://gothamist.com/assets_c/2012/12/2012_12_snlms_paul-thumb-60x60-762327.jpg" title="" id="photo_4" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":4, "image": "https://web.archive.org/web/20151222062204/http://gothamist.com/upload/2012/12/2012_12_snlms_paul.jpg", "caption": "Paul McCartney performed \"My Valentine\" accompanied by Eagles\' Joe Walsh. McCartney also performed \"Wonderful Christmas Time\" (which comes after the last sketch), and \"Cut Me Some Slack\" with the surviving members of Nirvana, which isn\'t available online right now.\r\n\<br\>\<br\>\r\n\<center\>\<iframe id=\"nbc-video-widget\" width=\"560\" height=\"315\" src=\"http://www.nbc.com/assets/video/widget/widget.html?vid=1427013\" frameborder=\"0\"\>\<\/iframe\> \<\/center\>", "credit":""};galleryObj['photo_4'] = photo;</script>
+		<img src="https://web.archive.org/web/20151222062204im_/http://gothamist.com/assets_c/2012/12/2012_12_snlms_whatsup-thumb-60x60-762330.jpg" title="" id="photo_5" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":5, "image": "https://web.archive.org/web/20151222062204/http://gothamist.com/upload/2012/12/2012_12_snlms_whatsup.jpg", "caption": "It\'s the return of \"What Up With That?\", with Jackie Rogers Jr., Samuel L. Jackson and Carrie Brownstein! Oh yeah, and Lindsay Buckingham.\r\n\<br\>\<br\>\r\n\<center\>\<iframe id=\"nbc-video-widget\" width=\"560\" height=\"315\" src=\"http://www.nbc.com/assets/video/widget/widget.html?vid=1427023\" frameborder=\"0\"\>\<\/iframe\> \<\/center\>\r\n\<br\>\<br\>\r\nJackson cursed on air twice. You can see that below!\r\n\<br\>\<br\>\r\n\<center\>\<iframe width=\"640\" height=\"360\" src=\"http://www.youtube.com/embed/Xqd-MjeNTzc\" frameborder=\"0\" allowfullscreen\>\<\/iframe\>\<\/center\>", "credit":""};galleryObj['photo_5'] = photo;</script>
+		<img src="https://web.archive.org/web/20151222062204im_/http://gothamist.com/assets_c/2012/12/2012_12_snlms_weekendup-thumb-60x60-762328.jpg" title="" id="photo_6" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":6, "image": "https://web.archive.org/web/20151222062204/http://gothamist.com/upload/2012/12/2012_12_snlms_weekendup.jpg", "caption": "Jacob the Bar Mitzvah Boy and the Girl You Wish You Hadn\'t Started a Conversation With at a Party on Christmas both visited Weekend Update.\r\n\<br\>\<br\>\r\n\<center\>\<iframe id=\"nbc-video-widget\" width=\"560\" height=\"315\" src=\"http://www.nbc.com/assets/video/widget/widget.html?vid=1427022\" frameborder=\"0\"\>\<\/iframe\>  \<\/center\>\r\n\<br\>\<br\>\r\n\<center\>\<iframe id=\"nbc-video-widget\" width=\"560\" height=\"315\" src=\"http://www.nbc.com/assets/video/widget/widget.html?vid=1427012\" frameborder=\"0\"\>\<\/iframe\>\<\/center\>\r\n\<br\>\<br\>\r\n\<center\>\<iframe id=\"nbc-video-widget\" width=\"560\" height=\"315\" src=\"http://www.nbc.com/assets/video/widget/widget.html?vid=1427014\" frameborder=\"0\"\>\<\/iframe\> \<\/center\>", "credit":""};galleryObj['photo_6'] = photo;</script>
+		<img src="https://web.archive.org/web/20151222062204im_/http://gothamist.com/assets_c/2012/12/121612snl3-thumb-60x60-762325.jpg" title="" id="photo_7" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":7, "image": "https://web.archive.org/web/20151222062204/http://gothamist.com/upload/2012/12/121612snl3.jpg", "caption": "Sometimes two old friends bump into each other and have a lot of catching up to do...a lot of sad catching up to do.\r\n\<br\>\<br\>\r\n\<center\>\<iframe id=\"nbc-video-widget\" width=\"560\" height=\"315\" src=\"http://www.nbc.com/assets/video/widget/widget.html?vid=1427015\" frameborder=\"0\"\>\<\/iframe\>\<\/center\>", "credit":""};galleryObj['photo_7'] = photo;</script>
+<br>		<img src="https://web.archive.org/web/20151222062204im_/http://gothamist.com/assets_c/2012/12/121612snl4-thumb-60x60-762324.jpg" title="" id="photo_8" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":8, "image": "https://web.archive.org/web/20151222062204/http://gothamist.com/upload/2012/12/121612snl4.jpg", "caption": "McCartney doesn\'t singâhe just hits the triangle. But he\'s not very good at it. After a lot of berating from Short, that leads into McCartney getting to sing \"Wonderful Christmas Time\" with the NYC Children\'s Chorus.\r\n\<br\>\<br\>\r\n\<center\> \<iframe id=\"nbc-video-widget\" width=\"560\" height=\"315\" src=\"http://www.nbc.com/assets/video/widget/widget.html?vid=1427025\" frameborder=\"0\"\>\<\/iframe\>\<\/center\>", "credit":""};galleryObj['photo_8'] = photo;</script>
+		<img src="https://web.archive.org/web/20151222062204im_/http://gothamist.com/assets_c/2012/12/121612snl6-thumb-60x60-762323.jpg" title="" id="photo_9" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":9, "image": "https://web.archive.org/web/20151222062204/http://gothamist.com/upload/2012/12/121612snl6.jpg", "caption": "Here\'s a dress rehearsal sketch for new TV show \"Malibu High\" (with Patricia Clarkson!).\r\n\<br\>\<br\>\r\n\<center\>\<iframe id=\"nbc-video-widget\" width=\"560\" height=\"315\" src=\"http://www.nbc.com/assets/video/widget/widget.html?vid=1427016\" frameborder=\"0\"\>\<\/iframe\>\<\/center\>", "credit":""};galleryObj['photo_9'] = photo;</script>
+									
+</div></div>					<p><br>
+After a <a href="https://web.archive.org/web/20151222062204/http://gothamist.com/2012/12/16/video_snl_pays_tribute_to_ct_mass_s.php">touching cold open tribute</a> to the victims of Friday&apos;s Newtown massacre, <a href="https://web.archive.org/web/20151222062204/http://gothamist.com/tags/saturdaynightlive"><em>Saturday Night Live</em></a> continued with a much lighter Christmas-themed episode. Host Martin Short, making his third hosting appearance since he was a member in the &apos;80s, was the sunny center of an enjoyable episode, revising SCTV character Jackie Rogers Jr. for &quot;What Up With That,&quot; planting kisses on Lorne Michaels, and pulling out a killer Larry David impression.</p>
+
+<p>There were also a bonanza of surprise guest stars including Kristin Wiig, Alec Baldwin, Jimmy Fallon, Samuel L. Jackson, Tina Fey, Tom Hanks, and <em>Portlandia&apos;s</em> Carrie Brownstein. Click through to see sketches including the &quot;What Up With That&quot; Christmas Special (with F-bomb dropping Jackson), Kate Middleton&#x2019;s OB/GYN learns how to address her Downton Abbey, a new twist on Charlie Brown&apos;s Christmas, Weekend Update, and Paul McCartney performing &quot;My Valentine&quot; and the show-closing &quot;Wonderful Christmas Time&quot; with the NYC Children&apos;s Chorus.</p>
+
+<p>Unfortunately, several sketches are not online due to song copyright issues, including Short&apos;s monologue (in which he sang &#x201C;It&#x2019;s the Most Amorous Time of the Year&#x201D;), the Baldwin-starring Tony Bennett Christmas sketch, and McCartney teaming up with the surviving members of Nirvana for &quot;Cut Me Some Slack.&quot; If and when any become available, we&apos;ll update.</p>
+
+<p><strong>Update</strong>: Oh look, here&apos;s a bit of the monologue:</p>
+
+<p><iframe width="640" height="360" src="https://web.archive.org/web/20151222062204if_/http://www.youtube.com/embed/4tDjrDOUtiE" frameborder="0" allowfullscreen></iframe></p>					
+										
+									
+				

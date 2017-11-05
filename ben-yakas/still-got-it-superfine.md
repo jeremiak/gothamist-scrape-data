@@ -1,0 +1,17 @@
+---
+author: Ben Yakas
+date: May  8, 2011  5:55 PM
+title: Still Got It: Superfine
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:636px; "> <img alt="5811superfine.jpg" src="https://web.archive.org/web/20110509070310im_/http://gothamist.com/attachments/byakas/5811superfine.jpg" width="636" height="420"> <br> <i><a href="https://web.archive.org/web/20110509070310/http://www.flickr.com/photos/joshderr/3275648752/">josh derr&apos;s flickr</a></i></div> <p></p>
+
+<p><em>In this city, restaurants come and go faster than you can say &quot;sustainable locavore burger.&quot; And even though there are great new additions to the culinary landscape popping up every week, you&apos;ve gotta give kudos to anyone who can stick it out for over a year. With that in mind, we bring you <a href="https://web.archive.org/web/20110509070310/http://gothamist.com/tags/stillgotit">Still Got It</a>, our tribute to establishments that continue to serve mouthwatering meals and drinks long after the buzz has faded&#x2014;or if the lingering hype is still justified.</em></p>
+
+<p>There are several compelling reasons why Superfine is our go-to bar in DUMBO, a neighborhood with not particularly lacking in solid bars: there&apos;s the excellent decor, often featuring local artists&apos; work. There&apos;s the bluegrass brunches, and the jazz and folk nights which seem to emerge without warning, but are always complimentary to the atmosphere. There are the reasonable happy hour well drinks, the surprisingly diverse crowds, and the friendly but not-overly-chatty bartenders. And most of all, there is that <em>free</em> orange-felt pool table.</p>
+
+<p>Go ahead and try to find another great bar, let alone a decent one, with a free pool table. We&apos;ve only come across a scant few in our time (including our other favorite, the &quot;secret&quot; one in the basement of Don Pedro&apos;s). It may not be a perfect table, but it&apos;s well maintained, and if you&apos;re someone who enjoys playing pool, you&apos;ll understand how rare that is. Sure, there are some curmudgeonly regulars who try to dominate the table, the kind of graphic designers who wear t-shirts with &quot;Dicknose&quot; on it. But there are also plenty of incredibly nice regulars who&apos;ll give you tips on your form or buy you a beer. A free table might imply a certain amount of chaos, but most of the time, if you&apos;re not too nervous to talk to strangers, you&apos;re more likely to make a friend than not.</p>
+
+<p>The food is uniformly good&#x2014;we particularly recommend the Portobello Sandwich, the pizza (if you just want a snack), and the house-made sausage&#x2014;if a bit too expensive, but most people seem <a href="https://web.archive.org/web/20110509070310/http://www.yelp.com/biz/superfine-brooklyn">to really enjoy</a> the meals they have there. They also have Sunday brunch from 11 a.m.-3 p.m., accompanied by live bluegrass. And considering it&apos;s prime location in DUMBO, it&apos;s surprisingly uncrowded most days of the week (Fridays and Saturdays tend to get a bit busy about half the time), with plenty of room for large groups, or space for you to go alone and read at the bar. And if you&apos;re particularly lucky, it&apos;s the kind of place where you might make eye contact with someone across the bar, and end up with a number on a napkin.</p>
+
+<p><em>126 Front Street (718) 243-9005. Bar open Sun.-Thu. until 2 a.m.; Fri.-Sat. until 4 a.m. </em> </p>

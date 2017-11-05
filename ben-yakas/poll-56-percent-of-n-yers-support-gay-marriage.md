@@ -1,0 +1,11 @@
+---
+author: Ben Yakas
+date: January 27, 2011  2:22 PM
+title: Poll: 56 Percent Of NYers Support Gay Marriage
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="12711marriage.jpg" src="https://web.archive.org/web/20110412180401im_/http://gothamist.com/attachments/byakas/12711marriage.jpg" width="215" height="193" class="image-left"> </span></p>
+
+<p>Recently, Gov. Cuomo has made several <a href="https://web.archive.org/web/20110412180401/http://gothamist.com/2011/01/17/cuomo_cabinet_addition_brings_marri.php">overtures</a> to constituents that he would try to bring gay marriage to the State Senate for a vote <a href="https://web.archive.org/web/20110412180401/http://gothamist.com/2011/01/18/gay_marriage_heading_back_to_the_st.php">this year.</a> According to the latest <a href="https://web.archive.org/web/20110412180401/http://www.quinnipiac.edu/x1318.xml?ReleaseID=1553">Quinnipiac poll</a>, he&apos;ll have a lot of support if he plans on doing so: a record 56 percent of New Yorkers believe same sex couples should be legally allowed to marriage. Could the nearly-universal support for <a href="https://web.archive.org/web/20110412180401/http://gothamist.com/2011/01/22/historic_first_gay_cats_get_gay_mar.php">gay cat marriage</a> have something to do with it?</p>
+
+<p>This is the most support among NYers for gay marriage ever, judging by Quinnipiac polls; the previous high for support was 51 percent in June 2009. &quot;Gov. Andrew Cuomo didn&apos;t make a big issue of same-sex marriage in his state-of-the- state speech, but he said he was for it and so are most New Yorkers. <strong>New York State voter attitudes about gay marriage have shifted dramatically since April 15, 2004, when Quinnipiac University first asked about gay marriage and found voters opposed the measure 55 - 37 percent</strong>,&quot; said Maurice Carroll, director of the Quinnipiac University Polling Institute. RFK Jr. added his support to the Human Rights Campaign&apos;s <a href="https://web.archive.org/web/20110412180401/http://www.hrc.org/ny4marriage/">video project</a> on gay marriage (which includes videos from Whoopi Goldberg, Kenneth Cole, Julianne Moore and Mayor Bloomberg), saying that his father &quot;would be leading the charge for marriage equality in New York.&quot; </p>

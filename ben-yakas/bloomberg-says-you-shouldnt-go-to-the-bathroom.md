@@ -1,0 +1,17 @@
+---
+author: Ben Yakas
+date: Aug 23, 2013 2:05 pm
+title: Bloomberg Says You Shouldn't Go To The Bathroom
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="82313bloomberg.jpeg" src="https://web.archive.org/web/20150509000201im_/http://gothamist.com/attachments/byakas/82313bloomberg.jpeg" width="640" height="427"> <br> <i> <a href="https://web.archive.org/web/20150509000201/http://www.shutterstock.com/cat.mhtml?lang=en&amp;search_source=search_form&amp;version=llv1&amp;anyorall=all&amp;safesearch=1&amp;searchterm=baby+diaper&amp;search_group=#id=137709719&amp;src=7Dki4NLHZBrn0BClPg81hA-1-26">Shutterstock/photobac</a></i></div> <p></p>
+
+<p>If there&apos;s one thing <a href="https://web.archive.org/web/20150509000201/http://gothamist.com/tags/mayorbloomberg">Mayor Bloomberg</a> is good at other than <a href="https://web.archive.org/web/20150509000201/http://gothamist.com/2013/08/19/tell_us_what_bloombergs_legacy_is_n.php">coddling other rich people</a>, it&apos;s doling out unsolicited advice. Bloomberg is gushing with wisdom about everything from <a href="https://web.archive.org/web/20150509000201/http://gothamist.com/2013/03/01/mayor_bloomberg_offers_his_dieting.php">dieting tips</a> to <a href="https://web.archive.org/web/20150509000201/http://gothamist.com/2013/05/18/bloombergs_advice_to_average_people.php">average people</a> to <a href="https://web.archive.org/web/20150509000201/http://gothamist.com/2011/02/28/at_last_wisconsin_gets_advice_from.php">Wisconsin</a>. On his radio show this morning, <a href="https://web.archive.org/web/20150509000201/http://www.nypost.com/p/news/bloomberg_key_to_success_don_go_jndJvMuOMascO40CNeRrgP">he revealed</a> the true secret to his success: &quot;Take the fewest vacations and the least time away from the desk to go to the bathroom or have lunch. You gotta be there.&quot; Does this mean Bloomberg wears adult diapers?</p>
+
+<p>It&apos;s also kind of hilarious that he brings up vacations, since Bloomberg has been known <a href="https://web.archive.org/web/20150509000201/http://gothamist.com/tags/bermuda">to jet off to Bermuda</a> on his private plane for a long weekend here and there, regardless of whether <a href="https://web.archive.org/web/20150509000201/http://gothamist.com/2011/01/11/shocker_bloomberg_was_totally_in_be.php">there was a massive blizzard</a> bearing down on the city. But we suppose if you read between the lines, his point is that you need to avoid bathrooms and vacations until you make your first billion&#x2014;after that, you can do what you want.</p>
+
+<p>&quot;I always tried to be the first one in [to work] in the morning and the last one to leave at night,&quot; Bloomberg said on WOR AM 710 during his weekly radio address. &quot;Everybody says, &apos;Oh that&apos;s crazy.&apos; But if you want to succeed, you can&apos;t control how lucky you are, you can&apos;t control how smart you are, but you can control how hard you work.&quot; Bloomberg also noted that you should be able to <a href="https://web.archive.org/web/20150509000201/http://gothamist.com/tags/cathieblack">admit a mistake</a> and pick up garbage. At least Bloomberg&apos;s legacy is secured as our first mayor who was truly Depends-able (<a href="https://web.archive.org/web/20150509000201/http://instantrimshot.com/">HIYO</a>).</p>					
+										
+									
+				

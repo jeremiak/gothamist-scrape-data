@@ -1,0 +1,40 @@
+---
+author: Jen Chung
+date: Nov 18, 2016 10:35 am
+title: Suspects In Murder Of Man During UES Party Held On $3 Million Bond
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2016_11_dilionrackover.jpg" src="https://web.archive.org/web/20161124050713im_/http://gothamist.com/attachments/jen/2016_11_dilionrackover.jpg" width="640" height="505"> <br> <i> Larry Dilione and James Rackover</i></div> <p></p>
+
+<p>The NYPD is looking for a third person in connection to the murder of a Connecticut man whose body <a href="https://web.archive.org/web/20161124050713/http://gothamist.com/2016/11/17/joey_comunale_body_found.php">was found buried in a shallow grave</a> in New Jersey. Police believed that Joey Comunale, 26, was stabbed 15 times in an Upper East Side apartment on Sunday and that his killers doused him with gasoline in <a href="https://web.archive.org/web/20161124050713/http://nypost.com/2016/11/17/2-charged-with-killing-party-goer-and-trying-to-hide-his-corpse/">an attempt to burn the body</a>. </p>
+
+<p>Comunale, a Hofstra graduate who lived in Stamford, had come to Manhattan to party with friends on Saturday. They apparently <a href="https://web.archive.org/web/20161124050713/http://www.nytimes.com/2016/11/18/nyregion/2-men-charged-with-murder-after-buried-body-is-found-in-new-jersey.html?_r=0">met up with James Rackover and Lawrence Dilione</a>; police say that Comunale, two men and three women were seen on surveillance video going to Rackover&apos;s building, 418 East 59th Street. The three women left on Sunday morning.</p>
+
+<p>On Tuesday morning, Comunale&apos;s father reported him missing and police soon descended on the apartment building, <a href="https://web.archive.org/web/20161124050713/http://gothamist.com/2016/11/16/police_find_bloody_sheets_at_ues_ap.php">finding bloody items</a>. NYPD Chief of Detectives Robert Boyce said, &quot;We uncovered a substantial amount of blood evidence inside the building, inside plastic bags that were downstairs through the garbage chute, in what were his clothing.&quot;</p>
+
+<p>Surveillance video showed a male building resident wheeling two large pieces of luggage on a cart from the building on Sunday night. He then put the items into a car. The resident, <a href="https://web.archive.org/web/20161124050713/http://newyork.cbslocal.com/2016/11/15/stamford-man-missing/">WCBS 2 reported</a>, &quot;asked a doorman how long surveillance videos are kept on file.&quot;</p>
+
+<div><center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">2 men arraigned on murder charges after body of missing Hofstra grad is found dumped in New Jersey <a href="https://web.archive.org/web/20161124050713/https://t.co/B7sbbW8sLO">https://t.co/B7sbbW8sLO</a> <a href="https://web.archive.org/web/20161124050713/https://t.co/3DccbVjGAg">pic.twitter.com/3DccbVjGAg</a></p>&#x2014; NBC New York (@NBCNewYork) <a href="https://web.archive.org/web/20161124050713/https://twitter.com/NBCNewYork/status/799587625531228160">November 18, 2016</a></blockquote>
+<script async src="//web.archive.org/web/20161124050713js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center></div>
+
+<p>It&apos;s believed that Dilione, 28, told police that Comunale&apos;s bludgeoned and stabbed body was buried behind a florist in Oceanport, NJ. Dilione, who lives in Jersey City, had previously lived in Oceanport and apparently also worked near there. </p>
+
+<p>Dilione and Rackover, 25, were initially arrested for murder, but were only arraigned on charges of concealment of a corpse and hindering prosecution. Rackover was also charged with aggravated unlicensed driving. A prosecutor <a href="https://web.archive.org/web/20161124050713/http://www.nydailynews.com/new-york/nyc-crime/arrested-death-manhattan-partygoer-stabbed-15-times-article-1.2877608">from the Manhattan DA&apos;s office said</a>, &quot;One or both of these people committed a murder.&quot;</p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-right"> <img alt="2016_11_comunale.jpg" src="https://web.archive.org/web/20161124050713im_/http://gothamist.com/attachments/jen/2016_11_comunale.jpg" width="300" height="364"> <br> <i> Joey Comunale</i></div> Yesterday, Boyce told reporters, &quot;We have blood on clothing &#x2014; substantial, we also have bleach, what appears to be bleach, on that clothing as well in order to cover up the blood. There is blood splatter in the apartment as well. Not a lot, but there is some. It&#x2019;s quite noticeable, it&#x2019;s visible.&quot;<p></p>
+
+<p>The suspects are being held on $3 million bond or $300,000 bail. Rackover, who was previously thought to be the son of celebrity jeweler Jeffrey Rackover, actually only took the last name after meeting the jeweler. Jeffrey Rackover&apos;s spokesman Bo Dietl explained, &quot;[Jeffrey] loved him and wanted to take care of him.&quot; <a href="https://web.archive.org/web/20161124050713/http://nypost.com/2016/11/17/2-charged-with-killing-party-goer-and-trying-to-hide-his-corpse/">According to the Post,</a> &quot;The pair met 3&#xB9;/&#x2082; years ago at a health club, and Jeffrey Rackover took him in, setting him up with the apartment and helping him get a job at the Willis Towers Watson insurance company.&quot; </p>
+
+<p>Jeffrey Rackover lives in another apartment in the same building, and Dietl said he would <a href="https://web.archive.org/web/20161124050713/http://www.nbcnewyork.com/news/local/NYC-2-Men-Arraigned-Murder-of-Hofstra-Grad-Joey-Comunale-401840426.html">refer to James as his son</a>. Dietl told NBC New York, &quot;You know how you fall in love with a puppy dog? He fell in love with this kid. He just wanted to help him. He was here for this kid and now poor Jeffrey is caught in the middle.&quot;</p>
+
+<p><a href="https://web.archive.org/web/20161124050713/http://www.dailymail.co.uk/news/article-3946346/The-lengthy-criminal-past-man-suspected-murder-26-year-old-Connecticut-man-weekend-partying-revealed-ADOPTED-jeweler-stars.html">The Daily Mail reports</a>, &quot;Neighbors in the swanky building... said they assumed the younger Rackover was Jeffrey&apos;s gay lover. &apos;I have seen them working out together in the gym and there is no way they were father and son,&apos; one told the DailyMail.com. &apos;Another friend saw them at a wedding and that was definitely not an appropriate father son relationship.&apos;&quot;</p>
+
+<p><a href="https://web.archive.org/web/20161124050713/http://www.nydailynews.com/new-york/nyc-crime/arrested-death-manhattan-partygoer-stabbed-15-times-article-1.2877608"> In an interview with the Daily News</a>, Dietl said, &quot;You can&#x2019;t talk to [Jeffrey] &#x2014; he starts to cry. You know the old expression: No good deed goes unpunished. This is the perfect frigging example.&quot;</p>
+
+<p>James Rackover, previously known has James Beaudoin, <a href="https://web.archive.org/web/20161124050713/http://www.nytimes.com/2016/11/18/nyregion/2-men-charged-with-murder-after-buried-body-is-found-in-new-jersey.html?_r=0">has a lengthy arrest record in Florida</a>, including for armed robbery and burglary. His aunt told the NY Times that there was no way her nephew was a murderer: &quot;I love him. He&#x2019;s not the type of person that could do this.&quot;</p>
+
+<p>The NYPD is still determining the motive. Joey Comunale&apos;s father said, &quot;Joey wasn&#x2019;t a partier. He didn&#x2019;t go down to the city, you know, to be a partier. Had a lot of friends with him that night and unfortunately, they separated and he met up with the wrong guys... I think you can see by what happened to him, these were horrible people.&quot;</p>					
+										
+									
+				

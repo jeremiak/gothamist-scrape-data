@@ -1,0 +1,31 @@
+---
+author: Jen Chung
+date: Mar 3, 2016 10:15 am
+title: De Blasio Will March In 2016 St. Patrick's Day Parade
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2016_02_deblasiostpat.jpg" src="https://web.archive.org/web/20160609071317im_/http://gothamist.com/attachments/jen/2016_02_deblasiostpat.jpg" width="640" height="426"> <br> <i> The mayor at last year&apos;s St. Pat&apos;s For All Parade (<a href="https://web.archive.org/web/20160609071317/https://www.flickr.com/photos/nycmayorsoffice/16688997961/">NYC Mayor&apos;s Office</a>/Flickr)</i></div> <p></p>
+
+<p>After <a href="https://web.archive.org/web/20160609071317/http://gothamist.com/2014/02/04/de_blasio_wont_march_st_patricks_da.php">two years</a> of <a href="https://web.archive.org/web/20160609071317/http://gothamist.com/2015/03/02/st_patricks_parade_blasio.php">boycotting</a>, Mayor Bill de Blasio will finally march in the NYC St. Patrick&apos;s Day Parade this year. Why now? A large LGBT group with 300 marchers will be allowed to participate. <a href="https://web.archive.org/web/20160609071317/http://nypost.com/2016/03/02/de-blasio-ends-his-boycott-of-st-patricks-day-parade/">De Blasio told the AP</a>, &quot;The St. Patrick&#x2019;s Day Parade is a New York City tradition, but for years Irish LGBT New Yorkers could not show their pride. Finally, they can celebrate their heritage by marching in a parade that now represents progress and equality.&quot;</p>
+
+<p>The ban on LGBT groups in the parade started when Irish Lesbian and Gay Organization <a href="https://web.archive.org/web/20160609071317/http://nymag.com/daily/intelligencer/2014/03/gay-rights-st-patricks-day-parade.html">applied to march in the 1991 parade</a>. The parade&apos;s organizers, the Ancient Order of Hibernians, rejected them, but Mayor David Dinkins allowed ILGO to march with him&#x2014;<a href="https://web.archive.org/web/20160609071317/http://www.nytimes.com/1991/03/17/nyregion/beer-shower-and-boos-for-dinkins-at-irish-parade.html?pagewanted=all&amp;src=pm">only to be booed for 40 blocks</a>. After that, Dinkins and Governor Mario Cuomo declined to march in the parade. (Mayors Rudy Giuliani and Michael Bloomberg marched in the parade.)</p>
+
+<p>High-profile sponsors like Guinness and Heineken dropped out of the parade after outrage steadily mounted. Though an LGBT group, made up of LGBT NBC employees, was allowed to march in the 2015 parade, critics said it <a href="https://web.archive.org/web/20160609071317/http://gothamist.com/2014/09/09/lgbt_activists_st_patricks_day_para.php">was the result of a &quot;closed door deal</a>&quot; and because NBC is a sponsor. </p>
+
+<p>Then, last summer, the homophobic chair of the parade, <a href="https://web.archive.org/web/20160609071317/http://gothamist.com/2015/07/01/homophobic_st_patricks_day_parade_c.php">John Dunleavy, was ousted</a>. Two months later the <a href="https://web.archive.org/web/20160609071317/http://www.lavenderandgreenalliance.org/">Lavender and Green Alliance</a> was given permission to march, and <a href="https://web.archive.org/web/20160609071317/http://gaycitynews.nyc/victory-announced-25-year-st-patricks-day-boycott/">its founder Brendan Fay said</a>, &quot;It will be a great day for the Irish diaspora and for all New Yorkers as we will honor the centenary of 1916 Rising together. The words from the 1916 proclamation, &#x2018;cherishing all the children of the nation equally,&#x2019; will be real and meaningful.&quot;</p>
+
+<p>The Irish Queers, <a href="https://web.archive.org/web/20160609071317/http://gothamist.net/2014/09/03/irish_queers_st_patricks.php">who have staged protests during the parade</a>, said <a href="https://web.archive.org/web/20160609071317/http://irishqueers.blogspot.com/2015/09/we-won.html">in a statement last year</a>:</p><blockquote>From the beginning, our demand has been for an Irish LGBTQ contingent to march behind their own banner saying who they are, like all other contingents. Today&#x2019;s decision to invite the Lavender and Green Alliance does just that!<p></p>
+
+<p>This is a victory for the grassroots organizing, civil disobedience, and street protest of the Irish Lesbian and Gay Organization and its successor, Irish Queers. Protests held the line year after year where politics constantly failed. It&#x2019;s also a victory for our beautiful queer and Irish community of support, stretching from New York City to Ireland and beyond.</p>
+
+<p>The parade issue has never just been about LGBTQ people. Irish people&#x2019;s struggles are part of our identity: challenges to religious bigotry, demands for women&#x2019;s rights, Irish republicanism, and struggles against racism in New York and Ireland are irreducible parts of the Irish experience. Irish queers have often been at the forefront of those struggles. We are proud of the complexity of our lives and histories.</p>
+
+<p>The desire to march and the protests against exclusion began as part of Irish queer people&#x2019;s work to stem the homophobia-fueled tide of AIDS deaths, to push back on the power of the church in Ireland, and to end the pretense that Irish queers are not a central part of Irish culture and politics. Even as other battles were won, the parade&#x2019;s ironclad combination of bigotry, religion, money, and city politics made it a long holdout against justice. We are tired but happy to see the end of it.</p>
+
+<p>Our thanks: we&#x2019;re thankful to the many ordinary New Yorkers who supported us over the last 25 years, as well as the many elected official who refused to march in the parade while we were left out. We&#x2019;re thankful for David Dinkins and others who made real, tangible tries at giving Irish queer people their rightful place in the parade. And we&#x2019;re grateful to and proud of the original members of the Irish Lesbian and Gay Organization - who were also part of ACT UP, the Lesbian Avengers, and other important queer activist forces - who laid the groundwork for this victory.</p>
+
+<p>We look forward to marching up Fifth Avenue with our community!</p></blockquote>Mayor de Blasio has a press conference at the Irish Consulate at 12:30 p.m. today.<p></p>					
+										
+									
+				

@@ -1,0 +1,25 @@
+---
+author: Jen Chung
+date: Oct 19, 2015 10:37 am
+title: Daniel Craig, David Oyelowo Will Perform Othello At New York Theatre Workshop
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2015_10_craigoleywo.jpg" src="https://web.archive.org/web/20161021132748im_/http://gothamist.com/attachments/jen/2015_10_craigoleywo.jpg" width="650" height="452"> <br> <i> Daniel Craig, left; David Oyelowo (Getty Images)</i></div> <p></p>
+
+<p>From the <a href="https://web.archive.org/web/20161021132748/http://www.smh.com.au/entertainment/movies/spectre-first-picture-james-bonds-daniel-craig-hits-the-austrian-alps-20150213-13dl7m.html">Alps</a> to off-Broadway: The <a href="https://web.archive.org/web/20161021132748/http://www.nytw.org/">New York Theatre Workshop</a>&apos;s revival of <em>Othello</em>, starring Daniel Craig and David Oyelowo, will be one of the hottest tickets in town next fall. <a href="https://web.archive.org/web/20161021132748/http://artsbeat.blogs.nytimes.com/2015/10/19/daniel-craig-and-david-oyelowo-to-star-together-in-off-broadway-othello/?_r=0">According to the NY Times</a>, the play will be staged &quot;in a 199-seat theater for a limited run in the fall of 2016 (the theater has not yet announced the production&#x2019;s dates or duration).&quot;</p>
+
+<p>While Craig is best known for playing James Bond, he studied at the National Youth Theatre and has performed on stage in England. In recent years, he&apos;s done Tom Stoppard with wife Rachel Weisz (<em>Betrayal</em>) and played a Chicago cop alongside Hugh Jackman (<em>A Steady Rain</em>). Last month, the Post&apos;s Michael Riedel <a href="https://web.archive.org/web/20161021132748/http://nypost.com/2015/09/17/daniel-craig-wants-to-play-someone-more-badass-than-bond/">revealed Craig&apos;s desire to perform off-Broadway</a> and play Iago: &quot;No one&#x2019;s saying anything about Broadway yet, but you don&#x2019;t have to be M to deduce that if the production gets good reviews, it can move to Broadway in the summer for what will no doubt be a limited, sold-out run.&quot;</p><blockquote>I usually think of Iago as being played by a small, evil-looking schemer. Bob Hoskins was brilliant in a 1981 TV movie. Sometimes Iago&#x2019;s given a homosexual spin &#x2014; his real motives being his sexual desire for Othello and his jealousy of Desdemona. That&#x2019;s how some critics thought Kenneth Branagh played him in the 1995 movie opposite Laurence Fishburne.<p></p>
+
+<p>I doubt Craig is going to follow suit. But there&#x2019;s no reason why Iago can&#x2019;t be a hunk. He is, after all, a skilled soldier, hailed for his bravery in battle.</p></blockquote>Sam Gold, who won the Tony Award for his direction of <em>Fun Home</em> earlier this year, told the Times, &quot;that Mr. Craig had sought him out after seeing a play that he directed and that the two have been talking and seeking a project on which to collaborate for some time. Mr. Gold said he reached out to Mr. Oyelowo through a friend; the actors read the play together and the project took off.&quot;<p></p>
+
+<p>Oyelowo, also trained as a stage actor, played Martin Luther King Jr. in <em>Selma</em>.</p>
+
+<p>&quot;This production is an opportunity for New York Theatre Workshop to do what it aspires to do - to foster the growth and accomplishment of the artists we believe in,&quot; NYTW Artistic Director James C. Nicola said in a statement. &quot;When Sam Gold, a longstanding member of our NYTW Usual Suspects community, came to us with the beginning sketches of this production, with these two sublime actors, it seemed the perfect next step for us to take together.  I&#x2019;m eager to see what these original, creative artists come up with in response to Shakespeare&#x2019;s enduring tragedy.&quot;</p>
+
+<p>Nicola also said in an interview with the Times, &quot;Because [Gold] tends to get new contemporary plays, we were looking back into the canon &#x2014; we talked about a classic musical, but it hadn&#x2019;t gone anywhere, and then he called and said he wanted to talk. He said he&#x2019;d put this together, and does it sound like it might fit in, so I said yes.&quot;</p>
+
+<p>The NYTW, based in the East Village, was found in 1979, and among the productions that originated there are Jonathan Larson&apos;s <em>Rent</em>; Tony Kushner&apos;s <em>Slavs!</em> and <em>Homebody/Kabul</em>; Doug Wright&apos;s <em>Quills</em>; Claudia Shear&apos;s <em>Blown Sideways Through Life</em> and <em>Dirty Blonde</em>; Paul Rudnick&apos;s <em>The Most Fabulous Story Ever Told</em> and <em>Valhalla</em>; Martha Clarke&#x2019;s <em>Vienna: Lusthaus</em>; Caryl Churchill&apos;s <em>Mad Forest, Far Away</em>, <em>A Number</em> and <em>Love and Information</em>; Jessica Blank and Erik Jensen&#x2019;s <em>Aftermath</em>; Rick Elice&#x2019;s <em>Peter and the Starcatcher</em>; Enda Walsh&#x2019;s <em>Once</em>; and seven acclaimed productions directed by Ivo van Hove. </p>					
+										
+									
+				

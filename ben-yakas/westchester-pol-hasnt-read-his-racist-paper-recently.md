@@ -1,0 +1,11 @@
+---
+author: Ben Yakas
+date: September 23, 2010  5:36 PM
+title: Westchester Pol Hasn't Read His Racist Paper Recently
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="92310russell.jpg" src="https://web.archive.org/web/20110811091118im_/http://gothamist.com/attachments/byakas/92310russell.jpg" width="250" height="177" class="image-left"> </span>Yesterday, everyone&apos;s newest favorite Westchester politician Jim Russell was being called a lot of words after it was revealed that <a href="https://web.archive.org/web/20110811091118/http://gothamist.com/2010/09/22/racist_westchester_politician_cross.php">he wrote a 16-page paper in 2001</a> obsessed with sexual imprinting, eugenics and interracial marriage. Mostly, the word being used was &quot;racist.&quot; But hold up everyone: let&apos;s give the man a chance to defend himself!</p>
+
+<p>Russell appeared on <a href="https://web.archive.org/web/20110811091118/http://www.rnntv.com/show_rfl.php">Regional News Network</a> for an interview with Richard French to try to save his campaign, and it was, to quote <a href="https://web.archive.org/web/20110811091118/http://www.nydailynews.com/blogs/dailypolitics/2010/09/wow-rnn-sits-down-with-jim-russell.html">the Daily News</a>, &quot;truly incredible.&quot; (you can see excerpts from the video below) <a href="https://web.archive.org/web/20110811091118/http://www.politico.com/blogs/maggiehaberman/0910/Lowey_rival_Russell_says_he_hasnt_read_his_writings_lately_.html?showall">During the interview</a>, Russell refuses to disavow or apologize for his paper, because he hasn&apos;t looked at it lately: &quot;<strong>No, I&apos;m not gonna pass judgments on my writings that I haven&apos;t read recently.</strong>&quot; </p>
+
+<p>When he repeatedly tries to change the subject, host French doesn&apos;t let him weasel out of it; and when Russell tries to blame it on the liberal media, French points out that &quot;your own party condemned you as a kook and a racist.&quot; And French gets the bitchiest line in: &quot;<strong>Jim, I guarantee you: The KKK isn&apos;t posting any of my writings.&quot;</strong></p>

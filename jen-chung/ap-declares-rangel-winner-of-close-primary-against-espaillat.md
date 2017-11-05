@@ -1,0 +1,27 @@
+---
+author: Jen Chung
+date: Jun 26, 2014 8:55 am
+title: AP Declares Rangel Winner Of Close Primary Against Espaillat
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2014_06_rangelsmile.jpg" src="https://web.archive.org/web/20160704105947im_/http://gothamist.com/attachments/jen/2014_06_rangelsmile.jpg" width="640" height="427"> <br> <i> Rep. Rangel on Monday (Getty Images)</i></div> <p></p>
+
+<p>It seems that Rep. Charles Rangel will have a 23rd term in Congress.</p>
+
+<p>The incumbent House member <a href="https://web.archive.org/web/20160704105947/http://gothamist.com/2014/06/25/too_close_to_call_rangel_leads_by_1.php#photo-1">fought off challenger State Senator Adriano Espaillat</a> with about an 1800-vote lead in the 13th District primary. <a href="https://web.archive.org/web/20160704105947/http://bigstory.ap.org/article/rangel-celebrates-though-primary-too-close-call">From the AP</a>:</p><blockquote>With 100 percent of the vote counted in unofficial results, Rangel led Espaillat 47.4 percent to 43.6 percent, a difference of fewer than 2,000 votes. Nearly 47,800 votes had been counted. The Associated Press called Rangel the winner based on information Wednesday from the city Board of Elections on ballots cast that were not included in the election night tally. The number of absentee and provisional ballots was not sufficient for Espaillat to make up the difference.</blockquote>Espaillat refused to concede, issuing a statement at 12:53 a.m. yesterday demanding that all absentee and affidavit ballots be counted, &#x201C;As we learned in 2012, every single vote needs to be counted in this race. Given the thousands of votes outstanding, the people of Upper Manhattan and The Bronx deserve a full accounting of every vote to achieve a complete and accurate tally in this race.&quot;<p></p>
+
+<p>However, even the Rev. Al Sharpton, who <a href="https://web.archive.org/web/20160704105947/http://www.nytimes.com/2014/06/08/nyregion/sharpton-warns-against-race-baiting-in-charles-rangel-adriano-espaillat-contest.html">rebuked Rangel&apos;s debate comments</a> about Espaillat (&quot;What the heck has he done besides saying he&#x2019;s Dominican?&quot;) and didn&apos;t endorse anyone, said Rangel won. <a href="https://web.archive.org/web/20160704105947/http://www.capitalnewyork.com/article/city-hall/2014/06/8547931/sharpton-lets-move-rangel-won">The civil rights leader said on MSNBC,</a> &quot;The voters have spoken. Congressman Rangel certainly appears to have been the victor. And I think people have the right to examine every vote but I think we&#x2019;ve got to move on now and heal the community... We do not need black against brown against white.&quot;</p>
+
+<p>Sharpton invited Rangel and Espaillat to a unity rally at his National Action Network. An adviser to Rangel&apos;s campaign, Charlie King, said, &quot;Now that the campaign is over and Congressman Rangel has won, we look forward to coming together and addressing the issues facing the 13th Congressional District.&quot; The winner of the primary wins the election, because there&apos;s no Republican candidate.</p>
+
+<p>The <a href="https://web.archive.org/web/20160704105947/http://www.nytimes.com/2014/06/26/nyregion/analyzing-espaillat-primary-race-campaign-in-new-york.html?action=click&amp;contentCollection=N.Y.%20%2F%20Region&amp;module=RelatedCoverage&amp;region=Marginalia&amp;pgtype=article">NY Times has a look at Espaillat&apos;s campaign</a>:</p><blockquote>[M]any analysts saw the race as his to lose.<p></p>
+
+<p>After all, Mr. Espaillat came within only 1,100 votes of beating Mr. Rangel in their last matchup, in 2012. This time, he picked up several prominent endorsements, including that of the Bronx borough president, Ruben Diaz Jr., and the City Council speaker, Melissa Mark-Viverito, who represents East Harlem. He also gained support from groups with powerful get-out-the-vote operations like the United Federation of Teachers and the Working Families Party, both of which endorsed Mr. Rangel two years ago.</p>
+
+<p>But between those endorsements and Primary Day, something went awry.</p></blockquote><a href="https://web.archive.org/web/20160704105947/http://www.nytimes.com/2014/06/26/nyregion/on-the-ethnic-and-racial-paths-to-political-power-nothing-is-inevitable.html?ref=nyregion">Times columnist Michael Powell looks at Rangel </a>and how &quot;The path to power in New York City is endlessly confounding.&quot; The<a href="https://web.archive.org/web/20160704105947/http://nypost.com/2014/06/26/rangel-proves-to-be-a-sore-winner-after-beating-espaillat/"> Post says Rangel and Espaillat hate each other</a>&#x2014;Rangel allegedly felt his challenger should have been more deferential while Espaillat bristled at Rangel&apos;s put-downs.<p></p>
+
+<p>In a victory statement, Rangel said, &quot;I hope to begin the healing process of some of division that was created during the course of the campaign, and am looking forward to working together with all of my constituents and community leaders to improve the lives of everyone living in Harlem, El Barrio, Washington Heights, Inwood and the Bronx.&quot;</p>					
+										
+									
+				

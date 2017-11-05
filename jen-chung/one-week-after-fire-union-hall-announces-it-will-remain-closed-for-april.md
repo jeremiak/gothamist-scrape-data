@@ -1,0 +1,21 @@
+---
+author: Jen Chung
+date: Mar 31, 2017 5:32 pm
+title: One Week After Fire, Union Hall Announces It Will Remain Closed For April
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2017_03_unionhallfire.jpg" src="https://web.archive.org/web/20170403063341im_/http://gothamist.com/attachments/jen/2017_03_unionhallfire.jpg" width="640" height="523"> <br> <i> Via <href="https: twitter.com="" themikellewis="" status="" 846034966152724480"="">Michael Lewis</href="https:></i></div> <p></p>
+
+<p>Last weekend, a fire <a href="https://web.archive.org/web/20170403063341/http://gothamist.com/2017/03/25/union_hall_closed_indefinitely_afte.php">broke out in the popular Brooklyn venue Union Hall</a>, closing it down during its busy evening hours, while a concert was going on downstairs. Now, the space seems damaged enough to remain closed for at least another month.</p>
+
+<p>Today, Union Hall (located at 702 Union Street in Park Slope) posted this message <a href="https://web.archive.org/web/20170403063341/https://www.facebook.com/permalink.php?story_fbid=10155091869789266&amp;id=102711469265">on social media</a>, &quot;There was a fire at Union Hall Friday, March 24. No one was injured and the fire was quickly contained but there was damage, which is currently being assessed. In the short term we will be closed and all shows are cancelled for April (or moved to later date), except where noted and moved to other locations. We hope to reopen as quickly as possible. We appreciate all the support from the community and will keep you updated.&quot;</p>
+
+<p>The fire started in the roof/cockloft of the venue at 11:50 p.m. on March 24, and the FDNY had the fire under control by 12:36 a.m. </p>
+
+<center><blockquote class="instagram-media" data-instgrm-captioned="" data-instgrm-version="7" style=" background:#FFF; border:0; border-radius:3px; box-shadow:0 0 1px 0 rgba(0,0,0,0.5),0 1px 10px 0 rgba(0,0,0,0.15); margin: 1px; max-width:658px; padding:0; width:99.375%; width:-webkit-calc(100% - 2px); width:calc(100% - 2px);"><div style="padding:8px;"> <div style=" background:#F8F8F8; line-height:0; margin-top:40px; padding:50.0% 0; text-align:center; width:100%;"> <div style=" background:url(data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAACwAAAAsCAMAAAApWqozAAAABGdBTUEAALGPC/xhBQAAAAFzUkdCAK7OHOkAAAAMUExURczMzPf399fX1+bm5mzY9AMAAADiSURBVDjLvZXbEsMgCES5/P8/t9FuRVCRmU73JWlzosgSIIZURCjo/ad+EQJJB4Hv8BFt+IDpQoCx1wjOSBFhh2XssxEIYn3ulI/6MNReE07UIWJEv8UEOWDS88LY97kqyTliJKKtuYBbruAyVh5wOHiXmpi5we58Ek028czwyuQdLKPG1Bkb4NnM+VeAnfHqn1k4+GPT6uGQcvu2h2OVuIf/gWUFyy8OWEpdyZSa3aVCqpVoVvzZZ2VTnn2wU8qzVjDDetO90GSy9mVLqtgYSy231MxrY6I2gGqjrTY0L8fxCxfCBbhWrsYYAAAAAElFTkSuQmCC); display:block; height:44px; margin:0 auto -44px; position:relative; top:-22px; width:44px;"></div></div> <p style=" margin:8px 0 0 0; padding:0 4px;"> <a href="https://web.archive.org/web/20170403063341/https://www.instagram.com/p/BSDDHDqBFJo/" style=" color:#000; font-family:Arial,sans-serif; font-size:14px; font-style:normal; font-weight:normal; line-height:17px; text-decoration:none; word-wrap:break-word;" target="_blank">Fuck</a></p> <p style=" color:#c9c8cd; font-family:Arial,sans-serif; font-size:14px; line-height:17px; margin-bottom:0; margin-top:8px; overflow:hidden; padding:8px 0 7px; text-align:center; text-overflow:ellipsis; white-space:nowrap;">A post shared by AJ Tobey (@ajtobey) on <time style=" font-family:Arial,sans-serif; font-size:14px; line-height:17px;" datetime="2017-03-25T04:26:14+00:00">Mar 24, 2017 at 9:26pm PDT</time></p></div></blockquote> <script async defer src="//web.archive.org/web/20170403063341js_/http://platform.instagram.com/en_US/embeds.js"></script></center><br>
+
+<p>The band SAVAK was performing when the fire started. Hewson Chen, of the group Lake Ruth, <a href="https://web.archive.org/web/20170403063341/http://www.brooklynvegan.com/fire-at-union-hall-on-friday-night-no-one-hurt-but-closed-till-further-notice/">told Brooklyn Vegan</a> the upstairs &quot;is wrecked.&quot;</p>					
+										
+									
+				

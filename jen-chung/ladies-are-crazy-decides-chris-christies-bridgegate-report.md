@@ -1,0 +1,25 @@
+---
+author: Jen Chung
+date: Mar 28, 2014 1:48 pm
+title: Ladies Are Crazy, Decides Chris Christie's Bridgegate Report
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2014_03_bkelly101.jpg" src="https://web.archive.org/web/20171030064556im_/http://gothamist.com/attachments/jen/2014_03_bkelly101.jpg" width="640" height="427"> <br> <i> Christie&apos;s former Deputy Chief of Staff Bridget Anne Kelly listens to her attorney earlier in March (Getty Images)</i></div> <p></p>
+
+<p>Yesterday, a law firm paid $1 million by NJ Governor Christie (in other words, paid $1 million by NJ taxpayers) released a <a href="https://web.archive.org/web/20171030064556/http://gothamist.com/2014/03/27/law_firm_christie_hired_spent_1m_to.php">report absolving Christie of any involvement</a> in <a href="https://web.archive.org/web/20171030064556/http://gothamist.com/tags/bridgegate">Bridgegate</a>, the bizarre scheme to close Fort Lee&apos;s lanes to the George Washington Bridge. But you know what else the report found? Women make terrible decisions!</p>
+
+<p>The report blames two people&#x2014;Port Authority executive David Wildstein and deputy chief of staff Bridget Anne Kelly&#x2014;for the lane closures. Since Christie has already slammed Wildstein as <a href="https://web.archive.org/web/20171030064556/http://gothamist.com/2014/02/01/david_wildstein_was_pretty_creepy_a.php">some random weirdo</a> who went to the same high school, here was his chance to get back at Kelly.  As <a href="https://web.archive.org/web/20171030064556/http://www.thewire.com/politics/2014/03/christie-report-bridgegate-happened-because-of-lady-problems/359773/">The Wire put it</a>, the report portrayed Kelly as &quot;emotional, insecure, and perhaps lashing out after a bad breakup.&quot; Rachel Maddow didn&apos;t understand what that had to do with using the biggest bridge in the world for payback politics:</p>
+
+<center><iframe src="https://web.archive.org/web/20171030064556if_/http://player.theplatform.com/p/2E2eJC/EmbeddedOffSite?guid=n_maddow_1nj_140327" height="500" width="635" scrolling="no" border="no"></iframe></center>
+
+<p><a href="https://web.archive.org/web/20171030064556/http://www.nytimes.com/2014/03/28/nyregion/irate-friends-see-sexism-in-report-on-former-christie-aide.html?ref=nyregion">The NY Times reports</a>:</p><blockquote>Though the lawyers who wrote the report did not interview her, they explain her conduct in unusually personal terms &#x2014; she is out of the office attending to a family member who had been hospitalized; a brief relationship &#x201C;had cooled&#x201D; at the &#x201C;behest&#x201D; of the man, Mr. Christie&#x2019;s campaign manager, Bill Stepien.<p></p>
+
+<p>The report raises these details but does not explain how or why they would have prompted her to send the damning email. It simply concludes that &#x201C;events in her personal life may have had some bearing on her subjective motivations and state of mind.&#x201D;</p></blockquote>Lis Smith, Mayor de Blasio&apos;s former spokesperson, and a Democratic consultant for the Democratic Governors Association said, &quot;This report was meant to whitewash Governor Christie&#x2019;s reputation as a bully, but it actually confirms that he does embrace a culture of intimidation and retaliation. He&#x2019;s throwing every sexist slur at Kelly while needlessly and aggressively injecting details about her personal life. It&#x2019;s a cynical attempt to distract from the real story.&quot;<p></p>
+
+<p><a href="https://web.archive.org/web/20171030064556/http://www.nydailynews.com/news/politics/chris-christie-advisers-personal-relationship-report-article-1.1736601">Stepien&apos;s lawyer told the Daily News</a>, &quot;If I were a cynical person, I would think that&#x2019;s a rather blatant attempt to deflect attention from more important matters... Since I&#x2019;m not, I&#x2019;ll say I can&#x2019;t imagine the relevance. At least we know that the impulse to exalt anything remotely salacious, however irrelevant, is paramount.&quot;</p>
+
+<p>As for Hoboken Mayor Dawn Zimmer&apos;s claims that the <a href="https://web.archive.org/web/20171030064556/http://gothamist.com/2014/01/18/hoboken_mayor_christie_stiffed_us_o.php">city was stiffed on Hurricane Sandy funds</a> because she didn&apos;t endorse Christie&apos;s project, <a href="https://web.archive.org/web/20171030064556/http://www.northjersey.com/news/christie-unscathed-by-report-in-house-probe-faults-kelly-wildstein-1.752597#sthash.GKYGWW84.dpuf">the report declared</a>, &quot;Whatever subjective perceptions she may have do not match objective reality.&quot; The investigators <a href="https://web.archive.org/web/20171030064556/http://www.northjersey.com/news/hoboken-mayor-portrayed-as-confused-1.752909">never interviewed Zimmer</a>, but used a body language expert to interpret her thoughts and found that Christie was innocent of all past, present and future ills.</p>					
+										
+									
+				

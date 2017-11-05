@@ -1,0 +1,15 @@
+---
+author: Ben Yakas
+date: Jun 7, 2010 2:49 pm
+title: Fashion Choices Led To Drug Kingpin's Downfall
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:240px; "> <img alt="6710lucas.jpg" src="https://web.archive.org/web/20151213000717im_/http://gothamist.com/attachments/byakas/6710lucas.jpg" width="240" height="180"> <br> <i>Lucas, wearing chinchilla coat and matching hat</i></div> A lesson in hubris to all you up-and-coming drug peddlers: Notorious Harlem drug kingpin Frank Lucas, who was famously portrayed by Denzel Washington in the movie <em>American Gangster</em>, has a <a href="https://web.archive.org/web/20151213000717/http://www.amazon.com/gp/product/0312544898/ref=pd_lpo_k2_dp_sr_2?ie=UTF8&amp;cloe_id=9407e3d5-3f5a-4dcc-b2d3-4f122d7c6319&amp;attrMsgId=LPWidget-A1&amp;pf_rd_p=486539851&amp;pf_rd_s=lpo-top-stripe-1&amp;pf_rd_t=201&amp;pf_rd_i=0615153844&amp;pf_rd_m=ATVPDKIKX0DER&amp;pf_rd_r=1BH3ANZT08HG3GKT7P4F">new autobiography</a> out this week, spanning his life from head of a $1 million-a-day heroin empire to DEA informant to non-profit worker. He also <a href="https://web.archive.org/web/20151213000717/http://www.nypost.com/p/news/local/manhattan/druglord_LQZxAUXJSmgXIOuM2lcQNO?CMP=OTC-rss&amp;FEEDNAME=">reveals the article of clothing</a> he believes directly led to his downfall: a $100,000 floor-length chinchilla coat.<p></p>
+
+<p>Lucas, 79, was incredulous upon attending a Muhammad Ali boxing match in Atlanta in 1970 wearing a suit, where he found less-successful drug dealers wearing mink furs: &quot;There is no such thing as outtalking me, outhustling me, outthinking me or outdressing me...I could not have people who made less money than me walking around thinking they ruled the world. I screamed it out to all who would listen: <strong>&apos;Ya&apos;ll think you gone outshine me? Bring that ass to New York City, and I will show every last one of ya&apos;ll who the boss is.&apos; &quot;</strong> In order to show those asses who was truly boss, Lucas bought the coat along with a matching $25,000 hat, and premiered the gear at an Ali-Joe Frazier fight at MSG in March 1971, which turned out to be a &quot;massive mistake.&quot;</p>
+
+<p>Police noticed the gaudy clothing, and were surprised that its wearer had better seats than Frank Sinatra, Diana Ross, Dustin Hoffman, Barbra Streisand and Vice President Spiro Agnew. <strong>&quot;I left that fight a marked man,&quot;</strong> Lucas wrote. Although Lucas has since given up slinging drugs, his ex-wife and &quot;soul mate,&quot; Julianna Farrait-Rodriguez, was <a href="https://web.archive.org/web/20151213000717/http://gothamist.com/2010/05/21/mans_cocaine_chocolate_mixture_caug.php">caught</a> trying to sell coke to cops last month in decidedly less fashionable style.</p>					
+										
+									
+				

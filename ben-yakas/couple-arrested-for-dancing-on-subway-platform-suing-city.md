@@ -1,0 +1,21 @@
+---
+author: Ben Yakas
+date: Jul 8, 2012 3:55 pm
+title: Couple Arrested For DANCING On Subway Platform Suing City
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="7812dance.jpg" src="https://web.archive.org/web/20160115224455im_/http://gothamist.com/attachments/byakas/7812dance.jpg" width="640" height="454"> <br> <i> An example of &quot;disorderly conduct&quot; (<a href="https://web.archive.org/web/20160115224455/http://www.flickr.com/photos/nyclovesnyc/6529321029/in/photostream/">NYC&#x2665;NYC&apos;s flickr</a>)</i></div> <p></p>
+
+<p>We&apos;ve seen subway shamans perform <a href="https://web.archive.org/web/20160115224455/http://gothamist.com/2012/02/16/video_subway_shaman_performs_ritual.php">ritual L train dances</a> and we&apos;ve seen fat men in wool socks and <a href="https://web.archive.org/web/20160115224455/http://gothamist.com/2012/06/25/video_mermaid_parade_climaxes_with.php">a thong grinding on the platform</a>&#x2014;and we&apos;ve never, ever heard of someone getting ticketed for dancing while waiting for the subway. But one Charleston-dancing couple <a href="https://web.archive.org/web/20160115224455/http://www.nypost.com/p/news/local/manhattan/waltz_the_charge_officer_8jQ7kbvZwVhaU4PxNi917K?utm_medium=rss&amp;utm_content=Manhattan">claims they spent 23 hours in custody</a> for doing just that. Uh, somebody <a href="https://web.archive.org/web/20160115224455/http://gothamist.com/2012/03/11/please_stop_with_the_subway_dance_p.php">better tell Moon Hooch about this.</a></p>
+
+<p>Caroline Stern and boyfriend George Hess said they were on their way home last July from Jazz at Lincoln Center&#x2019;s Midsummer Night&#x2019;s Swing when they started doing the Charleston on the platform of the Columbus Circle subway station when cops approached them. &#x201C;They said, &#x2018;What are you doing?&#x2019; and we said, &#x2018;We&#x2019;re dancing,&#x2019;&#x201D; Stern <a href="https://web.archive.org/web/20160115224455/http://www.nypost.com/p/news/local/manhattan/waltz_the_charge_officer_8jQ7kbvZwVhaU4PxNi917K?utm_medium=rss&amp;utm_content=Manhattan">told the Post</a>. &#x201C;And they said, &#x2018;You can&#x2019;t do that on the platform.&#x2019;&#x201D;</p>
+
+<p>Cops asked for ID, but Stern only had a credit card on her (which had her picture and signature)&#x2014;the situation sounds similar to <a href="https://web.archive.org/web/20160115224455/http://gothamist.com/2011/11/02/student_arrested_for_36_hours_by_ny.php">the frivolous arrest of a 21-year-old female student</a> who was held by NYPD for 36 hours for not carrying ID in Riverside Park. Hess tried to film the encounter, which is when police got hostile with them: &#x201C;We brought out the camera, and that&#x2019;s when they called backup,&#x201D; Stern said. &#x201C;That&#x2019;s when eight ninja cops came from out of nowhere.&#x201D; Hess was allegedly tackled, and both were handcuffed. </p>
+
+<p>According <a href="https://web.archive.org/web/20160115224455/http://www.mta.info/nyct/rules/rules.htm#disorderly">to the MTA rules of conduct</a>, it is disorderly conduct to &quot;block free movement on a station, stairway, platform or conveyance&quot;&#x2014;there is no reference to dancing anywhere in the rules, and considering how much dancing goes on every weekend night, cops would really have to stretch that definition to include the shuffling of feet. And yet, the couple were initially charged with disorderly conduct for &#x201C;impeding the flow of traffic.&#x201D;</p>
+
+<p>The charges, including resisting arrest, were later dropped. The couple has since filed a Manhattan federal court suit against the city for unspecified damages. &#x201C;I&#x2019;m a dentist, and I&#x2019;m 55, and I got arrested for dancing,&#x201D; Stern told The Post. &#x201C;It was absolutely ridiculous that this happened.&#x201D; And just imagine what would have happened if they had been caught <a href="https://web.archive.org/web/20160115224455/http://gothamist.com/2012/05/02/video_dancing_tank_top_thom_yorke_c.php">pulling a Thom Yorke</a>.</p>					
+										
+									
+				

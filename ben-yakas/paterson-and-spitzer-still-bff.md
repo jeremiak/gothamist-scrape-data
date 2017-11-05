@@ -1,0 +1,16 @@
+---
+author: Ben Yakas
+date: Feb 19, 2010 5:44 pm
+title: Paterson and Spitzer Still BFF
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="21910spitz.jpg" src="https://web.archive.org/web/20150504174405im_/http://gothamist.com/attachments/byakas/21910spitz.jpg" width="260" height="175" class="image-right"> </span>Following a week filled with <a href="https://web.archive.org/web/20150504174405/http://gothamist.com/2010/02/17/paterson_bombshell_not_bomb_not_abo.php">nonshells</a> and <br>
+<a href="https://web.archive.org/web/20150504174405/http://gothamist.com/2010/02/19/paterson_bombshell_story_reveals_go.php">lazyshells</a> (but no <a href="https://web.archive.org/web/20150504174405/http://gothamist.com/2010/02/18/paterson_rips_bombshell_story_gets.php">bombshells</a>), there&apos;s really only one person who can feel Gov Paterson&apos;s pain and frustration, and help guide him through these times: the Spitzinator. </p>
+
+<p>The Post <a href="https://web.archive.org/web/20150504174405/http://www.nypost.com/p/news/local/he_an_el_of_guy_r5BKTsr8BpsN5yrrWMdz6L">reports</a> that aides have confirmed that Gov. Paterson has been getting advice from his &quot;disgraced predecessor&quot; from time to time. Paterson is quoted as saying: &quot;I don&apos;t remember Eliot Spitzer being in a conversation where he didn&apos;t have an opinion. And he has a lot of very good ideas about the way government should work, which is why the people of New York elected him governor in the first place.&quot; The former Governor has been slowly <a href="https://web.archive.org/web/20150504174405/http://gothamist.com/2010/02/03/spitzer_on_colbert.php">rehabilitating his image</a> and <a href="https://web.archive.org/web/20150504174405/http://gothamist.com/2010/01/29/video_spitzer_pontificates_on_love.php">creeping back</a> into the public eye in the new year. There are <a href="https://web.archive.org/web/20150504174405/http://dancirucci.blogspot.com/2010/02/spitzer-to-run-again.html">rumors</a> that Spitzer is considering running for office again eventually, and he has a vested interest in his hand-picked former-Lieutenant Governor. </p>
+
+<p>But not everyone agrees with Paterson&apos;s assessment of Spitzer&apos;s &quot;good ideas.&quot; Two anonymous government insiders quoted in the article mocked Spitzer&apos;s credibility, saying he had already been driving away his supporters well-before the <a href="https://web.archive.org/web/20150504174405/http://gothamist.com/2009/03/10/hookergate_a_year_later.php">sex scandal</a> hit, and would have likely faced similar adversity to his re-election campaign as Paterson is <a href="https://web.archive.org/web/20150504174405/http://gothamist.com/2010/02/16/paterson_campaign_going_full_speed_ahead.php">facing now</a>. As one source put it, <strong>&quot;Advice from the guy who couldn&apos;t get along with anyone when he was in government?&quot;</strong></p>					
+										
+									
+				

@@ -1,0 +1,13 @@
+---
+author: Ben Yakas
+date: March  5, 2011  6:24 PM
+title: Soda Industry Spent Nearly $13 Million Lobbying Albany
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="3511sodatax.jpg" src="https://web.archive.org/web/20120616014741im_/http://gothamist.com/attachments/byakas/3511sodatax.jpg" width="240" height="198" class="image-left"> </span></p>
+
+<p>Last year, former Gov. David Paterson pushed <a href="https://web.archive.org/web/20120616014741/http://gothamist.com/tags/sodatax">a plan</a> to levy a penny-per-ounce tax on sugary soft drinks in NY State, which was repeatedly rejected by Albany, and finally <a href="https://web.archive.org/web/20120616014741/http://gothamist.com/2011/01/25/the_soda_tax_is_dead_for_now.php">&quot;killed&quot;</a> by current Gov. Andrew Cuomo. So how much money did Big Soda lobbyists spend to make sure that tax never made it into our supermarkets? </p>
+
+<p>According to an analysis by government reform group <a href="https://web.archive.org/web/20120616014741/http://www.nypirg.org/">NYPIRG</a>, the American Beverage Association, whose members include PepsiCo and the Coca-Cola Co., spent $12.9 million to fight the tax, the most by one individual lobbying group. Altogether, a whopping $210.6 million was spent lobbying Albany last year, a new record. For some <a href="https://web.archive.org/web/20120616014741/http://www.nypost.com/p/news/local/drink_makers_lead_lobby_gusher_OwDIGhJ4PVJNFI3la7mV5K?CMP=OTC-rss&amp;FEEDNAME=">comparison</a>, $198 million was spent in 2009, and only $80 million in 2001. </p>
+
+<p>The second biggest lobbying group was the United Federation of Teachers, who spent $7.8 million; health care led all sectors by spending $36 million on lobbying last year, followed by trade associations and real estate/construction interests. Another notable figure: upstate grocery chain Wegmans Food Markets spent $1.3 million to advance Paterson&apos;s proposal to expand <a href="https://web.archive.org/web/20120616014741/http://gothamist.com/2010/06/26/newest_budget_fixer_wine_in_grocery.php">wine sales</a> to grocery stores...which didn&apos;t <a href="https://web.archive.org/web/20120616014741/http://blogs.wsj.com/metropolis/2010/06/30/a-dream-corked-wine-sales-unlikely-for-ny-groceries/">work out</a> <a href="https://web.archive.org/web/20120616014741/http://online.wsj.com/article/AP05847fd8d77f46fa9b7fe16fe01ffe78.html">so well</a> for them.</p>

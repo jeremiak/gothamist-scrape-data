@@ -1,0 +1,9 @@
+---
+author: Ben Yakas
+date: March 17, 2011  5:45 PM
+title: Craft Beer & Food Festival This Weekend!
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="031811beer.jpg" src="https://web.archive.org/web/20120602134944im_/http://gothamist.com/attachments/nyc_arts_john/031811beer.jpg" width="365" height="391" class="image-left"> </span>Already sick of drinking Bud Light <a href="https://web.archive.org/web/20120602134944/http://gothamist.com/2011/03/17/play_everyones_irish_bingo_before_y.php">today</a>? In need of something more crafty to cleanse your palate? Then you&apos;ll have your chance this weekend: <a href="https://web.archive.org/web/20120602134944/http://www.getrealny.com/">Get RealNY</a> have their annual Craft Beer &amp; Food Festival, taking place at the Altman Building in Chelsea, on Saturday and Sunday.</p>
+
+<p>There will be over 100 beers <a href="https://web.archive.org/web/20120602134944/http://getrealny2.eventbrite.com/">available</a> at the all-you-can-eat-and-drink festival, which will feature a host of food tastings and over 80 cask beers. In particular, the event will include a &quot;Locals Only&quot; section featuring local beers from Brewery Ommegang, Brooklyn Brewery, Greenport Harbor Brewing, Kelso of Brooklyn, Empire Brewing Company &amp; Sixpoint Craft Ales. <a href="https://web.archive.org/web/20120602134944/http://gothamist.com/2010/03/08/brother_jimmys_bbq_opening_in_giant.php#photo-1">Brother Jimmy&apos;s</a> will be providing all the BBQ. Tickets are already sold out for the second of the three-hour sessions on Saturday, but others are still available to purchase <a href="https://web.archive.org/web/20120602134944/http://www.getrealny.com/limited-real-ny-tickets-purchase-eventbrite-beermenuscom/">here.</a></p>

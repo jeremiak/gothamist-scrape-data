@@ -1,0 +1,17 @@
+---
+author: Ben Yakas
+date: Jan 8, 2011 1:00 pm
+title: Should Supermarkets Be Given Letter Grades?
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="1811supermarket.jpg" src="https://web.archive.org/web/20150504170148im_/http://gothamist.com/attachments/byakas/1811supermarket.jpg" width="640" height="640"> <br> <i><a href="https://web.archive.org/web/20150504170148/http://www.flickr.com/photos/glark/5012889450/">glark&apos;s flickr</a></i></div> <p></p>
+
+<p>This week, the Department of Consumer Affairs announced the very disconcerting results of the latest fall supermarket inspections, and it turns out we&apos;re all getting <a href="https://web.archive.org/web/20150504170148/http://gothamist.com/2011/01/06/supermarkets_are_ripping_you_off.php">ripped off</a>: compliance rates have hit an all-time low of 33 percent, and there have been more than 750 charges against supermarkets in the last four months alone. They found that the most common violation was for a lack of item pricing, which according to the <a href="https://web.archive.org/web/20150504170148/http://www.nyc.gov/html/dca/html/pr2011/pr_010511.shtml">DCA</a> resulted in city inspectors getting overcharged a third of the time (it&apos;s like their very own mini <a href="https://web.archive.org/web/20150504170148/http://gothamist.com/tags/overcharge">taxi overcharging scandal</a>!). So in light of that, some are wondering if it&apos;s time supermarkets started getting letter grades.</p>
+
+<p>Councilman Oliver Koppell <a href="https://web.archive.org/web/20150504170148/http://www.nypost.com/p/news/local/city_weighs_abc_of_supermarket_rip_fPL56gSbb2oBo29ZlJhfWK?CMP=OTC-rss&amp;FEEDNAME=">suggested</a> the supermarket grading system at a City Council hearing on the results of the inspections. Consumer Affairs Commissioner Jonathan Mintz, who has chided supermarkets for the alleged overcharging, liked the idea, but added that a lot of study would be needed to see if it would be realistic to give out A, B, and C grades like the Health Department now does with restaurants. This year, after much <a href="https://web.archive.org/web/20150504170148/http://gothamist.com/2009/02/02/restaurants_forced_to_display_clean.php">prodding</a> from State Senator Jeff Klein, NYC introduced the letter-grade system, which requires NYC restaurants to prominently display their cleanliness ratings in windows or entryways. </p>
+
+<p>Of course, the vice president of the Food Industry Alliance, which represents 800 supermarkets, was against such a grading system&#x2014;though he did say it would be OK to have one on the internet, presumably since nobody would see it. He wasn&apos;t the only one defending supermarkets: Councilwoman Karen Koslowitz questioned why supermarkets were getting such a bad reputation due to just one infraction: &quot;It&apos;s not like the store is trying to hide something.&quot; Mintz was confused, since Koslowitz was the person who helped introduce the law they were upholding, which requires prominent item pricing. &quot;<strong>I guess if your perspective is that we&apos;re overenforcing a law that you helped pass, ironically, we have a difference in perspective</strong>,&quot; he said.</p>					
+										
+									
+				

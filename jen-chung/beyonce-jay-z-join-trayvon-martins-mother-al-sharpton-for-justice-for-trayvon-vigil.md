@@ -1,0 +1,17 @@
+---
+author: Jen Chung
+date: Jul 20, 2013 12:51 pm
+title: Beyonce, Jay Z Join Trayvon Martin's Mother, Al Sharpton For "Justice For Trayvon" Vigil
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2013_07_bjtmal.jpg" src="https://web.archive.org/web/20150428171441im_/http://gothamist.com/attachments/jen/2013_07_bjtmal.jpg" width="640" height="630"> <br> <i> Beyonce, Jay Z, Sybrina Fulton and the Rev. Al Sharpton (<a href="https://web.archive.org/web/20150428171441/https://twitter.com/TheRevAl/status/358622797813129216">@TheRevAl</a>)</i></div> <p></p>
+
+<p>The Reverend Al Sharpton&apos;s National Action Network organized <a href="https://web.archive.org/web/20150428171441/http://nationalactionnetwork.net/events/563/justice-for-trayvon-national-day-of-action-vigils-in-100-cities/">100 &quot;Justice for Trayvon&quot; vigils across the country</a> today. In New York City, Sharpton is at One Police Plaza with Trayvon Martin&apos;s mother, Sybrina Fulton,  to urge the federal government to investigate civil rights charges against George Zimmerman. And the event has attracted a huge crowd, including a number of politicians, as well as Jay Z and Beyonce.</p>
+
+<p>In February 2012, Zimmerman fatally <a href="https://web.archive.org/web/20150428171441/http://gothamist.com/2012/03/20/rally_for_trayvon_martin_at_union_s.php">shot 17-year-old Trayvon</a>, who was unarmed, in a Florida town&#x2014;he <a href="https://web.archive.org/web/20150428171441/http://gothamist.com/2013/07/13/george_zimmerman_found_not_guilty_i.php">was acquitted of murder and manslaughter charges</a> last week, setting off a number of protests. Yesterday, President Obama <a href="https://web.archive.org/web/20150428171441/http://dcist.com/2013/07/video_obama_says_travyon_martin_cou.php">talked about the verdict&#x2014;and race</a>&#x2014;at length, explaining why so many are upset by the verdict. &quot;You know, when Trayvon Martin was first shot I said that this could have been my son. Another way of saying that is Trayvon Martin could have been me 35 years ago. It&#x2019;s important to recognize that the African-American community is looking at this issue through a set of experiences and a history that doesn&#x2019;t go away... There are very few African American men in this country who haven&apos;t had the experience of being followed when they were shopping in a department store. That includes me.&quot;</p>
+
+<p>At the National Action Network Headquarters before the vigil, Sharpton said, &quot;We&apos;ve got to change laws so this never happens again.&quot; And Fulton <a href="https://web.archive.org/web/20150428171441/http://www.nypost.com/p/news/local/nationwide_protests_beyonce_join_cTygx0iHskDt6oNr2S6QZJ?utm_source=SFnewyorkpost&amp;utm_medium=SFnewyorkpost">told the audience</a>, &quot;Sometimes I think about what Trayvon felt that night. He was walking home minding his business...Trayvon was no burglar. He had every right to be in that community.&quot; She <a href="https://web.archive.org/web/20150428171441/https://twitter.com/Azi/status/358593770423476224/">added</a>, &quot;My son died without even knowing who his killer was... George Zimmerman started the fight, and George Zimmerman ended the fight.&quot;</p>					
+										
+									
+				

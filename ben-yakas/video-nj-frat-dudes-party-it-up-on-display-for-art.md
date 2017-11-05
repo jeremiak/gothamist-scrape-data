@@ -1,0 +1,13 @@
+---
+author: Ben Yakas
+date: March  5, 2011  3:10 PM
+title: Video: NJ Frat Dudes Party It Up On Display...For Art!
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="3511frat.jpg" src="https://web.archive.org/web/20120123074011im_/http://gothamist.com/attachments/byakas/3511frat.jpg" width="640" height="400"> <br> <i>Step right up...</i></div> <p></p>
+
+<p>Do you have any lingering resentments over being bullied in high school by douchey kids in backwards baseball caps? Well we have just the art exhibit for you: the <a href="https://web.archive.org/web/20120123074011/http://www.subports.com/sub_scope_11/">C&apos;mon Guy (Frat Boy Box Party)</a> installation at the Scope Art Show, which is part of <a href="https://web.archive.org/web/20120123074011/http://gothamist.com/2011/03/03/photos_inside_the_armory_show_2011.php#photo-1">Armory Arts Week.</a> The installation includes 4-5 New Jersey frat boys put on display inside a box for four hours everyday. The only items in the box are cases of Natural Light beer, a magic marker, and a piss bucket.</p>
+
+<p>While the frat boys party it up, doing push-ups, chugging beers and popping their collars, attendees can observe the creatures from outside the box. Party goers will be able to interact with the frat party via text. The installation was created by Texas-based artist Richie Budd and Will Robison. According <a href="https://web.archive.org/web/20120123074011/http://www.artinfo.com/news/story/37143/chugging-for-arts-sake-the-drunken-insanity-of-scopes-frat-in-a-box-performance-by-the-numbers/">to ArtInfo</a>, despite the strange circumstances of the project, most of the frat guys seemed to enjoy the attention; they witnessed three of the subjects puking. They also overheard one frat guy pitching his art ideas to Budd: &quot;I&apos;m gonna bring tennis balls and florescent paint on the last day, and we&apos;ll throw them all over the walls. Some stupid idiot will buy it and you can have the money.&quot; Below, you can see a video of the project:</p>
+
+<div style="text-align: center;"><object style="height: 390px; width: 640px"><param name="movie" value="http://www.youtube.com/v/hf088eYKSRs?version=3"><param name="allowFullScreen" value="true"><param name="allowScriptAccess" value="always"><embed src="https://web.archive.org/web/20120123074011oe_/http://www.youtube.com/v/hf088eYKSRs?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowscriptaccess="always" width="640" height="390"></object></div>

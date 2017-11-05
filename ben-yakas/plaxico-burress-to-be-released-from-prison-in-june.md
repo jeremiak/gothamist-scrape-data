@@ -1,0 +1,13 @@
+---
+author: Ben Yakas
+date: March  5, 2011  2:18 PM
+title: Plaxico Burress To Be Released From Prison In June
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="3511burress.jpg" src="https://web.archive.org/web/20110307163355im_/http://gothamist.com/attachments/byakas/3511burress.jpg" width="250" height="317" class="image-left"> </span></p>
+
+<p>Former Giants star receiver <a href="https://web.archive.org/web/20110307163355/http://gothamist.com/tags/plaxicoburress">Plaxico Burress</a> has been lifting weights and getting <a href="https://web.archive.org/web/20110307163355/http://gothamist.com/2010/09/19/plaxico_burress_getting_existential.php">existential</a> in prison ever since he mistakenly shot himself in the thigh at a nightclub in Nov. 2008. But finally, he can see the light at the end of the tunnel: Burress is due <a href="https://web.archive.org/web/20110307163355/http://www.nydailynews.com/sports/football/giants/2011/03/04/2011-03-04_exnew_york_giant_wr_plaxico_burress_to_be_released_from_prison_three_months_earl.html">to be released</a> from prison three months early, in June. And just in time for the <a href="https://web.archive.org/web/20110307163355/http://gothamist.com/2011/03/03/nfl_on_the_verge_of_a_lockout_tonig.php">NFL lockout</a>!</p>
+
+<p>Officials say that Burress will be conditionally released June 6; he applied and was rejected for work release several times during his prison stint, which began in Sept. 2009. Officials added that Burress was given the option of remaining at Oneida Correctional Facility until late September...which we&apos;re sure took him many sleepless nights to consider. </p>
+
+<p>Burress, who previously said he was in the best shape of his life thanks to prison, <a href="https://web.archive.org/web/20110307163355/http://gothamist.com/2010/09/19/plaxico_burress_getting_existential.php">has vowed</a> to play in the NFL again: &quot;I&apos;m not just going to come back and play. I&apos;m going to come back and play at a high level. Nobody is going to be more dedicated than me to getting back to a championship...That&apos;s the only way I can redeem myself, so to speak.&quot; His lawyer added that two teams have already shown interest in signing him. And considering last season&apos;s Michael Vick &quot;redemption&quot; story, which came after a prison stint for a much worse crime than Plaxico&apos;s dumbassery, we think Plaxico just might get his storybook ending.</p>

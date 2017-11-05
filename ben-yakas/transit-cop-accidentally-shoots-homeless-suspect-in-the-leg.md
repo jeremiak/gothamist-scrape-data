@@ -1,0 +1,15 @@
+---
+author: Ben Yakas
+date: Aug 22, 2012 4:42 pm
+title: Transit Cop Accidentally Shoots Homeless Suspect In The Leg
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="82212shooting.jpg" src="https://web.archive.org/web/20150504134521im_/http://gothamist.com/attachments/byakas/82212shooting.jpg" width="365" height="254" class="image-left"> </span>Following in a long and storied tradition of cops <a href="https://web.archive.org/web/20150504134521/http://gothamist.com/2011/02/11/nypd_officer_pulls_a_plaxico_burres.php">accidentally shooting themselves</a>, <a href="https://web.archive.org/web/20150504134521/http://gothamist.com/2011/01/24/bloomberg_visits_elderly_man_accide.php">elderly people</a>, <a href="https://web.archive.org/web/20150504134521/http://gothamist.com/2012/03/29/premature_discharge_cop_accidentall.php">bystanders</a> or <a href="https://web.archive.org/web/20150504134521/http://gothamist.com/2012/03/30/welcome_to_nyc_cop_accidentally_sho.php">tourists</a>, a transit cop <a href="https://web.archive.org/web/20150504134521/http://abclocal.go.com/wabc/story?section=news/local/new_york&amp;id=8782310">accidentally shot a homeless robbery suspect</a> in the leg as he was attempting to holster his weapon late Tuesday. The incident happened outside Picante Mexican Bar &amp; Lounge on Broadway near W. 140th Street in Harlem at approximately 11 p.m. &#x201C;I thought my finger was off the trigger,&#x201D; the cop, who hasn&apos;t been identified, <a href="https://web.archive.org/web/20150504134521/http://www.nydailynews.com/new-york/transit-holstering-gun-accidentally-shoots-harlem-suspect-leg-article-1.1141988">allegedly said after the accidental discharge.</a></p>
+
+<p>Victim Richard Pearson, 47, had apparently been panhandling near the restaurant <a href="https://web.archive.org/web/20150504134521/http://www.nypost.com/p/news/local/manhattan/thief_shot_by_transit_officer_while_4it5SPq55YlKfRaUUsmVIO#ixzz24HkXbvny">when he allegedly stole</a> $40 from a table. Two transit cops in a patrol car saw the commotion outside the restaurant, and pursued Pearson on foot. Pearson tucked his hands under his body as one officer tried to cuff him, when the other officer shot his Sig Sauer 9-mm pistol, hitting Pearson in the right calf. </p>
+
+<p>The 30-year-old shooting officer, who has five years on the job, helped Pearson by tying a T-shirt around his bleeding leg. That officer <a href="https://web.archive.org/web/20150504134521/http://newyork.cbslocal.com/2012/08/22/police-harlem-robbery-suspect-shot-in-the-leg-after-officers-gun-goes-off/">has been placed</a> on administrative duty. After being treated, Pearson was charged with petit larceny and resisting arrest. Pearson, who has been arrested fourteen times and has a history of mental illness, was also charged with criminal possession of a controlled substance after police found what they believe to be a crack pipe in his pocket.</p>					
+										
+									
+				

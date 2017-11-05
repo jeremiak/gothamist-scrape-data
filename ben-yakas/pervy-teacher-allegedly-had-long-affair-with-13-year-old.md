@@ -1,0 +1,11 @@
+---
+author: Ben Yakas
+date: October 21, 2010  5:51 PM
+title: Pervy Teacher Allegedly Had Long Affair With 13-Year-Old
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:220px; "> <img alt="102110bartley.jpg" src="https://web.archive.org/web/20110811122306im_/http://gothamist.com/attachments/byakas/102110bartley.jpg" width="220" height="220"> <br> <i>Wayne Bartley</i></div> It may have been created by a satirical website, but the guide to recognizing <a href="https://web.archive.org/web/20110811122306/http://gothamist.com/2010/10/21/a_guide_to_recognizing_your_secretl.php">secretly sex addicted teachers</a> was quite prescient today: a former middle school science teacher/foot fetishist, who falls in the &quot;Dirty Demagogue&quot; category, <a href="https://web.archive.org/web/20110811122306/http://www.nydailynews.com/news/ny_crime/2010/10/21/2010-10-21_teacher_with_foot_fetish_had_sex_with_underage_student_at_motel_probe_finds.html">was caught</a> having a 14-month affair with a 13-year-old student. <p></p>
+
+<p>Wayne Bartley, 46, worked at Intermediate School 229 in the Bronx from 2005 to 2008, where he met the young girl; he would &quot;pick her up in his blue Jeep for twice-a-month romps at the Paradise Motor Inn in the Bronx&quot; between March 2008 to May 2009. Bartley also had an inappropriate relationship with a girl from Intermediate School 392, which he worked at from 2008-2009&#x2014;he talked that 13-year-old into sending nude profile pictures,  as well as foot shots, to his iPhone. He somehow ended up teaching at KIPP AMP Academy Middle School the next year, where he tried to seduce another girl by showering her with gifts, taking her to get her nails done and giving her foot massages. </p>
+
+<p>The podophiliac was fired from KIPP in June this year after administrators learned of the investigation. He joins a <a href="https://web.archive.org/web/20110811122306/http://en.wikipedia.org/wiki/Foot_fetishism">long list</a> of notable foot fetishists including Elvis Presley, James Joyce and Quentin Tarantino. Except, none of them were pedophiles (well, <a href="https://web.archive.org/web/20110811122306/http://en.wikipedia.org/wiki/Personal_relationships_of_Elvis_Presley">maybe</a> Elvis was). </p>

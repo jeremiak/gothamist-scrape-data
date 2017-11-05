@@ -1,0 +1,15 @@
+---
+author: Ben Yakas
+date: Apr 20, 2011 1:37 pm
+title: Slain Pace Student's Family Sues "Officer Of The Year" Cop
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:250px; "> <img alt="42011danroy.jpg" src="https://web.archive.org/web/20150511165855im_/http://gothamist.com/attachments/byakas/42011danroy.jpg" width="250" height="188"> <br> <i>Danroy Henry</i></div> Last week, the officer who shot and killed Pace University student <a href="https://web.archive.org/web/20150511165855/http://gothamist.com/tags/danroyhenry">Danroy Henry</a> amidst a chaotic Westchester night last fall was <a href="https://web.archive.org/web/20150511165855/http://gothamist.com/2011/04/14/cop_who_shot_pace_student_given_off.php">honored with</a> the &quot;Officer of the Year&quot; award by his union. Henry&apos;s family was understandably upset at the honor, and now, <a href="https://web.archive.org/web/20150511165855/http://www.nydailynews.com/ny_local/2011/04/20/2011-04-20_family_of_danroy_henry_pace_football_player_killed_by_cop_will_file_wrongful_dea.html">has filed</a> a wrongful death suit against the officer, as well as The Village of Pleasantville. &quot;The pain of losing our son so suddenly is insatiable and not only has his absence changed us forever, but his suffering will always haunt us as well,&quot; the family said in a statement. <p></p>
+
+<p>Officer Aaron Hess was given the honor by the Pleasantville Police Benevolent Association for the &quot;dignified and professional manner [he&apos;s] conducted himself throughout his career and this ordeal.&quot; Henry&apos;s family called the award an insult to their son&apos;s memory:  &quot;It&apos;s consistent with the arrogant behavior and the insensitivity we have received since October 17,&quot; said the victim&apos;s mother, Angella Henry. The family previously said they <a href="https://web.archive.org/web/20150511165855/http://gothamist.com/2011/01/12/parents_of_slain_pace_student_plan.php">planned to file</a> a $120 million lawsuit, but the amount filed today is unspecified. </p>
+
+<p>Henry, 20, and his teammates had been celebrating after they played their homecoming game against Stonehill College on the fateful night of October 17. When a &quot;rowdy&quot; scene erupted, Henry and his friends tried to leave as police arrived. According to the police report, Henry was trying to drive away when he hit Hess. While on the hood of the car, Hess claimed he fired at Henry multiple times because Henry wouldn&apos;t stop. Henry&apos;s blood alcohol level was above the legal limit, but many <a href="https://web.archive.org/web/20150511165855/http://gothamist.com/2010/10/19/state_police_to_probe_police_shooti.php">witnesses dispute</a> the police&apos;s account of the evening.</p>					
+										
+									
+				

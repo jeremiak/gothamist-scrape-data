@@ -1,0 +1,11 @@
+---
+author: Ben Yakas
+date: March 11, 2011 12:32 PM
+title: Dastardly Robbery Gang Tortured Victim With Cut-Up Onions
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:250px; "> <img alt="31110onions.jpg" src="https://web.archive.org/web/20110312032954im_/http://gothamist.com/attachments/byakas/31110onions.jpg" width="250" height="370"> <br> <i>Erick Mejia</i></div> A member of a Queens-based robbery crew has been taken into custody in Georgia on a murder charge, and will be transported to New York for arraignment in the near future. <a href="https://web.archive.org/web/20110312032954/http://www.nydailynews.com/news/ny_crime/2011/03/11/2011-03-11_vicious_queensbased_robbery_crew_has_torture_victims_in_tears__from_onions.html">Police believe that</a> Erick Mejia and the crew posed as cops in order to pull off several high-stakes robberies of drug traffickers along the East Coast; they also believe that Mejia used several different torture techniques on the victims, including <em>stuffing a victim&apos;s head inside a bag of onions</em>.<p></p>
+
+<p>Police say that Mejia and the robbery crew would dress up as cops, then conduct a police-style car stop of a drug supplier, brandishing fake badges and using a vehicle outfitted with police lights. In one particular incident, they kidnapped the victim, drove to a trailer home where they tied him up, along with a woman and child, then tortured him with onions: &quot;<strong>The crew placed a bag of onions over the head of one of the male victims to induce him to reveal the location of narcotics. The bag filled with cut-up onions caused the victim to experience a form of asphyxiation</strong>,&quot; said NYPD Detective Therone Eugene of the Drug Enforcement Administration&apos;s Redrum Task Force. Another onion-torture home invasion in Georgia yielded 77 pounds of cocaine and $100,000 in cash.</p>
+
+<p>In addition to the onion ploy, the crew also performed &quot;classic&quot; styles of torture, including &quot;beatings, burning with a hot iron, submerging victims heads in water, and squeezing their testicles with pliers.&quot; The alleged ringleader of the group is 300-pound Franklin De Vargas, who was responsible for more than 100 robberies in NYC, Pennsylvania, North Carolina and Georgia.</p>

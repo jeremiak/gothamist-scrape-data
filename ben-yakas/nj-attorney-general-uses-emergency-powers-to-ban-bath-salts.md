@@ -1,0 +1,15 @@
+---
+author: Ben Yakas
+date: Apr 28, 2011 6:45 pm
+title: NJ Attorney General Uses Emergency Powers To Ban Bath Salts
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="42811bathsalts.jpg" src="https://web.archive.org/web/20150505003638im_/http://gothamist.com/attachments/byakas/42811bathsalts.jpg" width="250" height="188" class="image-left"> </span>Breaking news out of NJ: <a href="https://web.archive.org/web/20150505003638/http://gothamist.com/tags/bathsalts">bath salts</a> are dangerous! Sure, we&apos;ve been hearing all about the dangers of bath salts for the last five months or so, but for some reason, it was all too much for the state to take anymore. Today, NJ Attorney General Paula Dow <a href="https://web.archive.org/web/20150505003638/http://newyork.cbslocal.com/2011/04/28/new-jersey-attorney-general-paula-dow-announces-ban-on-selling-bath-salts/">filed emergency rules</a> designed to immediately ban the sale and manufacture of bath salts, and criminalize the muscle relaxing product.</p>
+
+<p>&#x201C;The name sounds innocent. They are not. We&#x2019;re not talking about what the old days people referred to as the Epsom salts,&quot; Dow said. According <a href="https://web.archive.org/web/20150505003638/http://www.newjerseynewsroom.com/healthquest/new-jersey-bans-bath-salts">to NJNewsroom</a>, 23 people have been sickened and at least 12 people have been hospitalized since January 1. Back in March, two New Jersey legislators introduced legislation <a href="https://web.archive.org/web/20150505003638/http://gothamist.com/2011/03/16/new_jersey_is_about_to_get_a_lot_mo.php">to ban</a> the sale and use of bath salts; and before that, Chuck Schumer also announced a bill <a href="https://web.archive.org/web/20150505003638/http://gothamist.com/2011/01/30/senator_schumer_wants_to_ban_bath_s.php">to ban</a> the two active ingredients, adding them to the federal list of controlled substances. But today&apos;s emergency move is much more decisive. </p>
+
+<p>State consumer affairs acting director Thomas Calcagni says that this past month, three users went to the hospital from the chemicals, whose side effects include hallucinations, paranoia, rapid heart rates and suicidal thoughts. &#x201C;He was foaming at the mouth, breathing rapidly,&#x201D; said Calcagni of a 42-year-old man who took the drug. From here on, the six chemicals associated with the products will be classified in NJ as Class 1 controlled dangerous substances. Dow says anyone who voluntarily surrenders the bath salts to police by May 8 will not face criminal charges. But what kind of people would we be if we just <em>voluntarily</em> surrendered our beloved &#x201C;Energizing Aromatherapy&#x201D; or &#x201C;Down2Earth White Horse&#x201D;!?</p>					
+										
+									
+				

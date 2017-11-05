@@ -1,0 +1,11 @@
+---
+author: Ben Yakas
+date: June  4, 2011  6:30 PM
+title: Correction Officer Shoots Man At Brooklyn McDonald's
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="6411mcd.jpg" src="https://web.archive.org/web/20120102221618im_/http://gothamist.com/attachments/byakas/6411mcd.jpg" width="250" height="180" class="image-left"> </span>An off-duty corrections officer shot and wounded a man at a McDonald&apos;s in East Flatbush this afternoon. Witnesses said a neighborhood man &quot;with mental problems&quot; started harassing a 67-year-old customer waiting on line for food at the McDonald&apos;s on Church Ave near Kings Highway. &quot;<strong>The guy came in and was looking to fight anyone he could find,</strong>&quot; witness Stacy Houston <a href="https://web.archive.org/web/20120102221618/http://www.nypost.com/p/news/local/brooklyn/corrections_officer_shoots_man_in_UPmRqukq0bnoP8tiU2KTmO">told the Post.</a></p>
+
+<p>When the older man pulled out his cell phone, allegedly to call 911, the man slapped him, and the two started fighting. Rikers Island CO Michael Turnbull, who happened to be there at the time, stepped in to break them up; the agitator then grabbed a metal pole outside and &quot;charged&quot; Turnbull, who shot him twice (the Post says both shots hit his left leg, while <a href="https://web.archive.org/web/20120102221618/http://shavedlongcock.blogspot.com/2011/06/off-duty-corrections-officer-shoots.html">other reports say</a> one bullet hit him in the stomach). &quot;There was a lot of blood on the floor,&quot; Houston said. </p>
+
+<p>The shots sent the 15-20 people in the store ducking for cover: &quot;People were running all over the place,&quot; Mark Levy, owner of Carpet Discount Center Inc. next door, <a href="https://web.archive.org/web/20120102221618/http://www.nydailynews.com/news/ny_crime/2011/06/04/2011-06-04_offduty_corrections_officer_shoots_customer_at_mcdonalds_in_brooklyn.html">told the News</a>. Another witness told them, &quot;He was acting weird and had a strung-out look in his eyes.&quot; The injured 36-year-old man was taken to the hospital and listed in critical condition.</p>

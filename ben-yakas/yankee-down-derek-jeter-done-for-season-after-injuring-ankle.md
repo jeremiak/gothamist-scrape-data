@@ -1,0 +1,21 @@
+---
+author: Ben Yakas
+date: Oct 14, 2012 12:10 pm
+title: Yankee Down: Derek Jeter Done For Season After Injuring Ankle
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="101412jeter.jpg" src="https://web.archive.org/web/20150428180443im_/http://gothamist.com/attachments/byakas/101412jeter.jpg" width="640" height="416"> <br> <i> Ouch! (AP)</i></div> <p></p>
+
+<p>No amount of <a href="https://web.archive.org/web/20150428180443/http://gothamist.com/2011/12/13/after_you_sleep_with_derek_jeter_yo.php">autographed baseballs</a> is going to make this one go down any easier: after rallying to tie the game in the bottom of the 9th inning last night, the Yankees ended up losing to the Detroit Tigers 6-4 in the first game of the ALCS. But even worse, seemingly invulnerable captain and ladies man <a href="https://web.archive.org/web/20150428180443/http://gothamist.com/tags/derekjeter">Derek Jeter</a> will miss the rest of the playoffs after <a href="https://web.archive.org/web/20150428180443/http://espn.go.com/new-york/mlb/story/_/id/8503365/2012-mlb-playoffs-derek-jeter-new-york-yankees-breaks-ankle-game-1-alcs">suffering a fractured left ankle</a> while trying to make a diving play in the climactic 12th inning. But at least they still have...A-Rod? Gulp.</p>
+
+<p>&#x201C;It is kind of a flashback to when Mo didn&#x2019;t get up,&#x201D; manager Joe Girardi <a href="https://web.archive.org/web/20150428180443/http://www.nytimes.com/2012/10/14/sports/baseball/yankees-without-jeter-is-now-a-jarring-reality.html?hp">said after the game</a>, referring to Mariano Rivera&apos;s injury <a href="https://web.archive.org/web/20150428180443/http://gothamist.com/2012/05/04/mo_no_mariano_rivera_tears_acl_duri.php#photo-1">earlier this season</a>. &#x201C;It brought me back there: &#x2018;Oh boy, if he is not getting up, something&#x2019;s wrong.&#x2019; &#x201D; &#x201C;We go from being elated &#x2014; we&#x2019;re back in this thing &#x2014; to losing Jeter,&#x201D; said Raul Ibanez, who hit the <a href="https://web.archive.org/web/20150428180443/http://deadspin.com/5951559/raul-can-definitely-lay-down-the-pipe-twitter-explains-ibanez">game-tying two-run home run</a> in the ninth. &#x201C;It&#x2019;s a huge blow. It was a very difficult thing to watch.&#x201D; </p>
+
+<p>&quot;For him to lay down on that field, I knew something was broke or torn completely,&quot; said Game 1 starter and Yankees veteran Andy Pettitte. &quot;When I saw him not get up, I knew he was done, really. That doesn&apos;t surprise me at all...It&apos;s bad. It&apos;s a bad loss. Obviously, it&apos;s your captain and we got a game tomorrow. We got to move forward and guys are going to step up to play out there. Just have to do a good job for us.&quot;</p>
+
+<p>It&apos;ll take Jeter at least three months recovery time to bounce back from the injury, ensuring he&apos;ll miss the rest of the playoffs regardless of how far the Yankees go. And who knows what kind of player Jeter will be <a href="https://web.archive.org/web/20150428180443/http://sports.yahoo.com/news/fractured-ankle-shatters-derek-jeter-s-aura-of-invincibility.html">when he returns</a>. General manager Brian Cashman said Jayson Nix would start in Jeter&#x2019;s place: &#x201C;The bottom line is Derek&#x2019;s down and I&#x2019;m in, so that&#x2019;s an opportunity for me,&#x201D; Nix said. &#x201C;It&#x2019;s time to do what I can do, and I&#x2019;m excited for it.&#x201D; </p>
+
+<p>Girardi summed up Jeter&apos;s toughness: &quot;Even when I went to the field and I was going to carry him in, and he said, &apos;No, don&apos;t carry me.&apos; That is the kind of guy he is,&quot; Girardi said. &quot;He is going to play through injuries and everything. And you can see the disappointment in his face. Everyone in this room knows who he is.&quot; He added sadly, &#x201C;I don&#x2019;t want to be without him. Nobody in that room wants to be without him. But we have to move on.&#x201D;</p>					
+										
+									
+				

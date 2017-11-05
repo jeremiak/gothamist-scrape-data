@@ -1,0 +1,11 @@
+---
+author: Ben Yakas
+date: October  8, 2010  4:07 PM
+title: Westboro Hate Freaks Hate Everyone...Except Ozzy
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="10810ozzy.jpg" src="https://web.archive.org/web/20110412160647im_/http://gothamist.com/attachments/byakas/10810ozzy.jpg" width="220" height="273" class="image-left"> </span>The Westboro Baptist Church hates Catholics, Muslims, Hindus, Jews, Michael Moore and homosexuals. But you know who they seem to not mind so much? Ozzy Osbourne.</p>
+
+<p>The hate group was in Washington yesterday, where the Supreme Court was <a href="https://web.archive.org/web/20110412160647/http://www.nydailynews.com/gossip/2010/10/08/2010-10-08_ozzy_osbourne_to_westboro_church_get_off_my_crazy_train.html">hearing arguments</a> on whether the church&apos;s practice of picketing military funerals with anti-gay placards is protected under free speech. While protesting outside the court, the Westboroians launched into a slightly re-worded version of Osbourne&apos;s classic, &quot;Crazy Train,&quot; updated to fit their anti-gay rhetoric: &quot;You&apos;re going straight to hell on your crazy train.&quot; Ozzy was pissed: <strong>&quot;I am sickened and disgusted by the use of &apos;Crazy Train&apos; to promote messages of hate and evil by a &apos;church,&apos;</strong>&quot; <a href="https://web.archive.org/web/20110412160647/http://www.eonline.com/uberblog/b204556_ozzy_osbourne_disgusted_by_anti-gay.html">he told E! Online</a>.</p>
+
+<p>The hate group is planning to <a hrfe="http://gothamist.com/2010/10/06/westboro_hate_freaks_make_their_mis.php">return to NYC</a> on Monday, to protest outside Jewish schools and temples in Kensington and Midwood, Brooklyn, and in Greenwich Village, as well as at a gala for a gay and lesbian support group in Tribeca. Their miserable visit to the city will likely be marked with plenty of counter-protests as well: &quot;This is a fringe group. These guys are crazy and the schools are nervous...I have to be there. There&apos;s a lesson to be learned that there are haters out there,&quot; <a href="https://web.archive.org/web/20110412160647/http://www.nydailynews.com/ny_local/2010/10/08/2010-10-08_hateful_protesters_bring_traveling_circus_to_city.html">said</a> Assemblyman Dov Hikind.</p>

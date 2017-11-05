@@ -1,0 +1,11 @@
+---
+author: Ben Yakas
+date: June  2, 2010  4:14 PM
+title: Republicans Pick Lazio To Face Cuomo
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:240px; "> <img alt="2010_06_lazio2.jpg" src="https://web.archive.org/web/20111212085346im_/http://gothamist.com/attachments/jen/2010_06_lazio2.jpg" width="240" height="273"> <br> <i>Photograph of Lazio after accepting the nomination by Mary Altaffer/AP</i></div> Today, the Republican Party formally <a href="https://web.archive.org/web/20111212085346/http://cityroom.blogs.nytimes.com/2010/06/02/republicans-tap-lazio-to-run-for-governor/?hp">selected</a> Rick Lazio as its preferred candidate for Governor in this fall&apos;s election. Lazio won nearly 60 percent of the vote in the first round of balloting at the convention, while opponent and former Democrat Steve Levy received only 28 percent, meaning he won&apos;t be able to run in a primary. Lazio will likely face a primary battle versus Tea Party-favorite Carl Paladino, who said he was also considering forming his own party. <p></p>
+
+<p>Lazio&apos;s nomination came in the midst of a lot of <a href="https://web.archive.org/web/20111212085346/http://gothamist.com/2010/06/02/high_drama_ahead_of_ny_gops_guberna.php">infighting and shouted barbs</a> amongst NY Republicans at the convention. Supporters of Steve Levy called him &quot;the only candidate that Prince Andrew is afraid of,&quot; while others mocked Levy with jeers, calling him a Democrat-in-disguise. (In case you&apos;re wondering about the Prince Andrew reference, he meant Cuomo, not Fergie&apos;s Andrew.)</p>
+
+<p>Republicans are realistic about the uphill battled Lazio has ahead of him against Democratic nominee Andrew Cuomo, who is far ahead in popularity and campaign fund-raising, but tried to look on the bright side. <strong>&#x201C;He&#x2019;s got a way to go, but Cuomo is so high right now, he can only go down,&#x201D;</strong> said Thomas D. Buchanan, the chairman of the Schenectady County Republican organization.</p>

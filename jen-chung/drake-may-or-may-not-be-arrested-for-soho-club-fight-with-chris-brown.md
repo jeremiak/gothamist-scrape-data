@@ -1,0 +1,27 @@
+---
+author: Jen Chung
+date: Jun 16, 2012 12:35 pm
+title: Drake May Or May Not Be Arrested For Soho Club Fight With Chris Brown
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2012_06_drakelondon.jpg" src="https://web.archive.org/web/20150506144926im_/http://gothamist.com/attachments/jen/2012_06_drakelondon.jpg" width="640" height="506"> <br> <i> An April photograph of Drake in London (Pacific Coast News)</i></div> <p></p>
+
+<p>The early Thursday morning <a href="https://web.archive.org/web/20150506144926/http://gothamist.com/2012/06/14/chris_brown_tweets_photo_of_injured.php">Rihanna-inspired brawl possibly between Chris Brown and Drake</a> (or Chris Brown&apos;s entourage and Drake&apos;s entourage or <a href="https://web.archive.org/web/20150506144926/http://gothamist.com/2012/06/15/chris_brown_and_drakes_club_clash_c.php">some combination of them</a>) continues to simmer with rumors that Drake will be arrested. Or won&apos;t be arrested.  The <a href="https://web.archive.org/web/20150506144926/http://www.nypost.com/p/news/local/manhattan/reckless_rap_for_drake_BUQqIc5JCrN36hueowS3LL?utm_source=SFnewyorkpost&amp;utm_medium=SFnewyorkpost">Post says cops want him</a>, while <a href="https://web.archive.org/web/20150506144926/http://www.tmz.com/2012/06/16/drake-arrest-chris-brown-bar-fight-bottle/">TMZ says the Post is wrong</a>.</p>
+
+<p><a href="https://web.archive.org/web/20150506144926/http://www.nypost.com/p/news/local/manhattan/reckless_rap_for_drake_BUQqIc5JCrN36hueowS3LL?utm_source=SFnewyorkpost&amp;utm_medium=SFnewyorkpost">The Post&apos;s sources say</a> that Drake &quot;is expected to be charged with reckless endangerment, sources said, after a witness told cops the hip-hopper hurled the projectile during the 4 a.m. mayhem Thursday at the SoHo hotspot W.i.P. The witness didn&#x2019;t believe Drake hit anyone with the bottle. If Drake doesn&#x2019;t agree to surrender by early next week, cops may arrest him during tonight&#x2019;s concert at Jones Beach, the sources said.&quot; </p>
+
+<p><a href="https://web.archive.org/web/20150506144926/http://www.tmz.com/2012/06/16/drake-arrest-chris-brown-bar-fight-bottle/">However, TMZ said</a>, &quot;We&apos;re told not only is it not true, cops have &apos;no suspects, complaints or arrest warrants at this time.&apos; According to the report, a single witness allegedly told cops Drake threw the bottle. Chris Brown&apos;s attorney, Mark Geragos, who has been vocal since the incident, claims he has evidence Drake threw glassware, though he has not been specific.&quot;  Come on, doesn&apos;t the NYPD want to arrest Drake <a href="https://web.archive.org/web/20150506144926/http://gothamist.com/2010/06/15/near_riot_nypd_shuts_down_drakes_se.php">for that South Street Seaport riot</a>?</p>
+
+<p>At least five people were injured in the melee at Soho nightclub WiP, which was apparently started when Brown ordered a bottle to be sent to Drake&apos;s table.  Then Drake allegedly sent Brown a note saying something along the lines of &quot;I&apos;m f---ing the love of your life,&quot; referring to Rihanna.  One witness&#x2014;who was with Brown&#x2014;claims that Drake and his group went over to Brown, &quot;They were giving him [Brown] the middle finger. They got into each other&#x2019;s faces and were shouting at each other. Chris told Drake to f--k off, and the next thing I could hear is the sound smashed glass and mayhem started.&quot;</p>
+
+<p><a href="https://web.archive.org/web/20150506144926/http://www.nydailynews.com/new-york/manager-soho-club-posses-chris-brown-drake-squared-rihanna-arrested-nypd-article-1.1096322">Another witness, Kenneth McCray, said</a>, &quot;Drake threw the bottle at Brown, but it missed him and hit his bodyguard. It looked like it was Drake that started throwing bottles,&quot; and added that Drake started throwing punches. McCrazy said that by the end, Brown was covered in blood and yelled at Drake,&quot;You f------ b----, you hit me with a bottle!&quot; Brown&apos;s lawyer Mark Geragos said his client needs eight stitches and Brown&apos;s bodyguard needed 18 stitches for this injuries.</p>
+
+<p>The police are also investigating whether there was gunfire: Police spokesman Paul Brown said, &quot;While none so far reported seeing a gun, several witnesses have told NYPD detectives that they heard what they believed was a gunshot inside the club during the disturbance.&quot;</p>
+
+<p>Injured clubgoers have been popping up, <a href="https://web.archive.org/web/20150506144926/http://gothamist.com/2012/06/14/photos_tourist_claims_she_was_hit_b.php">showing off their</a> <a href="https://web.archive.org/web/20150506144926/http://www.tmz.com/2012/06/16/chris-brown-drake-fight-veronica/">wounds to the press</a>, including San Antonio Spurs star Tony Parker. He <a href="https://web.archive.org/web/20150506144926/http://www.nydailynews.com/gossip/nba-superstar-tony-parker-injured-glass-fracas-rihanna-w-i-p-club-article-1.1096518">got a glass shard in the eye</a>. Parker says he&apos;s okay, it won&apos;t stop him from being in the Olympics.</p>
+
+<p><a href="https://web.archive.org/web/20150506144926/https://twitter.com/MrChuckD/status/213749680130105344">As Chuck D Tweeted</a>, &quot;Somebody should tell ChrisBrown-Drake cut that Bullsht leave bodyguards home get in the ring fight &amp; raise some $ for some youth centers,wtf&quot;</p>					
+										
+									
+				

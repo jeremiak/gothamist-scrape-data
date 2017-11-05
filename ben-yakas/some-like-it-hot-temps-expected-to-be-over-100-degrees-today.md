@@ -1,0 +1,25 @@
+---
+author: Ben Yakas
+date: Jul 7, 2012 11:20 am
+title: Some Like It Hot: Temps Expected To Be Over 100 Degrees Today
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="072211cat2.jpg" src="https://web.archive.org/web/20150722235054im_/http://gothamist.com/attachments/nyc_arts_john/072211cat2.jpg" width="640" height="480"> <br> <i> &quot;It&apos;s a living.&quot; (Flickr User Occipital Lobe)</i></div> <p></p>
+
+<p>If you&apos;re sitting there wondering if high blood pressure has gotten a hold of you, or if you&apos;ve been struck by Cupid&apos;s flaming arrow of love, you probably haven&apos;t&#x2014;NYC is gripping itself for triple-digit temperatures today. The National Weather Service has issued <a href="https://web.archive.org/web/20150722235054/http://www.weather.com/weather/alerts/localalerts/10025?phenomena=EH&amp;significance=W&amp;areaid=NYZ072&amp;office=KOKX&amp;etn=0002">an &quot;Excessive Heat Warning&quot;</a> for NYC, saying temps may feel as hot as 105 by this afternoon. Oh, and there&apos;s also <a href="https://web.archive.org/web/20150722235054/http://www.ny1.com/content/top_stories/164384/heat-continues-saturday--con-ed-lockout-could-cause-power-concerns">the possibility of power outages</a> amidst the ongoing Con Ed work stoppage. Can&apos;t keep from crying indeed: </p>
+
+<p><iframe width="640" height="480" src="https://web.archive.org/web/20150722235054if_/http://www.youtube.com/embed/XE2fnYpwrng" frameborder="0" allowfullscreen></iframe></p>
+
+<p>Con Ed and union Local 1-2 <a href="https://web.archive.org/web/20150722235054/http://www.reuters.com/article/2012/07/07/us-utilities-conedison-brownout-idUSBRE86602620120707">will resume talks</a> today, although there&apos;s still a lot of bad blood between the sides: &quot;Con Edison is acting irresponsible,&quot; union leaders told NY1. &quot;They really don&apos;t care about the citizens of New York. They don&apos;t care about the supervisors that work for them. And they sure don&apos;t care about the 8,000 members of mine that they&apos;ve locked out.&quot; In the meantime, you can check out all the Con Ed power outages <a href="https://web.archive.org/web/20150722235054/http://apps.coned.com/stormcenter_external/default.html">with this handy map.</a></p>
+
+<p>There are outages in Queens already this morning, and voltage <a href="https://web.archive.org/web/20150722235054/http://abclocal.go.com/wabc/story?section=weather&amp;id=8723640">has been reduced</a> by five percent in the southeast Bronx, including Parkchester, Soundview, Pelham Bay and Throgs Neck. Con Ed <a href="https://web.archive.org/web/20150722235054/http://gothamist.com/2012/07/05/brownout_bummer_con_ed_cuts_voltage.php">reduced voltage to Brooklyn</a> earlier this week as a precaution, and that hasn&apos;t changed yet. </p>
+
+<p>So our advice: stay inside if you&apos;ve got air conditioning, enjoy some <a href="https://web.archive.org/web/20150722235054/http://gothamist.com/2012/07/06/poopy_netflix.php#photo-1">terrible movies</a> <a href="https://web.archive.org/web/20150722235054/http://gothamist.com/2012/07/05/instant_entertainment_garths_picks.php#photo-1">on Netflix</a>. Or if you don&apos;t have A/C, it may be the perfect time to check out that Katy Perry movie everyone&apos;s raving about. There are also <a href="https://web.archive.org/web/20150722235054/http://gothamist.com/2012/06/22/a_cool_response_from_the_citys_cool.php">cooling centers</a>, <a href="https://web.archive.org/web/20150722235054/http://gothamist.com/2012/07/06/post_160.php#photo-1">public pools</a>, and <a href="https://web.archive.org/web/20150722235054/http://gothamist.com/2012/05/30/open_door_air_conditioning.php#photo-1">fancy stores</a> to visit. </p>
+
+<p>And if the city descends into chaos, you can always <a href="https://web.archive.org/web/20150722235054/http://gothamist.com/2012/07/02/summer_is_here_but_where_is_thong_g.php">strap on a thong</a> and storm the gates of a <a href="https://web.archive.org/web/20150722235054/http://gothamist.com/2012/07/06/pool_tyrants_are_tearing_rent_stabi.php">rent stabilized private pool.</a> Or be like this guy and ride through every open fire hydrant you can:</p>
+
+<center><object type="application/x-shockwave-flash" width="400" height="225" data="https://web.archive.org/web/20150722235054im_/http://www.flickr.com/apps/video/stewart.swf?v=109786" classid="clsid:D27CDB6E-AE6D-11cf-96B8-444553540000"> <param name="flashvars" value="intl_lang=en-us&amp;photo_secret=df7b22732e&amp;photo_id=7517481234"> <param name="movie" value="http://www.flickr.com/apps/video/stewart.swf?v=109786"> <param name="bgcolor" value="#000000"> <param name="allowFullScreen" value="true"><embed type="application/x-shockwave-flash" src="https://web.archive.org/web/20150722235054oe_/http://www.flickr.com/apps/video/stewart.swf?v=109786" bgcolor="#000000" allowfullscreen="true" flashvars="intl_lang=en-us&amp;photo_secret=df7b22732e&amp;photo_id=7517481234" height="225" width="400"></object></center>					
+										
+									
+				

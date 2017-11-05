@@ -1,0 +1,25 @@
+---
+author: Jen Chung
+date: Oct 20, 2015 2:52 pm
+title: All This Fattening Food Porn Is Overloading Our Brains, Says Science
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2015_10_pizza01.jpg" src="https://web.archive.org/web/20160320002432im_/http://gothamist.com/attachments/jen/2015_10_pizza01.jpg" width="640" height="632"> <br> <i> <a href="https://web.archive.org/web/20160320002432/https://instagram.com/p/7jF-2YjbDi/">Scott Lynch</a></i></div> <p></p>
+
+<p>Everyone loves <a href="https://web.archive.org/web/20160320002432/http://gothamist.com/2015/09/10/food_photos_phone_101.php">food porn photos</a>. Sure, some of us pretend we&apos;re following Chrissy Teigen&apos;s Instagram for her sexy pictures, but let&apos;s just admit that we&apos;re really in it for her <a href="https://web.archive.org/web/20160320002432/https://instagram.com/p/7DpcrFJjTO/?taken-by=chrissyteigen">appetizing culinary suggestions</a>. And now a scientist at Oxford University says our culture&apos;s deep lust for food porn may simply be too much stimulus for our primitive little brains. </p>
+
+<p>A team at Oxford University <a href="https://web.archive.org/web/20160320002432/http://www.sciencedirect.com/science/article/pii/S0278262615300178">wrote a study</a> about &quot;digital grazing&quot;&#x2014;&quot;Specifically, we question the impact that our increasing exposure to images of desirable foods (what is often labelled &#x2018;food porn&#x2019;, or &#x2018;gastroporn&#x2019;) via digital interfaces might be having, and ask whether it might not inadvertently be exacerbating our desire for food (what we call &#x2018;visual hunger&#x2019;).&quot;</p>
+
+<p>Dr. Christian Jarrett <a href="https://web.archive.org/web/20160320002432/http://nymag.com/scienceofus/2015/10/how-food-porn-hijacks-your-brain.html">breaks down the details in Science of Us</a>:</p><blockquote>According to Charles Spence and his team, the simple truth about the brain is that it evolved in large part as a way to direct us toward food, to help us hunt and forage for our elusive next meal. That&#x2019;s why we find merely looking at tasty food so rewarding, never mind eating it &#x2014; a phenomenon they term &#x201C;visual hunger.&#x201D; Today, food porn acts as a kind of &#x201C;super-stimulus,&#x201D; overloading a system that was built for a different age when you had to cook your supper on a fire rather than pop it in the microwave.<p></p>
+
+<p>Unfortunately, it&#x2019;s the high-fat, heart-attack food that really gets your brain worked up. Another study used a reaction-time task to show that high-fat food photos were much more effective at grabbing people&#x2019;s attention than low-fat foods. After a high-fat pic appeared on one side of a computer screen, viewers were much quicker to press a key to indicate the location of a simple circular target that appeared on the same side. This suggests the participants had apparently detected the fat content of the food quickly and automatically, and when it was high, their attention was rapidly deployed to the area.</p></blockquote><a href="https://web.archive.org/web/20160320002432/http://gothamist.com/2015/03/26/nugget_nachos_aww_yeah.php#photo-1">Chicken nugget nachos</a>? Sure! <a href="https://web.archive.org/web/20160320002432/http://gothamist.com/2015/09/15/sadelles_deli_sandwich.php#photo-1">$29 deli meat sandwich</a>? Yup. Standing in line for hours, if not days, for a year of free Chik-Fil-A? <a href="https://web.archive.org/web/20160320002432/http://gothamist.com/2015/10/03/the_chick-fil-a_first_100_sleep_ove.php#photo-1">DONE THAT</a>.<p></p>
+
+<p>Still, Spence and the others are hopeful that increased &quot;visual hunger&quot; can help encourage people to make healthier choices&#x2014;&quot;So, for example, young children&#x2019;s liking for vegetables can be increased simply by exposing them to pictures of those vegetables.&quot; Or it may guide public health officials to figure out how to present healthy food options in more appealing ways. Attention, public health officials, here are some free tips for pumping up your food porn:</p>
+
+<p><iframe frameborder="0" width="640" height="360" src="//web.archive.org/web/20160320002432if_/http://www.dailymotion.com/embed/video/x35mtdh" allowfullscreen></iframe><br><a href="https://web.archive.org/web/20160320002432/http://www.dailymotion.com/video/x35mtdh_how-to-take-better-food-photos-with-your-phone_lifestyle" target="_blank">How To Take Better Food Photos With Your Phone</a> <i>by <a href="https://web.archive.org/web/20160320002432/http://www.dailymotion.com/Gothamist" target="_blank">Gothamist</a></i></p>
+
+<p>Also, posting pictures of delicious meals to Instagram <a href="https://web.archive.org/web/20160320002432/http://gothamist.com/2013/05/12/instagramming_your_food_can_get_you.php">can help the authorities solve crimes</a>.</p>					
+										
+									
+				

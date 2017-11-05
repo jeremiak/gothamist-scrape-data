@@ -1,0 +1,21 @@
+---
+author: Ben Yakas
+date: Jan 2, 2013 11:25 am
+title: Ex-Boyfriend Says Subway Shoving Suspect Has Long Hated Muslims
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="123012shover.jpg" src="https://web.archive.org/web/20150525003432im_/http://gothamist.com/attachments/byakas/123012shover.jpg" width="640" height="410"> <br> <i> <a href="https://web.archive.org/web/20150525003432/http://pix11.com/2012/12/29/subway-shove-suspect-charged-with-murder-and-hate-crime/">via WPIX</a></i></div> <p></p>
+
+<p>The suspect accused of <a href="https://web.archive.org/web/20150525003432/http://gothamist.com/2012/12/28/video_cops_say_this_woman_shoved_ma.php">shoving a man onto the subway tracks</a> in Queens last week <a href="https://web.archive.org/web/20150525003432/http://www.dnainfo.com/new-york/20130101/sunnyside/alleged-subway-pusher-erika-menendez-moved-psychiatric-ward">has been admitted to</a> the psychiatric jail ward for women at Elmhurst Hospital. Erika Menendez, 31, told police she fatally shoved 46-year-old Sunando Sen into the path of a 7 train <a href="https://web.archive.org/web/20150525003432/http://gothamist.com/2012/12/30/alleged_subway_shover_pushed_victim.php">because she hates</a> &quot;Hindus and Muslims ever since 2001 when they put down the twin towers I&#x2019;ve been beating them up.&#x201D; A former boyfriend <a href="https://web.archive.org/web/20150525003432/http://www.nydailynews.com/new-york/subway-push-suspect-clawed-face-article-1.1231252">told the Daily News</a> that Menendez has long hated Muslims: &quot;She would say, &#x2018;I can&apos;t stand being around these people,&#x2019;&quot; John Goelz said. &quot;I kept telling her you can&apos;t blame every person you see.&quot;</p>
+
+<p>Goelz, who dated Menendez nine years ago when they both attended Queensborough Community College, added: &quot;That&apos;s probably why she did poorly in school,&#x201D; added Goelz. &#x201C;She was too busy focusing on the people in her class instead of her work.&quot; There have been <a href="https://web.archive.org/web/20150525003432/http://www.cbsnews.com/8301-504083_162-57561492-504083/erika-menendez-suspect-in-nyc-subway-shoving-death-has-arrest-record-authorities-say/">several reports that Menendez </a><a href="https://web.archive.org/web/20150525003432/http://gothamist.com/2012/12/31/subway_shoving_suspect_attacked_ret.php">has a violent history</a>, and has had at least 14 run-ins with police over the last 12 years. One of those run-ins came when Menendez allegedly attacked Goelz after they got into an argument on April 21, 2003.</p>
+
+<p>&quot;I wanted to sign us up for some classes,&quot; Goelz said. &quot;She wanted to go hang out with a guy and smoke weed. She thought that was more important. I said, &apos;Are you kidding me?&apos;...She just all of a sudden snapped. She started ripping my face apart. She clawed my face apart.&quot; After police arrived, Goelz said Menendez tried to claim he hurt her, but they didn&apos;t buy it. The two broke up afterwards, but Goelz says Menendez called him a few months later claiming she&apos;d given birth to a boy that was his. &quot;I don&apos;t know if it was a lie or not,&quot; he said.</p>
+
+<p>Menendez also allegedly attacked retired firefighter (and former neighbor) Daniel Conlis when he was taking out his trash one night in 2003: &quot;She started charging at me,&quot; Conlisk told the News. &quot;She started clawing me in the face.&quot; Officials haven&apos;t commented on Menendez&apos;s mental state, but her mother, Maricela Mera, allegedly told cops that her daughter has been diagnosed with bipolar disorder. </p>
+
+<p>Goelz sounded surprised at the latest accusation against his ex: &quot;I know she can be violent because she attacked me and punched me and scratched me, but for her to do that seems out if whack,&quot; he said. &quot;She got crazy because of the relationship we had. For her to go off on a stranger, she&apos;d have to have something mentally wrong to do that.&quot;</p>					
+										
+									
+				

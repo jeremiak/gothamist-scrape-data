@@ -1,0 +1,19 @@
+---
+author: Ben Yakas
+date: Nov 28, 2012 5:20 pm
+title: Orthodox Brooklyn Girl Testifies That Hasidic Rabbi Made Her Perform Oral Sex For Years
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left"> <img alt="112812rabbi.jpeg" src="https://web.archive.org/web/20150530021218im_/http://gothamist.com/attachments/byakas/112812rabbi.jpeg" width="300" height="225"> <br> <i style=" width:300px; ;display:block"> Rabbi Nechemya Weberman (<a href="https://web.archive.org/web/20150530021218/http://newyork.cbslocal.com/2012/05/16/fundraiser-to-be-held-in-brooklyn-for-therapist-accused-of-sexually-abusing-young-girl/">via CBS</a>)</i></div> A Brooklyn girl testified yesterday in detail <a href="https://web.archive.org/web/20150530021218/http://www.nytimes.com/2012/11/27/nyregion/sexual-abuse-trial-of-nechemya-weberman-of-brooklyn-begins.html">that she was sexually abused by a Hasidic rabbi and counselor</a> for years. The teen, who is now 17, but was 12 when the alleged abuse started, had been sent to Rabbi Nechemya Weberman for counseling after she started questioning the strict rules of her ultra-Orthodox Hasidic Satmar sect. &#x201C;I wanted to die rather than live with myself,&#x201D; the woman <a href="https://web.archive.org/web/20150530021218/http://www.nydailynews.com/new-york/brooklyn/weberman-victim-wanted-die-live-article-1.1209170">said about the attacks</a>. &quot;I didn&apos;t know how to fight. I was numb.&quot;<p></p>
+
+<p><a href="https://web.archive.org/web/20150530021218/http://www.nypost.com/p/news/local/brooklyn/monster_rabbi_tD5EmkDN9iv4QAlpKT1yuN">She claims Weberman</a>, who is accused of 88 counts of sexual abuse of a minor, forced her to give him oral sex and inappropriately touched her from March 2007 to March 2010. Prosecutors say the victim grew up in an ultra-religious community that labelled her a &quot;heretic&quot; because she asked questions about God&#x2019;s existence and wore thin tights: &#x201C;You had to wear tights that are very thick so there&#x2019;s no way anybody can see your legs,&#x201D; she said. &#x201C;I was sent to the principal&#x2019;s office every day because my tights weren&#x2019;t thick enough.&#x201D;</p>
+
+<p>So her parents sent her to Weberman, who met her at his home; those sessions lasted up to four hours each, multiple times a week, for three years. During the first one, she didn&apos;t understand what Weberman was doing when he allegedly forced her to give him oral sex. &#x201C;My whole body froze,&#x2019;&#x2019; she recounted tearfully. </p>
+
+<p>The teen, who is now married, said her parents brought her to a rabbinical court in an unsuccessful attempt to convince her to drop the charges. &#x201C;When you think about it,&#x201D; her lawyer argued, the girl&#x2019;s parents &#x201C;were actually paying the defendant to have sex with their daughter,&#x201D; which he did, &#x201C;over and over again.&#x201D; But other relatives were there in support: &#x201C;The truth is shining through,&#x201D; Goldie Gold, the alleged victim&apos;s aunt, told the News. &#x201C;She was very brave, very courageous.&#x201D;</p>
+
+<p>Weberman&apos;s lawyers claim the victim made up the abuse to get back at Weberman for betraying her trust, and telling her parents she had a boyfriend. &#x201C;There was only one answer,&#x201D; said George Farkas, the defense lawyer, &#x201C;vengeance and revenge against Nechemya Weberman, and through this, to bring down the entire community that either supported him, or of which he was a part.&#x201D;</p>					
+										
+									
+				

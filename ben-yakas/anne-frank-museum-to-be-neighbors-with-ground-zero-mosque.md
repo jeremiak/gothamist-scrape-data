@@ -1,0 +1,9 @@
+---
+author: Ben Yakas
+date: March 27, 2011  5:50 PM
+title: Anne Frank Museum To Be Neighbors With "Ground Zero Mosque"?
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="32711frank.jpg" src="https://web.archive.org/web/20120120032711im_/http://gothamist.com/attachments/byakas/32711frank.jpg" width="225" height="218" class="image-left"> </span>The <a href="https://web.archive.org/web/20120120032711/http://gothamist.com/tags/park51">Park 51</a> project, better known erroneously to some as the Ground Zero Mosque, has had a controversial incubation period over the last eight months, as critics have protested it, Imams have come and gone, and funding has been hard to get. But despite all the roadblocks, the project is still moving forward allegedly. And now it seems it might have a strange next door neighbor: the Anne Frank Center.</p>
+
+<p>The museum is run by nonprofit <a href="https://web.archive.org/web/20120120032711/http://www.annefrank.com/">Anne Frank Center USA</a>, a partner of the Anne Frank Museum in Amsterdam, which offers educational programs about Anne Frank, the Holocaust and the history of World War II. According <a href="https://web.archive.org/web/20120120032711/http://www.nypost.com/p/news/local/manhattan/imams_girl_next_door_JYq5A7zDYgNHBHeMMEe9oI?CMP=OTC-rss&amp;FEEDNAME=">to the Post</a>, the group is on the verge of moving from 38 Crosby St. in SoHo and signing a lease at 100 Church St., which would overlook the planned Muslim community center and mosque at 45 Park Place. Between these two places, the more than 20 houses of worship below Canal Street and the 13 museums south of Chambers Street, some think lower Manhattan is becoming a cultural mecca: &quot;It&apos;s appropriate to have a mix of diverse organizations as a part of the lower Manhattan community. We want it to reflect the melting pot that is America,&quot; said Julie Menin, chairwoman of Community Board 1.</p>

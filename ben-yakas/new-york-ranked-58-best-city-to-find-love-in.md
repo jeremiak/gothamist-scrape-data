@@ -1,0 +1,12 @@
+---
+author: Ben Yakas
+date: Feb 8, 2010 5:03 pm
+title: New York Ranked #58 Best City To Find Love In
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="annie_hall_0210.jpg" src="https://web.archive.org/web/20150429075208im_/http://gothamist.com/attachments/arts_jen/annie_hall_0210.jpg" width="140" height="106" class="image-right"> </span>So yeah, <a href="https://web.archive.org/web/20150429075208/http://gothamist.com/2010/02/05/valentines_day_4.php">Valentine&apos;s Day</a> is around the corner, but big whoop, this is New York City, romance runs through our sewers practically&#x2014; we&apos;ve got <a href="https://web.archive.org/web/20150429075208/http://gothamist.com/2010/02/08/bow_bridge.php">romantic bridges</a>, we fall in love with <a href="https://web.archive.org/web/20150429075208/http://gothamist.com/2009/11/23/foot_model_suing_co-op_cant_keep_he.php">our doormen</a>, hell, there&apos;s a whole <a href="https://web.archive.org/web/20150429075208/http://www.huffingtonpost.com/2009/06/28/new-york-romance-movies-s_n_220929.html">genre of movies</a> about falling in love in NYC (or <em>with</em> NYC). But according to the scientists at <a href="https://web.archive.org/web/20150429075208/http://www.thedailybeast.com/blogs-and-stories/2010-02-07/best-and-worst-cities-to-find-love/6/">Daily Beast</a>, you&apos;re more likely to find love in Omaha, NE or Newark, NJ than here! It doesnt help that their rating system doesn&apos;t make much sense&#x2014;We get an A for &quot;marriage,&quot; but a D for &quot;divorce?&quot; Thankfully, the <a href="https://web.archive.org/web/20150429075208/http://www.nypost.com/p/news/local/love_doc_day_rx_for_singles_SWv9X0kcyjXPlmfpKVCsYK">Post</a> is on top of the situation; they point NYers to love guru Dr. Paul Dobransky, who &quot;charges up to $500 an hour for a personal session,&quot; and gives some particularly creepy tips to help men read women&apos;s &quot;attraction signals,&quot; like a relaxed jaw and tilted head: <strong>&quot;She&apos;s saying, &apos;I&apos;m exposing my most vulnerable area. I&apos;m trusting you with my safety.&apos; &quot;</strong><br>
+</p>					
+										
+									
+				

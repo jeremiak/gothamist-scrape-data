@@ -1,0 +1,24 @@
+---
+author: Jen Chung
+date: Aug 31, 2013 10:25 AM
+title: Pay To Play? Bill Thompson Invested City Money In His Donors' Funds
+---
+
+
+                            
+                            
+                            
+                            <p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2013_08_billthmps.jpg" src="https://web.archive.org/web/20130902194124im_/http://gothamist.com/attachments/jen/2013_08_billthmps.jpg" width="640" height="427"> <br> <i> Bill Thompson at a debate earlier this year (Getty Images)</i></div> <p></p>
+
+<p>While many of the mayoral race headlines are about <a href="https://web.archive.org/web/20130902194124/http://gothamist.com/2013/08/28/de_blasio_has_15-point_lead_over_qu.php">Christine Quinn&apos;s slide</a> and <a href="https://web.archive.org/web/20130902194124/http://gothamist.com/2013/08/30/bill_de_blasio_leads_another_poll_b.php">Bill de Blasio&apos;s ascendance</a>, one thing has remained constant: Former Comptroller Bill Thompson is in the hunt for a spot in a run-off. The latest polls show him in second or third place. But now the NY Times has presented a wrinkle for the Thompson campaign: In a front page (A1), above-the-fold story (<a href="https://web.archive.org/web/20130902194124/http://www.nytimes.com/images/2013/08/31/nytfrontpage/scan.pdf">PDF</a>), the Times found that <a href="https://web.archive.org/web/20130902194124/http://www.nytimes.com/2013/08/31/nyregion/thompson-donors-were-familiar-faces-to-comptrollers-office-records-show.html?partner=rss&amp;emc=rss&amp;_r=0">Thompson seemingly rewarded political donors</a> by investing NYC pension money in their funds, earning the donors rich fees. By the way, that&apos;s not what comptrollers <a href="https://web.archive.org/web/20130902194124/http://gothamist.com/2013/07/08/wtf_does_nycs_comptroller_do.php">are REALLY supposed to do</a>.</p>
+
+<p>The Times offers examples of Thompson donors, their meetings, and how much the city invested with the donors&apos; various money vehicles. The lead example is that of Tracy V. Maitland: After meeting Thompson in 2001, Maitland donated to his campaigns and even tried to get Thompson&apos;s wife the job as president of the ASPCA. Then in 2008, the Times reports that Thompson poured &quot;$324 million into Advent Capital Management, the firm Mr. Maitland founded. By the time Mr. Thompson left office, in 2009, Advent was earning $2 million a year in fees on those investments.&quot;</p>
+
+<p><a href="https://web.archive.org/web/20130902194124/http://www.nytimes.com/2013/08/31/nyregion/thompson-donors-were-familiar-faces-to-comptrollers-office-records-show.html?partner=rss&amp;emc=rss&amp;_r=0">The Times adds</a>:</p><blockquote>As he oversaw the city&#x2019;s $85 billion pension system, Mr. Thompson steered the funds into a diverse range of new investment categories, expanding from heavy concentrations in stocks and bonds into private equity, real estate and niche funds. Yet performance was lackluster: nationwide, more than half of large public pension funds outperformed the five city funds&#x2019; combined 4.84 percent return from 2002 through 2009, according to a widely used yardstick compiled by Wilshire Associates, an investment advisory firm. Meanwhile, the city&#x2019;s roster of fund managers, and their fees, tripled &#x2014; and Mr. Thompson collected more than $500,000 in campaign donations from them.</blockquote>In fact, at one point, the state was so concerned about how Thompson dealt with pension funds that &quot;that state regulators suggested his office be stripped of responsibility for investing them, a finding that casts his managerial record in an unflattering new light.&quot; (Some investments were apparently being made without his knowledge.)<p></p>
+
+<p>Thompson told the Times, &quot;No one received any favor based on a contribution. Everything was done on the merit,&quot; and said that while he did meet with political donors with financial investment firms, &quot;any investment that was done went through multiple hurdles.&quot; </p>
+
+<p>Thompson has <a href="https://web.archive.org/web/20130902194124/http://www.nydailynews.com/new-york/william-thompson-stood-citytime-scandal-unfolded-article-1.1386684">also been criticized for not auditing CityTime</a>, the city&apos;s payroll project that ballooned from $73 million to $700 million. Yesterday, his campaign launched a <a href="https://web.archive.org/web/20130902194124/http://politicker.com/2013/08/thompson-calls-out-bill-de-bliar/">website attacking de Blasio called &quot;Bill de Bliar.&quot;</a></p>
+                            
+                            
+                            

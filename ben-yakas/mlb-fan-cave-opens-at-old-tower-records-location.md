@@ -1,0 +1,17 @@
+---
+author: Ben Yakas
+date: Mar 30, 2011 2:02 pm
+title: MLB Fan Cave Opens At Old Tower Records Location
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="33011mlb.jpg" src="https://web.archive.org/web/20150906231742im_/http://gothamist.com/attachments/byakas/33011mlb.jpg" width="240" height="314" class="image-left"> </span>Earlier this year, <a href="https://web.archive.org/web/20150906231742/http://gothamist.com/2011/02/19/obsessed_with_baseball_get_paid_for.php">we heard</a> that fans had an opportunity to be paid to watch all 2,430 regular season MLB games, plus the playoffs, as part of MLB&apos;s Dreamjob program. This sisyphean task seemed like a bit much for us&#x2014;the mere thought of having to watch every Kansas City Royals <a href="https://web.archive.org/web/20150906231742/http://kansascity.royals.mlb.com/news/press_releases/press_release.jsp?ymd=20110322&amp;content_id=17071054&amp;vkey=pr_kc&amp;fext=.jsp&amp;c_id=kc">&quot;major league moment&quot;</a> filled us with dread and self-loathing. But it did appeal to some of you who wrote us for more info, erroneously thinking we were affiliated with Bud Selig. Now, MLB has announced the <strike>sacrifices</strike> winners of the contest, along with the location they&apos;ll spend the majority of their time for the next eight months.</p>
+
+<p>The MLB <a href="https://web.archive.org/web/20150906231742/http://www.nydailynews.com/ny_local/2011/03/30/2011-03-30_winners_of_mlb_contest_get_to_watch_tweet_all_baseball_games_in_trickedout_fan_c.html">announced</a> the opening of the MLB Fan Cave today, which will be located on the corner of East 4th and Broadway, in the space where the old Tower Records was in Greenwich Village. Out of a a pool of nearly 10,000 applicants, two men were chosen for the job: Mike O&#x2019;Hara, and his &quot;wingman&quot;, Ryan Wagner. The space will be host to a multitude of fan activities, including visits from MLB players, personalities and celebrities, parties, and musical performances. The cave was designed and created in part by <em>Extreme Makeover</em> star Paul DiMeo, and includes a pool table, bar, 50s diner, memorabilia museum, fantasy baseball counter, and pitch-speed tester.</p>
+
+<p>O&apos;Hara and Wagner will be responsible with watching every single game on 15 TVs in the cave, <a href="https://web.archive.org/web/20150906231742/http://twitter.com/MLBFanCave">tweet</a> their thoughts, be interviewed by MLB sportscasters, and have their &quot;daily adventures&quot; chronicled in online videos.  O&apos;Hara, a smalltime actor and member of &quot;punk&quot; band The Mighty Regis, won the contest with his <a href="https://web.archive.org/web/20150906231742/http://mlbfancave.mlb.com/video/play.jsp?topic_id=17160334">video submission</a>, which included his impressions of Adam Sandler and Christopher Walken while wearing his Yankees jacket and cap sitting in his old Yankee Stadium seats in front of his at-home wall of fame. O&apos;Hara, who grew up in Yonkers, currently has a girlfriend, but we&apos;ll see how that goes after thousands of hot dogs and beers to wash down miserable Baltimore Orioles games. Until then, bring on the major leagues:</p>
+
+<div style="text-align: center;"><iframe title="YouTube video player" width="640" height="510" src="https://web.archive.org/web/20150906231742if_/http://www.youtube.com/embed/13DfvdeH-io" frameborder="0" allowfullscreen></iframe></div>					
+										
+									
+				

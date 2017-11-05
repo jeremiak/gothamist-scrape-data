@@ -1,0 +1,15 @@
+---
+author: Ben Yakas
+date: Jul 14, 2010 3:57 pm
+title: Billy King Named New Nets GM
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:250px; "> <img alt="71410billyking.jpg" src="https://web.archive.org/web/20151030230540im_/http://gothamist.com/attachments/byakas/71410billyking.jpg" width="250" height="182"> <br> <i>Billy King, with &quot;The Answer&quot;</i></div> We already know that some players would rather <a href="https://web.archive.org/web/20151030230540/http://gothamist.com/2010/07/08/boozer_dipping_head_in_vat_of_acid.php">dip their head in a vat of acid</a> than join the NJ Nets, but someone&apos;s gotta collect those millions of dollars! Today, the <a href="https://web.archive.org/web/20151030230540/http://gothamist.com/tags/nets">Nets</a> announced that former 76ers GM Billy King will replace Rod Thorn as the Nets new GM in the Mikhail Prokhorov-era. &quot;He has all of the qualities we&apos;ve been looking for in a candidate:  professionalism, good relations with the league, players and agents, and strong communications skills. He will be an excellent fit with head coach Avery Johnson. Most importantly, Billy is ambitious.  He wants to win,&quot; <a href="https://web.archive.org/web/20151030230540/http://sports.espn.go.com/new-york/nba/news/story?id=5379705">said</a> Prokhorov.<p></p>
+
+<p>King worked for the 76ers for 10 seasons between &apos;97-&apos;07, and helped construct the team, led by Allen Iverson, that made it to the 2001 NBA Finals. Despite the good will that was brought to the squad when Prokhorov first took over, and the upcoming move to Brooklyn, the Nets have had anything but a pleasant <a href="https://web.archive.org/web/20151030230540/http://www.northjersey.com/sports/pro_sports/basketball/nets/98297209_Nets_look_to_solve_puzzle.html">off-season</a>: they didn&apos;t get their first choice to coach the team, they didn&apos;t get the number one pick in the draft, they weren&apos;t able to lure any big free agents to the team, and they weren&apos;t able to convince Thorn to stay on as GM. </p>
+
+<p>Still, Prokohorov isn&apos;t letting the <a href="https://web.archive.org/web/20151030230540/http://www.nydailynews.com/sports/basketball/2010/07/14/2010-07-14_billy_king_former_gm_of_philadelphia_76ers_hired_as_team_president_to_replace_ro.html">NJ blues</a> bring him down: &quot;We have excellent financial flexibility. We have trade-able assets and I&apos;m really optimistic for what is going to happen the next two or three years. We have good enough cap space for the next free agency. We have one year to train the young team and see what the progress is. So we have all the doors open. The job was great. Maybe from the PR point of view, especially fans feel a little sad. But for the future we feel really good.&quot;</p>					
+										
+									
+				

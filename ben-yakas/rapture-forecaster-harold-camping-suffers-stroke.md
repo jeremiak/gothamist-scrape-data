@@ -1,0 +1,15 @@
+---
+author: Ben Yakas
+date: June 12, 2011  3:00 PM
+title: Rapture Forecaster Harold Camping Suffers Stroke
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="61211camping.jpg" src="https://web.archive.org/web/20120118140931im_/http://gothamist.com/attachments/byakas/61211camping.jpg" width="640" height="481"> <br> <i>Harold Camping (AP)</i></div> <p></p>
+
+<p>It was only three weeks ago that <a href="https://web.archive.org/web/20120118140931/http://gothamist.com/tags/judgmentday">Judgment Day came a-knockin&apos;</a>, the righteous ascended to the heavens, and the rest of us were forced to contemplate our last months on Earth. Who would have thought hell would be filled with so many topless photos of <a href="https://web.archive.org/web/20120118140931/http://gothamist.com/tags/anthonyweiner">Anthony Weiner</a>! Except, of course, none of that came to be (except for the Weiner junk), and we&apos;re all still here. Now, Rapturologist <a href="https://web.archive.org/web/20120118140931/http://gothamist.com/tags/haroldcamping">Harold Camping</a> has been struck with a decidedly earthbound ailment: Camping <a href="https://web.archive.org/web/20120118140931/http://www.insidebayarea.com/top-stories/ci_18255207">has been hospitalized</a> after suffering a stroke on Thursday night.</p>
+
+<p>The 89-year-old evangelist and president of the Family Radio was the originator of the Doomsday prophecy <a href="https://web.archive.org/web/20120118140931/http://gothamist.com/2011/05/22/rapture_hangover_where_the_hell_is.php">which inspired many</a> to use their life savings to spread his false message. A neighbor who spoke to his wife Shirley Camping on Friday said he was recovering, and gave an update on his condition: &quot;His speech appears to be a little bit slurred but otherwise he&apos;s OK. [Shirley] said he was doing good...and the only thing that&apos;s affected is his speech.&quot; </p>
+
+<p>After his prophecy, which was based on a nonsensical mathematical interpretation of the Bible, failed to come to pass, Camping said he was &quot;flabbergasted.&quot; He then revised his prediction, <a href="https://web.archive.org/web/20120118140931/http://gothamist.com/2011/05/24/saturday_rapture_was_invisible_judg.php">calling May 21</a> an &quot;invisible judgment day,&quot; vowing that the Apocalypse would definitely come on October 21. </p>
+
+<p>Meanwhile in Malawi, a man has pleaded guilty to circulating false documents, after he was arrested for handing out leaflets predicting the end of the world published by Camping and Family Radio. &quot;<strong>Police opened a case for him for circulating false documents that threatened the peace and security of citizens,</strong>&quot; <a href="https://web.archive.org/web/20120118140931/http://www.straitstimes.com/BreakingNews/World/Story/STIStory_679124.html">said an official</a> with the magistrate&apos;s court in Chitipa district. It is the first reported court case over Camping&apos;s Rapture prediction.</p>

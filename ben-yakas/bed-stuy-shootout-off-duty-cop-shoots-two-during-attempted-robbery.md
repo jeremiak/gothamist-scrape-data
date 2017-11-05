@@ -1,0 +1,13 @@
+---
+author: Ben Yakas
+date: April 17, 2011  9:20 AM
+title: Bed-Stuy Shootout: Off-Duty Cop Shoots Two During Attempted Robbery
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:365px; "> <img alt="2011_04_officeshot.jpg" src="https://web.archive.org/web/20110623133653im_/http://gothamist.com/attachments/jen/2011_04_officeshot.jpg" width="365" height="268"> <br> <i>The scene outside the auto repair shop (WCBS 2)</i></div> An off-duty Triboro-Bridge and Tunnel Authority police officer was shot and wounded in a shootout with four would-be robbers in Brooklyn Saturday evening. The cop, Anthony Pressly, fired at them, injuring two.  It was initially thought that one of the would-be robbers was dead; <a href="https://web.archive.org/web/20110623133653/http://www.nypost.com/p/news/local/brooklyn/wounded_cop_drills_klyn_thugs_zWaH5e0PldqdGbxaGhZpCP?CMP=OTC-rss&amp;FEEDNAME=">a witness said</a>, &quot;People said, <strong>&apos;Oh, s- -t! He&apos;s dead.&apos; </strong>[His] body was on the other side and the police were flipping the body over.&quot; <p></p>
+
+<p>The four armed men were apparently trying to rob the <a href="https://web.archive.org/web/20110623133653/http://www.manta.com/c/mmfbvdx/dsg-auto-repair">DSG Auto Repair</a> shop at 74 Albany Avenue in Bedford Stuyvesant. Pressly and others inside the shop were ordered to the ground. The Post reports, &quot;When Pressly, a 10-year veteran, saw that the suspects were rifling through people&apos;s pockets, he pulled out his service revolver, identified himself as a cop and ordered the thugs to drop their weapon.&quot;  Then, it turned into a shootout. </p>
+
+<p><a href="https://web.archive.org/web/20110623133653/http://www.nydailynews.com/news/ny_crime/2011/04/17/2011-04-17_1_dead__cop_shot.html">Another witness said</a>, &quot;I heard about five, six shots. When I opened the door, I seen three guys running from his shop and I seen one on the floor. He was not moving at all.&quot; According to the Daily News, &quot;One was nabbed inside the shop and another managed to limp away from the scene and stumbled into Interfaith Medical Center across the street, sources said.&quot;</p>
+
+<p>Pressly was hit in the shoulder, but was taken to the hospital in stable condition. His mother proudly <a href="https://web.archive.org/web/20110623133653/http://www.nypost.com/p/news/local/brooklyn/wounded_cop_drills_klyn_thugs_zWaH5e0PldqdGbxaGhZpCP">told the Post</a>, &quot;I&apos;m not really surprised, that&apos;s the type of person he is.  He&apos;s a hero. He&apos;s brave. If he could help anyone, he would.&quot;</p>

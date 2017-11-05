@@ -1,0 +1,19 @@
+---
+author: Ben Yakas
+date: Sep 22, 2013 12:00 pm
+title: Few Teens Who Trashed Ex-NFL Player's House Show Up To Help Clean
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="92013football.jpeg" src="https://web.archive.org/web/20150426151814im_/http://gothamist.com/attachments/byakas/92013football.jpeg" width="640" height="480"> <br> <i> Some of the teens, <a href="https://web.archive.org/web/20150426151814/http://helpmesave300.com/">via</a></i></div> <p></p>
+
+<p>Former pro football player Brian Holloway&apos;s Labor Day weekend was ruined after <a href="https://web.archive.org/web/20150426151814/http://gothamist.com/2013/09/19/ex-football_player_shames_teens_who.php">he discovered that hundreds of teens had broken into his upstate NY home</a> for a massive party which caused thousands of dollars of damage. Holloway, a former Patriots and Raiders offensive lineman, ended up re-posting photographs of many of the teens on a site called <a href="https://web.archive.org/web/20150426151814/http://helpmesave300.com/">HelpMeSave300.com</a> in an attempt to &quot;teach our kids to be accountable.&quot; He <a href="https://web.archive.org/web/20150426151814/http://gothamist.com/2013/09/20/parents_of_teens_who_trashed_ex-nfl.php">also asked for the teens</a> to come to a picnic for veterans at the home on Saturday and help clean it up. In the end, <a href="https://web.archive.org/web/20150426151814/http://hudsonvalley.ynn.com/content/news/697357/few-teens-return-to-clean-up-holloway-s-home/">YNN reports</a> only a few teens showed up. &quot;I still feel like we&apos;re going to be harassed on Twitter,&quot; said one of them, 16-year-old Mikaela Byrnes, &quot;but I guess we&apos;re not going to look as bad?&quot;</p>
+
+<p>&quot;I appreciate you guys being here,&quot; Holloway told three of the teens, whom he hugged outside the vandalized home. &quot;I&apos;ll yell at you later, but now&apos;s not the time for that.&quot; He asked them to tweet about their experience helping to repair his home, and asked them to reach out to their classmates and other fellow partygoers: &quot;They&apos;re carrying a lot of weight, right? That&apos;s bad,&quot; he said. &quot;There&apos;s some that are scared, that are overwhelmed, that are frightened.&quot;</p>
+
+<p>Holloway, who lives primarily in Tampa now, <a href="https://web.archive.org/web/20150426151814/http://gothamist.com/2013/09/20/parents_of_teens_who_trashed_ex-nfl.php">told us on Friday that</a> he estimates there is $20-40K in damage to the house, including smashed windows and glass doors, an &quot;enormous amount&quot; of graffiti, urine-soaked carpets, holes in the ceilings, and a stolen eagle statue (which has since been returned). He also said that many parents of the teens who vandalized the home have threatened him with lawsuits for re-posting their Tweets and Instagrams of the party.</p>
+
+<p>There&apos;s another new wrinkle for Holloway: <a href="https://web.archive.org/web/20150426151814/http://www.tmz.com/2013/09/22/brian-holloway-patriots-party-house-foreclosure-new-york/">anonymous neighbors complained to TMZ</a> that the house was already in disrepair and in foreclosure. These anonymous neighbors, who sound like they could be bitter parents of some of those teens, say &quot;the kids who Brian is now attacking are getting a bad rap. They say there was already plenty of damage to the home before the party in question.&quot; They add that, &quot;before the blow-out bash, neighbors say kids staged a number of parties in the house -- which has no furniture.&quot;</p>					
+										
+									
+				

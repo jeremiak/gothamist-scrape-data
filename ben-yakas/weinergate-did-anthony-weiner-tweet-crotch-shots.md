@@ -1,0 +1,19 @@
+---
+author: Ben Yakas
+date: May 29, 2011 10:35 am
+title: Weinergate: Did Anthony Weiner Tweet Crotch Shots?
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:400px; "> <img alt="52911weiner.jpg" src="https://web.archive.org/web/20160901071330im_/http://gothamist.com/attachments/byakas/52911weiner.jpg" width="400" height="196"> <br> <i>Anthony Weiner, and the weiner picture in question</i></div> Was <a href="https://web.archive.org/web/20160901071330/http://gothamist.com/tags/anthonyweiner">Rep. Anthony Weiner&apos;s</a> Twitter account hacked into Friday night, or did the self-effacing politician pull the ultimate weiner joke? According <a href="https://web.archive.org/web/20160901071330/http://biggovernment.com/publius/2011/05/28/weinergate-congressman-claims-facebook-hacked-as-lewd-photo-hits-twitter/">to BigGovernment</a>, there was a picture of a man in his underwear with an erection tweeted on Weiner&apos;s account on Friday night. Weiner <a href="https://web.archive.org/web/20160901071330/http://www.politico.com/news/stories/0511/55877.html">told Politico</a> that social networking identity hacking was to blame, but it&apos;s just like Joan Didion once said: &quot;The willingness to accept responsibility for one&apos;s own Twitter account is the source from which self-respect springs.&quot;<p></p>
+
+<p>Soon after the lewd picture was published, Weiner <a href="https://web.archive.org/web/20160901071330/http://twitter.com/#!/RepWeiner/status/74337670263877632">tweeted</a>: &quot;Tivo shot. FB hacked. Is my blender gonna attack me next? #TheToasterIsVeryLoyal.&quot; He followed that with another <a href="https://web.archive.org/web/20160901071330/http://twitter.com/#!/RepWeiner/status/74582925932376065">jokey response</a> to the incident: &quot;Touche Prof Moriarity. More Weiner Jokes for all my guests! #Hacked!&quot;</p>
+
+<p>Weiner emailed Politico that he thought it was obvious that he had been hacked: &#x201C;The weiner gags never get old, I guess,&#x201D; he wrote. <a href="https://web.archive.org/web/20160901071330/http://www.nypost.com/p/news/local/queens/undies_in_twist_over_weiner_wiener_HznNI7XvjWgn9Lm2Xuq5pK?CMP=OTC-rss&amp;FEEDNAME=">According to</a> spokesman David Arnold, Weiner got a message about a week ago from Facebook alerting him that his password might have been tampered with, but the warning was ignored, and the hackers eventually broke into his FB and Twitter accounts. </p>
+
+<p>But <a href="https://web.archive.org/web/20160901071330/http://biggovernment.com/driehl/2011/05/28/rep-weiner-spokesperson-lies-to-new-york-post/">BigGoverment thinks</a> Arnold was lying to the Post, and only raised more questions about &quot;this rapidly developing story.&quot; As <a href="https://web.archive.org/web/20160901071330/http://gawker.com/5806545/did-anthony-weiner-tweet-pic-of-his-weiner">Gawker points out</a>, conservative bloggers are convinced that the picture is evidence that Weiner is having an affair, possibly with a journalism student in Seattle who once referred to Weiner as &quot;her boyfriend&quot; on Twitter. </p>
+
+<p><a href="https://web.archive.org/web/20160901071330/http://www.dailykos.com/story/2011/05/28/979547/-Brietbart-to-use-SEX-SMEAR-on-Rep-Anthony-Weiner-Push-back-needed">Daily KOS says</a> that the whole incident was a set-up by Andrew Brietbart, who runs BigGovernment site, and he has been taunting Weiner on Twitter saying he has &quot;much more&quot; scandalous material to reveal...but could anything be more daming than a certain infamous <a href="https://web.archive.org/web/20160901071330/http://gothamist.com/2010/08/19/anthony_weiner_honor_the_jewfro_70s.php">HS photo</a>???</p>					
+										
+									
+				

@@ -1,0 +1,38 @@
+---
+author: Jen Chung
+date: Jul 7, 2016 1:35 pm
+title: Gretchen Carlson's Lawyers Challenge Roger Ailes To Deny Sexual Harassment Allegations Under Oath
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2016_07_gcra.jpg" src="https://web.archive.org/web/20171016020542im_/http://gothamist.com/attachments/jen/2016_07_gcra.jpg" width="640" height="463"> <br> <i> Gretchen Carlson (AP); Roger Ailes (Getty Images)</i></div> <p></p>
+
+<p>Yesterday, former Fox News personality <a href="https://web.archive.org/web/20171016020542/http://gothamist.com/2016/07/06/gretchen_carlson_roger_ailes.php">Gretchen Carlson filed a bombshell lawsuit</a> alleging Fox News Chairman Roger Ailes of a pattern of sexual harassment, including demands that she sleep with him and demoting her when she refused. While Ailes insists the claims are baseless, <a href="https://web.archive.org/web/20171016020542/http://variety.com/2016/tv/news/roger-ailes-fox-news-internal-reviews-sexual-harassment-1201809558/">Fox News&apos; parent company says</a> it has &quot;commenced an internal review of the matter.&quot;</p>
+
+<p>The lawsuit was filed yesterday morning in New Jersey, as Ailes, the only person named in the suit, has a residence in Cresskill, NJ. <a href="https://web.archive.org/web/20171016020542/http://www.nytimes.com/2016/07/07/business/media/gretchen-carlson-fox-news-roger-ailes-sexual-harassment-lawsuit.html">The NY Times notes</a>, &quot;Ms. Carlson&#x2019;s announcement of her lawsuit on Wednesday was carefully coordinated. A public relations firm distributed copies of the complaint to reporters across a variety of disciplines. Shortly afterward, on Twitter, Ms. Carlson offered thanks for an &apos;outpouring of support&apos; and introduced a hashtag: #StandWithGretchen. By the afternoon, a link to her lawsuit was prominently posted on her personal website.&quot;</p>
+
+<p>The lawsuit&apos;s details include Ailes allegedly telling Carlson, &quot;I think you and I should have had a sexual relationship a long time ago and then you&#x2019;d be good and better and I&#x2019;d be good and better&quot;; telling her she was a &quot;man hater&quot; when she complained about Fox and Friends co-host Steve Doocy&apos;s &quot;belittling&quot; behavior; and moving her to a less-desirable afternoon news slot with no marketing support, with corresponding pay cut.</p>
+
+<p>It took until the evening for Ailes to send a statement, via Fox News&apos; media relations team; <a href="https://web.archive.org/web/20171016020542/http://www.politico.com/media/story/2016/07/outfoxed-004650">Politco says</a>, &quot;Fox News was enveloped in silence for most of Wednesday... [S]even hours came and went without word from the network. And when it came, initially from parent network 21st Century Fox, it was a surprise: A promise to conduct an internal investigation of Carlson&#x2019;s claim that Ailes repeatedly made inappropriate comments about her looks and then declined to renew her contract for refusing to sleep with him. The network also vowed to look into her depiction of her former &apos;Fox &amp; Friends&apos; co-host, Steve Doocy, as a sexist colleague who treated her like &apos;a blond female prop.&apos;&quot;</p>
+
+<center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">Per <a href="https://web.archive.org/web/20171016020542/https://twitter.com/gabrielsherman">@gabrielsherman</a>&apos;s biography, here&apos;s what Roger Ailes said about Gretchen Carlson winning Miss America <a href="https://web.archive.org/web/20171016020542/https://t.co/8e7obGXnDD">pic.twitter.com/8e7obGXnDD</a></p>&#x2014; Tom Kludt (@TomKludt) <a href="https://web.archive.org/web/20171016020542/https://twitter.com/TomKludt/status/750710558014537728">July 6, 2016</a></blockquote>
+<script async src="//web.archive.org/web/20171016020542js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<p>The statement that Ailes sent read, &quot;Gretchen Carlson&#x2019;s allegations are false. This is a retaliatory suit for the network&#x2019;s decision not to renew her contract, which was due to the fact that her disappointingly low ratings were dragging down the afternoon lineup. When Fox News did not commence any negotiations to renew her contract, Ms. Carlson became aware that her career with the network was likely over and conveniently began to pursue a lawsuit. Ironically, FOX News provided her with more on-air opportunities over her 11 year tenure than any other employer in the industry, for which she thanked me in her recent book. This defamatory lawsuit is not only offensive, it is wholly without merit and will be defended vigorously.&quot;</p>
+
+<p>Today Carlson&apos;s attorneys Nancy Erika Smith and Martin Hyman countered:</p><blockquote>&quot;Ailes&#x2019; claim that Gretchen Carlson was terminated because of bad ratings is demonstrably false. The publicly available ratings confirm the allegation in the Complaint that at the time of her termination Gretchen&#x2019;s total viewership was up 33% year to date and up 23% in the key demographic. After her firing from Fox and Friends for complaining about discrimination, Gretchen was moved to a challenging time slot and denied support and promotion.  Despite this, she succeeded and was the number one cable news show in her time slot in total viewers.<br>
+ <br>
+&quot;Regarding Ailes&#x2019; claims that Gretchen&#x2019;s allegations are false, we challenge him to deny, under oath, that he made the statements attributed to him in the Complaint. <br>
+ <br>
+&quot;Finally, Ailes does not allow his employees to speak to the press or publish anything without prior approval. Gretchen was chastised for answering a question from a hometown newspaper about her favorite Minnesota State Fair food.  In her book Gretchen told her story while trying to keep her job - knowing that Ailes had to approve what she said.&quot; </blockquote>In her memoir, published last year, Carlson described Ailes as &quot;the most accessible boss I&#x2019;ve ever worked for.&quot;<p></p>
+
+<p>Currently, the lawsuit, which alleges the Ailes violated NYC&apos;s Human Rights Law, is only against Ailes. <a href="https://web.archive.org/web/20171016020542/http://www.hollywoodreporter.com/thr-esq/gretchen-carlson-lawyer-says-fox-908784">Smith said</a> that Carlson&apos;s only &quot;beef&quot; is with Ailes, but they would consider adding Fox News to the lawsuit if they stand by him. </p>
+
+<p>A former Fox News staffer told Politico, &quot;Everyone on staff knew about or saw Doocy make inappropriate comments, but most people just rolled their eyes at it.&quot; Another Fox and Friends factoid: Apparently Carlson was <a href="https://web.archive.org/web/20171016020542/http://mediamatters.org/video/2013/09/19/former-host-gretchen-carlson-pants-were-not-all/195973">not allowed to wear pants on the program</a>.</p>
+
+<p><iframe width="640" height="360" src="https://web.archive.org/web/20171016020542if_/https://www.youtube.com/embed/GIyzYU3oF1g" frameborder="0" allowfullscreen></iframe></p>
+
+<p>Ailes is the founding CEO of Fox News; however, owner Rupert Murdoch&apos;s sons, who are taking on more leadership roles in the company, <a href="https://web.archive.org/web/20171016020542/https://www.washingtonpost.com/news/the-fix/wp/2015/12/01/roger-ailes-and-rupert-murdochs-sons-arent-exactly-best-friends-yet/">do not get along with Ailes</a>.</p>					
+										
+									
+				

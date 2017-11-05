@@ -1,0 +1,21 @@
+---
+author: Jen Chung
+date: Jun 12, 2013 12:45 pm
+title: Family Of 4-Yr-Old Killed By Unlicensed Teen Driver Will Sue City For $40 Million
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-right"> <img alt="2013_05_arusso.jpg" src="https://web.archive.org/web/20160303213120im_/http://gothamist.com/attachments/jen/2013_05_arusso.jpg" width="365" height="298"> <br> <i style=" width:365px; ;display:block"> Ariel Russo</i></div> The family  grieving the death of their four-year-old daughter, who was fatally crushed by an <a href="https://web.archive.org/web/20160303213120/http://gothamist.com/2013/06/06/unlicensed_teen_driver_who_killed_4_1.php">unlicensed 17-year-old SUV driver</a>, is now going to sue the city for $40 million.<p></p>
+
+<p><a href="https://web.archive.org/web/20160303213120/http://gothamist.com/2013/06/07/more_terrible_news_about_4-yr-old_k.php">Last week, it was revealed</a> that there were delays in the 911 system for an ambulance to be sent to the Upper West Side intersection where Ariel Russo and her grandmother were struck by Franklin Reyes, who was driving his parents&apos; car.  The child and grandmother, who were walking to Ariel&apos;s preschool, were pinned against a restaurant when the <a href="https://web.archive.org/web/20160303213120/http://gothamist.com/2013/06/04/4-yr-old_fatally_struck_on_upper_we.php">SUV jumped the curb</a>. </p>
+
+<p>The <a href="https://web.archive.org/web/20160303213120/http://www.nydailynews.com/opinion/gonzalez-delay-911-system-claimed-life-article-1.1365678?localLinksEnabled=false">Daily News&apos; Juan Gonzalez wrote</a>, &quot;Logs of 911 calls obtained by the Daily News, as well as interviews with emergency responders, show that it took an unusually long 4 minutes and 18 seconds from the time of the first request for an ambulance from police at the scene to a 911 operator, until the time an ambulance was finally dispatched. Once FDNY and EMS dispatchers received and acknowledged the transmission, it took 3 minutes and 52 seconds to dispatch an ambulance and for it to arrive at the scene.&quot; </p>
+
+<p>The FDNY claimed it was human error, because a dispatcher went off shift and missed the message, but the EMS union head Israel Miranda <a href="https://web.archive.org/web/20160303213120/http://www.ny1.com/content/top_stories/183428/fdny--ems-union-debate-reason-for-slow-response-to-fatal-manhattan-crash">blamed the city&apos;s 911 system</a>, which has a <a href="https://web.archive.org/web/20160303213120/http://gothamist.com/2012/05/04/mayors_office_releases_edited_still.php">history of glitches.</a>  The NYPD has also been <a href="https://web.archive.org/web/20160303213120/http://gothamist.com/2013/06/06/unlicensed_teen_driver_who_killed_4_1.php">blamed by some lawmakers and residents,</a> because Reyes had fled from an earlier traffic stop (for making an illegal turn) and the cops were pursuing him in a busy neighborhood.</p>
+
+<p><a href="https://web.archive.org/web/20160303213120/http://www.nydailynews.com/new-york/family-girl-4-prepares-40-million-suit-city-911-system-article-1.1369938">According to the News</a>, Ariel&apos;s family&apos;s lawsuit &quot;charges the defendants.... were careless and negligent in the child&#x2019;s heartbreaking death,&quot; with lawyers &quot;[citing] the city&#x2019;s failure to quickly transport the mortally injured girl and her grandmother to a hospital after the crash... The multimillion-dollar filing is expected to name the FDNY, the NYPD, the Emergency Medical Service and the owners of the crash vehicle &#x2014; presumably the teen&#x2019;s parents.&quot; The suit is asking for $20 million for Ariel&apos;s and $20 million for her grandmother&apos;s injuries, which include a broken back. </p>
+
+<p>Russo&apos;s mother Sofia told the News, &quot;It took too long for them to get there. No other child should die because it takes too long. The ambulance system has to be fixed for the children of New York.&quot; She also wants Reyes to serve &quot;the maximum sentence&quot; for the fatal crash.</p>					
+										
+									
+				

@@ -1,0 +1,19 @@
+---
+author: Ben Yakas
+date: Apr 14, 2011 12:46 pm
+title: Cop Who Shot Pace Student Given "Officer Of The Year" Award
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="41411henry.jpg" src="https://web.archive.org/web/20150408191700im_/http://gothamist.com/attachments/byakas/41411henry.jpg" width="230" height="428" class="image-left"> </span>Last fall, 20-year-old Pace University student <a href="https://web.archive.org/web/20150408191700/http://gothamist.com/tags/danroyhenry">Danroy Henry</a> was shot and killed by police after hitting a cop with his car amidst a chaotic Westchester night. In February, a Westchester grand jury ultimately <a href="https://web.archive.org/web/20150408191700/http://gothamist.com/2011/02/15/no_indictment_in_fatal_police_shoot.php">declined</a> to bring charges against the two police officers who fatally shot him. And now, one of those officers <a href="https://web.archive.org/web/20150408191700/http://www.nypost.com/p/news/local/fury_at_top_cop_award_8BzSd5wZbYNjqiyTpdzY1H?CMP=OTC-rss&amp;FEEDNAME=">has been given</a> the &quot;Officer of the Year&quot; award by his union, and the decision has enraged Henry&apos;s parents: <strong>&quot;It&apos;s consistent with the arrogant behavior and the insensitivity we have received since October 17</strong>,&quot; said the victim&apos;s mother, Angella Henry.</p>
+
+<p>The Pleasantville Police Benevolent Association gave the award to Officer Aaron Hess last week, and said he was honored for the &quot;dignified and professional manner [he&apos;s] conducted himself throughout his career and this ordeal.&quot; Even so, the union chief <a href="https://web.archive.org/web/20150408191700/http://www.lohud.com/article/20110414/NEWS02/104140403/PBA-defends-Officer-Year-award-cop-who-shot-Pace-s-Danroy-Henry?odyssey=tab|topnews|text|Frontpage">told LoHud</a> that news of the award was never meant to be public. &quot;The [PBA] did not seek to create a public spectacle by this award, elicit media attention or additional public support for Aaron Hess, or offend the Henry family, whose continuing grief is obvious and understandable,&quot; Officer Matthew Listwan said.</p>
+
+<p>Instead, Henry&apos;s parents <a href="https://web.archive.org/web/20150408191700/http://www.nytimes.com/2011/04/14/nyregion/officer-who-shot-danroy-henry-gets-police-union-award.html?partner=rss&amp;emc=rss">say it was</a> a slap in the face: &quot;The people of Westchester should be concerned that an officer killed someone and be named Officer of the Year. If they&apos;re rewarded for that, I think it&apos;ll happen again,&quot; Angella Henry said. &#x201C;We simply asked for truth and honesty, and we&#x2019;ve gotten arrogance. Some people see themselves above the law and above simple human dignity,&#x201D; said Henry&apos;s father, Danroy Henry Sr.</p>
+
+<p>Henry and his teammates had been celebrating after they played their homecoming game against Stonehill College on the fateful night of October 17. When a &quot;rowdy&quot; scene erupted, Henry and his friends tried to leave as police arrived. According to the police report, Hess was first hit by Henry, who was driving. Hess, while on the hood of the car, fired at Henry multiple times because Henry wouldn&apos;t stop. Then Henry also drove into Mount Pleasant Officer Ronald Beckley, who fired once. But it was one of Hess&apos; bullets that killed Henry. </p>
+
+<p>Despite the grand jury declining to prosecute, Henry&apos;s family <a href="https://web.archive.org/web/20150408191700/http://gothamist.com/2011/01/12/parents_of_slain_pace_student_plan.php">have filed</a> a $120 million wrongful-death lawsuit, and have asked the feds to investigate whether Henry&apos;s civil rights were violated during the incident.</p>					
+										
+									
+				

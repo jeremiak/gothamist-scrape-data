@@ -1,0 +1,9 @@
+---
+author: Ben Yakas
+date: May  8, 2011  4:05 PM
+title: New Playground At PS 29 Set On Fire Last Night
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:260px; "> <img alt="5811ps29fire.jpg" src="https://web.archive.org/web/20111225204518im_/http://gothamist.com/attachments/byakas/5811ps29fire.jpg" width="260" height="195"> <br> <i><a href="https://web.archive.org/web/20111225204518/http://carrollgardens.patch.com/articles/late-night-fire-at-ps-29-destroys-new-playground#c">Carroll Gardens Patch</a></i></div> Early this morning, vandals set playground equipment at the recently renovated PS 29 on fire. Building manager John Russo told <a href="https://web.archive.org/web/20111225204518/http://carrollgardens.patch.com/articles/late-night-fire-at-ps-29-destroys-new-playground#c">Carrol Gardens Patch</a> he was planning to call the contractor who built the playground to see if any of it was salvageable. &quot;<strong>This is just heartbreaking. We haven&apos;t even finished painting yet,</strong>&quot; said parent Lisa Trollb&#xE4;ck.<p></p>
+
+<p>According to <a href="https://web.archive.org/web/20111225204518/http://bococaland.com/blog/2011/05/08/fire-burns-brand-new-ps-29-playground-in-cobble-hill/">Bococa Land</a>, someone was parking their car outside the playground last night around 12:30 a.m. and &quot;saw 20 ft flames emanating from the schoolyard. They called the fire department and the police are now investigating.&quot; Carroll Gardens Patch adds that according to an e-mail circulated by the school PTA, there was also vandalism around the school. You can see more photos of the damaged playground, including melted slides and burnt pavement, <a href="https://web.archive.org/web/20111225204518/http://carrollgardens.patch.com/articles/late-night-fire-at-ps-29-destroys-new-playground#photo-5973619">here</a>.</p>

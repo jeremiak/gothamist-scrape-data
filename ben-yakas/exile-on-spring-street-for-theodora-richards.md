@@ -1,0 +1,19 @@
+---
+author: Ben Yakas
+date: Mar 3, 2011 10:50 am
+title: Exile On Spring Street For Theodora Richards
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:365px; "> <img alt="2011_02_nypostco.jpg" src="https://web.archive.org/web/20160902095234im_/http://gothamist.com/attachments/jen/2011_02_nypostco.jpg" width="365" height="258"> <br> <i>From today&apos;s Post cover</i></div> On a ruby Tuesday night this week, fashion model Theodora Richards, scion of Rolling Stones guitarist/heroin enthusiast Keith Richards, <a href="https://web.archive.org/web/20160902095234/http://gothamist.com/2011/03/02/keith_richards_daughter_arrested_fo.php">was arrested</a> for graffiti and drug possession. And because Charlie Sheen hasn&apos;t peeped out of his shell yet today, the dailies are all over this minor incident involving the offspring of a celebrity best known for worshipping at the altar of Chuck Berry and snorting his own fathers ashes.<p></p>
+
+<p>At least the <a href="https://web.archive.org/web/20160902095234/http://www.nydailynews.com/gossip/2011/03/02/2011-03-02_theodora_richards_daughter_of_rolling_stones_keith_richards_arrested_for_graffit.html">News uses</a> an actual Stones reference in their headline (&quot;Some Girls&quot;), while the <a href="https://web.archive.org/web/20160902095234/http://www.nypost.com/p/news/local/manhattan/keith_richards_daughter_arrested_wZyCJfLszx3th8n6unwFAN">Post offers </a> the much less relevant &quot;Love Hurts&quot;&#x2014;unless they&apos;re making an obscure reference to the Keith Richards&apos;s cover of the song on the Gram Parsons tribute album &quot;Return To Sin City.&quot; Richards, 25, was arrested tagging the side of a building on Spring Street, which houses St. Anthony&apos;s Convent. Disputing initial reports that she wrote &quot;TNA,&quot; she was caught scrawling &quot;T-Heart-A&quot; with a red paint marker on the building. </p>
+
+<p>Richards also had marijuana and 8 1/2 hydrocodone pills (such an exact amount!) in her possession at the time of the arrest. She was charged with making graffiti, possession of a graffiti instrument and possession of a controlled substance&#x2014;yesterday afternoon, she rejected a cushy plea deal (two days of community service) offered by prosecutors if she decided to plead guilty to disorderly conduct. While her lawyer said she was &quot;a lovely polite woman. She&apos;s fine,&quot; a nun doesn&apos;t think Richards is lovely at all: &quot;It&apos;s defiling private property and it&apos;s a convent. <strong>We&apos;ll have to ask the city to take it off. Taxpayer money now has to pay for this</strong>.&quot;</p>
+
+<p>So what was the meaning behind Richards&apos; graffiti? The most likely scenario: it wasn&apos;t  some political statement, or a sign that she is part of some radical graffiti group&#x2014;the T probably stands for Theodora, and the A could be for her sister Alexandra. But we have one other theory: maybe it&apos;s a tribute to her father, and his classic feminist anthem &quot;Little T&amp;A;&quot; from 1981&apos;s <em>Tattoo You</em>. After all, what&apos;s more progressive than a five-foot-nine-inch cigarette ashtray dressed like a pirate mumbling, &quot;She&apos;s my little rock &apos;n&apos; roll/my tits and ass with a soul honey.&quot;</p>
+
+<div style="text-align: center;"><iframe title="YouTube video player" width="480" height="390" src="https://web.archive.org/web/20160902095234if_/http://www.youtube.com/embed/OYsSAmBSxE0" frameborder="0" allowfullscreen></iframe></div>					
+										
+									
+				

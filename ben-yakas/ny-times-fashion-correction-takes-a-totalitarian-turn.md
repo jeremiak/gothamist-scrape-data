@@ -1,0 +1,15 @@
+---
+author: Ben Yakas
+date: May 26, 2011 12:39 PM
+title: NY Times "Fashion" Correction Takes A Totalitarian Turn
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="201105_correction.jpg" src="https://web.archive.org/web/20110528095643im_/http://gothamist.com/attachments/byakas/201105_correction.jpg" width="640" height="205"> <br> <i>An excerpt of the uncorrected <a href="https://web.archive.org/web/20110528095643/http://g7finance.com/g7finance-news/us-business-news/an-actor-who-knows-start-ups/">original</a> (above), along with the NY Times correction (below)</i></div> <p></p>
+
+<p>It&apos;s always good fun catching the Gray Lady with her pants down...metaphorically speaking. Earlier this month, we chuckled heartily at the one NY Times correction <a href="https://web.archive.org/web/20110528095643/http://gothamist.com/2011/05/08/is_this_the_greatest_ny_times_corre.php">to rule them all</a>, and today, we noticed this gem of a correction...in an <a href="https://web.archive.org/web/20110528095643/http://www.nytimes.com/2011/05/26/technology/26ashton.html?_r=1&amp;hp">article about</a> Charlie Sheen-<a href="https://web.archive.org/web/20110528095643/http://gothamist.com/2011/05/13/ashton_kutcher_replaces_charlie_she.php">substitute</a> Ashton Kutcher, no less. </p>
+
+<p>The article is all about how Kutcher is a &quot;smart early investor&quot; of Internet start-ups (such as FourSquare, Path and Flipboard); in particular, it mentions how Kutcher will occasionally drop by <a href="https://web.archive.org/web/20110528095643/http://www.generalassemb.ly/">General Assembly</a> in Manhattan, an &quot;urban campus for entrepreneurs&quot; which houses one of his investments, the fashion site <a href="https://web.archive.org/web/20110528095643/http://fashism.com/">Fashism</a>. Except, in the original article, they were called &quot;Fascisms.&quot; </p>
+
+<p>Unfortunately, we checked the paper this morning, and it seems the correction was made before it went to print, which means it only appeared in the online edition. Thankfully, the uncorrected story was republished around the web, so we were able to find <a href="https://web.archive.org/web/20110528095643/http://g7finance.com/g7finance-news/us-business-news/an-actor-who-knows-start-ups/">one version</a> with the mistake still in it (see above).  The relationship between fashion and fascism has always been closer than just a few letters&#x2014;and as David Bowie pointed out, both <em>are</em> full of tension and fear...beep-beep.</p>
+
+<div style="text-align: center;"><iframe width="640" height="510" src="https://web.archive.org/web/20110528095643if_/http://www.youtube.com/embed/GA27aQZCQMk" frameborder="0" allowfullscreen></iframe></div>

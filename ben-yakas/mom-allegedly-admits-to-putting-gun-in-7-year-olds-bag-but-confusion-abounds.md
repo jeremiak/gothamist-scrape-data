@@ -1,0 +1,21 @@
+---
+author: Ben Yakas
+date: Jan 19, 2013 4:45 pm
+title: Mom Allegedly Admits To Putting Gun In 7-Year-Old's Bag, But Confusion Abounds
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="011813guns.jpg" src="https://web.archive.org/web/20150428113005im_/http://gothamist.com/attachments/nyc_arts_john/011813guns.jpg" width="640" height="504"> <br> <i> (NYPD)</i></div> <p></p>
+
+<p>The mom of the 7-year-old <a href="https://web.archive.org/web/20150428113005/http://gothamist.com/2013/01/17/police_handgun_found_in_7-year-olds.php">who brought a loaded handgun into a Far Rockaway school</a> on Thursday, prompting a school lockdown, allegedly admitted to cops that she put the gun in the backpack. Deborah Farley, 53, has been charged with criminal possession of a weapon, endangering the welfare of a child, drug possession and several other weapons-related charges. It&apos;s still unclear why she put the .22 caliber handgun, ammunition and a flare gun in her son&apos;s Batman backpack, <a href="https://web.archive.org/web/20150428113005/http://www.nypost.com/p/news/local/queens/schoolkid_had_ma_gun_cops_VXwWhq7JUidrSdx5AeKXtO?utm_medium=rss&amp;utm_content=Queens">but prosecutors said she had purchased</a> the unlicensed gun last summer because she was fearful of the loiterers hanging near her home&#x2019;s stairwell. &#x201C;Why she did it, I don&#x2019;t know,&#x201D; Farley&#x2019;s son, 21-year-old Michael, told the Post.</p>
+
+<p>Still, Farley&apos;s husband Walter Orozco, 56, denied that either he or his wife owned a gun. &#x201C;We&#x2019;ve been living together for 11 years. We never had a gun,&#x201D; Orozco <a href="https://web.archive.org/web/20150428113005/http://www.nytimes.com/2013/01/19/nyregion/mother-of-7-year-old-with-gun-is-arrested.html?ref=nyregion">told the Times</a>. He also maintains that their 7-year-old son Tyler is bullied at school. &#x201C;They called him sissy and white boy. He didn&#x2019;t want to go to school. He fakes like he&#x2019;s coughing when he gets up in the morning.&#x201D; He added, &#x201C;We always complained, but the school didn&#x2019;t do anything.&#x201D; Previously, <a href="https://web.archive.org/web/20150428113005/http://gothamist.com/2013/01/18/dad_claims_7-year-old_may_have_brou.php">Orozco has insinuated that</a> the weapons may have belonged to Michael, who he claimed was in a gang.</p>
+
+<p>According to police, <a href="https://web.archive.org/web/20150428113005/http://gothamist.com/2013/01/18/far_rockaway_mom_arrested_after_7-y.php">Farley admitted that</a> she had put the weapons in the backpack Wednesday night, then forgotten to take it out. Tyler allegedly didn&apos;t know the gun was there when he made his way to class at Wave Preparatory Elementary School; once Farley realized what had happened, she signed him out on the pretext that he had a dental appointment. When she didn&apos;t immediately see the gun, there was a lot of confusion.</p>
+
+<p>&#x201C;Thinking his mother was referring to the flare gun he had already given to another youngster in the school and not realizing himself that there was a handgun still in the bottom of his backpack,&#x201D; the boy said he gave it to a friend, said Paul J. Browne, the chief spokesman for the Police Department. &#x201C;With that, the mother told the principal, who alerted school safety officers, implemented a lockdown and located the other boy in one of the school&#x2019;s second-floor classrooms, where the unloaded Orion flare gun was found in his backpack.&#x201D;</p>
+
+<p>After cops found seven small bags of marijuana and more ammunition in their home, Tyler and his 9-year-old sister were been placed into ACS. Farley&apos;s lawyer <a href="https://web.archive.org/web/20150428113005/http://www.nytimes.com/2013/01/19/nyregion/mother-of-7-year-old-with-gun-is-arrested.html?ref=nyregion">defended her in court</a>: &#x201C;She has continuously been coerced by drug dealers and gang-bangers and she wanted to protect her family, not endanger them or the community,&#x201D; said attorney, John A. Scarpa, who requested that she be put on suicide watch because she was &#x201C;extremely depressed.&#x201D;</p>					
+										
+									
+				

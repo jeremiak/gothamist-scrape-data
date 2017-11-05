@@ -1,0 +1,17 @@
+---
+author: Ben Yakas
+date: Jul 19, 2010 6:16 pm
+title: Vacationers Duped Out Of Thousands In Williamsburg Scam
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:250px; "> <img alt="71910bkscammers.jpg" src="https://web.archive.org/web/20160703222414im_/http://gothamist.com/attachments/byakas/71910bkscammers.jpg" width="250" height="125"> <br> <i>Desmond Eaddy and Ronnie Barron, via NY Post</i></div> Last month, a bill to prevent building owners from illegally converting apartments into hotel rooms <a href="https://web.archive.org/web/20160703222414/http://gothamist.com/2010/06/29/bill_could_make_apartment_swaps_ill.php">passed</a> the state Senate, seemingly paving the way to put seedy landlords and hustlers out of business. But more than a dozen out-of-towners looking for a dream summer in NYC fell victim to two scam artists in Williamsburg, and exactly what that bill was meant to curtail. <p></p>
+
+<p>The victims, including eight from Ireland, <a href="https://web.archive.org/web/20160703222414/http://www.nypost.com/p/news/local/brooklyn/burg_scam_turns_loft_dream_to_nightmare_LsvjfFcDQsDdwpZzbV0m8J?CMP=OTC-rss&amp;FEEDNAME=">told</a> the Post that they were duped out of thousands of dollars by Desmond Eaddy and Ronnie Barron, two Brooklyn men posing as lease holders of a massive loft within a new luxury apartment complex at 175 Powers St. in Williamsburg. The two used Craigslist to advertise available rooms for $1,100 monthly &quot;in a brand new, huge, two-floor loft in the absolute best part of Brooklyn,&quot; with existing roommates including a &quot;carefully selected great group of students, artists, actors/models, interns and those interested in film and TV production.&quot; Barron and Eaddy, who previously did casting work for reality show <em>Gastineau Girls</em>, never had legal authority to rent the place, only a handshake agreement with the building&apos;s owner to use it for film and TV production. They hired contractors to carve up the commercial space and convert it into an eight-bedroom &quot;illegal hostel,&quot; which was never completed. </p>
+
+<p>&quot;This has been pretty traumatizing...We came to New York and were taken advantage of. <strong>Now we sometimes don&apos;t even have enough money to feed ourselves</strong>,&quot; said Neil Sturdy, 19. (Or as Bob Dylan once sang, &quot;We are <em>idiooots </em>babe, it&apos;s a wonder we can even feed ourselves.&quot;) He and his two traveling companions from Ireland lost $3,375 cumulatively, and are stuck in the city until September, when they have a pre-paid, nonrefundable return flight home.</p>
+
+<p>Two 21-year-olds from Cincinnati, Grania Frueh and Vineet Sathe, were taken for $3,850, and say they were moved to an apartment with 14 other people on North 5th &quot;basically squatting in a divided storage space&quot; and &quot;battling cockroaches, spiders and ants.&quot; Others say Barron and Eaddy shuttled them to a hostel for temporary residency, paid for the first couple nights, then stopped all payments and ignored their phone calls. And the Post gets the last zing in: &quot;Both Eaddy and Barron did not respond to many phone, text and e-mail messages over the weekend.&quot;</p>					
+										
+									
+				

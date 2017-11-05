@@ -1,0 +1,23 @@
+---
+author: Ben Yakas
+date: Jan 19, 2013 3:20 pm
+title: Subway Offers Appropriately Dumb Excuse For Dumb Footlong Controversy
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="11913subwaysand.jpg" src="https://web.archive.org/web/20150429211549im_/http://gothamist.com/attachments/byakas/11913subwaysand.jpg" width="640" height="440"> <br> <i> <a href="https://web.archive.org/web/20150429211549/http://www.shutterstock.com/cat.mhtml?lang=en&amp;search_source=search_form&amp;version=llv1&amp;anyorall=all&amp;safesearch=1&amp;searchterm=children+crying&amp;search_group=#id=109362701&amp;src=055967d5fafb11e8f0a5a05ba1f88d45-1-2">Shutterstock/Firma V</a></i></div> <p></p>
+
+<p>This week, a Subway insurrection was sparked after Australian Matt Corby posted a photo of a Footlong sub on Facebook that showed it was only 11 inches long. There are now at least <a href="https://web.archive.org/web/20150429211549/https://www.facebook.com/subway/photos">192 photos tagged of Subway on Facebook</a> that depict a sandwich with a ruler, or some reference to the Footlong controversy. It also inspired <a href="https://web.archive.org/web/20150429211549/http://gothamist.com/2013/01/17/the_5_best_parts_of_the_ny_posts_in.php">a hilarious, landmark NY Post investigation</a> into the lives of people who choose to eat Subway every other day. Now, the company has responded to the outrage by contradicting their own advertising campaign, and essentially shooting themselves in the foot in front of Subway aficionados all over the world.</p>
+
+<p>Subway Australia <a href="https://web.archive.org/web/20150429211549/http://gawker.com/5977183/subway-responds-to-sandwich-scandal-footlong-not-intended-to-be-a-measurement-of-length">wrote on</a> their official Facebook page: &quot;With regards to the size of the bread and calling it a footlong, &quot;SUBWAY FOOTLONG&quot; is a registered trademark as a descriptive name for the sub sold in Subway&#xAE; Restaurants and not intended to be a measurement of length.&quot; That message has since been deleted, probably due to the fact that it contradicts with things like the commercial below.</p>
+
+<p><iframe width="640" height="480" src="https://web.archive.org/web/20150429211549if_/http://www.youtube.com/embed/PZE1zfVaJR0" frameborder="0" allowfullscreen></iframe></p>
+
+<p>In another post directly to one of the unhappy customers, Subway Australia blamed the problem on the &quot;undersized bread&quot; which &quot;is not baked to our standards;&quot; they also said that &quot;the length of the bread baked in the restaurant cannot be assured each and every time as the proofing process may vary slightly each time in the restaurant.&quot; <a href="https://web.archive.org/web/20150429211549/http://www.buzzfeed.com/copyranter/subways-amazingly-stupid-response-to-footlong-con">Buzzfeed called it</a> an &quot;amazingly stupid response,&quot; and it&apos;s hard not to disagree because of how much their ad campaigns are focused around the dimensions of the sandwiches.</p>
+
+<p>But at the same time, what would have been a good response? Could they have gotten Jared out of retirement to do a charm offensive? Most likely, if they had said nothing and just rode it out, people would be focusing on more important things, like <a href="https://web.archive.org/web/20150429211549/http://www.reuters.com/article/2013/01/18/us-usa-football-hoax-twitter-idUSBRE90H12L20130118">Te&apos;oing</a> or <a href="https://web.archive.org/web/20150429211549/http://www.nydailynews.com/entertainment/kim-kardashian-parents-victim-swat-prank-article-1.1243165">swatting</a> or Taylor Swift&apos;s new boyfriend or whatever. But instead, thousands of people <a href="https://web.archive.org/web/20150429211549/http://www.dailymail.co.uk/news/article-2264906/Subway-respond-short-sandwich-scandal-claiming-FOOTLONG-descriptive-measurement-length.html">are fretting over</a> being RIPPED OFF of an inconsequential inch of terrible-tasting sandwich. </p>
+
+<p>Of course, there are real victims when it comes to this Subway fraud&#x2014;like the intestines of anyone who continues to value Footlongs as a regular means of nourishment. And somewhere in the heart of Brooklyn, Sir Patrick Stewart lies quiet in his bed, wondering if <a href="https://web.archive.org/web/20150429211549/https://twitter.com/SirPatStew/status/292219126368333825">he will ever see another sunrise.</a> When will Subway stop their campaign of terror on the innocent?</p>					
+										
+									
+				

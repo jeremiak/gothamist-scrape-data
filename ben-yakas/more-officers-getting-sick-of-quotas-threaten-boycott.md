@@ -1,0 +1,17 @@
+---
+author: Ben Yakas
+date: Dec 12, 2010 6:25 pm
+title: More Officers Getting Sick Of Quotas, Threaten Boycott
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:240px; "> <img alt="121210quotas.jpg" src="https://web.archive.org/web/20160208020045im_/http://gothamist.com/attachments/byakas/121210quotas.jpg" width="240" height="245"> <br> <i>Quota memo from Brooklyn&apos;s 77th Precinct (via Daily News)</i></div> <p></p>
+
+<p>The Bloomberg administration and NYPD commissioner Ray Kelly have continually <a href="https://web.archive.org/web/20160208020045/http://gothamist.com/2010/11/10/video_nypd_quotas_in_action.php">shrugged off</a> any concerns about police quotas, referring to them as &quot;productivity goals,&quot; among other things. This comes despite the fact that the existence of them has been proven <a href="https://web.archive.org/web/20160208020045/http://gothamist.com/2010/11/08/daily_news_finds_police_quotas_memo.php">again</a> and <a href="https://web.archive.org/web/20160208020045/http://gothamist.com/2010/09/10/new_recordings_leave_no_doubt_that.php">again</a>, thanks to the efforts of officers such as <a href="https://web.archive.org/web/20160208020045/http://gothamist.com/tags/adrianschoolcraft">Adrian Schoolcraft</a>. But now, even more police officers have become fed-up with the double-speech: &quot;We&apos;ve talked about it. <strong>Nobody feels this is right, asking us to write summonses just to meet a quota</strong>,&quot; one police source connected with the 79th Precinct in Bedford-Stuyvesant <a href="https://web.archive.org/web/20160208020045/http://www.nydailynews.com/news/ny_crime/2010/12/12/2010-12-12_bklyn_cops_threaten_tixwriting_boycott.html">told the News</a>.</p>
+
+<p>The 79th Precinct have started a quiet revolt against quotas, and are considering a day-long summons boycott to express their disdain. Another source told the News that six weeks ago, some officers did not write summonses for one shift to protest shift changes targeted at low-performing cops; those changes were nixed thereafter. Officers are frustrated that their supervisors have been imposing illegal quota pressure of them in order to churn out revenue for the city and impress the higher-ups. For their part, management are angry that officers are not giving out enough &quot;C&quot; summonses, which are for so-called &quot;quality of life&quot; violations, like public drinking. In the 79th Precinct, the number of C summonses issued this year compared to the same period last year has dropped 22.5 percent, from 20,521 to 15,906. </p>
+
+<p>That drop off has made Deputy Inspector Peter Bartoszek, the precinct&apos;s commanding officer, quite agitated. He wrote a particularly aggrieved note to one officer who wouldn&apos;t write the C summonses, which read, &quot;In 4 months, and after 70 tours on patrol, P.O. Denis has not written any C summons? How is that possible?...[I&apos;ll] stop here before my blood pressure gets raised higher than it already is.&quot; The officer in question, Jeanmarc Denis, told the News, &quot;I guess he&apos;s feeling the pressure from Compstat. He feels the pressure and it goes down [to the officers].&quot;</p>					
+										
+									
+				

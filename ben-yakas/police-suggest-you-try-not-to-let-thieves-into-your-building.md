@@ -1,0 +1,13 @@
+---
+author: Ben Yakas
+date: April 23, 2011  5:50 PM
+title: Police Suggest You Try Not To Let Thieves Into Your Building
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="42311seinfeld.jpg" src="https://web.archive.org/web/20110629204511im_/http://gothamist.com/attachments/byakas/42311seinfeld.jpg" width="250" height="187" class="image-left"> </span>There will always be burglaries, and recently there have been a few<a href="https://web.archive.org/web/20110629204511/http://www.nytimes.com/2011/04/23/nyregion/a-thief-without-a-fear-of-heights-crime-scene.html">particularly in</a> SoHo and the Village. And though police haven&apos;t necessarily found the thieves in each case, they have been able to successfully narrow down possible accomplices to one person: <em>you</em>!?!</p>
+
+<p><a href="https://web.archive.org/web/20110629204511/http://cityroom.blogs.nytimes.com/2011/04/22/unwitting-burglary-accomplice-could-be-you/?partner=rss&amp;emc=rss">Police say that</a> a slew of apartment burglaries and robberies could have been avoided had tenants just not let the thief in the building&#x2019;s front door when they buzzed. One such suspect, Christopher Rodriguez, told officers who arrested him how easy it was to get into his victims buildings: <strong>&#x201C;I rang the bell to get in. I rang and said, &#x2018;U.P.S., U.P.S.&quot;</strong> This is exactly why we can&apos;t trust any mail that is not electronic.</p>
+
+<p>So it seems obvious, but seriously: don&apos;t just buzz any muffled voice into your building. We know you don&apos;t want to end up in a situation like Jerry Seinfeld and <a href="https://web.archive.org/web/20110629204511/http://en.wikipedia.org/wiki/The_Strong_Box">his neighbor with the parrot</a>, but you also don&apos;t want to end up with a <a href="https://web.archive.org/web/20110629204511/http://gothamist.com/2011/04/21/the_hefty_burglar_is_on_the_loose.php">hefty burglar</a> riffling through your things, either.</p>
+
+<div style="text-align: center;"><object width="442" height="375" classid="clsid:D27CDB6E-AE6D-11cf-96B8-444553540000" id="ep"><param name="allowfullscreen" value="true"><param name="allowscriptaccess" value="always"><param name="movie" value="http://i.cdn.turner.com/tegwebapps/tbs/tbs-www/cvp/tbs_432x243_embed.swf?context=embed&amp;videoId=73966"><param name="bgcolor" 'value="#FFFFFF"><embed src="https://web.archive.org/web/20110629204511oe_/http://i.cdn.turner.com/tegwebapps/tbs/tbs-www/cvp/tbs_432x243_embed.swf?context=embed&amp;videoId=73966" type="application/x-shockwave-flash" bgcolor="#FFFFFF" allowfullscreen="true" allowscriptaccess="always" width="442" height="375"></object></div>

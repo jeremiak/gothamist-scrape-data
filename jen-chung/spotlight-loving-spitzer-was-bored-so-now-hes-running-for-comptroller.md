@@ -1,0 +1,29 @@
+---
+author: Jen Chung
+date: Jul 8, 2013 11:24 AM
+title: Spotlight-Loving Spitzer Was "Bored" So Now He's Running For Comptroller
+---
+
+
+                            
+                            
+                            
+                            <p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2013_07_spitzerfrown.jpg" src="https://web.archive.org/web/20130818114403im_/http://gothamist.com/attachments/jen/2013_07_spitzerfrown.jpg" width="640" height="458"> <br> <i> Classic Eliot Spitzer (AP)</i></div> <p></p>
+
+<p>Former NY Governor Eliot Spitzer announced yesterday that<a href="https://web.archive.org/web/20130818114403/http://gothamist.com/2013/07/07/ho_yes_client_no_9_is_back_eliot_sp.php#photo-1"> he&apos;d run for NYC Comptroller</a>, giving him only until Thursday to collect the 3,750 signatures he needs to get on the ballot and officially turning the 2013 election into a near-freak show <a href="https://web.archive.org/web/20130818114403/http://gothamist.com/2013/05/22/anthony_weiner_announces_mayoral_ru.php">of sex/sext addicts</a>. And why did he make this <a href="https://web.archive.org/web/20130818114403/http://capitalnewyork.com/article/politics/2013/07/8531624/eliot-spitzer-runs-comptroller-makes-anthony-weiner-look-organized?top-featured-1">impulsive, last-minute</a> decision? Easy&#x2014;rich dude was bored.</p>
+
+<p>The <a href="https://web.archive.org/web/20130818114403/http://www.nydailynews.com/blogs/dailypolitics/2013/07/missing-public-service-eliot-spitzer-may-have-been-encouraged-by-anthony-weine">Daily News&apos; Ken Lovett reveals</a> that Spitzer has been restless since <a href="https://web.archive.org/web/20130818114403/http://gothamist.com/2008/03/12/spitzer_to_give.php">stepping down as governor</a> in 2008 after <a href="https://web.archive.org/web/20130818114403/http://gothamist.com/2008/03/10/governor_spitze_1.php">Hookergate</a>, &quot;[H]e&#x2019;s been on the outside trying mightily to claw his way back into the limelight. Despite his wealth, Spitzer was always bored overseeing his father&#x2019;s real estate development business, those who know him say. He wants to be noticed. He wants to make a difference, like he did during his high-water point as state attorney general before he became governor.&quot;</p>
+
+<p>Also, Weiner&apos;s <a href="https://web.archive.org/web/20130818114403/http://gothamist.com/2013/06/26/weiner_swells_to_slight_lead_over_q.php">surprising strength in polls</a> may have <a href="https://web.archive.org/web/20130818114403/http://www.nydailynews.com/blogs/dailypolitics/2013/07/missing-public-service-eliot-spitzer-may-have-been-encouraged-by-anthony-weine">&quot;encouraged&quot; Spitzer</a>. One political insider tells the News, &quot;The bad stuff&#x2019;s been written. Everything&#x2019;s out there already,&quot; while <a href="https://web.archive.org/web/20130818114403/http://www.nypost.com/p/news/local/an_el_of_nerve_spitzer_running_rIIIOU7uAmDZ1a0taTElzH?utm_medium=rss&amp;utm_content=Local">another points out to the Post</a> that bringing up everything about Spitzer&apos;s sordid behavior is on the table, &quot;<a href="https://web.archive.org/web/20130818114403/http://gothamist.com/2008/03/23/spitzer_reporte.php">even the black socks.</a>&quot; That seems to be okay with him:</p>
+
+<center><blockquote class="twitter-tweet"><p>Asked whether some might say he&apos;s a hypocrite on prostitution issue, <a href="https://web.archive.org/web/20130818114403/https://twitter.com/SpitzerForNYC">@SpitzerforNYC</a> says: &quot;It&apos;s a fair argument&quot;</p>&#x2014; David W. Chen (@davidwchen) <a href="https://web.archive.org/web/20130818114403/https://twitter.com/davidwchen/statuses/354246102469447681">July 8, 2013</a></blockquote>
+<script async src="//web.archive.org/web/20130818114403js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<p>But do <a href="https://web.archive.org/web/20130818114403/http://www.dnainfo.com/new-york/20130708/civic-center/spitzer-dont-compare-me-anthony-weiner">not try to compare Spitzer to Weiner</a> or try to get him to comment on the weird situation of a Congressman who resigned because he was sending pictures of his dong to women and is now running for mayor and how Spitzer&apos;s a Governor who resigned after dalliances with prostitutes and is now running for comptroller: &quot;I&apos;m not sure it&apos;s an issue I will address,&quot; he told DNAinfo.</p>
+
+<p>Hunter College Political Science Professor Kenneth Sherrill adds, &quot;Combined with Anthony Weiner, Spitzer gives the Democrats an image problem. Just when Weiner was coming back, Spitzer&#x2019;s candidacy could pull him down. While either one of them might have saved himself, we might see the spectacle of two drowning men pulling one another down, each reminding the public of the other&#x2019;s undesirability.&quot;</p>
+
+<p>Currently, the one Democrat in the Comptroller race is Manhattan Borough President Scott Stringer. Stringer&apos;s campaign manager Sasha Owner said last night <a href="https://web.archive.org/web/20130818114403/https://twitter.com/Stringer2013/status/354054637248196608">on Twitter</a>, &quot;Scott has a proven record of results &amp; integrity + entered race to help NY&#x2019;s middle class regain footing. By contrast, Spitzer will spurn campaign finance program to buy personal redemption with his family fortune. The voters will decide.&quot;</p>
+                            
+                            
+                            

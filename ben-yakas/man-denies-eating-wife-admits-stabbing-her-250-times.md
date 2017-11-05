@@ -1,0 +1,11 @@
+---
+author: Ben Yakas
+date: May 14, 2010  4:42 PM
+title: Man Denies Eating Wife, Admits Stabbing Her 250 Times
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="51410lecter.jpg" src="https://web.archive.org/web/20111214011321im_/http://gothamist.com/attachments/byakas/51410lecter.jpg" width="215" height="248" class="image-left"> </span>A Queens man who <a href="https://web.archive.org/web/20111214011321/http://www.nydailynews.com/news/ny_crime/2010/05/13/2010-05-13_queens_man_who_stabbed_wife_250_times_did_not_eat_victims_liver_despite_victims_.html">admitted</a> to stabbing his wife upwards of 250 times wants to make sure people don&apos;t get the wrong impression of him: he&apos;s no Hannibal Lecter. </p>
+
+<p>Mohammad Solaiman, 52, was <a href="https://web.archive.org/web/20111214011321/http://www.nypost.com/p/news/local/queens/queens_man_sentenced_wife_years_IrI5Q5878VBfZgqkzLyCEJ?CMP=OTC-rss&amp;FEEDNAME=">sentenced</a> to 15-years-to-life yesterday for the murder of his wife Shahida Sultanna, who he stabbed more than 250 times in their home in Jamaica, Queens in December 2007. Their four-year-old daughter was in the next room while the murder took place. Sister-in-law Ferdousi Begum broke down when she took the stand yesterday, accusing Solaiman of eating his wife&apos;s innards: <strong>&quot;He took out her liver and her lungs and he ate it. He drank her blood. Her daughter told me that.&quot;</strong> </p>
+
+<p>Despite the outburst, both prosecutors and defense lawyers don&apos;t believe Solaiman ate his wife: &quot;He may have killed his wife but he didn&apos;t turn into a cannibal,&quot; his lawyer John Scarpa said. Scarpa had argued that Solaiman had suffered years of physical abuse at the hands of his 32-year-old wife, but there were no records of any abuse. Though Queens Supreme Court Justice Richard Buchter agreed Solaiman wasn&apos;t a cannibal, he did castigate him for a different kind of barbarity: &quot;In a final act of savagery he exposed his four-year-old daughter to this horrific murder scene. <strong>If that&apos;s not savagery, I don&apos;t know what is.&quot;</strong></p>

@@ -1,0 +1,19 @@
+---
+author: Jen Chung
+date: Nov 11, 2014 12:27 pm
+title: Two Men Brutally Beaten In Separate Riverside Park Incidents
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2014_11_riversidepark1.jpg" src="https://web.archive.org/web/20150510011959im_/http://gothamist.com/attachments/jen/2014_11_riversidepark1.jpg" width="640" height="425"> <br> <i> Photograph of the 68th Street entrance to Riverside Park by JayLavarin (iStockphoto)</i></div> <p></p>
+
+<p>The police are searching for four suspects who beat two men in Riverside Park last week. Investigators believe the suspects were behind two separate violent incidents that occurred in the park on November 6th.</p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-right"> <img alt="2014_11_riversideattack1.jpg" src="https://web.archive.org/web/20150510011959im_/http://gothamist.com/attachments/jen/2014_11_riversideattack1.jpg" width="340" height="454"> <br> <i style=" width:340px; ;display:block"> Via <a href="https://web.archive.org/web/20150510011959/http://www.westsiderag.com/2014/11/09/4-men-put-bag-over-victims-head-and-beat-him-in-riverside-park-police-beaten">West Side Rag</a></i></div> According to the NYPD, the first attack was around 11:30 p.m., when a 21-year-old man was walking through the park near West 68th Street. He was robbed of his wallet, book bag, laptop and cellphone, and a <a href="https://web.archive.org/web/20150510011959/http://www.westsiderag.com/2014/11/09/4-men-put-bag-over-victims-head-and-beat-him-in-riverside-park-police-beaten">police flyer indicated his head</a> was covered by his assailants during the attack. The victim, who had been returning home from John Jay College, was treated at Weill Cornell.<p></p>
+
+<p>Jessica Rieske was walking her dogs on Thursday night when she <a href="https://web.archive.org/web/20150510011959/http://newyork.cbslocal.com/2014/11/11/2000-reward-offered-following-attacks-in-riverside-park/">saw the first victim</a>, &quot;He was bleeding a lot from his head. He had been beaten pretty badly. The whole left side of his face was swollen... I walked him home and we got him an ambulance and then the police came&quot;</p>
+
+<p>The second attack occurred at West 72nd Street in the park, when a 58-year-old homeless man was beaten. He was not hospitalized. <a href="https://web.archive.org/web/20150510011959/http://www.westsiderag.com/2014/11/09/4-men-put-bag-over-victims-head-and-beat-him-in-riverside-park-police-beaten">A tipster told West Side Rag</a> that she noticed a homeless man in the river, clinging to the wall last Friday, &quot;His face was bloodied, his hands scraped raw and he was visibly shaking and seemed quite disoriented.&quot; The tipster, who had also been walking her dogs, called 911 and continued her walk:</p><blockquote> I continued southward and at the equivalent of W. 68 street in Riverside Park South the pier where the yoga classes are held in the summer was cordoned off w/ NYPD crime scene tape and an officer was standing guard. In speaking w/ her, she explained that a young man had been mugged there the night before and brutally beaten. (It was a bloody crime scene) When I told her about the I was the person who phoned in the homeless man in the river, she explained that he too was probably a victim of the same thugs. Long story short: I spoke w/ Detectives who informed me both men (homeless guy was in okay shape, the other young man had a serious head injury) were victimized at about 11 pm on Thursday night with the homeless guy being thrown over the railing and the young man beaten about the head.</blockquote>Police describe the assailants as four black males and are offering a $2,000 reward.<p></p>					
+										
+									
+				

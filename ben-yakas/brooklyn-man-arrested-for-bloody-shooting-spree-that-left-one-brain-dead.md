@@ -1,0 +1,19 @@
+---
+author: Ben Yakas
+date: Aug 19, 2012 10:25 am
+title: Brooklyn Man Arrested For Bloody Shooting Spree That Left One Brain Dead
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left"> <img alt="81912shooting.jpg" src="https://web.archive.org/web/20150508164131im_/http://gothamist.com/attachments/byakas/81912shooting.jpg" width="365" height="243"> <br> <i style=" width:365px; ;display:block"> The livery cab (<a href="https://web.archive.org/web/20150508164131/http://www.myfoxny.com/story/19311581/livery-cab-passenger-shot-in-brooklyn">via MyFoxNY</a>)</i></div> A man <a href="https://web.archive.org/web/20150508164131/http://www.nydailynews.com/new-york/brooklyn/maniac-shoots-critically-brooklyn-spree-article-1.1139426">has been arrested for allegedly carrying out</a> a bloody spree of botched robberies and random shootings in Brooklyn yesterday, which left one person brain dead, 4 others shot, and at least 3 more injured. Police say that Michael Magnan, 19, was responsible for <a href="https://web.archive.org/web/20150508164131/http://gothamist.com/2012/08/18/brooklyn_house_party_shooting_4_inj.php">shooting up a house party</a> in Marine Park around 1 a.m. Saturday, and also for <a href="https://web.archive.org/web/20150508164131/http://gothamist.com/2012/08/18/livery_cab_passenger_shot_after_att.php">shooting a livery cab passenger in the head</a> during a botched robbery around 2:30 a.m.   <p></p>
+
+<p>Witnesses say that Magnan opened fire on 10 people gathered on an E. 54th St. front porch&#x2014;where the house party was happening&#x2014;without saying a word. &#x201C;I heard, &#x2018;Pow! Pow! Pow!&#x2019; and I wondered if he&#x2019;s going to murder everybody,&#x201D; partygoer Patrick Myrie, who had just gone inside the house, told the News. Tanesha Lywood, 34, was shot in the stomach and thigh, a man was shot in the leg and another man and woman had graze wounds; none of those injuries were life-threatening.</p>
+
+<p>Within the next hour, Magnan allegedly smashed two bouncers with his gun after demanding money at the eSavoy Lounge on Flatbush Avenue. It was around then that he spotted livery driver Eric Martine stopped at a traffic light on Utica Avenue and Avenue M, and attempted to rob him. &#x201C;My window was open, he pulls a gun and says, &#x2018;Give me your money,&#x2019;&#x201D; Martine recounted. &#x201C;I was like, &#x2018;I ain&#x2019;t got no money,&#x2019; and then he goes through my pockets with the gun pointed at me.&#x201D;</p>
+
+<p>Martine fought back, punching Magnan in the face, and tried to take off. &#x201C;That&#x2019;s when I punched him and hit the gas,&#x201D; Martine said. &#x201C;He (shot) out the back window, and shot the kid in the head.&#x201D; Passenger Nikita Grebelskiy, of Forrest Hills, was left brain dead, his mother told the News. &#x201C;I should have took that gun from him,&#x201D; Martine said. &#x201C;I should have thought faster.&#x201D;</p>
+
+<p>Magnan&apos;s then made his way to club 9ja Villa at 51st Street and Avenue N, allegedly pistol-whipping a bouncer before firing a shot into the ceiling. &#x201C;He was shaking the gun around, and the gun was smoking a little,&#x201D; said a witness at the club. &#x201C;He was looking around, glassy-eyed, and he kept squeezing the trigger &#x2014; but nothing was coming out.&#x201D; He fled the club, but bouncers trailed him, flagging down police who were at the scene of the livery cab shooting. Magnan, who was dressed in a white Tyvek jumpsuit, allegedly said &#x201C;I didn&#x2019;t shoot nobody,&#x201D; before climbing inside a waiting ambulance.</p>					
+										
+									
+				

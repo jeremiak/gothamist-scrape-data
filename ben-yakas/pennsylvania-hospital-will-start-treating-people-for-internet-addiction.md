@@ -1,0 +1,19 @@
+---
+author: Ben Yakas
+date: Sep 1, 2013 2:05 pm
+title: Pennsylvania Hospital Will Start Treating People For Internet Addiction
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="9113internet.jpg" src="https://web.archive.org/web/20161129140417im_/http://gothamist.com/attachments/byakas/9113internet.jpg" width="640" height="427"> <br> <i> <a href="https://web.archive.org/web/20161129140417/http://www.shutterstock.com/cat.mhtml?lang=en&amp;search_source=search_form&amp;version=llv1&amp;anyorall=all&amp;safesearch=1&amp;searchterm=internet+addiction&amp;search_group=#id=126905420&amp;src=pSSkNjkk0NOTgRak0yEE2w-1-28">Shutterstock/Miriam Doerr</a></i></div> <p></p>
+
+<p><a href="https://web.archive.org/web/20161129140417/http://www.helpguide.org/mental/internet_cybersex_addiction.htm">Internet addiction</a> isn&apos;t officially recognized as a disorder yet, but it&apos;s a &quot;condition for further study&quot; according to the <a href="https://web.archive.org/web/20161129140417/http://www.psychiatry.org/practice/dsm">The Diagnostic and Statistical Manual of Mental Disorders,</a> the &quot;bible&quot; of psychiatric symptoms in the mental-health industry. One psychiatric hospital in Pennsylvania is taking it seriously already: Bradford Regional Medical Center is set to become the country&apos;s first to offer an inpatient treatment program for people with severe Internet addiction. It&apos;s just like Einstein <a href="https://web.archive.org/web/20161129140417/http://www.salon.com/2013/08/06/the_definition_of_insanity_is_the_most_overused_cliche_of_all_time/">always said</a>: the definition of insanity is clicking the refresh button over and over again and expecting new content to just be there.</p>
+
+<p>The voluntary, 10-day inpatient program is set to open on September 9th at the Behavioral Health Services at Bradford Regional Medical Center. &quot;[Internet addiction] is a problem in this country that can be more pervasive than alcoholism,&quot; Dr. Kimberly Young, the psychologist who founded the non-profit program, <a href="https://web.archive.org/web/20161129140417/http://www.foxnews.com/science/2013/09/01/pennsylvania-hospital-to-open-country-first-inpatient-treatment-program-for/#ixzz2deKo1jkp">told Fox</a>. &quot;The Internet is free, legal and fat free.&quot; </p>
+
+<p>They&apos;ll only have four adult patient there at a time who will undergo group therapy and various psychological examinations. That includes a &quot;digital detox,&quot; when the patients are cut off from any Internet connection or computer use for 72 hours. Young made it clear that there are a lot of people who <em>wouldn&apos;t</em> qualify for the program: just because you can&apos;t stop looking at animal photos on Reddit doesn&apos;t mean you&apos;ve got a problem (or at least, not <em>that</em> kind of problem).</p>
+
+<p>If you&apos;re wondering whether you might qualify as an internet addict, go ahead and take the <a href="https://web.archive.org/web/20161129140417/http://netaddiction.com/internet-addiction-test/">Internet Addiction Test</a>, which includes questions such as &quot;How often do you block out disturbing thoughts about your life with soothing thoughts of the Internet?&quot; and &quot;How often do you fear that life without the Internet would be boring, empty, and joyless?&quot; And be grateful we don&apos;t have <a href="https://web.archive.org/web/20161129140417/http://news.cnet.com/8301-17938_105-57600803-1/japan-to-fight-internet-addiction-with-fasting-camps/">&quot;fasting camps&quot; to combat internet addiction.</a> </p>					
+										
+									
+				

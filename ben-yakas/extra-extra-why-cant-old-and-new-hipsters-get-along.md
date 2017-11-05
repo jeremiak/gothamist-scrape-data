@@ -1,0 +1,20 @@
+---
+author: Ben Yakas
+date: May 29, 2011  5:25 PM
+title: Extra, Extra: Why Can't Old And New Hipsters Get Along?
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="52911xx.jpg" src="https://web.archive.org/web/20110601005935im_/http://gothamist.com/attachments/byakas/52911xx.jpg" width="640" height="426"> <br> <i><a href="https://web.archive.org/web/20110601005935/http://www.flickr.com/photos/mattron/5772099737/">mattron&apos;s flickr</a></i></div> <br>
+<ul><br>
+	<li>Follow Gothamist <a href="https://web.archive.org/web/20110601005935/http://twitter.com/#!/gothamist">on Twitter</a> and <a href="https://web.archive.org/web/20110601005935/http://www.facebook.com/pages/Gothamist/13927915491">like us on Facebook</a>.  You can also get the top stories mailed to you&#x2014;<a href="https://web.archive.org/web/20110601005935/http://eepurl.com/Mu4T">sign up here</a>.</li><br>
+	<li>Of course Carrie Bradshaw&#x2019;s and Stanford Blatch&#x2019;s <a href="&#x201D;http://celebritybabies.people.com/2011/05/28/sarah-jessica-parker-and-willie-garsons-kids-are-bffs-too/&#x201D;">kids are friends</a>.</li><br>
+	<li>Chris Christie&#x2019;s ARC fight is costing NJ <a href="https://web.archive.org/web/20110601005935/http://www.nj.com/news/index.ssf/2011/05/gov_christies_battle_over_scra.html">over $200,000 a week.</a> </li><br>
+	<li>Porn films filmed in California <a href="&#x201D;http://www.nydailynews.com/news/national/2011/05/28/2011-05-28_porn_films_soon_to_be_starring_condoms_if_california_health_officials_have_their.html&#x201D;">may soon include...condoms</a>. </li><br>
+	<li>Brewers PicNYC VIP types found out about NY&#x2019;s Sunday alcohol laws <a href="https://web.archive.org/web/20110601005935/http://twitter.com/#!/craige/status/74855923201482752">the hard way</a>.</li><br>
+<li>Old school Williamsburg residents <a href="https://web.archive.org/web/20110601005935/http://www.nytimes.com/2011/05/29/nyregion/gentrification-brings-discord-to-williamsburg-brooklyn.html?partner=rss&amp;emc=rss">are none too pleased</a> with the influx of new hipsters: &#x201C;A lot of people from the old days carry guns. One of these days one of these suburban kids is going to say the wrong thing to the wrong person.&#x201D;</li><br>
+	<li>Man identified in West Village and Upper West Side burglaries <a href="https://web.archive.org/web/20110601005935/http://www.nypost.com/p/news/local/manhattan/goof_springs_thug_L3qaiz6hKHFHX2QyAF5rcP?CMP=OTC-rss&amp;FEEDNAME=">freed from Rikers</a> after Manhattan DA screws up. </li><br>
+	<li>Hey, those license plate reading cameras are <a href="https://web.archive.org/web/20110601005935/http://www.ny1.com/content/top_stories/139971/new-police-technology-identifies-car-involved-in-hit-and-run">good for something</a>: finding a hit and run driver who hit a ticket agent. </li><br>
+	<li>Like much of the Western world, Florence <a href="https://web.archive.org/web/20110601005935/http://www.nypost.com/p/news/international/give_em_the_boot_ali_mac_prahl_splash_5gltVokH2luDWc4KjQ9KqJ?CMP=OTC-rss&amp;FEEDNAME=">really, really hates</a> <em>Jersey Shore</em>. </li><br>
+	<li>Tudor City residents claim their neighbor <a href="https://web.archive.org/web/20110601005935/http://www.nypost.com/p/news/local/manhattan/tudor_city_bid_to_boot_hoarder_505e5FPZvCmpwVlppD8TcM?CMP=OTC-rss&amp;FEEDNAME=">is a big ole hoarder.</a> </li><br>
+	<li>Every day is Christmas for the Mayor: he gets <a href="https://web.archive.org/web/20110601005935/http://www.nypost.com/p/news/local/manhattan/mike_city_haul_HzrlJiLe38SNXsvV8a18JK?CMP=OTC-rss&amp;FEEDNAME=">approximately 20 gifts a month</a>, everything from a Bloomberg teddy bear to Paul Simon lyric books to ceramic Mexican shot glasses.</li><br>
+</ul><p></p>

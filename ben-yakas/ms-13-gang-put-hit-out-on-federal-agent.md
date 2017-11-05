@@ -1,0 +1,7 @@
+---
+author: Ben Yakas
+date: November  4, 2009  1:41 PM
+title: MS-13 Gang Put Hit Out On Federal Agent
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2009_11_m16.jpg" src="https://web.archive.org/web/20110629170517im_/http://gothamist.com/attachments/jen/2009_11_m16.jpg" width="90" height="82" class="image-right"> </span>A member of the <a href="https://web.archive.org/web/20110629170517/http://www.altereddimensions.net/crime/ms13gang.aspx">notorious</a> MS-13 gang <a href="https://web.archive.org/web/20110629170517/http://www.nydailynews.com/news/ny_crime/2009/11/04/2009-11-04_ms13_gang_puts_out_hit_on_fbi_agent_assigned_to_crackdown.html?r=news">told police</a> that the gang&apos;s El Salvadorian leaders put a hit out on a federal agent meddling in the gang&apos;s NYC activities.  Walter &quot;Dukes&quot; Torres was arrested along with four others for hassling passersby in Queens last month and said he was in New York <strong>&quot;for the specific purpose of participating in the planning and execution of the murder plot</strong>...Gang members were trying to get their hands on a high-powered assault rifle, like an M-16. to penetrate the agent&apos;s bulletproof vest.&quot; Another gang member said bosses were &quot;exceedingly angry&quot; at the unidentified Immigration and Customs Enforcement agent.</p>

@@ -1,0 +1,17 @@
+---
+author: Ben Yakas
+date: Apr 28, 2011 1:42 pm
+title: One New Yorker Pledges Loyalty To The Royal Wedding
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="42811royal.jpg" src="https://web.archive.org/web/20150504151943im_/http://gothamist.com/attachments/byakas/42811royal.jpg" width="640" height="365"> <br> <i>Denton John (<a href="https://web.archive.org/web/20150504151943/http://edition.cnn.com/2011/WORLD/europe/04/26/uk.royal.wedding.american/index.html">via CNN</a>)</i></div> <p></p>
+
+<p>We are less than 18 hours away from the greatest goddamn event of our lifetime people: Will.I.Am.The.Balding.Prince and Kate <a href="https://web.archive.org/web/20150504151943/http://katemiddletonforthewin.tumblr.com/">&quot;Champagne Hands&quot;</a> Middleton are getting married tomorrow, and David Beckham is so friggin&apos; excited he recorded a <a href="https://web.archive.org/web/20150504151943/http://www.ok.co.uk/celebrity-news/view/34988/David-Beckham-wants-us-to-be-as-excited-about-the-Royal-Wedding-as-he-is/">special message</a> just recounting all the many ways he&apos;s so excited about the uber-exciting event. While New Yorkers will have <a href="https://web.archive.org/web/20150504151943/http://gothamist.com/2011/04/26/where_to_watch_the_royal_wedding_in.php">several options</a> where to watch the nuptials, one very <strike>lucky</strike> employed NYer will have the royal privilege of being the only American working at the event. It&apos;s as if the American Revolution never happened!</p>
+
+<p>Native New Yorker Denton John, 23, <a href="https://web.archive.org/web/20150504151943/http://www.nypost.com/p/news/international/royalwedding/he_queen_guy_HBFtl7ARN10Ed3N9Dn1ECO?CMP=OTC-rss&amp;FEEDNAME=">will be working</a> tomorrow as a member of the Household Cavalry Mounted Regiment, an elite branch of the British military charged with protecting the royals, especially Queen Elizabeth. That all means he&apos;ll get to sit around on a horse for several hours in an ill-fitting redcoat, until the Queen is ready to leave Westminster Abbey after the wedding. His former Harlem high school teacher is pumped: &quot;I was always sure he was going to do something positive with his life. He would come to school in a tie every day, always cool -- and this was before mandatory uniforms!&quot; said Loretta Lewis, who works at Wadleigh HS on West 114th Street.</p>
+
+<p>Because John is a dual citizen of the US and Grenada, part of the British Commonwealth, he is the rare American who is allowed to serve in the British army. He <a href="https://web.archive.org/web/20150504151943/http://articles.cnn.com/2011-04-26/world/uk.royal.wedding.american_1_royal-wedding-british-army-grenada?_s=PM:WORLD">told CNN</a> that he didn&apos;t necessarily dream of mashed peas and shepherds pie when he was growing up on the streets of Manhattan: &quot;When I was young, it was all about skateboarding, punk rock...I was into everything.&quot; We hope John has a fun time of it; hopefully this royal wedding will go a bit smoother than the one on <a href="https://web.archive.org/web/20150504151943/http://www.televisionwithoutpity.com/telefile/2011/04/things-the-royal-wedding-could.php"><em>Game Of Thrones</em>.</a></p>					
+										
+									
+				

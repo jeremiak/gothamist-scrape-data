@@ -1,0 +1,9 @@
+---
+author: Ben Yakas
+date: December 26, 2010  3:45 PM
+title: NFL Postpones Cursed Eagles-Vikings Game
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-right" style=" width:120px; "> <img alt="122610favre.jpg" src="https://web.archive.org/web/20110412173200im_/http://gothamist.com/attachments/byakas/122610favre.jpg" width="120" height="136"> <br> <i>AP</i></div> <p></p>
+
+<p>The NFL <a href="https://web.archive.org/web/20110412173200/http://sports.espn.go.com/nfl/news/story?id=5956740">announced</a> this afternoon that the Eagles-Vikings game set to take place tonight in Philadlephia will be postponed until Tuesday night because of the blizzard that is <a href="https://web.archive.org/web/20110412173200/http://gothamist.com/2010/12/26/photos_blizzard_in_progress.php">currently hitting</a> the East Coast. Essentially, the city of Philadelphia sounds terrified of and unprepared for the snowattack that has yet to reach them (albeit, with <a href="https://web.archive.org/web/20110412173200/http://gothamist.com/2010/12/26/omg_its_supposed_to_blizzard.php">good reason</a>). It was the second time this season that the NFL has postponed a game because of snow, a rare occurrence in the league, and the third straight week of shuffled games for the cursed Vikings. To add to their bad luck, this delay may give <a href="https://web.archive.org/web/20110412173200/http://gothamist.com/tags/brettfavre">Brett Favre</a> a chance to <strike>throw three interceptions and leave the game early with a shoulder injury</strike> start at QB. </p>

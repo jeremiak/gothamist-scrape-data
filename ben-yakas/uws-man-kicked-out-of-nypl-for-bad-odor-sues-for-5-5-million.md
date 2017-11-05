@@ -1,0 +1,21 @@
+---
+author: Ben Yakas
+date: October 21, 2012  4:15 PM
+title: UWS Man Kicked Out Of NYPL For Bad Odor Sues For $5.5 Million
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="102112smell.jpg" src="https://web.archive.org/web/20130605052232im_/http://gothamist.com/attachments/byakas/102112smell.jpg" width="640" height="427"> <br> <i> <a href="https://web.archive.org/web/20130605052232/http://www.shutterstock.com/cat.mhtml?lang=en&amp;search_source=search_form&amp;version=llv1&amp;anyorall=all&amp;safesearch=1&amp;searchterm=bad+smell&amp;search_group=#id=72308530&amp;src=2db4d362ad0da8c5966d1101ec220f98-1-5">Shutterstock/CREATISTA</a></i></div> <p></p>
+
+<p>Usually, the only controversies we hear regarding the <a href="https://web.archive.org/web/20130605052232/http://gothamist.com/tags/nypl">New York Public Library</a> and its many branches involve <a href="https://web.archive.org/web/20130605052232/http://gothamist.com/2012/05/16/homeless_man_stabs_library_patron_f.php">patron&apos;s porn viewing habits</a> or the <a href="https://web.archive.org/web/20130605052232/http://gothamist.com/2012/05/22/nypl_2.php">overwhelming popularity of mommy porn</a>. But an Upper West Side man claims he was rudely kicked out of the NYPL three years ago because of his terrible body odor&#x2014;and <a href="https://web.archive.org/web/20130605052232/http://www.nypost.com/p/news/local/manhattan/odor_but_not_wiser_UQDSTnLTB1u88T8eZB5mWI">now he wants $5.5 million in olfactory compensation.</a></p>
+
+<p>George Stillman, 80, is stinkin&apos; mad that he was discriminated against by the librarians at the <a href="https://web.archive.org/web/20130605052232/http://www.nypl.org/locations/st-agnes">St. Agnes branch</a> on Amsterdam Avenue (near 81st Street). Let&apos;s dive into his lawsuit, <a href="https://web.archive.org/web/20130605052232/http://www.nypost.com/p/news/local/manhattan/odor_but_not_wiser_UQDSTnLTB1u88T8eZB5mWI">via the Post</a>:</p>
+
+<ul>
+	<li>Stillman claims he didn&apos;t smell, and whatever he did smell like stemmed from the library&#x2019;s restrooms, not him, because he doesn&apos;t smell.</li>
+	<li>But he&apos;s not the only one who smelled that day&#x2014;he &#x201C;found the branch manager to be giving off an odor but never objected, understanding that such a challenge to the senses was just a fact of life in the city.&#x201D; See, smelling is a fact of life, not that Stillman is saying he smells, because he doesn&apos;t smell.</li>
+	<li>But this is all besides the point, because he claims NYC was recently declared the &#x201C;smelliest city in the country,&#x201D; so why can&apos;t we all tolerate each other&apos;s natural odors? For what it&apos;s worth, while NYC definitely <a href="https://web.archive.org/web/20130605052232/http://gothamist.com/2011/06/20/where_is_the_smelliest_block_in_new.php">has smelly blocks</a>, we don&apos;t know where he came up with that smelliest city thing. Everyone knows <a href="https://web.archive.org/web/20130605052232/http://www.gq.com/food-travel/travel-features/201201/smelliest-cities-best-worst-smelling-city-gq#slide=10">Los Angeles is smellier.</a></li>
+	<li>&#x201C;It&#x2019;s not about the amount of money; it&#x2019;s about standing up for your rights.&#x201D; It&apos;s about that, and the fact that Stillman doesn&apos;t smell, and he needs you to know this.</li>
+	<li>But seriously, Stillman doesn&apos;t smell, he never has, no one has ever complained about him smelling&#x2014;he may be the least smelly man in America: &#x201C;The only time I had an odor was when I was doing long-distance running and I was sweating,&#x201D; Stillman told the Post. &#x201C;I&#x2019;ve got no body odor.&#x201D; </li>
+</ul>
+
+<p>About that last point: if Stillman wanted to prove to the Post that he is the least smelly man in America, he failed miserably. &quot;When a reporter visited Stillman, she also noticed a strong odor. The Korean War veteran blamed his apartment and opened his door and a hallway window.&quot;</p>

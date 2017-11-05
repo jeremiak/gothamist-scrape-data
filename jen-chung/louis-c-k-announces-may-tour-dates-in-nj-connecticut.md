@@ -1,0 +1,17 @@
+---
+author: Jen Chung
+date: May 9, 2016 4:16 pm
+title: Louis C.K. Announces May Tour Dates In NJ, Connecticut
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2016_05_louisck.jpg" src="https://web.archive.org/web/20160816115510im_/http://gothamist.com/attachments/jen/2016_05_louisck.jpg" width="640" height="454"> <br> <i> (Getty Images)</i></div> <p></p>
+
+<p>Louis C.K. <a href="https://web.archive.org/web/20160816115510/http://gothamist.com/2016/03/05/louis_ck_really_doesnt_want_you_to.php">probably isn&apos;t happy</a> with Donald Trump becoming <a href="https://web.archive.org/web/20160816115510/http://gothamist.com/2016/05/04/trump_blood_sacrifice_submit_now.php">our likely new Beloved Leader</a>, but at least he&apos;s getting out of the house: The comedian and <em>auteur</em> just <a href="https://web.archive.org/web/20160816115510/https://louisck.net/tour-dates">announced tour dates</a> for this month and next, and tickets are on sale now.</p>
+
+<p>C.K. will be performing at the Paramount Theatre in Asbury Park, NJ, on May 19 and 20 and then, on May 25 and 26, he&apos;ll be at Foxwoods Grand Theatre in Connecticut. He&apos;s only heading to four more cities&#x2014;Baltimore; Chicago; Wilkes-Barre, PA; and Reading, PA. </p>
+
+<p>Over the weekend, C.K. discussed his long <em>Louie</em> hiatus <a href="https://web.archive.org/web/20160816115510/http://www.hollywoodreporter.com/race/awards-chatter-podcast-louis-ck-891278">in a podcast with the Hollywood Reporter</a>: </p><blockquote>&quot;I don&apos;t ever want to do the show because I owe another season,&quot; he says. &quot;I don&apos;t think that&apos;s fair to anybody.&quot; But can we expect it to return in the foreseeable future? And, if so, in what form? &quot;I think the guy that I played on the show, the just-divorced kinda under-water dad/struggling New York comic &#x2014; I don&apos;t think I have stories for that guy anymore,&quot; he reveals. &quot;But the show is autobiographical, so what [FX President] John Landgraf and I have always thought is that it may come back with a different set of stories from a different angle a little further down the road. And I don&apos;t know where that&apos;s from yet, so it just depends on if it writes. I think, for me, if I&apos;m on TV again doing a single-camera show, it&apos;s Louie. But I don&apos;t know. I have no idea. I needed to not know if I&apos;d ever do it again &#x2014; I needed to feel that way &#x2014; so that&apos;s the way I feel right now.&quot;</blockquote>As for <em>Horace &amp; Pete</em>, his self-funded drama that he released on his own website, C.K. is not <a href="https://web.archive.org/web/20160816115510/http://gothamist.com/2016/04/16/louis_ck_says_horace_pete_is_over_y.php">actually &quot;millions in debt&quot;</a>. See, he was just being amusing for Howard Stern! He said, &quot;The tax rebate we&apos;re getting from New York State and the amount of sales we have so far have put the show in the black. The show&apos;s paid for &#x2014; with no advertising. There isn&apos;t a TV show with this kind of cast that has that kind of success.&quot;<p></p>					
+										
+									
+				

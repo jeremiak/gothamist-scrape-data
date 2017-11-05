@@ -1,0 +1,19 @@
+---
+author: Ben Yakas
+date: Jan 5, 2011 5:02 pm
+title: Debate Rages Over Sanitized Version Of Huckleberry Finn 
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="1511huckfinn.jpg" src="https://web.archive.org/web/20160319123420im_/http://gothamist.com/attachments/byakas/1511huckfinn.jpg" width="250" height="325" class="image-left"> </span></p>
+
+<p>Before the holidays, there was much debate about the appropriateness of giving elementary school kids <a href="https://web.archive.org/web/20160319123420/http://gothamist.com/2010/12/23/councilman_wants_huckleberry_finn_b.php">poetry with references</a> to crackheads performing oral sex. City Councilman Charles Barron argued that  &apos;Huckleberry Finn&apos; was more offensive, since it included over 200 uses of the N-word. While nobody may want Barron to be their Governor, it seems as though the publishing industry was listening: Publishers Weekly <a href="https://web.archive.org/web/20160319123420/http://blogs.wsj.com/speakeasy/2011/01/04/new-edition-of-huckleberry-finn-planned-minus-the-n-word/">announced the release</a> of a new edition of the Mark Twain classic, which will leave out the N-word entirely. And that hasn&apos;t gotten anybody riled up at all.</p>
+
+<p>The new edition of the book will substitute &quot;slave&quot; for the N-word, and &quot;Indian&quot; for &quot;injun,&quot; and will be released in February. The changes have gotten a lot of bad press and inspired a lot of nasty e-mails so far, but the book&apos;s editor, Professor Alan Gribben, who teaches English at Auburn University, argued to <a href="https://web.archive.org/web/20160319123420/http://blog.al.com/scenesource/2011/01/auburn-montgomery_professor_al.html">the Birmingham News</a> that critics were proving his point: &#x201C;One thing that has amused me about it is that in the e-mails that take me to task for substituting the word &#x2018;slave,&#x2019; not one of these hotly worded e-mails has mentioned the n-word...They won&#x2019;t say the word, and they won&#x2019;t write the word.&#x201D; </p>
+
+<p>While some have argued that Gribbens has committed literary rape, bandying words such as &#x201C;censorship&#x201D; and &#x201C;political correctness,&#x201D; Gribbens maintained to <a href="https://web.archive.org/web/20160319123420/http://www.nytimes.com/2011/01/05/books/05huck.html?partner=rss&amp;emc=rss">the Times</a> that he suggested the changes in order to save the book, which he feared had fallen off school reading lists: I&#x2019;m by no means sanitizing Mark Twain. The sharp social critiques are in there. The humor is intact. I just had the idea to get us away from obsessing about this one word, and just let the stories stand alone.&#x201D; </p>
+
+<p>The larger problem for some is trying to figure out if and where to draw the line on this sort of literary rewording, and how far this could (or should) be taken. Novelist, poet and critic Ishmael Reed, whose new book is &#x201C;Barack Obama and The Jim Crow Media, The Return of the Nigger Breakers,&#x201D; wrote about the conflict in <a href="https://web.archive.org/web/20160319123420/http://blogs.wsj.com/speakeasy/2011/01/05/should-mark-twain-be-allowed-to-use-the-n-word/">the Observer</a>: &quot;And where would such an enterprise end? Do we censor music lyrics next? Musicals like &#x201C;Showboat?&#x201D; Hip hop as we know it would end. Every other song depends upon words that the word patrollers wish to ban. If one censors Mark Twain&#x2019;s use of the word, why not censor the black writers who use the term? Whose characters use the term?&quot;</p>					
+										
+									
+				

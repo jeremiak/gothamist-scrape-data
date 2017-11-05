@@ -1,0 +1,21 @@
+---
+author: Ben Yakas
+date: Oct 24, 2012 12:55 pm
+title: Video: Donald Trump's Big October Surprise Is...Nothing At All
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="102412trump.jpg" src="https://web.archive.org/web/20160622171115im_/http://gothamist.com/attachments/byakas/102412trump.jpg" width="640" height="446"> <br> <i> Who wouldn&apos;t want to wake up to this face every morning?</i></div> <p></p>
+
+<p>Original combover enthusiast <a href="https://web.archive.org/web/20160622171115/http://gothamist.com/tags/donaldtrump">Donald Trump</a> has been long teasing an <a href="https://web.archive.org/web/20160622171115/http://en.wikipedia.org/wiki/October_surprise">&quot;October Surprise&quot;</a> that would cripple the Obama campaign and shake America to its core. Today, he finally revealed <strike>the damning secret that will undo Obama&apos;s presidency once and for all</strike> that he&apos;s back to sucking on the sweet teat of Birther paranoia. But at least now we know exactly how to make Trump &quot;the most happy of all.&quot; Watch him make his announcement from the pretend office where he dreams up this crap. </p>
+
+<p><iframe width="640" height="360" src="https://web.archive.org/web/20160622171115if_/http://www.youtube.com/embed/MgOq9pBkY0I" frameborder="0" allowfullscreen></iframe></p>
+
+<p>So essentially, Trump is turning the clock back <a href="https://web.archive.org/web/20160622171115/http://gothamist.com/2011/04/27/obama_to_give_statement_confirming.php">to spring 2011</a>, when he flirted with running for President Of Obama-Is-Kenyan, by obsessing about Obama&apos;s records again. Only this time, he&apos;s giving the president an offer he <em>couldn&apos;t possibly</em> refuse: Trump will donate $5 million to a charity of Obama&apos;s choice if Obama releases his college records and passport records. And if Obama refuses, then not only is he a shady outsider who probably isn&apos;t American and is desperately trying to tear down this country from the inside with his neo-Marxist affordable health care-mandating fascist regime&#x2014;then he also HATES CHARITY. </p>
+
+<p>What is the president hiding? Did he take an incomplete in <a href="https://web.archive.org/web/20160622171115/http://gothamist.com/2012/10/17/last_nights_debate_brawl_in_the_tow.php">Presidential Debate Prep 302?</a> We already know he failed <a href="https://web.archive.org/web/20160622171115/http://www.vanityfair.com/politics/2012/06/young-barack-obama-in-love-david-maraniss">Intro To Sappy, Name-Dropping Love Letters.</a></p>
+
+<p>And is anyone shocked that when Trump finally showed his hand, there were no <a href="https://web.archive.org/web/20160622171115/http://www.newser.com/story/156351/trumps-big-surprise-obama-divorce-papers.html">Obama divorce papers</a>? His announcement doesn&apos;t even warrant calling him <a href="https://web.archive.org/web/20160622171115/http://www.huffingtonpost.com/2012/10/24/gloria-allred-stemberg-mitt-romney-divorce_n_2009637.html?utm_hp_ref=elections-2012">the male Gloria Allred!</a> Trump is only really good at one thing at this point in his life: giving himself publicity handjobs. And holding the president&apos;s feet to an imaginary fire in this shameless, clownish manner is his forte. So don&apos;t be surprised when Obama refuses Trump&apos;s generous offer, and don&apos;t be surprised when Trump responds with another self-indulgent, ranty video response next week. The man might have <a href="https://web.archive.org/web/20160622171115/http://gothamist.com/2011/04/27/donald_trump_has_enormous_balls_esp.php">enormous balls</a> and <a href="https://web.archive.org/web/20160622171115/http://www.newyorker.com/online/blogs/newsdesk/2011/04/donald-trump-mark-singer.html">no inner life</a>, but there&apos;s <a href="https://web.archive.org/web/20160622171115/http://gothamist.com/2011/05/11/finally_donald_trump_reveals_the_se.php">no combover in the universe</a> that can make him any classier.</p>					
+										
+									
+				

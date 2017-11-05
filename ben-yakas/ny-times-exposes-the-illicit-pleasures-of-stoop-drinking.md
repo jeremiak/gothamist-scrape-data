@@ -1,0 +1,23 @@
+---
+author: Ben Yakas
+date: Aug 18, 2012 4:50 pm
+title: NY Times Exposes The Illicit Pleasures Of Stoop Drinking
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="81812stoop.jpg" src="https://web.archive.org/web/20150712011447im_/http://gothamist.com/attachments/byakas/81812stoop.jpg" width="640" height="428"> <br> <i> <a href="https://web.archive.org/web/20150712011447/http://www.flickr.com/photos/patminnyc/6509235829/">PatMinNYC&apos;s flickr</a></i></div> <p></p>
+
+<p>Last month, we were disappointingly reminded that police officers don&apos;t have anything better to do than <a href="https://web.archive.org/web/20150712011447/http://gothamist.com/2012/07/10/nypd_still_ticketing_new_yorkers_fo.php">hound people who they catch</a> enjoying a drink of alcohol on their stoops. <a href="https://web.archive.org/web/20150712011447/http://www.nytimes.com/2012/08/18/nyregion/drinking-on-stoops-is-illegal-in-new-york-but-popular.html?partner=rss&amp;emc=rss">The NY Times dove back into</a> the stoop drinking phenomenon this weekend, hitting all the familiar notes: Marty Markowitz&apos;s <a href="https://web.archive.org/web/20150712011447/http://gothamist.com/2009/07/20/marty_markowitz_caught_stoop_drinki.php">infamous &quot;Stoop Talk&quot; appearance</a>, the saga of inadvertent stoop drinking advocate <a href="https://web.archive.org/web/20150712011447/http://gothamist.com/tags/kimbervanry">Kimber VanRy</a>, and the illicit pleasure of using a Paula Deen &#x201C;S.L.U.T.S.&#x201D; cup. But the best part of the piece might be a multi-graf reverie that describes the stoop drinking habits of people all around the city. </p>
+
+<blockquote>On the corner of Cumberland Street and DeKalb Avenue in Fort Greene, a couple newly relocated from Montreal prepared an elaborate spread of mozzarella salad, a cutting board filled with pata negra and other cured meats, accompanied by a Spanish red wine. On 105th Street and Riverside Drive in Manhattan, a 20-something couple sipped Bacardi Coconut on the rocks through straws from tall white foam cups. At the corner of West Fourth and West 12th Streets in Manhattan, a woman whose mother had been in intensive care for two days smoked American Spirits while sitting with her two Chihuahuas on the steps leading up to a red-brick building, an orange cup of Red Stripe at her feet.
+
+<p>At about 9:30 p.m. on a Sunday in south Park Slope, Brooklyn, three couples sat on low-slung beach chairs and on the stairs of a brownstone with small glasses of Writers Tears whiskey or cans of Coors Light. One woman ducked inside briefly to make sure her child was still asleep.</p></blockquote><p></p>
+
+<p>VanRy told them he believed the public drinking laws are unevenly enforced along racial lines: &#x201C;I see this very much like stop and frisk,&#x201D; he said. Gibran K. Brown and Jaie Jordan, who the Times found drinking in Fort Greene Park, argued: &#x201C;Why spend $20 or $30 in a local pub to be in a stuffy place? We&#x2019;ve got the air and the trees.&#x201D; One Park Slope couple, Matt Rohrer and wife Susan McCullough, complained, &#x201C;New York City&#x2019;s not supposed to be so Puritan.&#x201D;</p>
+
+<p>It turns out the NYPD issued 124,498 tickets for public drinking in 2011, which isn&apos;t a crime, but rather a &quot;quality of life&quot; violation. It&apos;s not clear how many of those were for stoop drinkers in particular, but they do note that it&apos;s at the &quot;discretion of the patrolling officer whether or not to write up the pink slip.&quot; So basically, you&apos;re most likely screwed whether you do or don&apos;t argue with an officer if they spot you sipping . </p>
+
+<p>But never forget <a href="https://web.archive.org/web/20150712011447/http://gothamist.com/2012/08/09/behold_the_brand_loophole_that_stym.php">&quot;The Brand Loophole:&quot;</a> as Sue Funke recently discovered, tickets are considered &quot;defective&quot; if they are missing pertinent details, such as the brand of alcohol. &quot;Did they write the brand down of the wine?&quot; she told us. &quot;If they don&apos;t write the brand it doesn&apos;t count. Like, ya can&apos;t just write beer it&apos;s gotta be Budweiser Beer. This law is ridiculous.&quot; We&apos;ve still got our fingers crossed for <a href="https://web.archive.org/web/20150712011447/http://gothamist.com/2011/01/07/could_nyc_designate_outdoor_booze_z.php">designated booze zones</a> one day.</p>					
+										
+									
+				

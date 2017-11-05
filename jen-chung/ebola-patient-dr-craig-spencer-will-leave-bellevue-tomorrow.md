@@ -1,0 +1,23 @@
+---
+author: Jen Chung
+date: Nov 10, 2014 5:23 pm
+title: Ebola Patient Dr. Craig Spencer Will Leave Bellevue Tomorrow
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2014_11_craigspencer11.jpg" src="https://web.archive.org/web/20150510012011im_/http://gothamist.com/attachments/jen/2014_11_craigspencer11.jpg" width="640" height="432"> <br> <i> Dr. Craig Spencer</i></div> <p></p>
+
+<p>The doctor who contracted Ebola while on a Doctors Without Borders mission in West Africa is going home. The <a href="https://web.archive.org/web/20150510012011/http://www.nytimes.com/2014/11/11/nyregion/craig-spencer-new-york-doctor-with-ebola-will-leave-bellevue-hospital.html?partner=rss&amp;emc=rss&amp;_r=1">NY Times reports</a>, &quot;Craig Spencer, the New York City doctor who became the first person in the city to test positive for Ebola, is being released from Bellevue Hospital Center on Tuesday morning, people familiar with his treatment said on Monday.&quot;</p>
+
+<p>Spencer was confirmed to <a href="https://web.archive.org/web/20150510012011/http://gothamist.com/2014/10/23/doctor_who_treated_ebola_patients_i.php">have the deadly disease on October 23</a>, and officials urged New Yorkers to remain calm, <a href="https://web.archive.org/web/20150510012011/http://gothamist.com/2014/10/23/nyc_doctor_tests_positive_for_ebola.php">as details of his movements</a>&#x2014;going to his Hamilton Heights apartment and CSA, taking the subways, eating at the Meatball shop, visiting the High Line, buying Blue Bottle coffee, bowling at The Gutter in Williamsburg, taking an Uber home&#x2014;became public. Mayor de Blasio reminded everyone, &quot;There is no reason for New Yorkers to be alarmed. This is a very difficult disease to contract.&quot; (Governor Cuomo said there would be a <a href="https://web.archive.org/web/20150510012011/http://gothamist.com/2014/10/24/ny_nj_announce_mandatory_21_day_ebo.php">mandatory 21-day quarantine at state facilities</a> and then <a href="https://web.archive.org/web/20150510012011/http://gothamist.com/2014/10/27/cuomo_ebola_quarantine.php">changed his mind after political pressure</a>.)</p>
+
+<p>A few days after he was put into quarantine, <a href="https://web.archive.org/web/20150510012011/http://gothamist.com/2014/10/26/ebola_patient_feeling_well_as_he_de.php">Spencer&apos;s condition grew more serious</a>, but he said he was feeling well. Then last week he was reportedly <a href="https://web.archive.org/web/20150510012011/http://www.nydailynews.com/life-style/health/bellevue-ebola-patient-craig-spencer-jamming-quarantine-article-1.2000196">playing his banjo and riding a stationary bike</a>.</p>
+
+<p><a href="https://web.archive.org/web/20150510012011/http://www.nytimes.com/2014/11/11/nyregion/craig-spencer-new-york-doctor-with-ebola-will-leave-bellevue-hospital.html?partner=rss&amp;emc=rss&amp;_r=1">The NY Times reports</a>:</p><blockquote>The plan to release Dr. Spencer has not been publicly announced but was confirmed on Monday by two people familiar with his treatment, but who declined to be identified because they did not have permission to release the information. A spokeswoman for Bellevue did not immediately respond to a request for comment.<p></p>
+
+<p>It was unclear Monday whether Dr. Spencer would return to his Hamilton Heights apartment, where his fianc&#xE9;e, Morgan Dixon, is under quarantine. Two friends who had contact with him in the days before his diagnosis were initially held in quarantine, but recently released.</p>
+
+<p>Dr. Spencer was given every treatment available, including an experimental drug and blood plasma donated by a recovered Ebola patient, Nancy Writebol, a 59-year-old missionary who contracted the virus in Liberia.</p></blockquote>In an <a href="https://web.archive.org/web/20150510012011/http://www.nytimes.com/2014/11/06/nyregion/in-exclusive-club-of-us-ebola-survivors-kinship-is-sealed-in-blood.html">interview with the Times last week</a>, Writebol &quot;carefully followed disease protocols, and she is still not sure how she was infected. &apos;There&#x2019;s so much going on outside of the isolation units,&apos; she said. &apos;You can come in contact with people that have no idea they have Ebola.&apos;&quot; <a href="https://web.archive.org/web/20150510012011/http://www.nbcnews.com/storyline/ebola-virus-outbreak/new-york-ebola-patient-craig-spencer-receives-blood-writebol-n234056">She also said</a>, &quot;I am praying for Dr. Spencer&apos;s recovery and am happy to be able to donate blood.&quot;<p></p>					
+										
+									
+				

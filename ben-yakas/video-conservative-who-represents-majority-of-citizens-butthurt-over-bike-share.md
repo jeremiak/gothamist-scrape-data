@@ -1,0 +1,25 @@
+---
+author: Ben Yakas
+date: Jun 1, 2013 2:30 pm
+title: Video: Conservative Who "Represents Majority Of Citizens" Butthurt Over Bike Share
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="6113bikepinion.jpg" src="https://web.archive.org/web/20150905200817im_/http://gothamist.com/attachments/byakas/6113bikepinion.jpg" width="640" height="418" class="image-none"> </span></p>
+
+<p>It is fine to have problems with the newly-installed <a href="https://web.archive.org/web/20150905200817/http://gothamist.com/tags/citibike">Citi Bike program</a> and respectfully express it&#x2014;if you want to stage <a href="https://web.archive.org/web/20150905200817/http://gothamist.com/2013/05/30/art_proceeds_in_petrosino_park_desp.php">semi-nude protests</a>, that&apos;s great! The program is still working out its kinks, and even if you love it, opinions from both sides of the debate are important to try to make things safer for locals and tourists. <em>Having said that</em>, there are some publications out there (<a href="https://web.archive.org/web/20150905200817/http://gothamist.com/2013/05/29/2_people_blame_citi_bike_for_making.php">ahem</a>) who seem driven to destroy bike share because of some blindingly passionate hatred for...bikes? Sharing? &quot;Big&quot; government? </p>
+
+<p>It&apos;s unclear what exactly inspires such fevered bile, but when you have out-of-touch reactionary conservatives claiming to &quot;represent the majority of citizens&quot; while preaching how Citi Bike has destroyed everything good and beautiful about NYC in an inflammatory piece titled, &quot;Death By Bicycle&quot;&#x2014;a piece in which everyone comes across, at best, as smug, paranoid, and a little bit insane&#x2014;maybe it&apos;s time to take a step back and calm the fuck down. </p>
+
+<center><iframe frameborder="0" scrolling="no" width="512" height="288" src="https://web.archive.org/web/20150905200817if_/http://live.wsj.com/public/page/embed-C6D8BBCE_B405_4D3C_A381_4CA50BDD8D4D.html"></iframe></center>
+
+<p>It&apos;s pretty clear from this piece that Wall Street Journal editorial board member Dorothy Rabinowitz, a Pulitzer Prize winning conservative commentator and journalist, despises Mayor Bloomberg, who she refers to as an autocrat, a &quot;practiced denier,&quot; and a totalitarian at different points. &quot;It is shocking to walk around the city to see how much of this they sneaked under the radar in the interest of the environment,&quot; she says, and it&apos;s clear who &quot;they&quot; is. Somehow, she has conflated her hatred for Bloomberg with the entire program, which seems like a pretty awful stretch of reality to us.</p>
+
+<p>We understand that change can be very scary, but frothing at the mouth over how &quot;begrimed&quot; the city has become thanks to a few thousand blue bikes? Even if you believe that NYC will remain a car-dominant city in the far flung future, is it really a <em>bad</em> thing that the city is taking steps now to try to make biking safer, and a more attractive alternative to driving? Even former bike lane-haters have had <a href="https://web.archive.org/web/20150905200817/http://gothamist.com/2013/05/31/anthony_weiner_and_citi_bike_friend.php">a change of heart</a> over time.</p>
+
+<p>But for Rabinowitz, apparently this is the worst thing imaginable: &quot;Before this, every citizen knew...that the most important danger in the city is not the yellow cabs. It&apos;s the bicyclists who veer in and out of the sidewalk, empowered by the city administration, with the idea that they are privileged, because they are helping, part of all the good forward-looking things.&quot; Of course bicyclists need to observe the rules of the road and be considerate of pedestrians and drivers&#x2014;hey, here are <a href="https://web.archive.org/web/20150905200817/http://gothamist.com/2013/05/14/nyc_bike_etiquette_in_five_simple_t.php">some great tips</a> on that&#x2014;but to claim that cyclists are MORE dangerous than drivers <a href="https://web.archive.org/web/20150905200817/http://gothamist.com/2013/03/11/nypd_issues_sweeping_changes_to_cra.php">is a ridiculous</a> <a href="https://web.archive.org/web/20150905200817/http://gothamist.com/2012/02/15/heres_why_drivers_get_away_with_mur.php">bald-faced mistruth.</a></p>
+
+<p>There are plenty of ways of talking about the divide between Citi Bike lovers and haters without lapsing into extremism (like this <a href="https://web.archive.org/web/20150905200817/http://www.nydailynews.com/opinion/respect-cars-article-1.1360578?localLinksEnabled=false">thoughtful Daily News editorial</a> about drivers and cyclists needing to respect one another), but you won&apos;t find that here. The best <a href="https://web.archive.org/web/20150905200817/https://twitter.com/jackshafer/status/340837836242694144">Reuters columnist Jack Shafer</a> could say in response to Rabinowitz&apos;s raving anti-cycling editorial is this quote: &quot;You must not argue w the aging reactionary but hold in mind a picture of the younger man @ the height of his powers.&quot; </p>					
+										
+									
+				

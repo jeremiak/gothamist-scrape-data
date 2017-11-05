@@ -1,0 +1,25 @@
+---
+author: Jen Chung
+date: Jun 5, 2017 9:54 am
+title: 'Nobody Jumped Down. So I Jumped Down': Ballet Dancer Rescues Man From Subway Tracks
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2017_0_72ndstreet.jpg" src="https://web.archive.org/web/20170624124929im_/http://gothamist.com/attachments/jen/2017_0_72ndstreet.jpg" width="640" height="427"> <br> <i> Photograph of the West 72nd Street subway station by <a href="https://web.archive.org/web/20170624124929/https://www.flickr.com/photos/laughingsquid/7718424844">Scott Beale</a> / Flickr</i></div> <p></p>
+
+<p>A man was apparently pushed onto the trackbed at an Upper West Side subway station on Saturday night&#x2014;and promptly rescued by an American Ballet Theatre dancer who happened to be in the station because of service changes. Gray Davis <a href="https://web.archive.org/web/20170624124929/https://www.nytimes.com/2017/06/04/arts/dance/ballet-dancer-gray-davis-subway-rescue.html?rref=collection%2Fsectioncollection%2Fnyregion&amp;action=click&amp;contentCollection=nyregion&amp;region=stream&amp;module=stream_unit&amp;version=latest&amp;contentPlacement=3&amp;pgtype=sectionfront">told the NY Times</a> that getting out of the tracks was more of a challenge than he realized, &quot;I never realized how high it was. Luckily, I&#x2019;m a ballet dancer, so I swung my leg up.&quot;</p>
+
+<p>An NYPD spokesperson said that around 11:20 p.m. on June 3rd, a 58-year-old man was shoved onto the tracks at the West 72nd Street 1/2/3 station, according to the victim and witnesses. The shoved man, who suffered lacerations to his head, was unconscious when he was taken to St. Luke&apos;s-Roosevelt Hospital. Police added that a suspect, Carolyn Mack, 23, was arrested and charged with assault.</p>
+
+<p>Davis, who is a corps de ballet member at the ABT, said that he was waiting on the southbound platform with his wife Cassandra Trenary and mother when an altercation between a man and woman unfolded on the uptown platform. <a href="https://web.archive.org/web/20170624124929/https://www.nytimes.com/2017/06/04/arts/dance/ballet-dancer-gray-davis-subway-rescue.html?rref=collection%2Fsectioncollection%2Fnyregion&amp;action=click&amp;contentCollection=nyregion&amp;region=stream&amp;module=stream_unit&amp;version=latest&amp;contentPlacement=3&amp;pgtype=sectionfront">Trenary told him to get help</a>: &quot;When he went upstairs, he said, he found no one in the token booth, and he went down to the uptown platform just after the man had hit the tracks. Then, he said, he decided to jump down. It was only later that the danger sank in.&quot;</p>
+
+<p>Davis explained, &quot;At first I waited for somebody else to jump down there. People were screaming to get help. But nobody jumped down. So I jumped down.&quot; He managed to lift the man out and others on the platform pulled him out.</p>
+
+<p>Davis had been at Lincoln Center to see his wife perform; he wasn&apos;t dancing on Saturday night due to a herniated disc. His mother, Janie Krabbe B. LeTourneau, also wrote about his rescue, <a href="https://web.archive.org/web/20170624124929/https://www.facebook.com/AmericanBalletTheatre/photos/rpp.15817871857/10155083014446858/?type=3&amp;theater">which ABT shared on its Facebook page</a>:</p><blockquote>As we watched a man and woman on the opposite platform punching each other, Cassandra Trenary made Gray go look for security..all of a sudden the woman threw the man onto the train tracks, while a train was due any minute. We were all horrified about what was about to happen as the man lay unresponsive on that track...out of no where and just in time we all watched as a brave young man jumped down, and lifted the man high up on to safety like he was a feather. Shocked, I said, uh, Cassie is THAT Grayson Davis ? She said Yes it is. He then lifted himself up miraculously just before the train got there. People started cheering and yelling &quot;you are a hero&quot;. The three of us have been in shock ever since. The NYPD came, arrested the lady, then got our statement, and told Gray he did a very brave thing and no doubt saved the man&apos;s life...the man was rushed to hospital and we pray he will be ok. My son has always made me proud, but I&apos;ve never been as proud of him as I was tonight, out of 2 full platforms of people, he was the only person brave enough to jump down and save that man&apos;s life. </blockquote><p></p>
+
+<center><iframe src="https://web.archive.org/web/20170624124929if_/https://www.facebook.com/plugins/post.php?href=https%3A%2F%2Fwww.facebook.com%2FAmericanBalletTheatre%2Fposts%2F10155083014446858%3A0&amp;width=500" width="500" height="728" style="border:none;overflow:hidden" scrolling="no" frameborder="0" allowtransparency="true"></iframe></center>
+
+<p>The ABT added, &quot;Heroes are everywhere!&quot;</p>					
+										
+									
+				

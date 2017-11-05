@@ -1,0 +1,17 @@
+---
+author: Ben Yakas
+date: Sep 15, 2010 3:21 pm
+title: General Paladino Preps For Fight With "Immature" Cuomo
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="2010_09_paladino10.jpg" src="https://web.archive.org/web/20160425041305im_/http://gothamist.com/attachments/jen/2010_09_paladino10.jpg" width="640" height="464"> <br> <i>Paladino at his victory party last night (Don Heupel/AP)</i></div> <p></p>
+
+<p>Carl Paladino pulled off an <a href="https://web.archive.org/web/20160425041305/http://gothamist.com/2010/09/14/2010_primary_returns_paladino_leadi.php">upset victory</a> over Rick Lazio in the GOP gubernatorial primary yesterday, and he&apos;s wasting no time moving forward with his campaign against his main opponent, current Attorney General Andrew Cuomo. &quot;Carl&apos;s whole life is an open book to the people of New York, and Cuomo is clearly frightened of his own life and failed career being under the spotlight with us. <strong>We have a message for Andrew Cuomo: You can run but you can&apos;t hide. Prepare for a full and complete vetting</strong>. Your time has come,&quot; <a href="https://web.archive.org/web/20160425041305/http://www.buffalonews.com/city/politics/article191015.ece">said his campaign manager</a>, Michael Caputo.</p>
+
+<p><a href="https://web.archive.org/web/20160425041305/http://gothamist.com/tags/carlpaladino">Paladino</a> was seen by most political insiders as an extreme longshot for the Republican nod as recently as last month. But the Buffalo tycoon committed to spending millions of his own money on TV ads and mailers, and was able to rouse the Tea Party-wing of the GOP (or perhaps benefited from Lazio&apos;s boringness) for support, despite a series of increasingly ludicrous gaffes, such as <a href="https://web.archive.org/web/20160425041305/http://gothamist.com/2010/04/14/paladino_disturbs_paterson_apologiz.php">forwarding racist (and bestiality) videos</a>, badmouthing <a href="https://web.archive.org/web/20160425041305/http://gothamist.com/2010/09/05/paladino_tries_to_clarify_remarks_a.php">3/5 of NY</a>, and <a href="https://web.archive.org/web/20160425041305/http://gothamist.com/2010/08/22/paladino_house_poor_people_in_priso.php">proposing housing poor people in jails</a>. </p>
+
+<p>In an <a href="https://web.archive.org/web/20160425041305/http://cityroom.blogs.nytimes.com/2010/09/15/paladino-promises-a-relentless-attack-against-cuomo/">interview with the Times today</a>, Paladino compared himself to General Patton, and said he would attack Cuomo&apos;s &quot;immaturity&quot; and &quot;ego.&quot; Of course, this is what Cuomo <a href="https://web.archive.org/web/20160425041305/http://gothamist.com/2010/08/23/cuomo_reportedly_prefers_to_face_pa.php">(allegedly) wanted</a>, because many people view Paladino&apos;s &quot;mad as hell&quot; rhetoric as damaging to the Republican party. &quot;GOP voters who picked Carl Paladino because they were &apos;mad as hell&apos; are in for a rude awakening <strong>when they realize that Paladino embodies everything that they&apos;re mad about</strong>,&quot; said state Democratic Party Chairman Jay Jacobs.</p>					
+										
+									
+				

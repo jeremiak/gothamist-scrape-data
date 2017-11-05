@@ -1,0 +1,13 @@
+---
+author: Ben Yakas
+date: September  1, 2010 10:54 AM
+title: Photographer Sues Boss For Sexual Harrassment
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:240px; "> <img alt="9110pignatelli.jpg" src="https://web.archive.org/web/20111101203222im_/http://gothamist.com/attachments/byakas/9110pignatelli.jpg" width="240" height="242"> <br> <i>Maryam Sayigh and Frederico Pignatelli</i></div> A female photographer is <a href="https://web.archive.org/web/20111101203222/http://www.nypost.com/p/news/local/manhattan/photo_exposure_cxxizzjHTefcee0kKxHF6L?CMP=OTC-rss&amp;FEEDNAME=">suing</a> her former boss, the head of Pier 59 Studios at Chelsea Piers, for sexual harassment. Maryam Sayigh&apos;s $2 million suit accuses Federico Pignatelli of sunbathing nude in front of her, propositioning her, and forcing her to pick up women for him. <p></p>
+
+<p><a href="https://web.archive.org/web/20111101203222/http://maryamsayigh.com/">Sayigh</a>, 35, says that she started working for Pignatelli as his executive assistant in June 2008, and was soon swept into a European business trip with him. She was cajoled into sleeping with him aboard his boat in the Mediterranean Sea, a decision she felt &quot;was the only way she could stay at the company.&quot; She claims to only have slept with him twice, then rebuffed his later advances, and never got the promotion she thought she was promised: she says he promised that he would open a modeling agency for her to run and that she could be his No. 2 at Pier 59. But by February 2009, she was fired.</p>
+
+<p>Pignatelli <a href="https://web.archive.org/web/20111101203222/http://www.nydailynews.com/news/2010/08/31/2010-08-31_picture_this_i_sue_boss_vowed_job_boost_for_sex__fotog.html">refutes</a> her claims about promising her a job, and denies they ever had sex, saying she&apos;s too &quot;unattractive&quot; for him: &quot;She&apos;s not the type of woman I would sleep with. I have plenty of women I can sleep with, so why would I sleep with an employee?&quot; Pignatelli says that Sayigh was a disgruntled employee, a &quot;low-quality woman,&quot; and that she was extorting him.</p>
+
+<p>Sayigh responded to the badmouthing in the <a href="https://web.archive.org/web/20111101203222/http://www.nydailynews.com/ny_local/2010/09/01/2010-09-01_who_you_callin_a_dog_you_pig.html">News</a> today, showing off pictures of herself with Pignatelli in Saint Tropez, France, and the island of Sardinia: &quot;If you&apos;re that into yourself, then you don&apos;t let yourself be seen in the most prestigious places in the world with an unattractive woman...I don&apos;t think I&apos;m ugly.&quot;</p>

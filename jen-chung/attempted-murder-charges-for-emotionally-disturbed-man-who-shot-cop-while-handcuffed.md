@@ -1,0 +1,19 @@
+---
+author: Jen Chung
+date: Jun 11, 2013 11:33 am
+title: Attempted Murder Charges For Emotionally Disturbed Man Who Shot Cop While Handcuffed
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2013_06_emtmayos.jpg" src="https://web.archive.org/web/20150424164359im_/http://gothamist.com/attachments/jen/2013_06_emtmayos.jpg" width="640" height="480"> <br> <i> Police Commissioner Kelly and Mayor Bloomberg with EMT Brandon Hernandez (left) (NYPD)</i></div> <p></p>
+
+<p>Early yesterday morning, a police officer who was bringing a handcuffed emotionally disturbed man into Harlem Hospital <a href="https://web.archive.org/web/20150424164359/http://gothamist.com/2013/06/10/man_grabs_cops_gun_and_shoots_him_i.php">was shot in the foot</a>. Apparently suspect Guyteau Idore, 41, managed to grab Officer Fausto Gomez&apos;s gun during a struggle with Gomez and Officer John Chiodi. Now Idore has been charged with attempted murder, as well as robbery and assault.</p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-right"> <img alt="2013_06_shotcops.jpg" src="https://web.archive.org/web/20150424164359im_/http://gothamist.com/attachments/jen/2013_06_shotcops.jpg" width="350" height="232"> <br> <i style=" width:350px; ;display:block"> Officer Fausto Gomez (left) and Officer John Chiodi</i></div> The NY Times notes, &quot;Holsters worn by police officers have a mechanism that makes it difficult for someone other than the officer to remove the gun,&quot; and NYPD spokesman Paul Browne said, &quot;It&#x2019;s very hard to do, it&#x2019;s unusual, but it happened.&quot; <p></p>
+
+<p>Officers Gomez and Chiodi had initially responded to a call about a man, Idore, who was <a href="https://web.archive.org/web/20150424164359/http://www.nypost.com/p/news/local/law_enforcement_officer_wounded_DP3D0RTEXihzhLeBSYz0sN?utm_medium=rss&amp;utm_content=Local">allegedly throwing bottles at people</a> at 117th Street and Lenox Avenue. Idore was handcuffed and put in an ambulance and taken to Harlem Hospital. When the cops removed him from the ambulance, Police Commissioner Ray Kelly said that he tried to flee:</p><blockquote>Now, both the officers, Officers Chiodi and Gomez, grabbed  onto him and were on either side of him as he walked up the he ramp. Then, as they reached the top of the ramp, the individual began to struggle again. Again, he was handcuffed - he was handcuffed behind his back. He managed somehow to remove Officer Chiodi&#x2019;s service weapon and fire that weapon two times, striking Officer Gomez one time in his left foot, a graze wound. Emergency Medical Technician Brendan Hernandez quickly pulled the gun from Idore&#x2019;s hand. He racked it, to make it safe, and he did an outstanding job. </blockquote>Hernandez, who wants to join the NYPD, <a href="https://web.archive.org/web/20150424164359/http://www.nydailynews.com/new-york/emt-disarmed-gunman-stranger-heroics-article-1.1368656?localLinksEnabled=false">said</a>, &quot;I&#x2019;m not a hero, not at all. A cop got shot, and it could have been worse &#x2014; thank God it wasn&#x2019;t.&quot; Kelly added that Hernandez &quot;certainly demonstrated that he has what it takes to do the job.&quot;<p></p>
+
+<p>Gomez was treated for minor injuries. Mayor Bloomberg pointed out that the cops respond to thousands of calls about EDPs, &quot;These interactions involve plenty of risk and unpredictable behavior. This morning&#x2019;s incident is another example I think of the dangers of our officers face every day and the incredible restraint that they demonstrate.&quot;</p>					
+										
+									
+				

@@ -1,0 +1,12 @@
+---
+author: Ben Yakas
+date: June  9, 2010  4:14 PM
+title: Spitzer Being Courted By Cable News Networks
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2010_04_spitzman.jpg" src="https://web.archive.org/web/20111118045424im_/http://gothamist.com/attachments/byakas/2010_04_spitzman.jpg" width="250" height="280" class="image-left"> </span>We heard rumors <a href="https://web.archive.org/web/20111118045424/http://gothamist.com/2010/05/19/spitzer_2.php">last month</a> that CNN was interested in hiring<br>
+<a href="https://web.archive.org/web/20111118045424/http://gothamist.com/2010/06/09/what_next_a_spitzer_tattoo.php">our-next-tattoo,</a> Eliot Spitzer, as a show host, which he denied interest in at the time. But today comes news that both CNN and MSNBC executives have approached Spitzer about jobs hosting programs on their networks. <strong>&quot;He&apos;s got personality, he&apos;s got smarts, he&apos;s got an edge and he&apos;s got enough controversy about him that the name means something,&quot;</strong> said Frank Sesno, a former CNN Washington bureau chief.</p>
+
+<p>According to <a href="https://web.archive.org/web/20111118045424/http://finance.yahoo.com/news/Eliot-Spitzer-a-hot-property-apf-1537033896.html?x=0&amp;.v=1">AP</a>, MSNBC is interested in giving Spitzer his own program, while on CNN Spitzer would likely be paired with an unlike-minded co-host for a show resembling CNN&apos;s old &quot;Crossfire.&quot; Spitzer refused to comment on the situation, but Doug Muzzio, a Baruch College politics professor and &quot;veteran Spitzer watcher,&quot; thinks a high profile gig like that would suit Spitzer&apos;s personality: &quot;It seems to me that he craves the spotlight and I think he craves relevance. <strong>He really deeply believes that he has something to offer that is uniquely Spitzer and that drives him. The fact that he blew it on so many levels pushes him more. This is almost redemption</strong>.&quot; But doesn&apos;t the search for redemption on a cable news program sound like it would have the same success rate as looking for it at the bottom of a bottle?</p>
+
+<p>Sesno accurately sums up the true appeal of Spitzer with an appropriately weird metaphor: <strong>&quot;He&apos;s a little like a car wreck. You can&apos;t avert your eyes. In the world of television, that isn&apos;t necessarily a bad thing, especially if it&apos;s a good car.&quot;</strong> Spitzer: just a good car searching for the nearest gas station in a car wreck world.</p>

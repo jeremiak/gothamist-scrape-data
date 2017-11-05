@@ -1,0 +1,21 @@
+---
+author: Ben Yakas
+date: Mar 31, 2013 2:25 pm
+title: Multiple FDNY EMTs Have Posted Graphic Photos Of Patients Online
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="33113fdny.jpg" src="https://web.archive.org/web/20150929030055im_/http://gothamist.com/attachments/byakas/33113fdny.jpg" width="640" height="440"> <br> <i> <a href="https://web.archive.org/web/20150929030055/http://www.nypost.com/p/news/local/emts_are_pic_and_twisted_WHMpohpsktzM2epWfrXw9I">via NY Post cover</a></i></div> <p></p>
+
+<p>Last week, after an EMS lieutenant <a href="https://web.archive.org/web/20150929030055/http://gothamist.com/2013/03/24/ems_bad_lieutenant_cries_when_racis.php">was exposed by the NY Post</a> for his racist, anti-semitic, and sexist tweets, the FDNY&apos;s Bureau of Investigations and Trials were said to be poring over Facebook, Twitter and Instagram looking for members&#x2019; offensive posts before anything else got into the media. But it seems they didn&apos;t act quick enough: <a href="https://web.archive.org/web/20150929030055/http://www.nypost.com/p/news/local/emts_are_pic_and_twisted_WHMpohpsktzM2epWfrXw9I">the Post has a story today</a> all about how FDNY EMS workers (including now-suspended &quot;Bad Lieutenant&quot; <a href="https://web.archive.org/web/20150929030055/http://gothamist.com/2013/03/25/racist_bad_lieutenant_suspended_fro.php">Timothy Dluhos</a>) like to put grisly, graphic photos of the ill, sick or dying online. </p>
+
+<p>In particular, there is a <a href="https://web.archive.org/web/20150929030055/https://www.facebook.com/EMTsParamedics/photos_stream">Facebook group page called EMT/Paramedic</a> that includes extremely graphic material, including some of the photos which the Post found. Most of the photos there include this disclaimer: &quot;This is a Medical Site for Medical Professionals and this Picture is for EDUCATIONAL and TRAINING Purposes only.&quot; One Facebook user identifying himself as FDNY EMT Anthony Palmigiano posted a photo of a man with a gaping neck wound (a &quot;table saw injury&quot;). The victim&#x2019;s face is clearly visible, a likely violation of the federal Health Insurance Portability and Accountability Act, which prohibits the unauthorized release of patient information.</p>
+
+<p>When confronted by the Post, Palmigiano claimed &#x201C;someone hacked into my account and posted this. It&#x2019;s absurd.&#x201D; Then there&apos;s EMS Lt. Timothy Dluhos, 34, who posted the above photo of a woman in a wheelchair with &quot;Wide Load&quot; photoshopped onto it. Brooklyn FDNY EMT Mike Vale posted shots of patients in the back of an ambulance, including a man holding an ice pack on his head, on Flickr and Tumblr. He told the Post, &#x201C;I am being punished for it right now,&#x201D; Vale said. &#x201C;What I&#x2019;ve done has been taken care of. I&#x2019;m waiting to be called in.&#x201D; FDNY spokesman Frank Gribbon added that Vale has now been suspended for 30 days, and they&apos;ve launched a probe of Palmigiano.</p>
+
+<p>Former FDNY EMT Steve O&apos;Brien claims he resigned from the FDNY over his Tumblr called &#x201C;Allons-y!&#x201D; (guess he&apos;s a <em>Doctor Who</em> fan?) where he posted photos of patients and let off steam about his job. Gribbon said O&#x2019;Brien and another former EMT, Chris Ebdon, were forced to resign over pictures they posted. O&apos;Brien is now working as an EMT in Yonkers.</p>
+
+<p>&#x201C;My opinions of the filth I have to put up with on a daily basis; the savagery I endure for a meager salary, the abuse I take for people who cant be bothered to take care of them selves,&#x201D; O&apos;Brien wrote on his Tumblr (it&apos;s unclear whether he&apos;s restarted it now). Hmm, does that savagery extend to the friends of Dluhos <a href="https://web.archive.org/web/20150929030055/http://www.nypost.com/p/news/local/bigots_spew_bile_rY0wrBIZTijFNcecp1xeiK">who tweeted death threats</a> to the Post writer who broke the story on him?</p>					
+										
+									
+				

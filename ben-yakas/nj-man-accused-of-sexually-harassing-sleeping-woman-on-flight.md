@@ -1,0 +1,13 @@
+---
+author: Ben Yakas
+date: August 22, 2012  5:54 PM
+title: NJ Man Accused Of Sexually Harassing Sleeping Woman On Flight
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left"> <img alt="82212aksal.jpg" src="https://web.archive.org/web/20130613013700im_/http://gothamist.com/attachments/byakas/82212aksal.jpg" width="260" height="195"> <br> <i style=" width:260px; ;display:block"> Bawer Aksal (<a href="https://web.archive.org/web/20130613013700/http://newyork.cbslocal.com/2012/08/22/n-j-man-accused-of-sexually-abusing-sleeping-woman-during-flight/">via CBS</a>)</i></div> A North Jersey man <a href="https://web.archive.org/web/20130613013700/http://www.nbcnewyork.com/news/local/Sleeping-Woman-Sex-Abuse-Airplane-New-Jersey-Man-Arrested-167043365.html">has been arrested and accused of</a> sexually harassing and groping a sleeping woman on a Newark-bound flight this week. Bawer Aksal, 48, a Turkish national with U.S. citizenship who lives in North Bergen, was arrested on Tuesday after an unidentified woman claimed he groped her breasts and genitals as she was sleeping next to him on a plane from Phoenix to Newark. To add to the creepiness, the woman says she woke up to Aksal leaning over her whispering, &quot;Kiss me.&quot; <p></p>
+
+<p><a href="https://web.archive.org/web/20130613013700/http://www.northjersey.com/news/North_Bergen_man_accused_of_sex_assault_on_Newark-bound_flight_.html">According to the criminal complaint</a>, Aksal was seated next to the woman who had the window seat; the two didn&apos;t know each other. The woman fell asleep with a jacket across her legs; when she woke up, Aksal allegedly had one hand in her shorts and another in her shirt, and whispered &#x201C;Kiss me.&#x201D; The woman got up immediately, and told a flight attendant at the back of the plane what happened.</p>
+
+<p>Aksal, who was arrested when the flight landed in Newark, admitted to police he touched the woman, but said it was consensual&#x2014;according to NBC, he claimed she forced his hand into her lap. </p>
+
+<p>Last year, an Orthodox rabbi <a href="https://web.archive.org/web/20130613013700/http://gothamist.com/2011/05/05/rabbi_guilty_of_molesting_woman_on.php">was found guilty</a> of groping a female Israeli army officer as she slept next to him on a flight from Tel Aviv to JFK. And just this week, a woman who took a spoonful of NyQuill to sleep on an 11 hour flight from the Philippines to Hawaii claims <a href="https://web.archive.org/web/20130613013700/http://abcnews.go.com/US/man-accused-groping-woman-slept-flight/story?id=17057775#.UDVNVdBSQrw">she was groped several times by her seatmate.</a></p>

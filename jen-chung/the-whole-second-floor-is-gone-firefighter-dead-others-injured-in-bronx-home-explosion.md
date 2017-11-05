@@ -1,0 +1,46 @@
+---
+author: Jen Chung
+date: Sep 27, 2016 9:02 am
+title: 'The Whole Second Floor Is Gone': Firefighter Dead, Others Injured In Bronx Home Explosion
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2016_09_bxcollapse.jpg" src="https://web.archive.org/web/20171016014628im_/http://gothamist.com/attachments/jen/2016_09_bxcollapse.jpg" width="640" height="480"> <br> <i> Outside 304 West 234th Street in the Bronx (<a href="https://web.archive.org/web/20171016014628/https://twitter.com/NYCMayorsOffice/status/780755124977274880">NYC Mayor&apos;s Office</a>)</i></div> <p></p>
+
+<p>Over 100 firefighters are on the scene of a fire at a home in the Kingsbridge section of the Bronx. Residents in the area say they heard an explosion, and there are <a href="https://web.archive.org/web/20171016014628/http://abc7ny.com/news/fire-burning-through-bronx-house;-multiple-injuries-reported/1528373/">at least five people injured</a>, including two firefighters.  <b>Update</b>: A firefighter was killed in the blast; the victim, Michael Fahy, was <a href="https://web.archive.org/web/20171016014628/http://nypost.com/2016/09/27/firefighters-respond-to-reported-house-explosion-in-the-bronx/">reportedly a battalion chief</a> who may have been struck by <a href="https://web.archive.org/web/20171016014628/http://www.nydailynews.com/new-york/bronx/explosion-rocks-bronx-home-cops-suspect-drug-lab-article-1.2808271">flying debris</a>.  He died at a hospital.</p>
+
+<p>The FDNY responded to a call about a possible gas leak at 304 West 234th Street this morning at 6:22 a.m. <a href="https://web.archive.org/web/20171016014628/http://www.nydailynews.com/new-york/bronx/explosion-rocks-bronx-home-cops-suspect-drug-lab-article-1.2808271?415454521524&amp;utm_content=bufferde921&amp;utm_medium=social&amp;utm_source=twitter.com&amp;utm_campaign=NYDailyNewsTw">The Daily News reports</a> that &quot;a drug lab in the home may have sparked the explosion,&quot; according to police sources.</p>
+
+<p>At around 7:30 a.m., residents heard a &quot;boom&quot; and saw smoke:</p>
+
+<center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">Just heard a huge boom like an explosion in <a href="https://web.archive.org/web/20171016014628/https://twitter.com/hashtag/Riverdale?src=hash">#Riverdale</a> <a href="https://web.archive.org/web/20171016014628/https://twitter.com/hashtag/Bronx?src=hash">#Bronx</a> anyone else hear it?</p>&#x2014; Manny Gonzalez (@gonzalu) <a href="https://web.archive.org/web/20171016014628/https://twitter.com/gonzalu/status/780732469104504832">September 27, 2016</a></blockquote> <script async src="//web.archive.org/web/20171016014628js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
+<blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">Explosion near 234th and Irwin Ave Bronx NYC. <a href="https://web.archive.org/web/20171016014628/https://twitter.com/NBCNewYork">@NBCNewYork</a> <a href="https://web.archive.org/web/20171016014628/https://t.co/qjqOqkDwN3">pic.twitter.com/qjqOqkDwN3</a></p>&#x2014; Dylan Ryder (@DylanMRyder) <a href="https://web.archive.org/web/20171016014628/https://twitter.com/DylanMRyder/status/780733643836780544">September 27, 2016</a></blockquote>
+<script async src="//web.archive.org/web/20171016014628js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
+<blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">Crazy explosion by my apt in riverdale saw the roof of a house blow up and my whole building felt like it shook that was scary</p>&#x2014; Rosie Nikci (@LifeIsJustRosie) <a href="https://web.archive.org/web/20171016014628/https://twitter.com/LifeIsJustRosie/status/780737849800916992">September 27, 2016</a></blockquote>
+<script async src="//web.archive.org/web/20171016014628js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
+<blockquote class="twitter-tweet" data-conversation="none" data-lang="en"><p lang="en" dir="ltr"><a href="https://web.archive.org/web/20171016014628/https://twitter.com/ErmieV">@ErmieV</a> that&apos;s what I took go ahead hope everyone is ok <a href="https://web.archive.org/web/20171016014628/https://t.co/3JJts1qiil">pic.twitter.com/3JJts1qiil</a></p>&#x2014; Rosie Nikci (@LifeIsJustRosie) <a href="https://web.archive.org/web/20171016014628/https://twitter.com/LifeIsJustRosie/status/780741783521206272">September 27, 2016</a></blockquote>
+<script async src="//web.archive.org/web/20171016014628js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<p><a href="https://web.archive.org/web/20171016014628/http://pix11.com/2016/09/27/emergency-personnel-respond-to-bronx-home-gas-explosion-we-have-possible-firefighters-down/">The FDNY reportedly said</a>, &quot;We have possible firefighters down.&quot;</p>
+
+<p>Erik Maldonado, who lives a few blocks away from the home, said he was taking his son to school when they heard an explosion... &quot;The whole building shook.&quot; When he was outside, he saw a police officer walking away from the house &quot;bleeding from the ear.&quot; </p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2016_09_bxexpl.jpg" src="https://web.archive.org/web/20171016014628im_/http://gothamist.com/attachments/jen/2016_09_bxexpl.jpg" width="640" height="627"> <br> <i> (Courtesy of Erik Maldonado)</i></div> <p></p>
+
+<p>The home is a two-story structure, and Maldonado said, &quot;The whole second floor is gone.&quot; Besides dozens of fire trucks and a police presence, Con Ed was also on the scene.</p>
+
+<center><blockquote class="instagram-media" data-instgrm-captioned="" data-instgrm-version="7" style=" background:#FFF; border:0; border-radius:3px; box-shadow:0 0 1px 0 rgba(0,0,0,0.5),0 1px 10px 0 rgba(0,0,0,0.15); margin: 1px; max-width:658px; padding:0; width:99.375%; width:-webkit-calc(100% - 2px); width:calc(100% - 2px);"><div style="padding:8px;"> <div style=" background:#F8F8F8; line-height:0; margin-top:40px; padding:50.0% 0; text-align:center; width:100%;"> <div style=" background:url(data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAACwAAAAsCAMAAAApWqozAAAABGdBTUEAALGPC/xhBQAAAAFzUkdCAK7OHOkAAAAMUExURczMzPf399fX1+bm5mzY9AMAAADiSURBVDjLvZXbEsMgCES5/P8/t9FuRVCRmU73JWlzosgSIIZURCjo/ad+EQJJB4Hv8BFt+IDpQoCx1wjOSBFhh2XssxEIYn3ulI/6MNReE07UIWJEv8UEOWDS88LY97kqyTliJKKtuYBbruAyVh5wOHiXmpi5we58Ek028czwyuQdLKPG1Bkb4NnM+VeAnfHqn1k4+GPT6uGQcvu2h2OVuIf/gWUFyy8OWEpdyZSa3aVCqpVoVvzZZ2VTnn2wU8qzVjDDetO90GSy9mVLqtgYSy231MxrY6I2gGqjrTY0L8fxCxfCBbhWrsYYAAAAAElFTkSuQmCC); display:block; height:44px; margin:0 auto -44px; position:relative; top:-22px; width:44px;"></div></div> <p style=" margin:8px 0 0 0; padding:0 4px;"> <a href="https://web.archive.org/web/20171016014628/https://www.instagram.com/p/BK28nDSAK_T/" style=" color:#000; font-family:Arial,sans-serif; font-size:14px; font-style:normal; font-weight:normal; line-height:17px; text-decoration:none; word-wrap:break-word;" target="_blank">when it exploded, 3 blocks away me and my son were in my apartment and the entire building shook.</a></p> <p style=" color:#c9c8cd; font-family:Arial,sans-serif; font-size:14px; line-height:17px; margin-bottom:0; margin-top:8px; overflow:hidden; padding:8px 0 7px; text-align:center; text-overflow:ellipsis; white-space:nowrap;">A video posted by Advocate of Wordz (@advocateofwordz) on <time style=" font-family:Arial,sans-serif; font-size:14px; line-height:17px;" datetime="2016-09-27T11:58:48+00:00">Sep 27, 2016 at 4:58am PDT</time></p></div></blockquote> <script async defer src="//web.archive.org/web/20171016014628js_/http://platform.instagram.com/en_US/embeds.js"></script></center><br>
+
+<p>First responders are still at the scene.</p>
+
+<center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">Expect traffic delays in area of Tibbett Ave &amp; 234 St in the Bronx due to <a href="https://web.archive.org/web/20171016014628/https://twitter.com/FDNY">@FDNY</a> &amp; NYPD at scene of incident.</p>&#x2014; NYPD NEWS (@NYPDnews) <a href="https://web.archive.org/web/20171016014628/https://twitter.com/NYPDnews/status/780738337237790720">September 27, 2016</a></blockquote>
+<script async src="//web.archive.org/web/20171016014628js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
+<blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">House explosion in the Bronx 1 PD MOS to the hospital <a href="https://web.archive.org/web/20171016014628/https://t.co/SXEGaSfpvf">pic.twitter.com/SXEGaSfpvf</a></p>&#x2014; SBA (@SBANYPD) <a href="https://web.archive.org/web/20171016014628/https://twitter.com/SBANYPD/status/780746736360837120">September 27, 2016</a></blockquote>
+<script async src="//web.archive.org/web/20171016014628js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>					
+										
+									
+				

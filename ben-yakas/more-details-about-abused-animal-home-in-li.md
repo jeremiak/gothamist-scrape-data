@@ -1,0 +1,11 @@
+---
+author: Ben Yakas
+date: January 16, 2011  5:40 PM
+title: More Details About Abused Animal Home in LI
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:220px; "> <img alt="11611abuse.jpg" src="https://web.archive.org/web/20110623145202im_/http://gothamist.com/attachments/byakas/11611abuse.jpg" width="220" height="136"> <br> <i>Faith Ross and Francesca Maselli</i></div> <p></p>
+
+<p>More details have emerged about the horrifying scene found in Long Island on Friday, when animal control officers <a href="https://web.archive.org/web/20110623145202/http://gothamist.com/2011/01/15/officials_discover_abused_and_dead.php">rescued</a> more than a dozen dehydrated, emaciated and abused dogs and cats in a squalid Rockville Centre home. Officials <a href="https://web.archive.org/web/20110623145202/http://www.nydailynews.com/ny_local/2011/01/15/2011-01-15_long_island_house_of_horrors_more_than_a_dozen_sick_dogs_and_cats_removed_from_f.html">found</a> the dogs with their mouths muzzled and wrapped in so much tape they couldn&apos;t breathe, bark or eat, and their fur was matted with filth; they also found 26 carcasses of other animals including dogs, cats, ferrets and birds among huge piles of trash which hid the floor. </p>
+
+<p>The home is owned by mother and daughter pair Faith Ross, 54, a secretary, and Francesca Maselli, 24, a nursing-home aide, who both pleaded not guilty on three felony animal-cruelty counts. The family has a sad history according to Ross&apos; ex-husband, Louis Maselli; he <a href="https://web.archive.org/web/20110623145202/http://www.nypost.com/p/news/local/faces_from_hell_house_PTWe8t4M6qEPjGTNfLnZ2K?CMP=OTC-rss&amp;FEEDNAME=">told the Post</a> that he has had no contact with daughter Francesca for more than a decade because Ross cut her off from him and his family after the courts refused to require visitation. &quot;My daughter was taken away from me when she was 11 and taught to hate me and my family. I gave up, finally, after 10 years of phone calls and letters.&quot; The two women shouldn&apos;t expect much sympathy from the Judge: Judge Anna Anzalone teared up as prosecutors showed pictures of a dog skull with tape still visible on it.</p>

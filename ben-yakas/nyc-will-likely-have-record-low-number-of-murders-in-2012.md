@@ -1,0 +1,21 @@
+---
+author: Ben Yakas
+date: Dec 26, 2012 12:10 pm
+title: NYC Will Likely Have Record Low Number Of Murders In 2012
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="122612nypd.jpeg" src="https://web.archive.org/web/20170112042418im_/http://gothamist.com/attachments/byakas/122612nypd.jpeg" width="640" height="480"> <br> <i> Less murders means more time for texting (<a href="https://web.archive.org/web/20170112042418/http://www.flickr.com/photos/scottlynchnyc/8160127382/">scoboco&apos;s flickr</a>)</i></div> <p></p>
+
+<p>Last week, Mayor Bloomberg <a href="https://web.archive.org/web/20170112042418/http://gothamist.com/2012/12/21/bloomberg_administration_had_record.php">proudly announce that</a> the city&apos;s incarceration rate has dramatically dropped over the course of his administration compared with the rest of the country&#x2014;and now he may have another reason to boast about the city&apos;s crime stats. There have been 414 murders in NYC in 2012, compared with 508 at this point last year. So unless something truly horrible happens over the next five days, NYC will end 2012 with <a href="https://web.archive.org/web/20170112042418/http://www.nydailynews.com/new-york/nyc-murders-18-5-year-article-1.1227060?localLinksEnabled=false">the lowest number of murders in the last 50 years.</a></p>
+
+<p>&#x201C;I&#x2019;m thankful for the fact that this year there will be the lowest number of murders that we&#x2019;ve had since we started to record them in 50 years, even though the population is as high as it&#x2019;s ever been,&#x201D; Police Commissioner Raymond Kelly said. &#x201C;I think it&#x2019;s important for the public to know that we have had a fair amount of success in New York and we&#x2019;re moving in the right direction.&quot; Amazingly, <a href="https://web.archive.org/web/20170112042418/http://gothamist.com/2012/12/19/in_2012_there_could_be_more_suicide.php">as we previously noted</a>, if trends hold over this last week, more people will have died by suicide than by murder in 2012. </p>
+
+<p>The <a href="https://web.archive.org/web/20170112042418/http://www.nypost.com/p/news/local/murder_rate_plunge_7WtGRDrzq1GMHswMR4CdBK?utm_medium=rss&amp;utm_content=Local">current record low</a> of 471 was set in 2009. There were 536 murders in 2010 and <a href="https://web.archive.org/web/20170112042418/http://gothamist.com/2011/12/29/nycs_2011_crime_rates_show_big_decl.php">515 in 2011</a>. But for the first time since records were available, no single precinct has exceeded 20 homicides so far. Soundview in the Bronx has the most, with 18 (same as it had last year). On the other hand, the Lower East Side has had zero murders this year, compared to five last year; only three people have been murdered so far in Sheepshead Bay, compared to 14 last year. Staten Island has shown the most significant drop in murders, from 16 last year to nine in 2012.</p>
+
+<p>It&apos;s worth noting that a record number of people <a href="https://web.archive.org/web/20170112042418/http://gothamist.com/2012/12/21/bloomberg_administration_had_record.php">have been arrested</a> since Bloomberg came to office. There were 338,788 collars in 2002 compared to 413,573 last year; there were 98,000 stop-and-frisks in Bloomberg&apos;s first term, compared with nearly 700K last year, a 600 percent increase. And all those numbers are expected to have gone up in 2012.</p>
+
+<p>And of course, people disagree about what should be credited for the murder drop: &quot;There&apos;s a good relationship between the precinct and the community,&#x201D; said City Councilman Jumaane Williams. &#x201C;It&#x2019;s not because of stop-and-frisk.&#x201D; State Sen. Martin Golden, who represents Sheepshead Bay, disagreed: &#x201C;If you think that stop-and-frisk isn&#x2019;t playing a role, then you are fooling yourself,&#x201D; Golden said. &#x201C;The Police Department is doing an outstanding job.&#x201D;</p>					
+										
+									
+				

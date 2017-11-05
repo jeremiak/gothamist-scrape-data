@@ -1,0 +1,34 @@
+---
+author: Jen Chung
+date: Apr 5, 2016 12:00 am
+title: Battle Of Brooklyn: Hillary Clinton, Bernie Sanders Will Debate On April 14, At The Navy Yard
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2016_04_berniehillary.jpg" src="https://web.archive.org/web/20170307154418im_/http://gothamist.com/attachments/jen/2016_04_berniehillary.jpg" width="640" height="455"> <br> <i> Bernie Sanders and Hillary Clinton at the March 9 debate (Getty Images)</i></div> <p></p>
+
+<p>After a <a href="https://web.archive.org/web/20170307154418/http://gothamist.com/2016/04/03/the_great_clinton-sanders_ny_debate.php">lot (A LOT) of bickering</a>, Hillary Clinton and Bernie Sanders have finally agreed to hold a Democratic debate in New York ahead of a <a href="https://web.archive.org/web/20170307154418/http://gothamist.com/2016/03/29/sanders_tone_done_for_what.php">pivotal Empire State primary</a>. The debate will be held at the Brooklyn Navy Yard on April 14. </p>
+
+<p>Over the weekend, the two campaigns were squabbling over the logistics. Michael Briggs, a spokesman for Sanders, scoffed at the Clinton camp&apos;s suggestion of an April 14 debate and accused them of &quot;playing games. Sen. Sanders has proposed debates on four days before the New York primary election. He is available on April 10, 11, 12 or 13. He looks forward to a debate on any of those days. Does she really have fundraisers on each of those nights? The Clinton campaign disingenuously announced that it had agreed to a debate on a day when it knew very well that Sen. Sanders already had locked in park permits for a major rally in New York City. Let&#x2019;s get serious. Let&#x2019;s stop the silly political games. Let&#x2019;s get on with debating the candidates&#x2019; stands on serious issues affecting New York and the United States.&quot;</p>
+
+<p>Perhaps after seeing the success of <a href="https://web.archive.org/web/20170307154418/http://gothamist.com/2016/04/01/ben_jerry_sanders_more.php">free Bernie-flavor Ben &amp; Jerry&apos;s ice cream in Washington Square Park</a>, Team Sanders had planned a rally there for April 14. But then Mayor and <a href="https://web.archive.org/web/20170307154418/http://gothamist.com/2015/10/30/dance_monkey_dance.php">Hillary supporter</a> Bill de Blasio got involved:</p>
+
+<center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">Let&apos;s make <a href="https://web.archive.org/web/20170307154418/https://twitter.com/NY1">@NY1</a> 4/14 BKLYN debate happen. <a href="https://web.archive.org/web/20170307154418/https://twitter.com/BernieSanders">@BernieSanders</a>: I&apos;ll help you secure any permit you need to ensure your NYC rally can happen too.</p>&#x2014; Bill de Blasio (@BilldeBlasio) <a href="https://web.archive.org/web/20170307154418/https://twitter.com/BilldeBlasio/status/716994321417904128">April 4, 2016</a></blockquote>
+<script async src="//web.archive.org/web/20170307154418js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<p>Now Briggs says, &quot;We are glad that she finally has agreed. Sanders all along has pressed for a debate on television in prime time so the greatest number of New Yorkers and Americans may listen to the candidates and decide for themselves who has the best ideas about how to reform our rigged economy and the corrupt campaign finance system. It&apos;s great for the people of New York that there will be a debate in Brooklyn, something that the Clinton campaign has long opposed.&quot; </p>
+
+<p>Referring to the rally, which is now on April 13, Briggs added, &quot;Fortunately, we were able to move a major New York City rally scheduled for April 14 to the night before. We hope the debate will be worth the inconvenience for thousands of New Yorkers who were planning to attend our rally on Thursday but will have to change their schedules to accommodate Secretary Clinton&#x2019;s jam-packed, high-dollar, coast-to-coast schedule of fundraisers all over the country.&quot; </p>
+
+<p>Sanders&apos;s <a href="https://web.archive.org/web/20170307154418/http://gothamist.com/2016/04/01/bernie_sanders_bronx_rally.php">Bronx rally attracted a huge, diverse crowd of 18,500</a> last week. His campaign only <a href="https://web.archive.org/web/20170307154418/http://gothamist.com/2016/03/26/photos_new_yorkers_feelthebern_at_o.php">opened a New York office on March 26</a>. Clinton&apos;s campaign has been <a href="https://web.archive.org/web/20170307154418/http://gothamist.com/2015/04/03/hillary_clinton_brooklyn.php">headquartered in downtown Brooklyn</a>. </p>
+
+<p><a href="https://web.archive.org/web/20170307154418/http://www.politico.com/story/2016/04/sanders-accepts-april-14-debate-with-clinton-221556">Politico reports</a>, &quot;Negotiations between the campaigns and the Democratic National Committee continued until minutes before the debate was announced, a source familiar with the discussions said. Sanders did not want the New York State Democratic Party to be a cosponsor of the debate, a source told POLITICO. The Sanders campaign, in general, has resisted the involvement of party organizations, which often back Clinton. The New York State Democratic Party will not be involved, said a source familiar with the negotiations, noting that the Sanders campaign would not have agreed to the date if they were included.&quot;</p>
+
+<p>Clinton spokesperson Brian Fallon said, &quot;We had thought the Sanders campaign would have accepted our offer for a Brooklyn debate on April 14 in a New York minute, but it ended up taking a few extra days for them to agree. We are glad they did. We are grateful to have both NY1 and the Daily News sponsoring this debate, ensuring a New York focus to the discussion.&quot; He also Tweeted thanks to the tall progressive from Park Slope:</p>
+
+<center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">.<a href="https://web.archive.org/web/20170307154418/https://twitter.com/BilldeBlasio">@BilldeBlasio</a> gets MVP award for his generous offer of assistance to help <a href="https://web.archive.org/web/20170307154418/https://twitter.com/BernieSanders">@BernieSanders</a> get to yes on April 14 debate in Brooklyn</p>&#x2014; Brian Fallon (@brianefallon) <a href="https://web.archive.org/web/20170307154418/https://twitter.com/brianefallon/status/717144272294780928">April 5, 2016</a></blockquote> <script async src="//web.archive.org/web/20170307154418js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<p>So will SNL have Amy Poehler and Larry David <a href="https://web.archive.org/web/20170307154418/http://gothamist.com/2016/03/31/julia_louis-dreyfus_russell_crowe_t.php">appear on the April 16th show</a>?</p>					
+										
+									
+				

@@ -1,0 +1,15 @@
+---
+author: Ben Yakas
+date: Apr 7, 2011 10:05 am
+title: Judge Dismisses "Racist" Juror From Indefinite Jury Duty
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="4711juryduty.jpg" src="https://web.archive.org/web/20170603085131im_/http://gothamist.com/attachments/byakas/4711juryduty.jpg" width="250" height="344" class="image-left"> </span>This week, a Judge was <a href="https://web.archive.org/web/20170603085131/http://gothamist.com/2011/04/06/judge_sentences_racist_juror_to_ind.php">none-too-happy</a> with one potential juror who went out of her way to come off as racist and offensive as she possibly could. Juror 799 was disqualified from the death penalty trial of Bonanno crime boss Vincent &quot;Vinny Gorgeous&quot; Basciano, but Judge Nicholas Garaufis wasn&apos;t done with her, and sentenced her to indefinite jury duty. In the end, Garaufis relented on his penalty yesterday, while giving her a stern wagging on his judicial finger: &quot;I hope this experience will be an education for you and the next time you&apos;re called for jury duty you&apos;ll give honest answers.&quot;</p>
+
+<p>He <a href="https://web.archive.org/web/20170603085131/http://www.nydailynews.com/ny_local/2011/04/07/2011-04-07_jury_duty_dodo_is_set_free_by_judge.html">explained his rationale</a> for threatening the juror, an Asian woman in her 20s who said she works in the garment industry, with indefinite jury duty: &quot;My ruling was not based in any way upon whether or not you held any racist views. It was apparent you did not tell the truth.<strong> You were the only juror who indicated that you had every form of bias imaginable</strong>. You were lying to the court in order to be excused.&quot; The woman tried to get out of jury duty by writing that she couldn&apos;t stand &quot;African-Americans, Hispanics and Haitians&quot;, declaring that cops are all lazy and corrupt, and mentioning that she had a relative who was a member of the Chinese Ghost Shadows gang. She was seen reading a pamphlet entitled &quot;A Guide to Continuing Your Education After Prison&quot; while waiting in court yesterday.</p>
+
+<p>She was freed to go, but Garaufis said he would dock her the $40-a-day juror pay, which she didn&apos;t argue with. Of course, it was inevitable his unusual punishment would not be upheld. For one, her obnoxious opinions were not inherently criminal: &quot;She can&apos;t be punished for being a racist. You don&apos;t check the First Amendment at the courtroom door,&quot; said NYU Law Prof. Stephen Gillers. Two, as many commenters pointed out yesterday, Garaufis couldn&apos;t have kept her more than three days anyway. But most importantly, it wouldn&apos;t have lasted because Garaufis is a real softie, the kind of Judge who <a href="https://web.archive.org/web/20170603085131/http://gothamist.com/2010/12/29/vinny_gorgeous_pen_pals_with_judge.php">lends shirts</a> to murder suspects.</p>					
+										
+									
+				

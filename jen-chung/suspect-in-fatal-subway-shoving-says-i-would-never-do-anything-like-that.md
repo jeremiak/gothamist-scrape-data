@@ -1,0 +1,23 @@
+---
+author: Jen Chung
+date: Nov 24, 2014 9:56 am
+title: Suspect In Fatal Subway Shoving Says, "I Would Never Do Anything Like That"
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <a href="https://web.archive.org/web/20150510011539/http://gothamist.com/attachments/jen/2014_11_kdarden12.jpg"> <img alt="2014_11_kdarden12.jpg" src="https://web.archive.org/web/20150510011539im_/http://gothamist.com/assets_c/2014/11/2014_11_kdarden12-thumb-365x432-869625.jpg" width="300" height="355" class="image-left"> </a> </span>Kevin Darden, the suspect accused of shoving a man into the path of an oncoming subway train, has given a jailhouse interview. <a href="https://web.archive.org/web/20150510011539/http://7online.com/news/suspect-in-deadly-subway-push-due-in-court;-speaks-exclusively-from-rikers-/407845/">Darden told WABC 7</a>, &quot;I don&apos;t know what to do or say; I&apos;ve never been in this type of situation before.&quot;</p>
+
+<p>Darden, 34, was charged with murder in the death of Wai Kuen Kwok at the 167th Street subway station on <a href="https://web.archive.org/web/20150510011539/http://gothamist.com/2014/11/16/cops_man_fatally_struck_by_train_ma.php">November 16th</a>. According to authorities, Kwok had been waiting at the southbound D train platform with his wife (they were going to Chinatown for groceries and to celebrate her birthday over lunch) when Darden suddenly pushed the 61-year-old into the tracks. <a href="https://web.archive.org/web/20150510011539/http://nypost.com/2014/11/17/subway-driver-laments-of-push-victim-nothing-i-could-do/">The train operator said</a>, &quot;I see a body flying across the tracks. I knew that it wasn&#x2019;t an ordinary jump on the tracks. The guy didn&#x2019;t go straight down, he was actually in the air.&quot;</p>
+
+<p><a href="https://web.archive.org/web/20150510011539/http://gothamist.com/2014/11/19/nypd_arrest_subway_shoving_suspect.php">Police arrested Darden </a>after a massive  manhunt to find the suspect, <a href="https://web.archive.org/web/20150510011539/http://gothamist.com/2014/11/17/wife_witnessed_stranger_shove_husba.php">who was seen on surveillance video</a> taking a Bx35 bus and casually buying then smoking a cigarette after the incident. A man who had been pushed at the West 4th Street subway station earlier this month recognized the person in the surveillance video as his attacker, and police were able to get a warrant for Darden&apos;s arrest. In the West 4th incident, Darden <a href="https://web.archive.org/web/20150510011539/http://nypost.com/2014/11/18/subway-murder-suspect-is-wanted-for-previous-underground-attack/">allegedly told the victim</a>, &quot;I&#x2019;m warning you!&quot; for walking in front of him&#x2014;and then shoved him to the ground so hard that the victim needed to go to the hospital.</p>
+
+<p>Darden <a href="https://web.archive.org/web/20150510011539/http://7online.com/news/suspect-in-deadly-subway-push-due-in-court;-speaks-exclusively-from-rikers-/407845/">insisted to WABC 7&apos;s Kemberly Richardson</a>, &#x201C;I would never do anything like that.&#x201D; and &#x201C;I don&#x2019;t remember anything about Sunday, I didn&#x2019;t do anything.&quot; He also said he never saw the surveillance video that allegedly shows him killing Kwok.</p><blockquote>I asked if he was hopeful he would be cleared of these charges, and he said &quot;I don&apos;t have any hope anymore.&quot; When I asked why, he didn&apos;t answer, and left the room. <p></p>
+
+<p>Right now, Darden is on mental observation, which means he is in a single cell, being watched around the clock, and has access to a psychiatrist. Darden says he is spending his time sleeping, is not on medication, and has not watched TV. </p></blockquote>Darden has been arrested dozens of times, including once in Texas for trying to set his brother&apos;s house on fire. His mother says he is mentally ill. <p></p>
+
+<p>A funeral for Kwok was held yesterday in Chinatown. <a href="https://web.archive.org/web/20150510011539/http://nypost.com/2014/11/23/transit-cops-pay-respects-to-rider-pushed-in-front-of-subway/">The Post reports</a>, &quot;The NYPD&#x2019;s Transit Bureau chief and about a dozen of his cops attended&quot; as Kwok&apos;s oldest son &quot;Gary could be seen clutching a large portrait of his father, who worked long, hard hours at a Brooklyn factory to put both boys through college.&quot; </p>
+
+<p>Darden <a href="https://web.archive.org/web/20150510011539/http://newyork.cbslocal.com/2014/11/24/suspect-charged-in-deadly-bronx-subway-push-due-in-court/">is due in court today</a>.</p>					
+										
+									
+				

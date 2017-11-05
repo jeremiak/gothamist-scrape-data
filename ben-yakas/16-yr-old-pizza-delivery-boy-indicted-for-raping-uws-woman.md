@@ -1,0 +1,15 @@
+---
+author: Ben Yakas
+date: Nov 8, 2012 2:38 pm
+title: 16-Yr-Old Pizza Delivery Boy Indicted For Raping UWS Woman
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left"> <img alt="11812lucas.jpeg" src="https://web.archive.org/web/20160715181844im_/http://gothamist.com/attachments/byakas/11812lucas.jpeg" width="300" height="281"> <br> <i style=" width:300px; ;display:block"> Cesar Lucas (via Facebook)</i></div> In September, a 16-year-old pizza delivery boy <a href="https://web.archive.org/web/20160715181844/http://gothamist.com/2012/09/29/16-year-old_charged_with_raping_wom.php">was accused of raping</a> a 35-year-old woman in her West 61st Street apartment. <a href="https://web.archive.org/web/20160715181844/http://gothamist.com/tags/cesarlucas">Cesar Lucas</a>, who has <a href="https://web.archive.org/web/20160715181844/http://gothamist.com/2012/10/01/16-yr-old_pizza_delivery_boy_allege.php">reportedly confessed</a> to the horrific crime, was arrested after cops determined he had been delivering a pizza to one of the victim&apos;s neighbors that night. Now, he&apos;s been indicted on charges of rape, burglary, sex abuse and endangering a child. &#x201C;Women should not have to sleep with one eye open for fear of intruders,&#x201D; said District Attorney Cy Vance <a href="https://web.archive.org/web/20160715181844/http://manhattanda.org/press-release/da-vance-delivery-person-indicted-raping-woman-her-upper-west-side-apartment">in a statement</a>. <p></p>
+
+<p>&#x201C;The defendant is not only charged with committing a rape, but with doing so in the presence of the victim&#x2019;s child,&quot; he continued. &quot;I commend the victim for her tremendous courage in coming forward.&#x201D; The incident occurred at 12:30 a.m. on September 29th; Lucas allegedly tried the various doors at the West 61st Street building until he came to the victim&apos;s door, which was unlocked (the victim lives across the hall from relatives and they keep their doors unlocked). Lucas allegedly entered the apartment and raped the woman while she was sleeping next to her 7-year-old daughter. The victim was able to scream and push her attacker off her, and Lucas was tracked down thanks to the doorman and customer.</p>
+
+<p>Lucas has been charged with Rape in the First Degree, two counts of Burglary in the Second Degree, Sexual Abuse in the First Degree, and Endangering the Welfare of a Child. Last month, <a href="https://web.archive.org/web/20160715181844/http://gothamist.com/2012/10/18/woman_allegedly_raped_by_pizza_deli.php">the victim sued</a> almost everyone involved with the rape, including Lucas, Sal&apos;s Pizza (where Lucas worked), her Upper West Side building&apos;s management company, her building&apos;s condo board, and the doorman on duty the night of the incident.</p>					
+										
+									
+				

@@ -1,0 +1,7 @@
+---
+author: Ben Yakas
+date: November  4, 2009  2:58 PM
+title: 53 Gang Members Nabbed In "Operation Rotten Apple"
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2009_11_rottenapple.jpg" src="https://web.archive.org/web/20110623151137im_/http://gothamist.com/attachments/jen/2009_11_rottenapple.jpg" width="90" height="86" class="image-right"> </span>Federal officials busted 53 gang members affiliated with the Bloods today in a massive bust, the <a href="https://web.archive.org/web/20110623151137/http://www.nypost.com/p/news/local/gang_members_busted_in_bronx_raid_W9P1Yf1gwHUWw3TaemViFN">Post reports</a>. They were charged with dealing crack cocaine and heroin in the Bronx, particularly the Morrisania section near Yankee Stadium, and officials believe they &quot;are behind at least 20 unsolved murders and more than 40 shootings over the past few years.&quot; Cops made over 30 undercover heroin purchases  from the gang, which had names like &quot;Get Money Crew&quot; and &quot;Bronx Gun Slingers.&quot; Thirty-seven members were arrested, 3 were already in custody, and 13 remain at large. The details of the investigation, &quot;Operation Rotten Apple,&quot; were revealed in the indictment (<a href="https://web.archive.org/web/20110623151137/http://www.nypost.com/r/nypost/2009/11/04/news/media/pdf_bx_final.pdf">PDF</a>), and really sounds like something out of &quot;The Wire.&quot;</p>

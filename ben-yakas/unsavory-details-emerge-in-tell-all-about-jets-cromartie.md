@@ -1,0 +1,11 @@
+---
+author: Ben Yakas
+date: February 13, 2011  1:40 PM
+title: Unsavory Details Emerge In Tell-All About Jets' Cromartie 
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="21311cromartie.jpg" src="https://web.archive.org/web/20110509204729im_/http://gothamist.com/attachments/byakas/21311cromartie.jpg" width="240" height="172" class="image-left"> </span></p>
+
+<p>We were almost starting to feel bad for <a href="https://web.archive.org/web/20110509204729/http://gothamist.com/2010/08/20/cromartie_says_kid-naming_moment_wa.php">terrifyingly-virile</a> Jets cornerback Antonio Cromartie: the NFL Players&#x2019; Association President Kevin Mawae recently used him as an example of NFL players who are <a href="https://web.archive.org/web/20110509204729/http://profootballtalk.nbcsports.com/2011/02/13/kevin-mawae-players-know-the-issues-except-guys-like-cromartie/">dumb</a>, and his ex-fiance <a href="https://web.archive.org/web/20110509204729/http://gothamist.com/2011/02/06/jets_cromarties_ex_writes_tell-all.php">has written</a> a tell-all &quot;novel&quot; about him. And despite not naming him in the book, she did confirm <a href="https://web.archive.org/web/20110509204729/http://www.nypost.com/p/news/national/jets_star_struck_son_cheated_on_P3ymtrFrCKJ3c5dprGb6dP?CMP=OTC-rss&amp;FEEDNAME=">to the Post</a> it&apos;s all about <em>him</em>, which makes certain glaring details stand out all the more.</p>
+
+<p>In the recently released book, &quot;Love, Intercepted: A Tale of Football, Falling and Failing in Love,&quot; corporate lawyer and former Miss Black North Carolina Rhonda Patterson reveals that she witnessed Cromartie strike one of his nine children, &quot;so hard in the chest that he fell to the floor.&quot; She also says he smokes pot regularly, and has successfully avoided mandated NFL drug tests. On the plus side, fellow Jets cornerback Darelle Revis still <a href="https://web.archive.org/web/20110509204729/http://sports.espn.go.com/new-york/nfl/news/story?id=6087607&amp;campaign=rss&amp;source=NFLHeadlines">likes him</a>.</p>

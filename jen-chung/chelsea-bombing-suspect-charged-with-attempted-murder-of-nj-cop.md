@@ -1,0 +1,38 @@
+---
+author: Jen Chung
+date: Sep 20, 2016 8:56 am
+title: Chelsea Bombing Suspect Charged With Attempted Murder Of NJ Cop
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2016_09_rahami12.jpg" src="https://web.archive.org/web/20171016021613im_/http://gothamist.com/attachments/jen/2016_09_rahami12.jpg" width="640" height="473"> <br> <i> Ahmad Khan Rahami after being apprehended in Linden, NJ (Ed Murray/NJ Advance Media via AP)</i></div> <p></p>
+
+<p>After an <a href="https://web.archive.org/web/20171016021613/http://gothamist.com/2016/09/19/ahmad_khan_rahami.php#photo-1">intense manhunt</a>, Ahmad Khan Rahami, <a href="https://web.archive.org/web/20171016021613/http://gothamist.com/2016/09/19/nypd_ids_man_chelsea_explosion.php#photo-1">who authorities believe</a> was behind the bombings in Chelsea and NJ over the weekend, was charged with five counts of attempted murder of a law enforcement officer yesterday. He is being held on a $5.2 million bail.</p>
+
+<p>Union County Prosecutor Grace Park announced the charges yesterday, which include second-degree unlawful possession of a weapon and second-degree possession of a weapon for an unlawful purpose. In a press release, her office described the confrontation:</p><blockquote>At approximately 10:30 a.m. on Monday morning, a uniformed Linden police officer approached a man later identified as Rahami outside a bar on East Elizabeth Avenue, according to the investigation. At that time, Rahami immediately produced a handgun and shot the officer in the torso, striking him in his protective vest.<p></p>
+
+<p>Additional patrol officers responding to the scene engaged Rahami in an exchange of gunfire that ended when Rahami was shot multiple times outside of an auto repair shop on East Elizabeth Avenue, several blocks west of where he was initially approached.</p>
+
+<p>A handgun was recovered from Rahami at the scene. Rahami was immediately transported to a local hospital for treatment and has since undergone surgery. Neither the police officer who was struck by gunfire nor a second officer who was struck in the head by a fragment of a bullet suffered life-threatening injuries.</p></blockquote><a href="https://web.archive.org/web/20171016021613/http://gothamist.com/2016/09/19/de_blasio_bomb_arrest.php">FBI assistant director William Sweeney said</a>, &quot;We have directly linked him to devices in New York and New Jersey.&quot; Charges related to the bombings will come later; U.S. Attorney Preet Bharara said that he and likely the U.S. Attorney in NJ would be collecting evidence, &quot;We&apos;re not rushing against each other.&quot;<p></p>
+
+<p>On Saturday, two bombings occurred: The first was in the morning <a href="https://web.archive.org/web/20171016021613/http://gothamist.com/2016/09/17/pipe_bomb_explodes_on_route_of_seas.php">in Seaside Park, NJ</a>, where one pipe bomb with a cellphone detonated; two others did not detonate. </p>
+
+<p>The second, on West 23rd Street between 6th and 7th Avenues in Manhattan, <a href="https://web.archive.org/web/20171016021613/http://gothamist.com/2016/09/17/chelsea_explosion.php">went off at 8:30 p.m.</a> Twenty-nine people were injured by the device which was a pressure cooker with Christmas lights and a cellphone (shrapnel, like ball bearings, was packed into the cooker). </p>
+
+<p>A second pressure cooker device <a href="https://web.archive.org/web/20171016021613/http://gothamist.com/2016/09/18/chelsea_explosion_investigation_con.php">was found on West 27th Street</a> and removed safely. Apparently this pressure cooker was left in a suitcase, but two thieves (or freegans) took the suitcase and may have &quot;inadvertently disabled the explosive,&quot; <a href="https://web.archive.org/web/20171016021613/https://www.dnainfo.com/new-york/20160919/chelsea/thieves-helped-crack-chelsea-bombing-case-sources-say">DNAinfo reports</a>. A resident then saw the pressure cooker, which she believed might be <a href="https://web.archive.org/web/20171016021613/http://gothamist.com/2016/09/19/chelsea_bomb_discovery.php">a &quot;kid&apos;s science experiment,&quot;</a> and called the police to report the strange object.</p>
+
+<center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">This is the pressure cooker law enforcement found at 2nd location on west 27 street in Chelsea <a href="https://web.archive.org/web/20171016021613/https://twitter.com/hashtag/NYCExplosion?src=hash">#NYCExplosion</a> <a href="https://web.archive.org/web/20171016021613/https://t.co/co2DOGTSiL">pic.twitter.com/co2DOGTSiL</a></p>&#x2014; Shimon Prokupecz (@ShimonPro) <a href="https://web.archive.org/web/20171016021613/https://twitter.com/ShimonPro/status/777375184466677760">September 18, 2016</a></blockquote>
+<script async src="//web.archive.org/web/20171016021613js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<p>Authorities were reportedly able to trace the cellphones back to Rahami: <a href="https://web.archive.org/web/20171016021613/http://www.nbcnewyork.com/news/local/New-York-New-Jersey-Bombs-Cellphones-Dollar-Store-Fertilizer-Compound-394036341.html">According to NBC New York</a>, &quot;Federal investigators tell NBC News one of the factors linking the bombs in New York City and Seaside Park, NJ, was the fact that the cellphones were purchased last year at the same Family Dollar store in Perth Amboy.  Investigators say the flip phone from the Seaside Park device was purchased in February 2015, and the phone attached to the pressure cooker bomb found on West 27th Street was bought in May 2015.&quot;</p>
+
+<p><a href="https://web.archive.org/web/20171016021613/http://gothamist.com/2016/09/19/nypd_ids_man_chelsea_explosion.php#photo-1">Five devices in a backpack</a> were found at the Elizabeth, NJ train station <a href="https://web.archive.org/web/20171016021613/http://6abc.com/news/homeless-men-find-bombs-save-lives-in-elizabeth-nj/1517827/">by homeless men</a>; they saw the wires coming out of the bag and then went to the police. One of the bombs was detonated by a bomb robot. </p>
+
+<p><iframe width="640" height="360" src="https://web.archive.org/web/20171016021613if_/https://www.youtube.com/embed/fa4Fmu4UpAk" frameborder="0" allowfullscreen></iframe></p>
+
+<p>Rahami, a naturalized citizen from Afghanistan, lived in Elizabeth, NJ above his family&apos;s fried chicken restaurant, where he also worked. He <a href="https://web.archive.org/web/20171016021613/http://gothamist.com/2016/09/19/rahami_friends_shocked.php">was known as a &quot;nice guy&quot;</a> who would give free chicken to customers. However, some say that he changed after <a href="https://web.archive.org/web/20171016021613/http://www.nytimes.com/2016/09/20/nyregion/ahmad-khan-rahami-bombing-suspect.html?smid=tw-share">visiting Afghanistan a few years ago</a>, &quot;It&#x2019;s like he was a completely different person. He got serious and completely closed off.&quot;</p>
+
+<p>The Linden police officer who was struck by Rahami&apos;s bullet, Angel Padilla, is <a href="https://web.archive.org/web/20171016021613/http://abc7ny.com/news/linden-officers-recovering-from-injuries-after-arrest-of-bombing-suspect/1518254/">home from the hospital</a>. His brother Eddie Padilla, a lieutenant with the Perth Amboy Police, told WABC 7, &quot;He&apos;s my inspiration what he did was commendable. I&apos;m proud of him. He&apos;s the reason why I&apos;m an officer myself. Everything&apos;s he&apos;s done and taught me. I&apos;m at a loss for words.&quot;</p>					
+										
+									
+				

@@ -1,0 +1,43 @@
+---
+author: Ben Yakas
+date: Aug 17, 2013 3:05 pm
+title: Happy 70th Birthday Robert De Niro: Can You Please Take A Good Role?
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="81713deniro.jpg" src="https://web.archive.org/web/20150405014035im_/http://gothamist.com/attachments/byakas/81713deniro.jpg" width="640" height="420"> <br> <i> AP</i></div> <p></p>
+
+<p>Actor, director, and philanthropist <a href="https://web.archive.org/web/20150405014035/http://gothamist.com/tags/robertdeniro">Robert De Niro</a> turns 70 years young today, and as a number of <a href="https://web.archive.org/web/20150405014035/http://www.mirror.co.uk/tv/tv-news/70-facts-robert-de-niro-2171879">online tributes</a> <a href="https://web.archive.org/web/20150405014035/http://www.today.com/entertainment/happy-birthday-robert-de-niro-film-icon-turns-70-6C10936346">attest</a>, he has plenty of achievements he could hang his hat on. But with all due respect, De Niro has been coasting big time for about 14 years now, and we have a birthday <strike>wish</strike> plea for him: can you please, for the love of god, take a good role in a good movie?</p>
+
+<p><iframe width="640" height="480" src="//web.archive.org/web/20150405014035if_/http://www.youtube.com/embed/4e9CkhBb18E" frameborder="0" allowfullscreen></iframe></p>
+
+<p>It&apos;d be an understatement to say that this plea comes from a personal place: De Niro was one of this writer&apos;s favorite actors growing up, a towering and intense cinematic figure who seemed to be able to tackle any role he was handed, to add charm and depth to otherwise unhinged and unsympathetic characters. I have memories of seeing <em>Goodfellas</em> and <em>Casino</em> when I was younger on loops on TV (two films I&apos;ve seen dozens of times over the years at this point), which perhaps is why I have such an <a href="https://web.archive.org/web/20150405014035/http://www.youtube.com/watch?v=YlyXZG2dupo">appreciation for fine art.</a> But in a pre-high school summer film course, I became a fan-for-life after being introduced to the trifecta of <em>Taxi Driver</em>, <em>Godfather II</em> and <em>Raging Bull</em>. </p>
+
+<p><iframe width="640" height="480" src="//web.archive.org/web/20150405014035if_/http://www.youtube.com/embed/_fEIn_5OkoY" frameborder="0" allowfullscreen></iframe></p>
+
+<p>From there on, I devoured everything he was in, and was consistently blown away by the range of his roles: there was the needy, demented Rupert Pupkin in the masterful <em>The King Of Comedy</em>, the electric Johnny Boy Civello in <em>Mean Streets</em>, and the tortured Michael Vronsky in <em>The Deer Hunter</em>. He was the psycho Max Cady in <em>Cape Fear</em>, the quietly unhinged Louis Gara in <em>Jackie Brown</em>, and as Jack Walsh, he first dipped his toe into a purely comedic role in <em>Midnight Run</em>. He even made the most of his screen time in his minor roles, like that of the heroic heating engineer Harry Tuttle in <em>Brazil</em>.</p>
+
+<p><iframe width="640" height="360" src="//web.archive.org/web/20150405014035if_/http://www.youtube.com/embed/dht_3NziwSw" frameborder="0" allowfullscreen></iframe> </p>
+
+<p>But two movies in the late &apos;90s changed the whole trajectory of his career: De Niro decided to fully parody his own iconic image in <em>Analyze This</em>, and then he made a cuddly lowest-common-denominator family film <em>Meet The Parents.</em> Up until that point, De Niro had still been taking roles in ambitious and mostly worthwhile films (<em>Heat</em>, <em>Cop Land</em>, <em>Wag The Dog</em>, the massively underrated <em>Ronin</em>), but everything changed when those two films came out. And it all presumably changed because they were the biggest box office hits of his career (at that point).</p>
+
+<p><iframe width="640" height="360" src="//web.archive.org/web/20150405014035if_/http://www.youtube.com/embed/ITS5GkkqgEQ" frameborder="0" allowfullscreen></iframe></p>
+
+<p>After that, De Niro apparently lost his ability to tell good projects from bad ones: the &apos;00s were filled with a graveyard of monotonous sequels (<em>Meet The Fockers,</em> <em>Analyze That</em>), B-movie genre garbage (<em>15 Minutes</em>, <em>Righteous Kill</em>), shlocky dramas (<em>Everybody&apos;s Fine</em>, <em>Godsend</em>), and turgid comedies (<em>What Just Happened?</em>, <em>Showtime</em>). All his energy seemed to be focused on his activities outside acting: he directed the mediocre <em>The Good Shepherd</em>, launched the fantastic TriBeCa Film Festival, and became co-owner of several restaurants (including Nobu and TriBeCa Grill). </p>
+
+<p>But if you look a the list of films he starred in between 1999-2013, it paints a bleak picture of an artist who no longer cares about his art. Even contemporaries like Al Pacino&#x2014;who also seems to have lost his ability to choose worthy projects in recent years, favoring parodic, yell-happy &quot;Pacino-esque&quot; roles and running scared from anything that could be construed as &quot;subtle&quot;&#x2014;has done some fine work in HBO films and in the theater. De Niro has stayed the course, and it&apos;s certainly worked out financially: seven of his top ten highest grossing films have come out since 1999.</p>
+
+<p>Amazingly, it seems like De Niro cares about acting again, judging by the quantity of work he&apos;s taken on: he has been at his most ridiculously prolific in the past three years, releasing five films in 2011, four in 2012, and he has SEVEN scheduled for 2013. Yet it hasn&apos;t really helped improve the quality: does anyone remember <em>Killer Elite</em> or <em>Red Light</em>? Or what about <em>Freelancers</em>, with co-star 50 Cent? This year alone, he has <em>The Big Wedding</em>, <em>Killing Season</em>, <em>The Family</em> and <em>Last Vegas</em>&#x2014;maybe some of those films have even been released already. It&apos;s hard to tell when his (non <em>Fockers</em>) films uniformly get two or three uneventful weeks in the US box office before fading into obscurity.</p>
+
+<p><iframe width="640" height="360" src="//web.archive.org/web/20150405014035if_/http://www.youtube.com/embed/Y-rJeEB8wWw" frameborder="0" allowfullscreen></iframe></p>
+
+<p>De Niro needs his <em>About Schmidt</em> (Jack Nicholson), his <em>The Wrestler</em> (Mickey Rourke), his <em>Lost In Translation</em> (Bill Murray)&#x2014;a film crafted around him made by a director worthy of his talents, the complex kind of role that could reintroduce him to audiences in a substantial manner, making great work regularly again. There is some hope: the one exception to the 14 year drought was last year&apos;s <em>Silver Linings Playbook</em>, directed by David O. Russell. De Niro was solid in it, a flash of his old self, able to channel some of his work in those lightweight family dramas into some real pathos in a much better (albeit, not <em>great</em>) movie&#x2014;but let&apos;s not jump the gun just yet. He was just a supporting character in the film, as he&apos;ll also be in Russell&apos;s next film, <em>American Hustle</em>. </p>
+
+<p>Perhaps Russell is working his way toward crafting the De Niro-centric movie I and other De Niro fans desperately want to see. But there&apos;s only one man who I trust can bring De Niro back from the edge, who understands his acting abilities better than anyone: Martin Scorsese. Scorsese <a href="https://web.archive.org/web/20150405014035/http://www.deadline.com/2013/01/martin-scorsese-tests-out-script-for-mob-drama-the-irishman-with-de-niro-pacino-pesci-but-silence-is-martys-next-pic/">is signed on</a> to make <em>The Irishman</em> about mob hit man Frank Sheeran, with De Niro in the lead role (and Pacino and Joe Pesci in supporting roles). </p>
+
+<p>It&apos;s by far the most exciting development in De Niro cinematic career in nearly two decades (yes, even more than <em>Shark Tale</em>)&#x2014;but the project keeps getting pushed back, so let&apos;s hope it doesn&apos;t die in development. </p>
+
+<p>I&apos;ve argued with friends countless times about whether a great actor, an unquestionably great actor, can &quot;lose&quot; it&#x2014;Marlon Brando&apos;s post-1980&apos;s work being one of the key arguments in favor. De Niro is an unquestionably great actor who hasn&apos;t produced anything great in 14 years. But he&apos;s only 70 today. Which means he hasn&apos;t entered <em>The Island of Dr. Moreau</em> just yet.</p>					
+										
+									
+				

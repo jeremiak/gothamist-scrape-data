@@ -1,0 +1,13 @@
+---
+author: Ben Yakas
+date: November 30, 2009  1:07 PM
+title: Derek Jeter Named SI Sportsman of the Year
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <a href="https://web.archive.org/web/20110704124012/http://gothamist.com/attachments/jen/2009_11_jetersi.jpg"> <img alt="2009_11_jetersi.jpg" src="https://web.archive.org/web/20110704124012im_/http://gothamist.com/assets_c/2009/11/2009_11_jetersi-thumb-450x600-462161.jpg" width="450" height="600" class="image-center"> </a> </span></p>
+
+<p>Sports Illustrated announced today that it has named Yankees Captain and <a href="https://web.archive.org/web/20110704124012/http://gothamist.com/2009/11/19/derek_jeter_lands_on_post_cover_wit.php">sometime Post</a> <a href="https://web.archive.org/web/20110704124012/http://gothamist.com/2009/11/13/jeter_slums_it_for_movie_lands_on_p.php">Cover-Model</a> Derek Jeter its Sportsman of the Year. Remarkably, Jeter, 35, is the first Yankee to be given the honor since it was first handed out starting in 1956. Sports Illustrated Group Editor Terry McDonell <a href="https://web.archive.org/web/20110704124012/http://sportsillustrated.cnn.com/2009/magazine/specials/sportsman/2009/11/25/derek.jeter/index.html?eref=sihp">gushed</a> about Jeter&apos;s leadership abilities on and off the field: &quot;Derek Jeter has always presented himself with class; he does numerous good works for the community with his Turn 2 Foundation, which is one of the most efficient, effective foundations of its kind; and he&apos;s extremely generous with not just his money but with his time, which in many cases is more valuable. He also had another signature year on the field.&quot; </p>
+
+<p>That signature year of course included his fifth <a href="https://web.archive.org/web/20110704124012/http://gothamist.com/2009/11/05/last_nights_action_yankees_win_world_series.php">World Series title</a> with the Yankees, and <a href="https://web.archive.org/web/20110704124012/http://gothamist.com/2009/09/12/last_nights_action_272127222723.php">eclipsing</a> Lou Gehrig&apos;s Yankees record for hits.</p>
+
+<p>The Post <a href="https://web.archive.org/web/20110704124012/http://www.nypost.com/p/sports/yankees/derek_jeter_wins_si_sportsman_of_KsAIhh1jyqKi5zJl2lawdL">got McDonell</a> to go one better, calling Jeter &quot;on the level of Ruth and Gehrig,&quot; and the &quot;<strong>greatest shortstop in the history of the game</strong>.&quot; Jeter seemed a little perked beyond his usual nonchalant self, calling the award &quot;one of the greatest honors you can achieve in sports.&quot;</p>

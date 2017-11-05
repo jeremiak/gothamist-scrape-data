@@ -1,0 +1,19 @@
+---
+author: Ben Yakas
+date: Mar 4, 2011 12:07 pm
+title: Update: 311 Rolls Out Official Taxi Lost and Found Website
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="3411taxi.jpg" src="https://web.archive.org/web/20150508161649im_/http://gothamist.com/attachments/byakas/3411taxi.jpg" width="640" height="480"> <br> <i><a href="https://web.archive.org/web/20150508161649/http://www.flickr.com/photos/25141069@N02/5458872772/">twig_is_the_future&apos;s flickr</a></i></div> <p></p>
+
+<p>For years, if you left something in a cab, like say a <a href="https://web.archive.org/web/20150508161649/http://gothamist.com/2009/08/18/violin.php">$500,000, 184-year-old violin</a>, you would have to hold your breath and give a little prayer while going through a tense, inefficient 15-hour cab hunt via 311. The system was <strike>imperfect</strike> migraine-inducing, to say <a href="https://web.archive.org/web/20150508161649/http://cityroom.blogs.nytimes.com/2007/08/13/left-something-in-a-cab-good-luck-getting-it-back/">the least</a>. But nearly four years after a <a href="https://web.archive.org/web/20150508161649/http://gothamist.com/2007/08/14/big_yellow_taxi.php">damning report</a> about the Taxi and Limousine Commission&apos;s disorganized lost and found process, the city has finally unveiled an official <a href="https://web.archive.org/web/20150508161649/http://www.nyc.gov/apps/311/allServices.htm?requestType=topService&amp;serviceName=Yellow+Taxi+Lost+and+Found+Information">&quot;Yellow Taxi Lost and Found Information&quot;</a> web application!</p>
+
+<p>The new site offers you the option of searching <a href="https://web.archive.org/web/20150508161649/http://www.nyc.gov/html/tlc_medallion_info/html/tlc_lookup.shtml">using</a> the four-digit medallion number of the cab, or <a href="https://web.archive.org/web/20150508161649/https://www.nyc.gov/apps/311universalintake/form.htm?serviceName=TLC+LF+Lost+Property&amp;referPage=%2Fapps%2F311%2FallServices.htm%3FrequestType%3DtopService%26serviceName%3DYellow%2BTaxi%2BLost%2Band%2BFound%2BInformation">without it</a>. The medallion number can be found on the hood of the taxi, on its license plate, or on your receipt; putting it into the site will get you the contact info of the garage where the taxi is based. As both the <a href="https://web.archive.org/web/20150508161649/http://www.nypost.com/p/news/local/city_creates_taxi_missing_link_sYVOOt1jybNqvHaR2lp3iL">Post</a> and <a href="https://web.archive.org/web/20150508161649/http://www.ny1.com/content/top_stories/134974/new-city-app-tracks-items-lost-in-taxis">NY1</a> note, drivers are <em>supposed to</em> bring lost items to their garages.</p>
+
+<p>Although it&apos;s the first officially-sanctioned taxi locator, this isn&apos;t the first website to offer such services: the <a href="https://web.archive.org/web/20150508161649/http://www.nyctaxifinder.com/">NYCTaxiFinder</a> has been around since at least late 2009. But something that bugs us about the wording for this story: both the Post and NY1 refer to the website as an &quot;app.&quot; And while it is an application, app generally refers to a phone program nowadays. So why isn&apos;t there a phone app for the taxi search? If you lose something in the cab, doesn&apos;t it make sense that you&apos;d want to try to contact the cab immediately?</p>
+
+<p><strong>Update</strong>: We talked to Nicholas Sbordone, director of external affairs at the NYC Department of Information Technology &amp; Telecommunications, who told us that immediacy was exactly the reason they created the taxi locator. He added that it really was more of a feature, rather than an app; and he also noted that 311 does have a downloaded app which allows you to report stolen items, among other things.</p>					
+										
+									
+				

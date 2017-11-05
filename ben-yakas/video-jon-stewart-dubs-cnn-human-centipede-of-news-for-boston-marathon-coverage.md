@@ -1,0 +1,21 @@
+---
+author: Ben Yakas
+date: Apr 18, 2013 10:28 am
+title: Video: Jon Stewart Dubs CNN "Human Centipede Of News" For Boston Marathon Coverage
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="41813stew.jpg" src="https://web.archive.org/web/20150825135908im_/http://gothamist.com/attachments/byakas/41813stew.jpg" width="640" height="421" class="image-none"> </span></p>
+
+<p>You may recall that CNN <a href="https://web.archive.org/web/20150825135908/http://gothamist.com/2013/04/17/arrest_made_in_connection_with_bost.php">messed up in a major way yesterday afternoon</a> when they announced that an arrest had been made in the Boston marathon bombings&#x2014;only to walk back that exclusive an hour later, when it became very clear that no suspect had been identified yet. Jon Stewart and the Daily Show <a href="https://web.archive.org/web/20150825135908/http://www.politico.com/blogs/media/2013/04/dancing-on-the-graves-of-old-media-161929.html">danced on the graves of &quot;old media&quot;</a> last night, eviscerating CNN for reporting a &quot;news story as imagined by M. Night Shyamalan.&quot; &quot;Oh, it&apos;s exclusive because it was completely f*cking wrong,&quot; Stewart concluded. &quot;Just out of curiosity, did any of your sources end their tip offs to you with the phrase, &apos;Bababooey&apos;?&quot;</p>
+
+<center><div style="background-color:#000000;width:520px;"><div style="padding:4px;"><iframe src="https://web.archive.org/web/20150825135908if_/http://media.mtvnservices.com/embed/mgid:cms:video:thedailyshow.com:425549" width="512" height="288" frameborder="0"></iframe><p style="text-align:left;background-color:#FFFFFF;padding:4px;margin-top:4px;margin-bottom:0px;font-family:Arial, Helvetica, sans-serif;font-size:12px;"><b><a href="https://web.archive.org/web/20150825135908/http://www.thedailyshow.com/watch/wed-april-17-2013/the-most-busted-name-in-news">The Daily Show with Jon Stewart</a></b><br>Get More: <a href="https://web.archive.org/web/20150825135908/http://www.thedailyshow.com/full-episodes/">Daily Show Full Episodes</a>,<a href="https://web.archive.org/web/20150825135908/http://www.comedycentral.com/indecision">Indecision Political Humor</a>,<a href="https://web.archive.org/web/20150825135908/http://www.facebook.com/thedailyshow">The Daily Show on Facebook</a></p></div></div></center>
+
+<p>&quot;We&apos;re accustomed to 24 hour news networks thriving on conflict,&quot; Stewart continued. &quot;Generally, though, that conflict is between two outside parties&#x2014;political opponents, pundits&#x2014;but CNN&apos;s reporters have discovered that they can remove the middle man and spend hours of programming fighting amongst themselves. <strong>They have figured out a way to shit in their own mouths. CNN has become the Human Centipede of News</strong>.&quot;</p>
+
+<p>The segment concluded with an exclusive, possibly credible report of an unconfirmed arrest of &quot;a dark skinned male, possibly white, or maybe a woman, it could be a mannish-woman, or an effeminate man.&quot; </p>
+
+<center><div style="background-color:#000000;width:520px;"><div style="padding:4px;"><iframe src="https://web.archive.org/web/20150825135908if_/http://media.mtvnservices.com/embed/mgid:cms:video:thedailyshow.com:425550" width="512" height="288" frameborder="0"></iframe><p style="text-align:left;background-color:#FFFFFF;padding:4px;margin-top:4px;margin-bottom:0px;font-family:Arial, Helvetica, sans-serif;font-size:12px;"><b><a href="https://web.archive.org/web/20150825135908/http://www.thedailyshow.com/watch/wed-april-17-2013/the-most-busted-name-in-news---exclusive-and-first">The Daily Show with Jon Stewart</a></b><br>Get More: <a href="https://web.archive.org/web/20150825135908/http://www.thedailyshow.com/full-episodes/">Daily Show Full Episodes</a>,<a href="https://web.archive.org/web/20150825135908/http://www.comedycentral.com/indecision">Indecision Political Humor</a>,<a href="https://web.archive.org/web/20150825135908/http://www.facebook.com/thedailyshow">The Daily Show on Facebook</a></p></div></div></center>					
+										
+									
+				

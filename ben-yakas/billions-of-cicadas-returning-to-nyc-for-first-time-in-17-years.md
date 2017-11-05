@@ -1,0 +1,23 @@
+---
+author: Ben Yakas
+date: May 5, 2013 12:00 pm
+title: Billions Of Cicadas Returning To NYC For First Time In 17 Years
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="5513cicada.jpg" src="https://web.archive.org/web/20150509172748im_/http://gothamist.com/attachments/byakas/5513cicada.jpg" width="640" height="426"> <br> <i> Cicada time</i></div> <p></p>
+
+<p>A plague is upon us, and we&apos;re not even talking about the <a href="https://web.archive.org/web/20150509172748/http://gothamist.com/tags/citibike">Citi Bikeaggedon</a> or the <a href="https://web.archive.org/web/20150509172748/http://gothamist.com/2013/05/03/video_heres_how_to_kill_a_nightmare.php">nightmare snakehead fishtastrophe</a>: billions of cicadas are expected to emerge all across the East Coast this month. After 17 years of being dormant underground, the cicadas <a href="https://web.archive.org/web/20150509172748/http://cosmiclog.nbcnews.com/_news/2013/04/09/17676853-17-years-in-the-making-this-springs-cicada-invasion-generates-early-buzz?lite">will storm the land</a> in May, put on the cicada equivalent of Barry White, and start mating like a bunch of <a href="https://web.archive.org/web/20150509172748/http://www.yourtango.com/2012154592/guess-what-horniest-creature-planet">horny penguins</a>. &quot;For entomophobes, this is the season of despair. For the entomophiles, this is the season of joy,&quot; said University of Maryland entomologist Michael Raupp. And for Stephen Colbert, this is the season of the bugapocalypse.</p>
+
+<center><div style="background-color:#000000;width:520px;"><div style="padding:4px;"><iframe src="https://web.archive.org/web/20150509172748if_/http://media.mtvnservices.com/embed/mgid:cms:video:colbertnation.com:425528" width="512" height="288" frameborder="0"></iframe><p style="text-align:left;background-color:#FFFFFF;padding:4px;margin-top:4px;margin-bottom:0px;font-family:Arial, Helvetica, sans-serif;font-size:12px;"><b>The Colbert Report</b> <br>Get More: <a href="https://web.archive.org/web/20150509172748/http://www.colbertnation.com/full-episodes/">Colbert Report Full Episodes</a>,<a href="https://web.archive.org/web/20150509172748/http://www.comedycentral.com/indecision">Indecision Political Humor</a>,<a href="https://web.archive.org/web/20150509172748/http://www.colbertnation.com/video">Video Archive</a></p></div></div></center>
+
+<p>These Brood II cicadas, named Magicicada septendecim, were last seen in NYC in 1996, a far away time when the Spice Girls were telling us what they really really wanted and Bill Clinton was rocking the White House with the sweet sounds of the saxophone. Some did <a href="https://web.archive.org/web/20150509172748/http://gothamist.com/2009/06/04/cicadas_appearing_years_early_on_st.php">briefly emerge early in Staten Island</a> in 2009, but it&apos;ll be a much bigger thing whenever they emerge sometime later this month. </p>
+
+<p>Scientists aren&apos;t quite sure why these cicadas wait 17 years before coming aboveground, mating, and then dying&#x2014;but they are fascinated by them: &quot;Without a doubt, they are a true marvel of nature and one that should be enjoyed whenever possible,&quot; Raupp wrote on his <a href="https://web.archive.org/web/20150509172748/http://www.bugoftheweek.umd.edu/">Bug of the Week blog.</a></p>
+
+<p>Cicada expert Ed Johnson told the News that he expects Staten Island to have the largest numbers in the city, but said we should see them popping up in all five boroughs very soon. &#x201C;You are going to find them anyplace where old-growth trees haven&#x2019;t been disturbed for at least 17 years,&#x201D; added entomologist Craig Gibbs, assistant curator at the Wildlife Conservative Society&#x2019;s Queens Zoo.</p>
+
+<p>And you won&apos;t be able to miss them, thanks to the loud mating call the males produce: &quot;When there&apos;s a lot of them together, it&apos;s like this hovering noise. It sounds exactly like flying saucers from a 1950s movie,&quot; Chris Simon, professor of ecology and evolutionary biology at the University of Connecticut, <a href="https://web.archive.org/web/20150509172748/http://www.reuters.com/article/2013/05/05/us-usa-cicadas-idUSBRE94407020130505">told Reuters</a>. To put it another way: their 90-decibel calls can rival the sound of a subway!</p>					
+										
+									
+				

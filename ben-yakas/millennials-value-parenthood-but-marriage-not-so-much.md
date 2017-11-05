@@ -1,0 +1,17 @@
+---
+author: Ben Yakas
+date: Mar 9, 2011 6:48 pm
+title: Millennials Value Parenthood, But Marriage...Not So Much
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="3911wedding.jpg" src="https://web.archive.org/web/20150508154434im_/http://gothamist.com/attachments/byakas/3911wedding.jpg" width="640" height="441"> <br> <i><a href="https://web.archive.org/web/20150508154434/http://www.flickr.com/photos/nrbelex/4654584328/">nrbelex&apos;s flickr</a></i></div> <p></p>
+
+<p>So we&apos;re starting to make sense of this whole sex/relationship thingamabob for young adults: they aren&apos;t having <a href="https://web.archive.org/web/20150508154434/http://gothamist.com/2011/03/06/why_arent_teens_having_more_sex.php">quite as much</a> sex as they used to, but people in NYC definitely have more <a href="https://web.archive.org/web/20150508154434/http://healthland.time.com/2010/10/25/study-what-the-risky-sex-lives-of-nyc-teens-reveal/">&quot;risky sex&quot;</a>; men <a href="https://web.archive.org/web/20150508154434/http://gothamist.com/2011/02/04/survey_men_are_now_women_women_are.php">are clingy</a> and want relationships, while women are cold and aloof; and NYC has an <a href="https://web.archive.org/web/20150508154434/http://gothamist.com/2008/04/04/map_of_the_day_142.php">overwhelming</a> number of single ladies, but women hate sex because <a href="https://web.archive.org/web/20150508154434/http://gothamist.com/2011/02/25/women_dont_like_sex_because_of_supp.php">of economics</a>. So what is the superglue for all of these disparate studies/surveys? Despite everything, most young adults still want to have <strike>little brats</strike> children.</p>
+
+<p>A new <a href="https://web.archive.org/web/20150508154434/http://pewsocialtrends.org/2011/03/09/for-millennials-parenthood-trumps-marriage/">Pew survey reveals</a> that &quot;millennials&quot; (that word makes us cringe) between 18-29 value parenthood far more than marriage.  Fifty-two percent of millennials say being a good parent is &#x201C;one of the most important things&#x201D; in life, while just 30 percent say the same about having a successful marriage. They asked the same questions to Generation X (hey <em>Reality Bites</em>!)&#x2014;42 percent said parenthood was more important, while 35 percent said successful marriage was. However, 70 percent of millennials who haven&apos;t been married before say they do want to get married, and 74 percent say they want to have children...so they do want both...they just don&apos;t value marriage as highly. </p>
+
+<p>Of course, there&apos;s no mention of <a href="https://web.archive.org/web/20150508154434/http://gothamist.com/tags/gaymarriage">gay marriage</a> (or the lack thereof), which neglects a sizable portion of the group obviously. But in the end, for heterosexual couples, this comes down to the age old argument: do you listen to sad songs because you&apos;re sad, or are you sad because you listen to sad songs? Do millennials not value marriage because they&apos;ve grown up around bad marriages, or by not valuing marriage, do they create a self-perpetuating myth about the state of commitment and marriage amongst younger people?</p>					
+										
+									
+				

@@ -1,0 +1,11 @@
+---
+author: Ben Yakas
+date: January 15, 2011  4:40 PM
+title: Ex-Mets Manager Continues Being The Best
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:200px; "> <img alt="11511valentine.jpg" src="https://web.archive.org/web/20110412175326im_/http://gothamist.com/attachments/byakas/11511valentine.jpg" width="200" height="175"> <br> <i>Valentine, with fake mustache</i></div> <p></p>
+
+<p>As happy as we are about new Mets manager <a href="https://web.archive.org/web/20110412175326/http://gothamist.com/2010/11/21/report_mets_choose_terry_collins_as.php">Terry Collins</a>, we couldn&apos;t help but feel a little disappointed that there was no room anywhere for former manager <a href="https://web.archive.org/web/20110412175326/http://en.wikipedia.org/wiki/Bobby_Valentine">Bobby Valentine</a>. But it seems that Valentine might not have had any time for the job anyway: since <a href="https://web.archive.org/web/20110412175326/http://gothamist.com/2008/10/03/bobby_valentine_would_love_to_be_a.php">he left</a> the Mets in 2002, Valentine has been a true jack-of-all-trades. And he just added one more bizarre job to his resume: public servant.</p>
+
+<p>After a successful stint as a manager in Japan, Valentine currently works as a baseball analyst for ESPN, owns a sports cafe in Stamford, Connecticut, Bobby V&#x2019;s (where he claims to have invented the wrap sandwich), runs the Bobby Valentine Sports Academy, and hosts the annual Bobby Valentine Celebrity Wine &amp; Food Experience. As if he weren&apos;t busy enough, Valentine <a href="https://web.archive.org/web/20110412175326/http://www.nytimes.com/2011/01/15/nyregion/15valentine.html?_r=1&amp;ref=nyregion">was named</a> this week as the director of public health and safety of his hometown, Stamford. Many don&apos;t think he&apos;s qualified for the position, while others think it&apos;s his first step toward a career in politics. It&apos;ll all be worth it to us as long as he finds himself in a situation that forces him to break out his trusty <a href="https://web.archive.org/web/20110412175326/http://www.thewrightstache.com/2009/03/24/better-know-a-metstache-bobby-valentines-fake-stache/">fake mustache.</a></p>

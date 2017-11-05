@@ -1,0 +1,8 @@
+---
+author: Ben Yakas
+date: October 31, 2010  3:00 PM
+title: Bloomberg Wants To Repeal Officials No-Tow Perk
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="103110tickets.jpg" src="https://web.archive.org/web/20110412163554im_/http://gothamist.com/attachments/byakas/103110tickets.jpg" width="110" height="82" class="image-right"> </span>A day after it <a href="https://web.archive.org/web/20110412163554/http://gothamist.com/2010/10/30/officials_never_get_towed_despite_t.php">came to light</a> that no matter how many parking tickets a politician gets, their official cars will never get hauled off to the pound, <a href="https://web.archive.org/web/20110412163554/http://www.nydailynews.com/ny_local/2010/10/31/2010-10-31_bloomberg_vows_to_end_notow_deal_for_city_officials_with_unpaid_parking_tickets.html">Mayor Bloomberg vowed</a> to revise the perk. &quot;The Finance Department is going to find a solution to ensure they can enforce against valid tickets in these cases. <strong>The standards have to apply to everyone</strong>,&quot; said Bloomberg spokesman Marc LaVorgna. Drivers without &quot;official&quot; plates with unpaid tickets of $350 or more face being towed, while officials with unpaid tickets have avoided that fate for over 20 years. Maybe they can tackle illegal <a href="https://web.archive.org/web/20110412163554/http://gothamist.com/2010/10/12/non-official_parking_placards_still.php">parking placard abuse</a> next.<br>
+</p>

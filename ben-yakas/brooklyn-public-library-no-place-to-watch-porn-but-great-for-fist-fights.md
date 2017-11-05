@@ -1,0 +1,15 @@
+---
+author: Ben Yakas
+date: Apr 20, 2011 6:55 pm
+title: Brooklyn Public Library No Place To Watch Porn...But Great For Fist Fights!
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:260px; "> <img alt="42011bpl.jpg" src="https://web.archive.org/web/20150428182403im_/http://gothamist.com/attachments/byakas/42011bpl.jpg" width="260" height="173"> <br> <i>Brooklyn Public Library <a href="https://web.archive.org/web/20150428182403/http://www.flickr.com/photos/structures-nyc-photos/5098146009/">structures nyc&apos;s flickr</a></i></div> Nothing livens up a library like a good old fashioned porn fight! Two men got into a fist fight at the Brooklyn Public Library over the weekend, allegedly because one was waiting for the other to <a href="https://web.archive.org/web/20150428182403/http://www.nypost.com/p/news/local/porn_punch_up_in_klyn_library_rm0GjHvwOezvedmSwiIwhM">finish looking at</a> porn on one of the library&apos;s computers. And in the end, only one of the men was given assault charges...and it wasn&apos;t the one looking at porn!<p></p>
+
+<p>The fight started when 38-year-old Santiago Real was taking too much time viewing pornography on a library computer, while 25-year-old Durail Wright sat, stewed, and became irate. The two exchanged handfuls of fist cuisine before being broken up by police. Wright was charged with assault, disorderly conduct and harassment, while Real was only given a summons for disorderly conduct. The Post took some umbrage with that outcome, lamenting that the <strong>&quot;sex addict got off easy.</strong>&quot; </p>
+
+<p>All of the city&apos;s libraries, including the Brooklyn Public Library (BPL), have a rich and storied history of creepy dudes checking out porn on their computers&#x2014;in 2008, the BPL <a href="https://web.archive.org/web/20150428182403/http://www.brooklynpaper.com/stories/31/20/31_20_library_seeks_porn.html">was criticized</a> for seemingly protecting porn enthusiasts. In 2009, a Brooklyn grandmother <a href="https://web.archive.org/web/20150428182403/http://gothamist.com/2009/07/14/brooklyn_library_goes_xxx.php">rented</a> a VHS copy of Austin Powers at the Borough Park library branch for her grandkids to watch, only to discover that someone had spliced it with &quot;long pornographic scenes&quot; during the credits. And last year, an investigative report of the city&apos;s libraries <a href="https://web.archive.org/web/20150428182403/http://gothamist.com/2010/06/22/free_softcore_porn_from_city_librar.php">uncovered</a> hundreds of softcore and erotic films available to rent or view. Obviously, we&apos;ve been doing something very wrong by masturbating in the comfort, safety and relative anonymity of our own homes.</p>					
+										
+									
+				

@@ -1,0 +1,29 @@
+---
+author: Ben Yakas
+date: Dec 6, 2012 12:10 pm
+title: Adorable Lady Who Met Jay-Z On Subway Thought It Was Flash Mob
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="12612jayz.jpg" src="https://web.archive.org/web/20150314023252im_/http://gothamist.com/attachments/byakas/12612jayz.jpg" width="640" height="368" class="image-none"> </span></p>
+
+<p>This week, Jay-Z <a href="https://web.archive.org/web/20150314023252/http://gothamist.com/2012/12/05/video_adorable_old_lady_asks_subway.php#photo-3">released a mini-documentary all about</a> what went into his eight night residency at Barclays Center this fall. By far, the highlight of the whole thing was when <a href="https://web.archive.org/web/20150314023252/http://gothamist.com/2012/10/08/video_jay-z_takes_the_subway.php">Jay-Z rode the subway</a> to get to the last show, and met artist <a href="https://web.archive.org/web/20150314023252/http://www.ellengrossman.com/">Ellen Grossman</a>, who didn&apos;t know who he was. The 67-year-old Grossman has now become <a href="https://web.archive.org/web/20150314023252/http://mediadecoder.blogs.nytimes.com/2012/12/05/when-my-friend-ellen-grossman-met-jay-z/">an overnight internet sensation</a>&#x2014;she <a href="https://web.archive.org/web/20150314023252/http://www.nydailynews.com/new-york/didn-jay-z-big-fan-article-1.1214455">told the Daily News</a> what she thought was really going on that day on the R train:  &#x201C;I thought it was a flashmob. I thought it might have been a stunt &#x2014; something goofy.&quot;</p>
+
+<p><iframe width="640" height="360" src="https://web.archive.org/web/20150314023252if_/http://www.youtube.com/embed/96z0IrwakcU" frameborder="0" allowfullscreen></iframe></p>
+
+<p>Grossman, who was on her way to Park Slope to meet a friend, further <a href="https://web.archive.org/web/20150314023252/http://www.tabletmag.com/scroll/118438/ellen-grossman-on-meeting-jay-z-on-the-subway">explained to Tablet</a> what she thought might have been happening:</p>
+
+<blockquote>It was a fairly sparsely populated subway car and I was alone on three seats. There was a surge of people at Canal Street and my son was in the World Trade Center disaster&#x2026;but he survived, it&#x2019;s alright, but we didn&#x2019;t know that for several hours so that&#x2019;s kind of present in our consciousness. So, at first, I thought &#x2018;Oh God, something terrible has happened up on the street.&#x2019; But everyone was laughing and smiling so I thought, &#x2018;What a relief!&#x2019; And I thought perhaps it was a flash mob.</blockquote>
+
+<p>But she was being honest about not knowing him: after meeting him, she had an assistant in the studio where she draws and sculpts make her a CD of his songs. She told Tablet she didn&apos;t have any favorite songs yet, but she loves how generous and &quot;inclusive&quot; he is with his collaborations. You can see a video of Grossman discussing <a href="https://web.archive.org/web/20150314023252/http://recessionartshows.com/2012/10/prolonged-exposure-artist-ellen-grossman/">her own art</a> below.</p>
+
+<center><object id="flashObj" width="480" height="270" classid="clsid:D27CDB6E-AE6D-11cf-96B8-444553540000" codebase="https://web.archive.org/web/20150314023252oe_/http://download.macromedia.com/pub/shockwave/cabs/flash/swflash.cab#version=9,0,47,0"><param name="movie" value="http://c.brightcove.com/services/viewer/federated_f9?isVid=1&amp;isUI=1"><param name="bgcolor" value="#FFFFFF"><param name="flashVars" value="videoId=2013701711001&amp;playerID=1140772469001&amp;playerKey=AQ~~,AAAAAAEDRq0~,qRcfDOX2mNtWW87VePrJiaFRXUo43tGn&amp;domain=embed&amp;dynamicStreaming=true"><param name="base" value="http://admin.brightcove.com"><param name="seamlesstabbing" value="false"><param name="allowFullScreen" value="true"><param name="swLiveConnect" value="true"><param name="allowScriptAccess" value="always"><embed src="https://web.archive.org/web/20150314023252oe_/http://c.brightcove.com/services/viewer/federated_f9?isVid=1&amp;isUI=1" bgcolor="#FFFFFF" flashvars="videoId=2013701711001&amp;playerID=1140772469001&amp;playerKey=AQ~~,AAAAAAEDRq0~,qRcfDOX2mNtWW87VePrJiaFRXUo43tGn&amp;domain=embed&amp;dynamicStreaming=true" base="http://admin.brightcove.com" name="flashObj" width="480" height="270" seamlesstabbing="false" type="application/x-shockwave-flash" allowfullscreen="true" allowscriptaccess="always" swliveconnect="true" pluginspage="http://www.macromedia.com/shockwave/download/index.cgi?P1_Prod_Version=ShockwaveFlash"></object></center>
+
+<p>Grossman <a href="https://web.archive.org/web/20150314023252/http://nymag.com/daily/intel/2012/12/jay-z-subway-lady-ellen-grossman-interview.html">told Daily Intel that</a> she felt a connection with Jay-Z, and got to see the documentary early when she was asked to sign a waiver: &quot;It was very energizing talking to Jay-Z. Just who he is, not having to do with all the cameras, but he really, genuinely spreads an aura of empowerment around him.&quot; </p>
+
+<p>She added that since the clip took off, &quot;my friends have all gotten in touch with me, and I have a zillion requests to be Facebook friends with people.&quot; One of those friends wrote a piece about Grossman <a href="https://web.archive.org/web/20150314023252/http://mediadecoder.blogs.nytimes.com/2012/12/05/when-my-friend-ellen-grossman-met-jay-z/">for the Times</a> .</p>
+
+<blockquote>To what does she attribute this new found celebrity? Given the economy, the wars and talk of the end of the world, &#x201C;I think the world is in the mood for a sweet, old lady,&#x201D;she said.</blockquote>					
+										
+									
+				

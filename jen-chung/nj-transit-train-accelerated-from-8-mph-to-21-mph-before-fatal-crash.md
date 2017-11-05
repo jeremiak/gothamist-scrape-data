@@ -1,0 +1,23 @@
+---
+author: Jen Chung
+date: Oct 7, 2016 2:00 pm
+title: NJ Transit Train Accelerated From 8 MPH To 21 MPH Before Fatal Crash
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2016_10_fatalcrashhoboken.jpg" src="https://web.archive.org/web/20171016014340im_/http://gothamist.com/attachments/jen/2016_10_fatalcrashhoboken.jpg" width="640" height="480"> <br> <i> Frantic escape from the train on September 29, 2016 (Getty Images)</i></div> <p></p>
+
+<p>The New Jersey commuter train that <a href="https://web.archive.org/web/20171016014340/http://gothamist.com/2016/09/29/nj_transit_hoboken_crash.php#photo-1">crashed into the terminal in Hoboken, NJ</a> last month was in fact speeding when it should have been slowing down. The National Transportation Safety Board said that <a href="https://web.archive.org/web/20171016014340/http://gothamist.com/2016/10/05/ntsb_nj_transit_train_was_speeding.php">data recorders</a> found that the train accelerated from 8 mph to 21 mph right before impact. The speed limit for trains approaching the terminal is 10 mph.</p>
+
+<p>The crash killed a woman and injured over 100 others, as well as seriously damaged the station (train service <a href="https://web.archive.org/web/20171016014340/http://www.njtransit.com/sa/sa_servlet.srv?hdnPageAction=CustomerNoticeTo&amp;NoticeId=2472">remains suspended</a> at the stop).  The <a href="https://web.archive.org/web/20171016014340/http://www.ntsb.gov/news/press-releases/Pages/pr20161006.aspx">NTSB described what various data recorders found</a>:</p><blockquote>- The forward facing video showed the cab car colliding with and overriding the bumping post at the end of the track #5 platform at the Hoboken Terminal. A large flash was observed as the car collided with the panel just beyond the bumping post.<br>
+- The forward facing video recorder captured the sound of one blast of the train&#x2019;s horn about one minute before the collision, while the train was in the yard leading to the terminal. The train&#x2019;s bell began sounding shortly afterward and continued until the end of the recording.<br>
+- The event recorder indicates throttle increased from idle to the #4 position while the train was traveling about 8 mph, approximately 38 seconds before the collision. Train speed began to increase and reached a maximum of about 21 mph.<br>
+- According to the event recorder data the throttle position went from #4 to idle just prior to the collision, and then engineer-induced emergency braking occurred less than a second before the collision with the bumping post.<br>
+- The event recorder shows train speed was about 21 mph when it collided with the bumping post. Event recorder speeds during the final seconds are consistent with train speed estimates obtained from the NTSB&#x2019;s preliminary analysis of images from the forward facing video camera.</blockquote>The woman who was killed, <a href="https://web.archive.org/web/20171016014340/http://gothamist.com/2016/09/30/hoboken_crash_victim.php">Fabiola Bittar de Kroen</a>, was a 34-year-old wife and mother. She was standing on the train platform when the train smashed into the station. <p></p>
+
+<p>The train&apos;s engineer <a href="https://web.archive.org/web/20171016014340/http://gothamist.com/2016/10/03/hoboken_crash_engineer.php">claims he doesn&apos;t recall the crash</a>, but believes he was traveling within the 10 mph speed limit. </p>
+
+<p>NJ Transit is now <a href="https://web.archive.org/web/20171016014340/http://abc7ny.com/news/nj-transit-to-require-conductors-to-ride-with-engineers-/1541735/">requiring that conductors join engineers</a> when trains are approaching Hoboken terminal and Atlantic City station, both of which have platforms at the end of the line. <a href="https://web.archive.org/web/20171016014340/http://www.nytimes.com/2016/10/07/nyregion/train-was-traveling-at-twice-the-speed-limit-just-before-hoboken-crash.html?rref=collection%2Fsectioncollection%2Fnyregion&amp;action=click&amp;contentCollection=nyregion&amp;region=rank&amp;module=package&amp;version=highlights&amp;contentPlacement=1&amp;pgtype=sectionfront&amp;_r=0">According to the NY Times</a>, former NTSB chairman James Hall &quot;praised the railroad&#x2019;s decision to place a conductor next to the train&#x2019;s engineer to serve as a backup. But he also urged the railroad to install an automatic braking system to prevent future accidents. &apos;It&#x2019;s unimportant whether it was human error or accidental,&apos; Mr. Hall said. &apos;There are technologies to prevent the train from accelerating.&apos;&quot;</p>					
+										
+									
+				

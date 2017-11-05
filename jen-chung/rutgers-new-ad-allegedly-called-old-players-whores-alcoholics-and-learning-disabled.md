@@ -1,0 +1,36 @@
+---
+author: Jen Chung
+date: May 26, 2013 10:40 AM
+title: Rutgers' New AD Allegedly Called Old Players, "Whores, Alcoholics And Learning Disabled"
+---
+
+
+                            
+                            
+                            
+                            <p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-right"> <img alt="2013_05_rutgerhermann.jpg" src="https://web.archive.org/web/20140227095235im_/http://gothamist.com/attachments/jen/2013_05_rutgerhermann.jpg" width="640" height="433"> <br> <i style=" width:640px; ;display:block"> Rutgers&apos; new athletic director Juile Hermann</i></div> <p></p>
+
+<p>Last month, Rutgers&apos; athletic director <a href="https://web.archive.org/web/20140227095235/http://gothamist.com/2013/04/05/rutgers_athletics_director_tim_pern.php">Tim Pernetti resigned</a> because its men&apos;s basketball coach <a href="https://web.archive.org/web/20140227095235/http://gothamist.com/2013/04/02/video_rutgers_basketball_coach_thro.php">Mike Rice was caught on video</a> being verbally and physically abusive with players. So the school hired Julie Hermann, from the University of Louisville, <a href="https://web.archive.org/web/20140227095235/http://news.rutgers.edu/medrel/news-releases/2013/may-2013/rutgers-names-julie-20130515">to be the first woman</a> to lead its athletics department. Now Hermann is under fire for allegedly abusing players she coached at the University of Tennessee.</p>
+
+<p>The <a href="https://web.archive.org/web/20140227095235/http://www.nj.com/sports/index.ssf/2013/05/rutgers_new_athletic_director.html#incart_m-rpt-2">Star-Ledger reported</a> the details last night, noting that the 1997 women&apos;s volleyball squad wrote a letter complaining about Hermann. The team says they gave it to Hermann: </p><blockquote>&quot;The mental cruelty that we as a team have suffered is unbearable,&quot; the players wrote. Specifically, they said the coach had called them &quot;whores, alcoholics and learning disabled.&quot;<p></p>
+
+<p>In blunt terms, the players wrote, &quot;It has been unanimously decided that this is an irreconcilable issue.&quot;</p></blockquote>Players from that team told they met with Hermann about it: &quot;Hermann, the players say, absorbed the words, turned to her team, and said simply: &apos;I choose not to coach you guys.&apos; At that, say the players, she turned and left the room. Her coaching days were over, and many players say they never saw her again, though she briefly moved into athletic administration on the Knoxville campus.&quot;<p></p>
+
+<p>Now, those players have come forward after Hermann&apos;s new position (which will pay her $450,000 in annual salary) was announced. One player, Allison Stricklin Harvey, said, &quot;I like to think she has evolved,&quot; but said that seeing Hermann&apos;s recent media appearances, &quot;It just put a pit in my stomach.&quot;</p>
+
+<p>Eleven of Hermann&apos;s former players during the 1990s spoke on the record.</p><blockquote>Their accounts depict a coach who thought nothing of demeaning them, who would ridicule and laugh at them over their weight and their performances, sometimes forcing players to do 100 sideline pushups during games, who punished them after losses by making them wear their workout clothes inside out in public or not allowing them to shower or eat, and who pitted them against one another, cutting down particular players with the whole team watching, and through gossip.<p></p>
+
+<p>Several women said playing for Hermann had driven them into depression and counseling, and that her conduct had sullied the experience of playing Division 1 volleyball.</p></blockquote>Hermann denied the allegations, &quot;I never heard any of this, never name-calling them or anything like that whatsoever,&quot; adding, &quot;Whore [is] not part of my vernacular. Not then, not now, not ever.&quot;<p></p>
+
+<p>The Star-Ledger also mentions an employee discrimination lawsuit from Hermann&apos;s Tennessee days: Former assistant volleyball coach Ginger Hineline claimed she was fired because she got pregnant. Hermann denied that, claiming that Hineline was just obsessed with having a baby and was distracted from doing her job. But Hineline&apos;s wedding video shows Hermann, who was a bridesmaid, saying, &quot;I hope it&apos;s good tonight. Because I know you&apos;ve been waiting for a while, but I hope it&apos;s not too good, because I don&apos;t want you to come back February with any surprises, you know, the office and all, and it would be hard to have a baby in there.&quot;</p>
+
+<p>At Rutgers&apos; press conference announcing Hermann, a Star-Ledger reporter specifically asked about the wedding video, and Hermann said, &quot;Trust me, there&apos;s no video.&quot;  But Hineline provided it:</p>
+
+<center><object id="flashObj" width="486" height="412" classid="clsid:D27CDB6E-AE6D-11cf-96B8-444553540000" codebase="https://web.archive.org/web/20140227095235oe_/http://download.macromedia.com/pub/shockwave/cabs/flash/swflash.cab#version=9,0,47,0"><param name="movie" value="http://c.brightcove.com/services/viewer/federated_f9?isVid=1"><param name="bgcolor" value="#FFFFFF"><param name="flashVars" value="videoId=2409749054001&amp;playerID=651974715001&amp;playerKey=AQ~~,AAAAPLMIP6E~,BRrRHTAljlF40NofMDxsColEK-8KEsxy&amp;domain=embed&amp;dynamicStreaming=true"><param name="base" value="http://admin.brightcove.com"><param name="seamlesstabbing" value="false"><param name="allowFullScreen" value="true"><param name="swLiveConnect" value="true"><param name="allowScriptAccess" value="always"><embed src="https://web.archive.org/web/20140227095235oe_/http://c.brightcove.com/services/viewer/federated_f9?isVid=1" bgcolor="#FFFFFF" flashvars="videoId=2409749054001&amp;playerID=651974715001&amp;playerKey=AQ~~,AAAAPLMIP6E~,BRrRHTAljlF40NofMDxsColEK-8KEsxy&amp;domain=embed&amp;dynamicStreaming=true" base="http://admin.brightcove.com" name="flashObj" width="486" height="412" seamlesstabbing="false" type="application/x-shockwave-flash" allowfullscreen="true" swliveconnect="true" allowscriptaccess="always" pluginspage="http://www.macromedia.com/shockwave/download/index.cgi?P1_Prod_Version=ShockwaveFlash"></object></center>
+
+<p>When asked about it again, Hermann told the Star-Ledger, &quot;Was I at her wedding? They eloped? I don&apos;t even remember that, honestly. It doesn&apos;t mean it didn&apos;t happen. It&apos;s just, it&apos;s been so long for me. I can&apos;t picture standing at her wedding, unfortunately.&quot; And of the video, &quot;That&apos;s probably why I&apos;m on the videotape teasing her. It&apos;s like, &apos;Yep, we know a baby&apos;s coming. Easy on that.&apos; I&apos;m being a total, you know, smart aleck on the video. So I had no problem with her having a child. My frustration was her work level.&quot;</p>
+
+<p>Hineline won $150,000 in the lawsuit. A co-chair of Rutgers&apos; search committee for a new AD says she had no idea about the lawsuit until after Hermann was chosen, but she still thinks Hermann is a good choice.</p>
+                            
+                            
+                            

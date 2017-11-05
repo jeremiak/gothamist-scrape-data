@@ -1,0 +1,22 @@
+---
+author: Jen Chung
+date: May 27, 2013 1:00 PM
+title: Now Chris Christie Wants Answers About Rutgers' New AD And Her Allegedly Abusive Coaching Past
+---
+
+
+                            
+                            
+                            
+                            <p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2013_06_rutgersdumb.jpg" src="https://web.archive.org/web/20130811055450im_/http://gothamist.com/attachments/jen/2013_06_rutgersdumb.jpg" width="640" height="413"> <br> <i> Rutgers athletics director Julie Hermann and Rutgers president Robert Barchi (AP)</i></div>  <p></p>
+
+<p>Now that Rutgers University has embroiled itself in <a href="https://web.archive.org/web/20130811055450/http://gothamist.com/2013/05/26/rutgers_new_ad_called_players_she_c.php">another athletics-related controversy</a>, NJ Governor Chris Christie is getting involved too! The <a href="https://web.archive.org/web/20130811055450/http://www.nj.com/sports/index.ssf/2013/05/rutgers_new_athletic_director.html#incart_m-rpt-2">Star-Ledger reported</a> that numerous University of Tennessee volleyball players accused Rutgers&apos; new athletics director Julie Hermann of being abusive&#x2014;they said she called them &quot;whores, alcoholics and learning disabled&quot;&#x2014;prompting a new line of questions.</p>
+
+<p>Christie, <a href="https://web.archive.org/web/20130811055450/http://www.nj.com/rutgersfootball/index.ssf/2013/05/gov_christie_ill_be_asking_que.html#incart_m-rpt-2">appearing on Meet the Press</a>, said yesterday, &quot;I read this two hours ago. It&apos;s the first I heard of it. I have to talk to university officials and try to get the complete story. So, [it] would be irresponsible for me to comment on this point on it. All I know is what I saw two hours ago when I read the newspaper. I wasn&apos;t involved in the search at all, and I haven&apos;t met Ms. Hermann, so let me talk to university officials. I&apos;ll probably have more to say later in the week.&quot; Hermann told the Star-Ledger she didn&apos;t recall that her 1997 team gathered to confront her about a letter they wrote, outlining how she was abusive to them and that they didn&apos;t want her as their coach. </p>
+
+<p>Hermann was hired to replace <a href="https://web.archive.org/web/20130811055450/http://gothamist.com/2013/04/05/rutgers_athletics_director_tim_pern.php">Tim Pernetti, who resigned</a> when it was revealed that men&apos;s basketball coach Mike Rice was <a href="https://web.archive.org/web/20130811055450/http://gothamist.com/2013/04/02/video_rutgers_basketball_coach_thro.php">physically and verbally abusive</a> to players. Pernetti claimed that he wanted to fire Rice much earlier, but Rutgers counsel and others wanted to follow a process that involving rehabilitating Rice. <a href="https://web.archive.org/web/20130811055450/http://gothamist.com/2013/04/06/rutgers_actually_could_have_fired_m.php">Rutgers President Robert Barchi denied</a> that he knew about Rice&apos;s abuse early in the process, and pledged to get to the bottom of why a coach could get away with using phrases like &quot;f---ing f----t&quot; at players (especially in the wake of Tyler Clementi&apos;s suicide). </p>
+
+<p>The new Rutgers men&apos;s basketball coach, Eddie Jordan, was hailed as a great hire, since he went to Rutgers... only then it turned out that <a href="https://web.archive.org/web/20130811055450/http://deadspin.com/coach-eddie-jordan-didnt-graduate-from-rutgers-despit-499370770">Jordan didn&apos;t even graduate from the school</a>. This latest botch-up <a href="https://web.archive.org/web/20130811055450/http://www.nj.com/sports/index.ssf/2013/05/rutgers_julie_hermann.html#incart_m-rpt-2">has many NJ lawmakers furious</a>. State Senator Richard Codey (who was briefly acting and interim NJ Governor three times) said, &quot;This is becoming Comedy Central.... A great university with great students and alumni deserve better. From the mishandling of the Rice situation to the Eddie Jordan thing, where they didn&apos;t know that he didn&apos;t have his degree, to a woman who can&apos;t remember that every member of her volleyball team called her to leave. You remember that on your death bed. She should go, too. You can&apos;t make this stuff up.&quot;</p>
+                            
+                            
+                            

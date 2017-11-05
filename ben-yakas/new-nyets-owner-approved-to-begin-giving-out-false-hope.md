@@ -1,0 +1,15 @@
+---
+author: Ben Yakas
+date: May 12, 2010 2:18 pm
+title: New Nyets Owner Approved To Begin Giving Out False Hope
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:230px; "> <img alt="041110prokhorov.jpg" src="https://web.archive.org/web/20150209054146im_/http://gothamist.com/attachments/byakas/041110prokhorov.jpg" width="230" height="250"> <br> <i>Mikhail Prokhorov</i></div> The NBA&apos;s Board of Governors has <a href="https://web.archive.org/web/20150209054146/http://www.nytimes.com/2010/05/12/sports/basketball/12sportsbriefs-nets.html?ref=basketball">approved</a> Russian billionaire Mikhail Prokhorov&apos;s purchase of the Brooklyn-bound NJ Nets. He becomes the first non-North American NBA owner, with 80 percent of the team and 45 percent of the Barclay Center under his control. In a <a href="https://web.archive.org/web/20150209054146/http://www.nj.com/nets/index.ssf/2010/05/new_nets_owner_mikhail_prokhor.html">statement</a> released today, he oozed optimism about the future of last season&apos;s worst team in basketball: <strong>&#x201C;For those who are already fans of the Nets and the NBA, I intend to give you plenty to cheer about.&#x201D;</strong><p></p>
+
+<p>But the person who is happiest to see the Nets deal go through is developer <a href="https://web.archive.org/web/20150209054146/http://gothamist.com/tags/bruceratner">Bruce Ratner</a>, who bought the team in the fall of 2004 for $300 million. Ratner admitted in a recent interview with the <a href="https://web.archive.org/web/20150209054146/http://online.wsj.com/article/SB10001424052748703880304575236621848424814.html">WSJ</a> that he lost between $25-$30 million each season on the team, and was never really a basketball fan to begin with: &quot;I was never one to puff my chest out with some big ego about being the owner of a basketball team.&quot; The only reason he bought the team was to facilitate the development and creation of Atlantic Yards project, which he had begun building over a decade before.</p>
+
+<p>However, some local pols are unhappy over the allegations that <a href="https://web.archive.org/web/20150209054146/http://gothamist.com/2010/03/29/new_nyets_owner_a_cowboy_from.php">Prokhorov</a> <a href="https://web.archive.org/web/20150209054146/http://gothamist.com/2010/04/11/new_nyets_owner_may_have_done_busin.php">had monetary ties</a> to Zimbabwe President Robert Mugabe, and have called for a delay on the approval: &#x201C;<strong>The public benefits of Atlantic Yards will be hollow if they are achieved with the help of profits gained through fraudulent schemes or a regime that holds no regard for human rights</strong>,&#x201D; read the <a href="https://web.archive.org/web/20150209054146/http://atlanticyardsreport.blogspot.com/2010/05/as-expected-nba-approves-prokhorov-as.html">letter</a> to NBA Commissioner David Stern, signed by Council members Brad Lander (D-Park Slope) and Letitia James (D-Fort Greene) and three state Assembly members.</p>					
+										
+									
+				

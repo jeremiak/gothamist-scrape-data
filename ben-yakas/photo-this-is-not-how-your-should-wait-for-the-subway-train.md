@@ -1,0 +1,17 @@
+---
+author: Ben Yakas
+date: Jan 31, 2013 1:00 pm
+title: Photo: This Is NOT How Your Should Wait For The Subway Train
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="13113subway1.jpeg" src="https://web.archive.org/web/20160320002310im_/http://gothamist.com/attachments/byakas/13113subway1.jpeg" width="640" height="686"> <br> <i> <a href="https://web.archive.org/web/20160320002310/http://www.reddit.com/r/funny/comments/17mn4k/natural_selection_is_still_a_thing/">via Reddit</a></i></div> <p></p>
+
+<p>The <a href="https://web.archive.org/web/20160320002310/http://www.reddit.com/r/funny/comments/17mn4k/natural_selection_is_still_a_thing/">top post on Reddit</a> as of noon today is the photo you see above, which shows four young ladies striking a pose on <a href="https://web.archive.org/web/20160320002310/http://gothamist.com/tags/subway">subway tracks</a>. There is debate as to whether this is in NYC, Toronto or Boston (the third rail is against the wall, but some have suggested it is the Harvard Square T)&#x2014;some think it may be photoshopped (although the photo has been <a href="https://web.archive.org/web/20160320002310/http://www.reddit.com/r/pics/comments/smvos/soon/">floating around for almost a year</a>, so that seems questionable)&#x2014;but the overwhelming stupidity contained here, regardless of its origins, should serve as a timely reminder that if you hang out on the tracks for a laugh, there is a damn good chance you are going to die. </p>
+
+<p>Because even though <a href="https://web.archive.org/web/20160320002310/http://gothamist.com/2013/01/29/should_mta_spend_over_1_billion_to.php">141 people were struck</a> by trains last year and 55 people died as a result (including at least two people <a href="https://web.archive.org/web/20160320002310/http://gothamist.com/tags/subwayshoving">who were fatally shoved</a> in front of a coming train at random), there will always be some idiots lining up to receive their Darwin Award to amuse their friends. We&apos;ve seen several viral videos of people playing around on the tracks: people who couldn&apos;t help but risk their lives <a href="https://web.archive.org/web/20160320002310/http://gothamist.com/2012/04/17/video_teens_play_chicken_with_oncom.php">playing chicken with trains</a>, walking <a href="https://web.archive.org/web/20160320002310/http://gothamist.com/2012/05/04/video_desperate_subway_busker_cross.php">across the tracks</a> for money, or <a href="https://web.archive.org/web/20160320002310/http://gothamist.com/2012/06/10/video_two_dudes_jump_across_subway.php">jumping across subway tracks</a> for a laugh.</p>
+
+<p>Six people have already been killed by subways in 2013, which means the city is theoretically on pace to have over 100 such deaths this year&#x2014;while that is likely not going to happen, based on trends over the last decade, you can be assured that dozens more people WILL be fatally struck by subways this year. Statistically, one-third will be suicides, and one-third will be people who fell onto the tracks, whether accidental or purposeful. We&apos;re going to assume these ladies got lucky and didn&apos;t win any Darwin Awards... this time.</p>					
+										
+									
+				

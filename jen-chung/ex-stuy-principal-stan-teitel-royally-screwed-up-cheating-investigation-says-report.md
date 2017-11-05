@@ -1,0 +1,22 @@
+---
+author: Jen Chung
+date: Aug 31, 2013 12:35 PM
+title: Ex-Stuy Principal Stan Teitel Royally Screwed Up Cheating Investigation, Says Report
+---
+
+
+                            
+                            
+                            
+                            <p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2013_08_stuy.jpg" src="https://web.archive.org/web/20130903042509im_/http://gothamist.com/attachments/jen/2013_08_stuy.jpg" width="640" height="462"> <br> <i> Stuyvesant High School (Getty Images)</i></div> <p></p>
+
+<p>Over a year ago, longtime Stuyvesant High School Principal Stan Teitel <a href="https://web.archive.org/web/20130903042509/http://gothamist.com/2012/08/03/breaking_stuyvesant_high_school_pri.php">resigned his post at the prestigious public high school</a>, saying it was &quot;time to devote my energy to my family and personal endeavors.&quot; However, his resignation came after an <a href="https://web.archive.org/web/20130903042509/http://gothamist.com/2012/06/26/stupid_stuy_cheating_ring_exposed_o.php">embarrassing cheating scandal</a>&#x2014;and a Department of Education report completed in November 2012 but <em>only released yesterday</em> showed that Teitel and an assistant principal &quot;failed to efficiently carry out the administrative duties entrusted to them&quot; during the scandal &quot;due to a lack of foresight, candor, and professional judgment.&quot; </p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-right"> <img alt="2012_06_steitel.jpg" src="https://web.archive.org/web/20130903042509im_/http://gothamist.com/attachments/jen/2012_06_steitel.jpg" width="300" height="359"> <br> <i style=" width:300px; ;display:block"> http://stuyspectator.com/2010/03/26/stuyvesants-most-wanted/</i></div> The cheating ring involved students sharing questions and answers about the State&apos;s Regents exams via cellphones. As we previously noted, &quot;The idea that some of the smartest kids in the city would need to cheat on a multiple choice exam which barely changes each year&#x2014;and <a href="https://web.archive.org/web/20130903042509/http://go.redirectingat.com/?id=50913X1248263&amp;site=gothamist.com&amp;xs=1&amp;url=http%3A%2F%2Fwww.amazon.com%2FBarrons-Regents-Exams-Answers-Spanish%2Fdp%2F0812031938%2Fref%3Dsr_1_1%3Fs%3Dbooks%26ie%3DUTF8%26qid%3D1340718016%26sr%3D1-1%26keywords%3Dbarron%2527s%2Bregents%2Bspanish&amp;xguid=c3202fb2470dccab68e0ffd783252a59&amp;xcreo=0&amp;sref=http%3A%2F%2Fgothamist.com%2F2012%2F06%2F26%2Fstupid_stuy_cheating_ring_exposed_o.php">which is then published and made easily accessible</a>&#x2014;is pretty sad.&quot; But it also tainted the reputation of the magnet school.<p></p>
+
+<p><a href="https://web.archive.org/web/20130903042509/http://blogs.wsj.com/metropolis/2013/08/30/stuyvesant-high-school-principals-handling-of-cheating-criticized-in-report/?mod=WSJBlog">According to the Wall Street Journal</a>, &quot;The report said that after receiving a tip about the cheating, Mr. Teitel planned to catch a student in the act. The report was critical of this move because it allowed the cheating to continue, rather than taking steps  to prevent cell phones in classrooms... Additionally, the principal and an assistant principal didn&#x2019;t question the 70 students who were potentially involved in the cheating until eight days after the test and only when the department&#x2019;s lawyers told them to, the report said.&quot; (The WSJ has a <a href="https://web.archive.org/web/20130903042509/http://online.wsj.com/public/resources/documents/nystuy083013.pdf">PDF of the entire 50-page report</a>.)</p>
+
+<p>Teitel <a href="https://web.archive.org/web/20130903042509/http://www.nytimes.com/2013/08/31/nyregion/stuyvesant-principal-now-retired-mishandled-cheating-case-report-says.html?ref=nyregion">told the NY Times</a>, &quot;No one sent me a copy of [the report]... I am retired. I have been retired for over a year.&quot; And the DOE explained why the report took 10 months to be made public&#x2014;apparently it was worried about Stuy&apos;s rampant cheating, &quot;We kept the investigation open and monitored until the end of the school year. No further evidence was presented that warranted a change in the report, so the report was issued as is.&quot;</p>
+                            
+                            
+                            

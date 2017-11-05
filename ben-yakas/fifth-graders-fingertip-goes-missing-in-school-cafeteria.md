@@ -1,0 +1,15 @@
+---
+author: Ben Yakas
+date: June 10, 2011  6:48 PM
+title: Fifth Grader's Fingertip Goes Missing In School Cafeteria
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="61011finger.jpg" src="https://web.archive.org/web/20110623142552im_/http://gothamist.com/attachments/byakas/61011finger.jpg" width="200" height="328" class="image-left"> </span>A Queens fifth grader is more than a bit upset at his public school after the tip of his finger was ripped off by a swinging metal cafeteria door...and school officials couldn&apos;t find the missing bit. Ten-year-old Esau Gulley <a href="https://web.archive.org/web/20110623142552/http://www.nydailynews.com/ny_local/education/2011/06/10/2011-06-10_fingerpointing_ma_blasts_school_after_sons_maimed_when_door_slams_hand__no_one_s.html">told the News that</a> the incident happened on Monday at Public School 140 in Jamaica.  <strong>&quot;There was blood everywhere. I looked at it, and the top was gone,&quot;</strong> he said.</p>
+
+<p>He described the accident in detail: &quot;My hand got stuck where the hinges are. I was in a crowd of kids. There were too many kids. The door was closing and it shut on my finger...it felt like my finger was falling off.&quot; His right middle finger was chopped at the base of his fingernail. He was rushed to Jamaica Hospital, where doctors asked his mother if they had the severed fingertip to reattach it. But school officials couldn&apos;t find it: &quot;They told me it was lost. I can&apos;t believe it. How can you lose the tip of a finger?&quot; said Sandra Gulley.</p>
+
+<p>The doctor&apos;s were able to take loose skin dangling from the severed tip and stitch it over the stub. But two days later, Gulley got a call from the school principal saying they had found the fingertip...but it was too late. &quot;The doctor said if I came with it, they could have done something to reattach it...My son is disfigured because they didn&apos;t save the tip of his finger. They need to educate people in schools on what to do in these situations,&quot; she said.</p>
+
+<p>The family is planning on suing the school for negligence: &quot;My son is very upset. He&apos;s going to need therapy to learn how to use his finger again. Who&apos;s going to pay for that? I believe their main focus was cleaning up the blood, and they accidentally threw out my son&apos;s finger. I want to know what the school is going to do. They need to make sure this never happens to another kid.&quot; If only the school had an eccentric school bus driver to have the quick wits to put the tip in a crackerjack box filled with ice:</p>
+
+<p><iframe width="640" height="510" src="https://web.archive.org/web/20110623142552if_/http://www.youtube.com/embed/A2xjjcg1NZs" frameborder="0" allowfullscreen></iframe></p>

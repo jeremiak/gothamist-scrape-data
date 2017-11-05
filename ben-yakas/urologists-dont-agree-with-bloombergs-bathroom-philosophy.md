@@ -1,0 +1,19 @@
+---
+author: Ben Yakas
+date: Aug 24, 2013 11:35 am
+title: Urologists Don't Agree With Bloomberg's Bathroom Philosophy
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="82313bloomberg.jpeg" src="https://web.archive.org/web/20150618005511im_/http://gothamist.com/attachments/byakas/82313bloomberg.jpeg" width="640" height="427"> <br> <i> <a href="https://web.archive.org/web/20150618005511/http://www.shutterstock.com/cat.mhtml?lang=en&amp;search_source=search_form&amp;version=llv1&amp;anyorall=all&amp;safesearch=1&amp;searchterm=baby+diaper&amp;search_group=#id=137709719&amp;src=7Dki4NLHZBrn0BClPg81hA-1-26">Shutterstock/photobac</a></i></div> <p></p>
+
+<p>Yesterday, Mayor Bloomberg <a href="https://web.archive.org/web/20150618005511/http://gothamist.com/2013/08/23/bloombergs_advice_for_success_dont.php">offered some pearls of wisdom</a> about his own success, and how he abused his bladder to get it: &quot;Take the fewest vacations and the least time away from the desk to go to the bathroom or have lunch. You gotta be there,&quot; he said during his weekly radio address. Urologists aren&apos;t on board with his advice though: &quot;That is absolutely not advisable&#x2014;to not go to the bathroom,&quot; Dr. Sven Wenske, an assistant professor of urology at Columbia University Medical Center, <a href="https://web.archive.org/web/20150618005511/http://online.wsj.com/article/SB10001424127887324619504579031411314519906.html?mod=WSJ_NY_LEFTTopStories">told the Journal.</a></p>
+
+<p>&quot;It would overextend the bladder, it makes people prone to decreasing bladder function, increasing the risk for infections,&quot; he explained. &quot;So, this is absolutely not advisable. Whenever there&apos;s an urge to urinate&#x2014;depends on the water intake and food intake, of course&#x2014;people should not hold that back.&quot; David Samadi, chairman of the urology department at Lenox Hill Hospital, agreed with Dr. Wenske&apos;s stance: &quot;As a urologist, you always discourage people from keeping their bladder full.&quot;</p>
+
+<p>One awed former City Hall official <a href="https://web.archive.org/web/20150618005511/http://www.nytimes.com/2013/08/24/nyregion/bloomberg-shares-a-few-secrets-to-success-be-early-stay-late-and-hold-it-in.html?ref=nyregion">told the Times</a> that Bloomberg is a coffee addict, making his accomplishments even more remarkable: &quot;He drinks more coffee than anybody I&#x2019;d ever seen,&quot; the official said. &quot;He drinks coffee like you and I would drink water if you were running a marathon.&quot; The aide added: &#x201C;It gives you a sense of the discipline.&#x201D; That aide maybe wouldn&apos;t be so awed if they knew that Bloomberg may have very well been <a href="https://web.archive.org/web/20150618005511/http://www.adultdiapers.org/">juicing the system.</a></p>
+
+<p>Of course, this could all be an elaborate preamble for Bloomberg to make another stab at a <a href="https://web.archive.org/web/20150618005511/http://gothamist.com/tags/sodaban">soda ban</a>&#x2014;restricting beverage sizes would certainly be simpatico with his bathroom philosophy. Or perhaps this is something even more nefarious: maybe Bloomberg&apos;s final nanny campaign is an all out assault <a href="https://web.archive.org/web/20150618005511/http://gothamist.com/2010/07/15/study_sitting_will_kill_you_faster.php">on</a> <a href="https://web.archive.org/web/20150618005511/http://gothamist.com/2011/06/29/the_truth_about_sitting_down_its_ki.php">anti-sitting</a> <a href="https://web.archive.org/web/20150618005511/http://gothamist.com/2012/01/18/sitting_will_now_make_you_depressed.php">propaganda</a>!</p>					
+										
+									
+				

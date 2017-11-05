@@ -1,0 +1,43 @@
+---
+author: Ben Yakas
+date: Aug 30, 2012 5:11 pm
+title: Videos: Union Square "Fountain Gang" Bullies Performance Artist, Others
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="83012unionsq.jpeg" src="https://web.archive.org/web/20160229004019im_/http://gothamist.com/attachments/byakas/83012unionsq.jpeg" width="640" height="449" class="image-none"> </span></p>
+
+<p>Yesterday, <a href="https://web.archive.org/web/20160229004019/http://gothamist.com/2012/08/29/video_security_watch_as_man_is_beat.php">we posted a video of a shirtless man beating another man</a> in Union Square right in front of what appeared to be security guards. We&apos;ve spoken to several Union Square regulars and locals who have identified the attacker as one &quot;Tyrone&quot;&#x2014;and they say he&apos;s been causing trouble around the park all month, and that he claims to be a member of the Crips. It seems that this punching incident was the result of tensions between Tyrone&apos;s group, known as &quot;The Fountain Gang,&quot; and the Occupy Wall Street activists and homeless people who spend their days in the park.</p>
+
+<p><iframe width="640" height="480" src="https://web.archive.org/web/20160229004019if_/http://www.youtube.com/embed/RmvvL9gweBQ" frameborder="0" allowfullscreen></iframe></p>
+
+<p>We&apos;re told The Fountain Gang is angry because OWS folks have <a href="https://web.archive.org/web/20160229004019/http://gothamist.com/2012/04/03/union_square_now_the_very_model_of.php">brought greater attention onto Union Square</a>, which led to the park being closed at night&#x2014;as well as more trouble for them when they&apos;ve wanted to drink and smoke pot there. Sources tell us that the victim in the video above is a panhandler who identifies as a member of OWS; before the video began, Tyrone allegedly stole the victim&apos;s hat. </p>
+
+<p>The two other men in the video aren&apos;t cops&#x2014;one is a park manager (the man with the badge around his neck), and the other is an unshielded peace officer who has no arrest powers. The park manager repeatedly talked to Tyrone and the victim before the fight escalated to try to calm them down, to no avail. Tyrone, who is 6&apos;6&quot;, ended up punching and beating the victim; as the video ends, the victim staggers onto the street and is hit by a car. Afterwards, police arrived and handcuffed Tyrone&#x2014;but when they found the victim inside the nearby Duane Reade, he refused to press charges, and Tyrone was released.</p>
+
+<p><strong>&quot;The park is deteriorating, because the city refuses to assign enforcement and NYPD around the clock,&quot;</strong> NYC Parks Advocates&apos; <a href="https://web.archive.org/web/20160229004019/http://awalkintheparknyc.blogspot.com/">Geoffrey Croft</a> told us. <strong>&quot;The park is a heavily-used public space, and should be welcoming to everyone, but this criminal element is preventing the general public from enjoying it.&quot;</strong> Recently, City Councilman Peter Vallone Jr. and local unions complained that there has been a drastic reduction in the amount of Parks Enforcement Patrol (PEP) officers: &#x201C;There are more rovers on Mars than there are PEP officers in Queens,&#x201D; Vallone <a href="https://web.archive.org/web/20160229004019/http://www.nydailynews.com/new-york/queens/city-parks-enforcement-patrol-officer-queens-union-charges-article-1.1145422?localLinksEnabled=false">told the News.</a></p>
+
+<p>Croft echoed that sentiment, saying that was what led to an unshielded peace officer sitting on the sidelines during a violent, and what could have been deadly, situation. &quot;Some of these guys have one or two days of training, then they&apos;re dumped out there,&quot; Croft said. &quot;That guy was almost killed. Something has to be done before someone is killed.&quot;</p>
+
+<p><a href="https://web.archive.org/web/20160229004019/https://twitter.com/#!/joeyboots">Joey Boots</a> told us Tyrone and his crew are new to Union Square: &quot;I&apos;ve seen him around this summer, he hangs around the fountain and the Gandhi statue. He hangs out with a lot of young kids from school, smokes pot, kicks the soccer ball around,&quot; Boots said, adding, &quot;He&apos;s an asshole.&quot;</p>
+
+<p>Performance artist <a href="https://web.archive.org/web/20160229004019/http://gothamist.com/2011/11/27/video_man_in_white_dress_performs_a.php">Matthew Silver</a>&#x2014;aka the Man In The White Dress&#x2014;told us Tyrone attacked him during a performance recently, and it was caught on camera (watch the video below):</p>
+
+<p><iframe width="640" height="360" src="https://web.archive.org/web/20160229004019if_/http://www.youtube.com/embed/8NQCCSqGMEA?list=UUep1b6HWkr_J2zTLmNtplaA&amp;hl=en_US" frameborder="0" allowfullscreen></iframe></p>
+
+<blockquote>Tyrone has been harassing me at Union Square, I&apos;m a street performance artist, I do clowning and make people laugh.  He has already threatened to beat me up and kill me three times. I want something to be done about it...I have footage of him kicking my props during a show, when I have a crowd. Please help me get rid of this guy from the park, he&apos;s not good for anybody. He&apos;s a bully and he&apos;s not a nice man.</blockquote>
+
+<p>Silver added <a href="https://web.archive.org/web/20160229004019/http://www.maninwhitedress.com/?p=2416">in a post about the incident</a>, &quot;Later, he comes back and tries to offer me a puff of his joint, I say no thank you and then he communicates in a calm way that he&#x2019;s on the Crips, and he&#x2019;ll kill me if I wear my Speedo. There are children out here.&quot; <a href="https://web.archive.org/web/20160229004019/http://gothamist.com/tags/normalbob">Normal Bob</a>, the graphic artist and Union Square anthropologist, <a href="https://web.archive.org/web/20160229004019/http://www.maninwhitedress.com/?p=2600">witnessed another incident</a> in which Tyrone disrupted Silver&apos;s performance, and got video of it: </p>
+
+<p><iframe width="640" height="360" src="https://web.archive.org/web/20160229004019if_/http://www.youtube.com/embed/2UI1Tni_-5U" frameborder="0" allowfullscreen></iframe></p>
+
+<p>As for that attack, Normal Bob gave Silver <a href="https://web.archive.org/web/20160229004019/http://www.normalbobsmith.com/amazingstrangers/146.html">some advice about</a> dealing with bullies at the square: &quot;A Village Idiot doesn&apos;t give a flying fuck when his garbage is thrown...I mean, isn&apos;t the one glaring benefit of having a show of trash that the joke&apos;s on anyone who would come in and treat it like trash?&quot;</p>
+
+<p>We contacted the Park Department yesterday to further clarify what responsibility park security has in regards to these situations, but they referred us to the NYPD&#x2014;in the process, they didn&apos;t explain that the people seen in the first video weren&apos;t actually cops. Croft said the Parks Department press office was being irresponsible, &quot;It&apos;s completely negligent, because that is their job, and they have a legal responsibility to deal with these matters in parks.&quot;</p>
+
+<p>As if to bring the problems of policing Union Square park home, here is yet ANOTHER video of a man punching a kid in broad daylight...in front of (what appears to be) park security. </p>
+
+<center><object classid="clsid:d27cdb6e-ae6d-11cf-96b8-444553540000" codebase="https://web.archive.org/web/20160229004019oe_/http://download.macromedia.com/pub/shockwave/cabs/flash/swflash.cab#version=6,0,40,0" id="seyretpl" name="seyretpl" width="448" height="374"><param name="id" value="seyretpl"><param name="name" value="seyretpl"><param name="width" value="448"><param name="height" value="374"><param name="allowscriptaccess" value="always"><param name="bgcolor" value="#000000"><param name="wmode" value="window"><param name="allowfullscreen" value="true"><param name="flashvars" value="tinyimg=http://edge.ilpvideo.com/img/2012/08/23/union-square-combo-punch.png"><param name="src" value="http://ilpvideo.com/player.swf?autoplay=0&amp;Addr=Mzc4NTk"><embed type="application/x-shockwave-flash" id="seyretpl" name="seyretpl" width="448" height="374" allowscriptaccess="always" wmode="window" bgcolor="#000000" allowfullscreen="true" flashvars="tinyimg=http://edge.ilpvideo.com/img/2012/08/23/union-square-combo-punch.png" src="https://web.archive.org/web/20160229004019oe_/http://ilpvideo.com/player.swf?autoplay=0&amp;Addr=Mzc4NTk"></object></center>					
+										
+									
+				

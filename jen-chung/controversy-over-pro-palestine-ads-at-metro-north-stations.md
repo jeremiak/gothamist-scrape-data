@@ -1,0 +1,19 @@
+---
+author: Jen Chung
+date: Jul 12, 2012 1:26 pm
+title: Controversy Over Pro-Palestine Ads At Metro-North Stations
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2012_06_pstine.jpg" src="https://web.archive.org/web/20150429010558im_/http://gothamist.com/attachments/jen/2012_06_pstine.jpg" width="640" height="467"> <br> <i> Images from <a href="https://web.archive.org/web/20150429010558/https://twitter.com/LilianaSegura/status/221948298544693248/photo/1/large">Liliana Segura</a></i></div> <p></p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <a href="https://web.archive.org/web/20150429010558/http://gothamist.com/attachments/jen/2012_07_pstine2.jpg"> <img alt="2012_07_pstine2.jpg" src="https://web.archive.org/web/20150429010558im_/http://gothamist.com/assets_c/2012/07/2012_07_pstine2-thumb-350x467-727253.jpg" width="200" height="266" class="image-right"> </a> </span>Some people are trying to get the MTA to remove pro-Palestinian posters from Metro-North stations.  The posters, which say, &quot;4.7 million Palestinians are Classified by the U.N. as Refugees&quot; with maps showing how Palestine has shrunk over the years, have been deemed anti-Semitic and anti-Israel by critics.  Dovid Efune, editor of Jewish newspaper The Algemeiner, <a href="https://web.archive.org/web/20150429010558/http://www.lohud.com/article/20120712/NEWS02/307120045?nclick_check=1">told the Journal News</a>, &quot;This is anti-Semitic because when people think of Jews they think of the Jewish state. Jews have seen this happen so many times. It always starts with messaging that says Jews are committing a crime.&quot;</p>
+
+<p>However, the man who placed the ads, Henry Clifford, said to WCBS 2, &quot;The Palestinian people have lost most of their homeland and the map shows exactly what is happened to them,&quot; adding he just wants to &quot;educate people.&quot; Or confuse them: One commuter asked the news station, &quot;My reaction is why is there an anti-Israel ad sitting here at the train station.&quot;</p>
+
+<p>Clifford, an 84-year-old former Wall Street financier, is chairman of a 10-member group called the Committee for Peace in Israel and Palestine and the <a href="https://web.archive.org/web/20150429010558/http://accessadl.blogspot.com/2012/07/new-biased-billboard-campaign-in.html">Anti-Defamation League&apos;s blog</a> says that he and the group &quot;have a record of advocating against Israel...  In the past, Clifford has inflammatorily alleged that Israeli leaders have &apos;always planned to take over all or most Palestine and to expel as many Arabs as would be necessary.&apos;&quot;</p>
+
+<p>The MTA says that the ads don&apos;t violate any rules; spokesman Aaron Donovan told the News, &quot;We do not decide to accept or reject a proposed ad based on the viewpoint that it expresses or because the ad might be controversial. The MTA does not endorse the viewpoint expressed in this ad, or any of the ads that it accepts for display.&quot;  Which means that blogger Pamela Geller, whose<a href="https://web.archive.org/web/20150429010558/http://gothamist.com/2011/09/28/lawsuit_filed_against_mta_over_reje.php"> anti-Islam ads were rejected by the MTA</a>, is pissed. <a href="https://web.archive.org/web/20150429010558/http://atlasshrugs2000.typepad.com/atlas_shrugs/2012/07/-another-anti-israel-ad-campaign-hits-ny-train-stations-but-nyc-court-fails-to-rule-on-pro-israel-ad.html">She calls the MTA &quot;liars&quot;</a>, &quot;Why did they reject our pro-Israel ads? Because it was demeaning to <a href="https://web.archive.org/web/20150429010558/http://gothamist.com/2011/09/26/mta_rejects_ad_calling_israels_enem.php">savages</a>.&quot;</p>					
+										
+									
+				

@@ -1,0 +1,23 @@
+---
+author: Jen Chung
+date: Feb 1, 2017 2:24 pm
+title: Bronx Teacher Arrested For Supplying Roosters For Cockfights
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2017_01_rooster.jpg" src="https://web.archive.org/web/20171016021851im_/http://gothamist.com/attachments/jen/2017_01_rooster.jpg" width="640" height="427"> <br> <i> (istockphoto)</i></div> <p></p>
+
+<p>A NYC public school teacher had been running a rooster farm at his Bronx home, where he raised roosters to sell for cockfights around the United States, authorities said yesterday. &quot;As alleged,&quot; U.S. Attorney Preet Bharara said, &quot;Hector Cruz ran a cruel and illegal business of raising and selling roosters for the purpose of vicious cockfights where knives and other sharp instruments are attached to the fighting roosters.&quot;</p>
+
+<p>Cruz, 59, was charged with selling, possessing, and transporting animals for purposes of participation in an animal fight. According to the U.S. Attorney&apos;s office, Cruz ran the business from December 2012 to January 2017, selling and shipping &quot;his roosters to individuals across the country, knowing that the birds were intended for cockfights.&quot; He allegedly &quot;communicated with customers through social media and received payments of as much as $600 for fighting birds.&quot; </p>
+
+<p>Apparently Cruz attracted the attention of the NYPD when there were 311 complaints about chickens in his backyard. <a href="https://web.archive.org/web/20171016021851/http://nypost.com/2017/02/01/nyc-teacher-busted-for-raising-roosters-for-illegal-cockfights/">The Post reports</a> that Cruz gave responding officers a tour, and &quot;that&apos;s when the cops noticed between 40 to 45 roosters and hens on the farm. &apos;The rooster outnumbered the hens, were kept in isolated cages, and were dubbed,&apos; which is a form of physical mutilation used on roosters bred for cockfighting.&quot;</p>
+
+<p>When the NYPD investigated his social media accounts (operated under the name &quot;Rajah Khan,&quot; aka Bird King), they saw <a href="https://web.archive.org/web/20171016021851/http://www.nydailynews.com/new-york/nyc-crime/nyc-teacher-busted-running-cockfighting-farm-article-1.2960955">that he discussed</a> &quot;his success in fighting roosters... his ownership of roosters known for their cockfighting ability... the sale and shipment of roosters known for their cockfighting ability ... and the money he makes from owning and selling roosters.&#x201D; Cruz, who is out on bond, said that chatter was <a href="https://web.archive.org/web/20171016021851/http://www.nydailynews.com/new-york/nyc-crime/nyc-teacher-busted-running-cockfighting-farm-article-1.2960955">just &quot;trash talk.&quot;</a></p>
+
+<p>Here&apos;s more from the U.S. Attorney&apos;s office:</p><blockquote>Cockfighting is an activity in which knives, gaffs, or other sharp instruments are attached to the legs of roosters for the purpose of fighting each other.  The fights between roosters end when one rooster is dead or refuses to continue to fight.  If not killed during the fight, the losing rooster is typically killed afterwards.  Roosters involved in cockfighting will often be mutilated in preparation for fights, typically by cutting off the rooster&#x2019;s comb and wattle and shaping the rooster&#x2019;s spur.  Individuals who breed roosters for cockfights often cross-breed particular types of roosters in order to produce hybrid breeds that will excel as fighters.</blockquote> Bethanne M. Dinkins, Special Agent-in-Charge of the U.S. Department of Agriculture, explained, &quot;The provisions of the Animal Welfare Act were designed to protect animals from being used in illegal fighting ventures, which often entail other forms of criminal activity involving drugs, firearms and gambling.  Together with the Department of Justice, animal fighting is an investigative priority for USDA-OIG, and we will work with our law enforcement partners to investigate and assist in the criminal prosecution of those who participate in animal fighting ventures.&quot;<p></p>
+
+<p>In 2014, local authorities and the ASPCA raided a <a href="https://web.archive.org/web/20171016021851/http://gothamist.com/2014/02/10/cockfighting_bust_ny.php#photo-1">huge cockfighting ring that involved thousands of roosters</a> around Queens and Brooklyn.</p>					
+										
+									
+				

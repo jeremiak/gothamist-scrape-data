@@ -1,0 +1,21 @@
+---
+author: Jen Chung
+date: May 5, 2016 3:40 pm
+title: LIU Senior Arrested For Contacting Boys On Social Media, Coercing Them To Take Explicit Photos
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-right"> <img alt="2016_05_jgar.jpg" src="https://web.archive.org/web/20160920022008im_/http://gothamist.com/attachments/jen/2016_05_jgar.jpg" width="375" height="257"> <br> <i style=" width:375px; ;display:block"> Robert Garneau (Via <a href="https://web.archive.org/web/20160920022008/http://abc7ny.com/news/liu-student-arrested-at-dorm-in-child-porn-case-/1324712/">WABC 7</a>)</i></div> A 21-year-old student at Long Island University&#x2014;<a href="https://web.archive.org/web/20160920022008/http://abc7ny.com/news/liu-student-arrested-at-dorm-in-child-porn-case-/1324712/">set to graduate on Friday</a>&#x2014;was arrested for allegedly contacting young teen boys on social media like Instagram and luring them into sending nude photos and sexual videos through coercion. U.S. Attorney Preet Bharara said, &quot;Robert Garneau&apos;s alleged crimes are the nightmare of every modern parent.  Using every day social media websites, Garneau allegedly exploited minors for his own sexual gratification.  We will continue to work with our partners at Homeland Security Investigations to vigorously investigate and prosecute defendants who sexually exploit children.&quot;<p></p>
+
+<p>The U.S. Attorney&apos;s office&apos;s press release explains:</p><blockquote> From September 2014 to December 1, 2014, GARNEAU communicated online via Instagram and Kik with a then 12-year-old minor (&#x201C;Victim-1&#x201D;) in Vacaville, California, and convinced Victim-1 to take and send sexually-explicit photographs of Victim-1 to GARNEAU.   On August 10, 2015, and July 18, 2015, GARNEAU engaged in the same type of activity with two more minors (&#x201C;Victim-2&#x201D; and &#x201C;Victim-3&#x201D;).  <br>
+ <br>
+During his communications with his victims, GARNEAU utilized the screen names &#x201C;Raptorr427,&#x201D; &#x201C;BobbySixx,&#x201D; &#x201C;Allison Denario&#x201D; and/or &#x201C;Giannafitz81.&#x201D;  Further, while communicating with his victims, GARNEAU posed as a minor and threatened his victims that if they did not send additional photos and/or videos, they would be arrested for the photos and/or videos they had already sent.  With respect to Victim-2, GARNEAU also threatened to show the photos and videos to Victim-2&#x2019;s Instagram followers.</blockquote>The criminal complaint has more, terrible detail on how Garneau would allegedly approach his victims: The complaint claims that in one instance, he posed as an underage boy on Instagram and befriended his underage victim before moving their communication to Kik, and then asked the underage victim for help with breaking up with his girlfriend, Allison Denario. While Garneau posed as &quot;Allison,&quot; he allegedly asked for the nude photos. <p></p>
+
+<p><a href="https://web.archive.org/web/20160920022008/http://abc7ny.com/news/liu-student-arrested-at-dorm-in-child-porn-case-/1324712/">Also ABC News reports, </a> &quot;Garneau... stalked the Internet for underage victims on gaming sites like Minecraft and Grand Theft Auto.&quot;</p>
+
+<p>Garneau, who was arrested in his dorm room at LIU&apos;s C.W. Post campus, faces three counts of sexual exploitation of a minor, each carrying a minimum sentence of 15 years in prison and a maximum sentence of 30 years in prison. </p>
+
+<p>The U.S. Attorney&apos;s office adds, &quot;There may be more victims of this alleged conduct.  If you have information to report, contact Homeland Security Investigations through its toll-free Tip Line at 1-866-DHS-2-ICE or by completing its online tip form.  Both are staffed around the clock by investigators.  From outside the U.S. and Canada, callers should dial 802-872-6199.  Hearing-impaired users can call TTY 802-872-6196.&quot;</p>					
+										
+									
+				

@@ -1,0 +1,45 @@
+---
+author: Jen Chung
+date: Mar 2, 2016 9:08 am
+title: Dead-Eyed Chris Christie Behind Donald Trump Is All Of Us
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2016_03_christietrump2.jpg" src="https://web.archive.org/web/20170429074241im_/http://gothamist.com/attachments/jen/2016_03_christietrump2.jpg" width="640" height="427"> <br> <i>Make America Drumpf Again (AP) </i></div> <p></p>
+
+<p>Last week, when NJ Governor Chris Christie <a href="https://web.archive.org/web/20170429074241/http://gothamist.com/2016/02/26/chris_christie_makes_america_great.php">endorsed real estate mogul Donald Trump</a>, it seemed like a monstrous but well-matched marriage of nasty putdowns and arrogance, one that the <a href="https://web.archive.org/web/20170429074241/http://gothamist.com/2016/02/27/report_the_republican_party_is_a_be.php">Republican Party deserved</a>. But on Super Tuesday, it seems <a href="https://web.archive.org/web/20170429074241/http://gothamist.com/2016/02/28/watch_chris_christies_cringeworthy.php">the honeymoon</a> is over and the reality is sinking in for Christie. His dawning realization of what President Trump really means for America was evocatively captured by these Vines. </p>
+
+<center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">This Chris Christie video is perfect <a href="https://web.archive.org/web/20170429074241/https://t.co/snhLeictre">https://t.co/snhLeictre</a></p>&#x2014; Rob Tornoe (@RobTornoe) <a href="https://web.archive.org/web/20170429074241/https://twitter.com/RobTornoe/status/704873821736734720">March 2, 2016</a></blockquote>
+<script async src="//web.archive.org/web/20170429074241js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<p>Now that Christie is imprisoned in the Make America Great Again <a href="https://web.archive.org/web/20170429074241/http://www.huffingtonpost.com/entry/donald-trump-david-duke_us_56d31097e4b0871f60ebbd35">Especially For Former KKK Leaders</a> Compound, he was forced to appear in Palm Beach, Florida at Trump&apos;s Mar-A-Lago estate to play hype man, <a href="https://web.archive.org/web/20170429074241/https://www.youtube.com/watch?v=6MEPmxmJU-s&amp;feature=youtu.be">introducing the avant-garde hairstyle enthusiast</a> after securing a series of Super Tuesday primary wins. But when The Donald took the stage for a long press conference, Christie stood behind him, with the same blank (<a href="https://web.archive.org/web/20170429074241/http://www.northjersey.com/news/christie-trends-on-twitter-as-trump-savors-victory-video-1.1520508">except for a few moments</a>) expression:</p>
+
+<center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">And then Chris Christie realized he had made a terrible, terrible mistake. &#x1F602;&#x1F602;&#x1F602; <a href="https://web.archive.org/web/20170429074241/https://twitter.com/hashtag/SuperTuesday?src=hash">#SuperTuesday</a> <a href="https://web.archive.org/web/20170429074241/https://t.co/34JEIOcN80">https://t.co/34JEIOcN80</a></p>&#x2014; Jeff Barrett (@BarrettAll) <a href="https://web.archive.org/web/20170429074241/https://twitter.com/BarrettAll/status/704865522932969472">March 2, 2016</a></blockquote>
+<script async src="//web.archive.org/web/20170429074241js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
+<blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">Chris Christie trying to figure out how the hell this happened to him <a href="https://web.archive.org/web/20170429074241/https://t.co/5buKrSM9pG">https://t.co/5buKrSM9pG</a></p>&#x2014; Nick Robinson (@Babylonian) <a href="https://web.archive.org/web/20170429074241/https://twitter.com/Babylonian/status/704863389181464576">March 2, 2016</a></blockquote>
+<script async src="//web.archive.org/web/20170429074241js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
+<blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">Just watch Chris Christie&apos;s face in this video as he stands behind Donald Trump: <a href="https://web.archive.org/web/20170429074241/https://t.co/Z6Qp81mKdW">https://t.co/Z6Qp81mKdW</a> <a href="https://web.archive.org/web/20170429074241/https://t.co/mBu9muubbk">pic.twitter.com/mBu9muubbk</a></p>&#x2014; CNN (@CNN) <a href="https://web.archive.org/web/20170429074241/https://twitter.com/CNN/status/704968113180307456">March 2, 2016</a></blockquote>
+<script async src="//web.archive.org/web/20170429074241js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<p>Soon, the Twitterverse was looking for clues:<br>
+</p><center><br>
+<blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">Chris Christie is signalling for help. <a href="https://web.archive.org/web/20170429074241/https://twitter.com/hashtag/DonaldTrump?src=hash">#DonaldTrump</a> <a href="https://web.archive.org/web/20170429074241/https://twitter.com/hashtag/trump?src=hash">#trump</a> <a href="https://web.archive.org/web/20170429074241/https://twitter.com/hashtag/GOP?src=hash">#GOP</a> <a href="https://web.archive.org/web/20170429074241/https://twitter.com/hashtag/SuperTuesday?src=hash">#SuperTuesday</a> <a href="https://web.archive.org/web/20170429074241/https://t.co/dHvFddWfz4">https://t.co/dHvFddWfz4</a></p>&#x2014; Fruit Saladstar (@FailedProtostar) <a href="https://web.archive.org/web/20170429074241/https://twitter.com/FailedProtostar/status/704866147146059776">March 2, 2016</a></blockquote><br>
+<script async src="//web.archive.org/web/20170429074241js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center><p></p>
+
+<p>But then settled on making Vines:</p>
+
+<center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">.<a href="https://web.archive.org/web/20170429074241/https://twitter.com/ChrisChristie">@ChrisChristie</a> steals <a href="https://web.archive.org/web/20170429074241/https://twitter.com/realDonaldTrump">@realDonaldTrump</a>&apos;s show <a href="https://web.archive.org/web/20170429074241/https://t.co/Js3der985j">https://t.co/Js3der985j</a> via <a href="https://web.archive.org/web/20170429074241/https://twitter.com/moody">@moody</a> <a href="https://web.archive.org/web/20170429074241/https://t.co/8qAmyuoOh7">https://t.co/8qAmyuoOh7</a></p>&#x2014; Daniella Diaz (@DaniellaMicaela) <a href="https://web.archive.org/web/20170429074241/https://twitter.com/DaniellaMicaela/status/704899872231710720">March 2, 2016</a></blockquote>
+<script async src="//web.archive.org/web/20170429074241js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
+<blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">Chris Christie is &quot;Trapped.&quot; <a href="https://web.archive.org/web/20170429074241/https://t.co/WHxR7AABut">https://t.co/WHxR7AABut</a></p>&#x2014; Brian Ries (@moneyries) <a href="https://web.archive.org/web/20170429074241/https://twitter.com/moneyries/status/704877253130375168">March 2, 2016</a></blockquote>
+<script async src="//web.archive.org/web/20170429074241js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
+<blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">That moment Chris Christie realized he sold his soul to be a Donald Trump groupie <a href="https://web.archive.org/web/20170429074241/https://t.co/Jpnv0MN5Cy">https://t.co/Jpnv0MN5Cy</a></p>&#x2014; Erick Fernandez (@ErickFernandez) <a href="https://web.archive.org/web/20170429074241/https://twitter.com/ErickFernandez/status/704877330905305088">March 2, 2016</a></blockquote>
+<script async src="//web.archive.org/web/20170429074241js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<p>What a way to cap off a day when six NJ newspapers <a href="https://web.archive.org/web/20170429074241/http://www.usatoday.com/story/news/politics/onpolitics/2016/03/01/seven-nj-newspapers-call-christie-resign/81168876/">publish a joint editorial asking for your resignation</a>! And for your and the GOP&apos;s nightmare fuel, here&apos;s a NY Times story titled, &quot;<a href="https://web.archive.org/web/20170429074241/http://www.nytimes.com/2016/03/02/us/politics/donald-trump.html?ref=politics">Donald Trump&#x2019;s Backers Express Deep and Diverse Support</a>,&quot; with sentences like &quot;Early exit polls confirmed his broad support; in Virginia, for example, he was winning not only among lower-income voters, his usual base, but also in other categories including veterans and self-described conservatives and white evangelicals. In Texas, those calling themselves political moderates, the kinds of voters some rivals are counting on, were favoring Mr. Trump as well.&quot;</p>					
+										
+									
+				

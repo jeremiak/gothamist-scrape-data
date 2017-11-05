@@ -1,0 +1,17 @@
+---
+author: Ben Yakas
+date: Sep 15, 2012 1:40 pm
+title: Walmart Admits Defeat: Mega-Retailer Won't Build Brooklyn Store
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2012_08_walmartprot.jpg" src="https://web.archive.org/web/20150129032924im_/http://gothamist.com/attachments/jen/2012_08_walmartprot.jpg" width="638" height="426"> <br> <i> Photograph from a 2011 protest by <a href="https://web.archive.org/web/20150129032924/http://www.flickr.com/photos/txup/5414397974/">Time&apos;s Up</a></i></div> <p></p>
+
+<p>Since <a href="https://web.archive.org/web/20150129032924/http://gothamist.com/2005/08/22/walmart_nice_when_its_not_in_your_neighborhood.php">at least 2005</a>, Walmart has been trying to scrape and claw their way into NYC market via a series of <a href="https://web.archive.org/web/20150129032924/http://gothamist.com/tags/walmart">not-so-charming offensives</a>&#x2014;but the company faced a big setback in that plan yesterday, as a deal to open their first store in Brooklyn <a href="https://web.archive.org/web/20150129032924/http://www.nytimes.com/2012/09/15/nyregion/walmart-opts-out-of-city-mall-after-facing-labor-opposition.html?ref=nyregion">fell apart completely</a>. &#x201C;Walmart today announced that we were unable to agree upon economic terms for a project in East New York,&#x201D; spokesman Steven Restivo said. &#x201C;We remain committed to bringing new economic development and shopping options to New York City, especially in the neighborhoods that need them most.&#x201D;</p>
+
+<p>Not everyone was torn up about Walmart not being part of the Gateway II project in East New York: &#x201C;Walmart&#x2019;s withdrawal from Gateway II shows that when New Yorkers join arms, even the world&#x2019;s richest retailer is no match for them,&#x201D; said Stephanie Yazgi, a spokeswoman for Walmart Free NYC. Instead of Walmart, a ShopRite supermarket will anchor the 630,000-square-foot development. Local unions <a href="https://web.archive.org/web/20150129032924/http://blogs.wsj.com/metropolis/2012/09/14/brooklyn-wal-mart-deal-falls-apart/?mod=WSJBlog">were relieved</a>: &#x201C;UFCW Local 1500 is thrilled that...a deal was reached today to bring to the citizens of East Brooklyn three things they so desperately need: good food, good jobs and good health &#x201C;said Patrick Purcell, spokesperson for UFCW Local 1500.</p>
+
+<p>Just don&apos;t get any ideas that Walmart is giving up anytime soon. They said in a statement: &#x201C;Two things remain constant: most New Yorkers want us here, and we remain interested in providing more convenient access to Walmart for local residents.&#x201D; Because whether it takes a <a href="https://web.archive.org/web/20150129032924/http://gothamist.com/2012/08/02/wal-mart_has_stealth_campaign_to_bu.php">stealth campaign</a> or an <a href="https://web.archive.org/web/20150129032924/http://gothamist.com/2011/11/09/video_nyc_wal-mart_already_exists_i.php">advertising campaign</a> or a <a href="https://web.archive.org/web/20150129032924/http://gothamist.com/2012/04/24/wal-mart_briberygate_mexico_is_only.php">bribery campaign</a>, eventually Walmart will make sure you get the <a href="https://web.archive.org/web/20150129032924/http://www.walmart.com/cp/1096544?povid=cat14503-env172199-moduleB091512-lLink_POV_FURBY">$54 Furby</a> whether you like it or not.</p>					
+										
+									
+				

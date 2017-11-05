@@ -1,0 +1,17 @@
+---
+author: Ben Yakas
+date: Apr 17, 2011 10:45 am
+title: Belly Dancing Blogger Defends Her Belly Undulating
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:260px; "> <img alt="41711belly.jpg" src="https://web.archive.org/web/20170314202844im_/http://gothamist.com/attachments/byakas/41711belly.jpg" width="260" height="260"> <br> <i>Belly dancing enthusiast Dorothy McGurk</i></div> Yesterday, we heard the tale of Reikki healer Dorothy McGurk, an allegedly &quot;disabled&quot; divorcee who found spiritual healing and happiness through shaking her belly button lint. The Staten Island woman <a href="https://web.archive.org/web/20170314202844/http://gothamist.com/2011/04/16/belly_dancing_blog.php">claimed that</a> she was too injured to work again, but lost out on lifetime alimony when her ex-husband discovered her belly dancing blog, complete with glowing testimonials and pictures of her front rump in action. But McGurk <a href="https://web.archive.org/web/20170314202844/http://www.nydailynews.com/ny_local/2011/04/17/2011-04-17_bellyaching_i_wasnt_dancing_sez_wife_who_lost_alimony.html">told the News</a> that everyone was just <em>confused</em> by the pics: <strong>&quot;I wasn&apos;t really belly-dancing in them. I was posing. In some of them I was moving a veil around with my arms, but I wasn&apos;t belly-dancing.&quot;</strong><p></p>
+
+<p>McGurk, who was injured in a car accident in 1997, was initially awarded a settlement of $850 a month for life from ex Brian McGurk, as well as the couple&apos;s home. But a judge revoked her award after learning of the blog, and posts in which she claimed to have danced &quot;everyday for three years.&quot; But McGurk says she couldn&apos;t have danced, because of her extensive injuries which left her with two rods and screws to support her spine, &quot;from my ribs to my hips.&quot; In pursuit of a payday, she says her ex <strong>&quot;has turned gentle physical therapy into a full-grown lie.&quot;</strong></p>
+
+<p>&quot;I wish I could be a professional belly dancer, but it&apos;s just not possible...The only thing I do are gentle exercises. One of them is undulating. What you do is suck in and flex the muscles of your belly,&quot; she explained. She added that the photos on her blog show another woman dancing, though she refused to provide them to the News: &quot;My girlfriend in front of me was belly-dancing with a sword, I was just standing behind her waving a veil.&quot; Even though she doesn&apos;t professional belly dance, she <em>does</em> say that she gives lectures about belly dancing. This is why we always say that everyone should just say no to blogging&#x2014;all it can lead to is misunderstandings and drama!</p>
+
+<p>McGurk didn&apos;t say anything about a Facebook entry in which a friend asked her why she had not posted photos of herself from a recent belly-dancing performance. &quot;Gotta be careful what goes on line pookies. The ex would love to fry me with that,&quot; she responded. Nor did she say anything about her claim that her doctor prescribed her belly dancing as treatment for her injuries, which her doctor denied on the stand. Because in the end, this is about The Man getting one over on innocent belly dancing enthusiasts (but not practitioners) the world over: &quot;He just doesn&apos;t want to pay me and he wants money out of the house. <strong>They&apos;re doing everything they can to screw me over.&quot;</strong></p>					
+										
+									
+				

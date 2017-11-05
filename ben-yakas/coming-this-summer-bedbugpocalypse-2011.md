@@ -1,0 +1,19 @@
+---
+author: Ben Yakas
+date: Mar 3, 2011 6:43 pm
+title: Coming This Summer: Bedbugpocalypse 2011
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="3311bedbugs.jpg" src="https://web.archive.org/web/20150403131236im_/http://gothamist.com/attachments/byakas/3311bedbugs.jpg" width="640" height="429"> <br> <i><a href="https://web.archive.org/web/20150403131236/http://www.flickr.com/photos/kateblack/4755992863/">thekateblack&apos;s flickr</a></i></div> <p></p>
+
+<p>It&apos;s been a long winter filled with snowmaggedons, thundersnows, and mass accumulations of trash and poop on the sidewalks. Though the city seemed at times on the brink of complete chaos, we all got through it&#x2014;but as the snow melts and Charlie Sheen&apos;s twitter account rises into the tens of millions, a dark cloud hangs overhead in the distance: the return of <a href="https://web.archive.org/web/20150403131236/http://gothamist.com/tags/bedbugs">bedbugs</a>. And <a href="https://web.archive.org/web/20150403131236/http://www.nydailynews.com/ny_local/2011/03/03/2011-03-03_get_ready_for_a_blitz_of_bedbug_cases_in_summer_2011_experts_say.html">according to</a> Jeffrey White, a research entomologist for Bedbugcentral.com, it&apos;s going to be a long summer: &quot;<strong>I firmly believe that this year is going to be worse than last year,</strong>&quot; he said at a bed bug seminar yesterday, sounding like Dennis Quaid in <em>The Day After Tomorrow</em>.</p>
+
+<p>In 2010, nearly seven percent of residents in the city (404,000) <a href="https://web.archive.org/web/20150403131236/http://gothamist.com/2011/01/11/bedbugs_abounded_in_2010.php">reported</a> bedbug infestations. There were reports of the bugs taking over our cultural <a href="https://web.archive.org/web/20150403131236/http://gothamist.com/2010/10/26/after_lots_of_practice_bedbugs_fina.php">landmarks</a>, our <a href="https://web.archive.org/web/20150403131236/http://gothamist.com/2010/07/16/victorias_secret_latest_chain_with.php">lingerie stores</a>, our <a href="https://web.archive.org/web/20150403131236/http://gothamist.com/2010/08/16/bedbugs_love_amc_empire_25_hate_rep.php">movie theaters</a>, and even the <a href="https://web.archive.org/web/20150403131236/http://gothamist.com/2010/09/03/google_confirms_bed_bugs.php">lairs</a> of our digital overlords. </p>
+
+<p>And after last month&apos;s terrifying <a href="https://web.archive.org/web/20150403131236/http://gothamist.com/2011/02/26/bedbug_summit_ends_with_experts_giv.php">bedbug summit</a>, which ended on a bleak note not dissimilar to the ending of <em>Don&apos;t Look Now</em>, there seems to be little hope to stop the bastards this year. &quot;<strong>If we combine the seasonal trend, with the bugs getting more and more embedded in our community, that allows the bugs to make that resurgence all the more stronger</strong>,&quot; White <a href="https://web.archive.org/web/20150403131236/http://www.nydailynews.com/ny_local/2011/03/03/2011-03-03_get_ready_for_a_blitz_of_bedbug_cases_in_summer_2011_experts_say.html">said.</a></p>
+
+<p>He added that the bugs are spreading all across the land, fortifying positions as far as the north west coast: Alaska has reported an 800 percent increase in bedbugs this year! &quot;It&apos;s not just a New York problem,&quot; White added with a heavy sigh. Don&apos;t forget that the little creatures are basically <a href="https://web.archive.org/web/20150403131236/http://gothamist.com/2011/01/20/genetic_study_nyc_bedbugs_imperviou.php">impervious</a> to our pesticides and chemicals. So stock up on supplies and ammo, because unless you&apos;re living in <a href="https://web.archive.org/web/20150403131236/http://gothamist.com/2010/09/28/bedbugs_tormenting_howard_stern_ddt.php">Howard Stern&apos;s studios</a>, your time is a&apos;coming.</p>					
+										
+									
+				

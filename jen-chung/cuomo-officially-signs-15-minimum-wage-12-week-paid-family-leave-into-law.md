@@ -1,0 +1,22 @@
+---
+author: Jen Chung
+date: Apr 4, 2016 4:15 pm
+title: Cuomo Officially Signs $15 Minimum Wage, 12 Week Paid Family Leave Into Law
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2016_04_cuomonyf.jpg" src="https://web.archive.org/web/20170508045548im_/http://gothamist.com/attachments/jen/2016_04_cuomonyf.jpg" width="640" height="436"> <br> <i> Signed, sealed and delivered (Governor&apos;s Office)</i></div> <p></p>
+
+<p>Governor Andrew Cuomo tried on his progressive Democrat pants today as he signed the <a href="https://web.archive.org/web/20170508045548/http://gothamist.com/2016/04/01/state_budget_new_york_wage.php">$15/hour minimum wage and 12-week paid family leave</a> bills into law. At the bill signing, Cuomo declared, &quot;When FDR proposed the minimum wage, do you know what he said? If you work full time, you should be paid a wage that provides a decent living. That&#x2019;s what FDR said. A decent living. And the truth is, at $9 an hour, you can&#x2019;t afford to raise a family in New York. And that&#x2019;s why we&#x2019;re going to raise it to $15 an hour to restore fairness and decency.&quot;</p>
+
+<p>Well, it&apos;s fairness and decency for some of New York: NYC businesses will be paying $15/hour by the end of 2018 (businesses with under 10 workers will have until 2019 to offer $15/hour). However, Westchester County has until 2021 to start paying $15/hour, and upstate workers will get $12.50/hour... by the end of 2020.</p>
+
+<p>As for the family leave law, the governor&apos;s office explains:</p><blockquote>When fully phased- in, employees will be eligible for 12 weeks of paid family leave when caring for an infant, a family member with a serious health condition or to relieve family pressures when someone is called to active military service. Benefits will be phased-in beginning in 2018 at 50 percent of an employee&#x2019;s average weekly wage, capped to 50 percent of the statewide average weekly wage, and fully implemented in 2021 at 67 percent of their average weekly wage, capped to 67 percent of the statewide average weekly wage. This program will be funded entirely through a nominal payroll deduction on employees so it costs businesses - both big and small - nothing. Employees are eligible to participate after having worked for their employer for six months.</blockquote>Presidential hopeful Hillary Clinton <a href="https://web.archive.org/web/20170508045548/http://www.nydailynews.com/new-york/clinton-joins-cuomo-event-celebrate-15-minimum-wage-article-1.2588167">joined Cuomo for a victory lap</a>. And President Obama issued a statement, &quot;I commend Governor Andrew Cuomo and the state of New York for taking the historic step of creating a paid family leave program in the state and raising its minimum wage to support New York&#x2019;s working families. This action means more parents won&apos;t have to choose between their job and caring for their new children. It means more workers can earn a higher wage to help make ends meet. Since I first called on Congress to increase the federal minimum wage in 2013, 18 states and more than 40 cities and counties have acted on their own -- thanks to the strong leadership of elected officials, businesses, and workers who organized and fought so hard for the economic security families deserve. Now Congress needs to act to raise the federal minimum wage and expand access to paid leave for all Americans.&quot;<p></p>
+
+<p><a href="https://web.archive.org/web/20170508045548/http://laist.com/2016/04/04/gov_jerry_brown_signs_15_minimum_wa.php">California Governor Jerry Brown also signed</a> a $15/hour minimum wage for the Golden State today.</p>
+
+<p>Cuomo called the push to raise the minimum wage &quot;<a href="https://web.archive.org/web/20170508045548/https://www.ny.gov/programs/mario-cuomo-campaign-economic-justice">The Mario Cuomo Campaign for Economic Justice</a>&quot; after his father, the late former Governor. He said, &quot;Today, at this time of adversity, at this time of fear, and at this time of anger, New York says we can rebuild this economy. We can do it together, we can include the working men and women with rights and fairness and dignity and make this place a better place for all of us. That&#x2019;s what this bill was about and that&#x2019;s what this campaign was all about and that was the essence of Mario Cuomo - that we are all here together.&quot; <br>
+</p>					
+										
+									
+				

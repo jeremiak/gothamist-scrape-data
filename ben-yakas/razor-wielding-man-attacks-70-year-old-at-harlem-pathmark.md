@@ -1,0 +1,11 @@
+---
+author: Ben Yakas
+date: June 12, 2011  9:15 AM
+title: Razor-Wielding Man Attacks 70-Year-Old At Harlem Pathmark
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="61211pathmark.jpg" src="https://web.archive.org/web/20110623142149im_/http://gothamist.com/attachments/byakas/61211pathmark.jpg" width="240" height="122" class="image-left"> </span>A razor-wielding man <a href="https://web.archive.org/web/20110623142149/http://www.nypost.com/p/news/local/manhattan/maniac_slash_attack_in_supermarket_KnZycLzrcLWf8KKjRDphQI">attacked a fellow customer</a> at a Pathmark in Harlem yesterday morning, and in a strange twist, it was allegedly because the attacker had stepped on the victim&apos;s foot. Abdullah Mohammed, 51, was arrested and charged with assault in the first degree for stabbing William Perry, 70, in the neck with a knife after an argument at the customer service desk escalated into an assault in the meat aisle. <strong>&quot;People ran out of the store. One guy was screaming, &#x2018;Oh my God, I&#x2019;ve never seen anything like this,</strong>&#x2019;&quot; said witness Rafael Feliciano.</p>
+
+<p>According to Perry&apos;s brother, Perry was at the service desk buying Lotto tickets when Mohammed stepped on his foot, provoking an argument. Mohammed, whom the Post notes was wearing a &quot;peach linen suit,&quot; was kicked out of the store, but he soon returned to angrily confront Perry in the meat aisle. <a href="https://web.archive.org/web/20110623142149/http://www.nydailynews.com/news/ny_crime/2011/06/12/2011-06-12_man_70_gets_throat_slashed_in_grocery.html">Mohammed slashed Perry</a> in the neck with the weapon, and kicked him twice in the head, but was subdued by an employee who jumped on him before he could escape. According to Feliciano, Mohammed was dragged out of the supermarket screaming &quot;at everyone around him.&quot; </p>
+
+<p>Perry was taken to Harlem Hospital, and is expected to live. His brother Charles sounded like he was ready for round two, calling Mohammed  &quot;a coward [who] didn&#x2019;t fight fair.&quot;</p>

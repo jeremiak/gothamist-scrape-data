@@ -1,0 +1,42 @@
+---
+author: Jen Chung
+date: Dec 9, 2016 12:04 pm
+title: Faulty Radiator That Killed Little Girls Was Allegedly Reported Last Year
+---
+
+	
+										<p><br>
+Mayor Bill de Blasio visited the apartment where 1-year-old and 2-year-old sisters were fatally burned by scalding-hot steam&#x2014;<a href="https://web.archive.org/web/20171016013556/http://abc7ny.com/news/investigation-into-cause-of-bronx-radiator-steam-blast-that-killed-two-kids/1645983/">as high as 230 degrees</a>&#x2014;when the valve of the radiator suddenly popped off. He promised a &quot;rigorous investigation to find out what happened here,&quot; because the deaths occurred in a unit <a href="https://web.archive.org/web/20171016013556/http://gothamist.com/2016/12/08/worst_landlord_radiator_deaths.php">used by the city for homeless families</a>, but also called it a &quot;freak accident.&quot;</p>
+
+<p>De Blasio said, &quot;This was a freak accident, a series of painful coincidences that led to the loss of these children... There were no specific complaints that we knew of that would have indicated anything like this. There had been an inspection of this apartment last month. We are trying to put the pieces together, but so far cannot understand how something like this could happen.&quot;</p>
+
+<p>On Wednesday morning, Ibanez Ambrose, age two, and Scylee Vayoh Ambrose, one, were found with burns all over their bodies. Apparently the girls had been sleeping near the radiator while their father, Peter Ambrose, was sleeping on the couch. <a href="https://web.archive.org/web/20171016013556/http://nypost.com/2016/12/08/baby-sisters-burned-to-death-were-sleeping-next-to-radiator-that-exploded/">According to the Post</a>, &quot;Danielle Ambrose left the Hunts Point apartment at 10:12 a.m. Wednesday, and when she returned at 11:46 a.m., it was too late to save her daughters.&quot;</p>
+
+<p><a href="https://web.archive.org/web/20171016013556/http://nypost.com/2016/12/08/baby-sisters-burned-to-death-were-sleeping-next-to-radiator-that-exploded/">City Council Member Rafael Salamanca Jr. said</a>, &quot;She came back and said, &#x2018;Are the girls still sleeping?&#x2019; Then they went in and opened and the door and saw the steam, hot water and the girls.&quot;</p>
+
+<p>The girls suffered burns over 70 percent of their bodies and were pronounced dead at Lincoln Hospital. <a href="https://web.archive.org/web/20171016013556/https://www.dnainfo.com/new-york/20161208/hunts-point/radiator-deaths-scylee-vayoh-ambrose-ibanez-ambrose">Sources tell DNAinfo</a> that it appeared the valve was old and weakened: &quot;There was no explosion and there was no extraordinary pressure put on the radiator than what was done every day when the heat came on. It basically could have happened anywhere at any time.&quot;</p>
+
+<p>The radiator was taken from the apartment yesterday.</p>
+
+<p>The father, Peter Ambrose, <a href="https://web.archive.org/web/20171016013556/http://www.nytimes.com/2016/12/08/nyregion/toddlers-radiator-death.html">told the NY Times</a> that he and his wife Danielle woke up at 6 a.m. on Wednesday &quot;when a valve on a different radiator &#x2014; in the living room, where they were sleeping &#x2014; &apos;blew off&apos; and steam poured out. Mr. Ambrose said that the valve was extremely hot and that he had to use an oven mitt to pick it up and put it back on the radiator.&quot;</p>
+
+<p>The couple had moved from Maine to NYC <a href="https://web.archive.org/web/20171016013556/https://www.dnainfo.com/new-york/20161207/hunts-point/danielle-ambrose-girls-killed-steam-social-media">to be musicians</a>. <a href="https://web.archive.org/web/20171016013556/http://nypost.com/2016/12/08/baby-sisters-burned-to-death-were-sleeping-next-to-radiator-that-exploded/"> The Post reports</a> &quot;the parents are recovering drug addicts, and have been the subject of six child welfare cases in New York City, Maine and New Hampshire, according to police sources. Most recently, an Administration for Children&#x2019;s Services case was opened against Danielle, 25, in November for allegedly bringing the girls along as she panhandled while playing the guitar in the cold, police sources said.&quot;</p>
+
+<p>In his interview with the Times, Peter Ambrose explained they moved &quot;because they wanted to raise their daughters in a big city. &apos;We wanted to give them something we didn&#x2019;t have when we grew up,&apos; he said.&quot; </p><blockquote>He said he had found occasional work as a tattoo artist and as a house painter, and that his wife was a musician and had recently gotten work as a security guard.<p></p>
+
+<p>&#x201C;It was a little harder to get it all going,&#x201D; he said. &#x201C;I didn&#x2019;t research the prices. It was more like one of those things you think you can do, dream you can do. It was more of a struggle than we anticipated.&#x201D;</p></blockquote>The couple went back to the apartment building last night; Peter Ambrose was seen looking at the growing memorial for his daughters:<p></p>
+
+<div><center><iframe width="476" height="267" src="https://web.archive.org/web/20171016013556if_/http://abc7ny.com/video/embed/?pid=1647352" frameborder="0" allowfullscreen></iframe></center></div>
+
+<p>The family was living at 720 Hunts Point Avenue in apartments set aside by the landlord for the city&apos;s controversial &quot;cluster site&quot; program for homeless families. De Blasio has been <a href="https://web.archive.org/web/20171016013556/http://gothamist.com/2016/01/04/homeless_cluster_site.php">trying to end the use of cluster sites</a>, a program leftover from the Bloomberg administration that put homeless populations in squalid and often expensive rooms and buildings. But city efforts to build new homeless shelters that could serve as an alternative have <a href="https://web.archive.org/web/20171016013556/http://gothamist.com/2016/10/10/post_181.php">faced challenges</a> from some communities. </p>
+
+<p>Commissioner Steven Banks, who oversees the Department of Homeless Services, <a href="https://web.archive.org/web/20171016013556/http://gothamist.com/2016/12/09/radiator_explosion_cluster.php">said in a press conference yesterday</a>, &quot;The tragedy... highlights the urgency of getting out of clusters, of getting out of commercial hotels, and getting purpose-built shelters in place throughout the city.&quot; He also said that 720 Hunts Point Avenue&#x2014;owned by notorious <a href="https://web.archive.org/web/20171016013556/http://www.nydailynews.com/archives/news/caught-man-millions-misery-daily-news-exposes-incredible-story-king-new-york-slumlords-article-1.658234">slumlord</a> Moshe Pillar who was once called <a href="https://web.archive.org/web/20171016013556/http://gothamist.com/2015/11/25/worst_landlords_nyc_2015.php">one of the NYC&apos;s worst landlords</a> by Public Advocate Letitia James&#x2014;had been a cluster site since 2013, which is before de Blasio took office. Banks said, &quot;In 2013, I don&apos;t know what the procedure was when the city began doing business with these two buildings.&quot; </p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="120816_Babies.jpg" src="https://web.archive.org/web/20171016013556im_/http://gothamist.com/attachments/nyc_ewhitford/120816_Babies.jpg" width="640" height="536"> <br> <i> Scylee and Ibanez (via GoFundMe). </i></div> <p></p>
+
+<p>A family living in the same apartment last year <a href="https://web.archive.org/web/20171016013556/http://www.nydailynews.com/new-york/bronx/bronx-radiator-killed-baby-girls-freak-accident-article-1.2903362">reportedly complained about the radiator</a>: Charlene Jackson, who has two sons, contacted Bushwick Economic Development Corp., the shelter services provider that oversees the cluster site, to report a valve popping off the radiator that killed the Ambrose girls. The woman at BEDC &quot;said she&#x2019;d send somebody to fix it. But of course, nothing ever happened. Nobody ever came... Now we have two dead babies. It could have been avoided if only they fixed that little piece.&quot; </p>
+
+<p>&quot;My heart goes out to this family&#x2014;to the parents who have lost their two children. I can only imagine that pain,&quot; de Blasio said. &quot;Two beautiful children&#x2014;there were photos on the walls; drawings on the wall. It was a very&#x2014;clearly a warm, and loving household, there is no question about that.&quot;</p>					
+										
+									
+				

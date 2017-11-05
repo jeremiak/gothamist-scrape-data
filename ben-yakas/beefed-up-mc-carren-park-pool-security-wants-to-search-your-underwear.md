@@ -1,0 +1,23 @@
+---
+author: Ben Yakas
+date: Jul 5, 2012 1:36 pm
+title: Beefed Up McCarren Park Pool Security Wants To Search Your Underwear
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="7512mccarren.jpeg" src="https://web.archive.org/web/20150427145836im_/http://gothamist.com/attachments/byakas/7512mccarren.jpeg" width="640" height="427"> <br> <i> Don&apos;t think you two are off the hook (<a href="https://web.archive.org/web/20150427145836/http://colormekatie.blogspot.com/">Katie Sokoler</a>/Gothamist)</i></div> <p></p>
+
+<p>The locusts may not have swarmed YET, but chaos apparently reigns at the newly reopened <a href="https://web.archive.org/web/20150427145836/http://gothamist.com/tags/mccarrenparkpool">McCarren Park Pool</a>. After the lifeguard attacks, the cop attacks, the melees, and the petty larceny, police have <a href="https://web.archive.org/web/20150427145836/http://www.dnainfo.com/new-york/20120704/greenpoint/mccarren-pool-beefs-up-security-after-violence-thefts">dramatically increased security</a>. Yesterday, there were more than two dozen cops at the front checking bags and clothing&#x2014;they were even <a href="https://web.archive.org/web/20150427145836/http://www.nypost.com/p/news/local/brooklyn/poolside_search_for_junk_in_trunks_HTIHyq4QGYRsLEMQNehbvN?utm_medium=rss&amp;utm_content=Brooklyn">checking people&apos;s underwear</a>! But there are some underwear weapons that aren&apos;t so easy to detect: &#x201C;I thought, &#x2018;O.K., it&#x2019;s Brooklyn, it&#x2019;s not that surprising,&#x2019; &#x201D; Meredith Chesney, owner of Mousey Brown beauty salon near the pool, <a href="https://web.archive.org/web/20150427145836/http://www.nytimes.com/2012/07/05/nyregion/problems-at-mccarren-park-pool-have-a-neighborhood-worried.html?_r=1&amp;ref=nyregion">told the Times</a>. &#x201C;But then, 30 minutes later, I went outside to water my plants and I found someone had defecated right in front of the salon. It&#x2019;s shocking.&#x201D;</p>
+
+<p>People were obviously put off by the underwear checks: &#x201C;The concern is that underwear will get dye in the pool,&#x201D; one staffer told the Post. &#x201C;I thought they were checking if I was packing a weapon,&#x201D; said Greenpoint resident David Alonzo. &#x201C;But they wanted to see if I was packing underwear. This is just off the hook.&#x201D; Although some were uncomfortable with the increased security, Edgar Nunez <a href="https://web.archive.org/web/20150427145836/http://www.dnainfo.com/new-york/20120704/greenpoint/mccarren-pool-beefs-up-security-after-violence-thefts">made the best</a> of it: &quot;Yeah, I don&apos;t like cops. But today I&apos;m just here to swim, man.&quot;</p>
+
+<p>One officer there <a href="https://web.archive.org/web/20150427145836/http://awalkintheparknyc.blogspot.com/2012/07/security-at-mccarren-pool-dramatically.html">told A Walk In The Park</a>, &quot;City Hall is pretty embarrassed by all the press out here. Not sure how long we&apos;re going to be out here. We&apos;re stretched pretty thin ourselves.&quot; The Times weighed in on what&apos;s been going on, picking up on a tense undercurrent:</p>
+
+<blockquote>Some of the blog posts and comments in recent days have echoed the racially tinged dialogue of the 1980s, with neighbors of the pool blaming teenagers from outside the community. In fact, two of the men arrested came from a public housing complex, the Marcy Houses, on the border of Williamsburg and Bedford-Stuyvesant. The other lives across the street from the pool.</blockquote>
+
+<p><a href="https://web.archive.org/web/20150427145836/http://gawker.com/5923577/everything-that-happens-at-williamsburg-pool-freighted-with-heavy-sociocultural-significance">Gawker was unimpressed</a> with their report, arguing that the Times was just trying to stir up shit by connecting &quot;even the most inconsequential event [teenagers perpetuating mischief] to broader themes of gentrification and hipsterism!&quot; </p>
+
+<p>But considering the first of three incidents happened LITERALLY the day after the pool re-opened in high profile fashion&#x2014;<a href="https://web.archive.org/web/20150427145836/http://gothamist.com/2012/06/28/photos_mccarren_park_pool_opens_wit.php">flashy Bloomberg press conference</a> and all&#x2014;it seems reasonable to treat everything that&apos;s been going on there during this prolonged heat wave as a serious news story.</p>					
+										
+									
+				

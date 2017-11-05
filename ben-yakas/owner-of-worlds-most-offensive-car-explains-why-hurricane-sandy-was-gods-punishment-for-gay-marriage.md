@@ -1,0 +1,37 @@
+---
+author: Ben Yakas
+date: Apr 27, 2013 1:45 pm
+title: Owner Of World's Most Offensive Car Explains Why Hurricane Sandy Was God's Punishment For Gay Marriage
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="41813bumper2.jpeg" src="https://web.archive.org/web/20150428161145im_/http://gothamist.com/attachments/byakas/41813bumper2.jpeg" width="640" height="480"> <br> <i> Gothamist</i></div> <p></p>
+
+<p>Last week <a href="https://web.archive.org/web/20150428161145/http://gothamist.com/2013/04/19/photo_does_this_car_have_the_most_o.php">we published a photo of a car in Brooklyn</a> plastered with a ridiculous amount of offensive bumper stickers. That car <a href="https://web.archive.org/web/20150428161145/http://gothamist.com/2013/04/21/bumper_stickers.php">turned out to belong to</a> Heshi Fried&#x2014;Fried is a Hardei, which is considered the most conservative form of Orthodox Judaism. Considering our negative take on his vehicle, we were pretty surprised when Fried called us this week to thank us for writing about him. &quot;I think it was great, and you know, most people are very much with me, the people who are religious are basically all giving me a thumbs up,&quot; Fried said. &quot;Except secular Jews, who usually like, express shock. They feel like I&apos;m causing anti-Semitism or something. They feel really embarrassed.&quot;</p>
+
+<p>Fried, who was a follower of <a href="https://web.archive.org/web/20150428161145/http://www.simchashachaim.com/">Rabbi Avigdor Miller</a>, was incredibly civil during our 30 minute conversation, during which we tried to pose questions based around the offensive bumper stickers he so proudly shows up. Fried confirmed he used to be a member of the fringe Hasidic group Jewish Political Action Committee, but after the big <a href="https://web.archive.org/web/20150428161145/http://gothamist.com/2012/04/27/big_jews_against_the_internet_rally.php">&quot;Jews against the internet&quot; protest at Citi Field</a> a few years ago, they removed their website. &quot;[The Rabbis] didn&apos;t want us to have anything that may cause religious kids to go look at the internet to see what&apos;s going on. So that&apos;s one of reasons we removed the website.&quot;</p>
+
+<p>As for those bumper stickers, which he makes himself, Fried says it&apos;s part of his goal to make as many people more observant as possible. He proceeded to explain each bumper sticker to us in detail, and how it stems from some passage in the Torah. But we pushed him about the Hurricane Sandy sticker in particular&#x2014;how can someone possibly connect a weather phenomenon with a legislative action? Below, you can read Fried&apos;s answer, which involves a very vengeance-happy, hail-and-brimstone Old Testament reading of God.  </p>
+
+<blockquote>Hurricane Sandy had to do with gay marriage all the way, because I don&apos;t know if you&apos;re aware, but it was Sheldon Silver in the Assembly who actually pushed for it. Even though he&apos;s modern Orthodox, he represents the Lower East Side, and what happened was, he&apos;s the one who pushed it into vote on the City Council. And it was his district, of course the gay districts on the West Side too, but all the Lower East Side was in the dark for over a week. The old people in the projects everywhere, they had no hot water, they had no heat, they had no phones, they had no electric, no elevators, they were in big trouble. 
+
+<p>And it just happened that the portion of the Torah that we read, it discusses the story of Sodom, where everybody became blind, all the residents of Sodom who actually became blind before they got destroyed. So that whole thing with the LES was everybody was in the dark, like they were blind. Of course the old people had nobody to connect to, and they were literally living in fear. And this is just one example. Every neighborhood who was hit had a reason why it was hit.</p></blockquote><p></p>
+
+<p>He said that the Rockaways was devastated because there are &quot;280 religious families that had no business living there, because it&apos;s a beach neighborhood, and exposing their teenage kids to people dressing who look like they&apos;re going to the beach and dressing in the wrong manner, is not the right place to raise a kid.&quot;</p>
+
+<p>Fried, who protested at last year&apos;s Pride parade, said he once met a gay ex-Orthodox  Jew at a Friday night dinner event. &quot;He was carrying on, arguing with me for like a half hour,&quot; Fried told us. &quot;But other than that I really don&apos;t know any gay people. Because, you know, everybody where I live is basically married, so there&apos;s no, you don&apos;t see any really, that type of activity.&quot;</p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="42113bumper2.jpg" src="https://web.archive.org/web/20150428161145im_/http://gothamist.com/attachments/byakas/42113bumper2.jpg" width="640" height="480"> <br> <i> Matt Y</i></div> <p></p>
+
+<p>At his core, Fried believes being gay is a choice. &quot;Nobody&apos;s born gay, just like nobody is born a murderer. Because if somebody was born gay, or born a murderer, then God could never say, hey you&apos;re guilty for killing,&quot; he said. &quot;There are people that want to have women every day. Does that mean they should go around raping everyone, or cheating on their wives? No, it&apos;s a thing of controlling and learning how to control.&quot; </p>
+
+<p>To that end, he thinks living in an area like Borough Park could help gay people: &quot;I don&apos;t think any Jew should be living in Manhattan. Anyone living in Manhattan is influenced by the environment. Where I live all the stores are closed on the Sabbath, but if you walked in Manhattan, all the stores are open. Even you may be observing everything, but what your eyes see has an effect.&quot;</p>
+
+<p>The idea that one&apos;s environment influences how they are is something that Fried believes attracts many groups to the Williamsburg area&#x2014;including hipsters. &quot;Everything that happens in this world has a purpose, and one of the reasons the hipsters move around Williamsburg is because many of the hipsters are Jewish and grew up with no Jewish education, and God is giving them an opportunity to connect to observant Judaism. And whether they know it or not, that&apos;s what&apos;s happening.&quot;</p>
+
+<p>We asked whether he could understand why many people found his beliefs&#x2014;and his desire to announce those beliefs to the world through things like stickers&#x2014;incredibly hostile:  &quot;Oh, absolutely. I mean, if somebody&apos;s liberal, they feel like, &apos;Hey, the society is live and let live, and the way you want&apos; and all that, and politics is all whatever people want. If everybody was against gay marriage, then I guarantee Bloomberg and all these other people would be against it too. They&apos;re not doing it because of their beliefs, it&apos;s just a matter of who are the ones who are talking the loudest.&quot;  </p>
+
+<p>Our takeaway from all this? The guy with the intolerant bumper stickers is intolerant... Which, all things considered, is still probably easier to stomach than if the car belonged to some hipster sporting the bumper stickers <em>ironically.</em></p>					
+										
+									
+				

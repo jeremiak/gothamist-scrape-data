@@ -1,0 +1,34 @@
+---
+author: Jen Chung
+date: Jun 2, 2014 9:37 pm
+title: Investigation Finds Ex-Brooklyn DA Hynes Used Seized Money For Campaign
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2014_05_charleshynes.jpg" src="https://web.archive.org/web/20140606072429im_/http://gothamist.com/attachments/jen/2014_05_charleshynes.jpg" width="640" height="427"> <br> <i> Photograph of Charles Hynes in 2012 (Getty Images)</i></div> <p></p>
+
+<p>Already <a href="https://web.archive.org/web/20140606072429/http://gothamist.com/2014/02/12/judge_city_doesnt_have_to_pay_when.php">under fire</a> for a <a href="https://web.archive.org/web/20140606072429/http://gothamist.com/2013/05/12/shady_nypd_detectives_skeletons_pro.php">number of wrongful convictions</a>, former Brooklyn District Attorney Charles Hynes is now accused of misusing state asset-forfeiture funds to pay a political consultant for his <a href="https://web.archive.org/web/20140606072429/http://gothamist.com/2013/11/06/new_brooklyn_da_ken_thompson.php">ultimately failed 2013 re-election campaign</a>. <a href="https://web.archive.org/web/20140606072429/http://www.nytimes.com/2014/06/03/nyregion/charles-hynes-brooklyn-district-attorney-inquiry.html?_r=1">According to the NY Times</a>, &quot;The report, which has been referred to the state attorney general and several other agencies, concluded that Mr. Hynes could face larceny charges for the misuse of public funds.&quot;</p>
+
+<p>The report (<a href="https://web.archive.org/web/20140606072429/http://www.nytimes.com/interactive/2014/06/03/nyregion/03brooklyn.html">read it here</a>) details how the NYC Department of Investigations was asked by two government entities to investigate possible improprieties: &quot;DOI was specifically asked to review allegations that Hynes: misused his official KCDA [Kings County District Attorney] e-mail account for campaign purposes; received political advice from Barry Kamins, a sitting New York State Supreme Court Justice; and improperly used KCDA&#x2019;s New York State asset forfeiture funds to pay for a consultant to provide him with personal political services.&quot; </p>
+
+<p>The DOI subpoenaed&#x2014;and got&#x2014;6,067 emails from current Brooklyn DA Ken Thompson&apos;s office. <a href="https://web.archive.org/web/20140606072429/http://nypost.com/2014/06/02/report-says-former-da-charles-hynes-misused-funds/">The report says</a>, &quot;Several high-level KCDA staff appeared to have assisted Hynes in his reelection campaign... As indicated by the dates and time-stamps associated with these e-mails, many of them were sent and received during regular KCDA business hours.&quot;</p>
+
+<p>That asset forfeiture money, the report says, went to Mortimer Matz, whose firm &#x201C;submitted approximately 80 [weekly] invoices&#x201D; to one of Hynes&apos; prosecutors. The invoices then &#x201C;purport[ed] to bill KCDA the amount of $2682 per week,&#x201D; resulting in a total of $219,924 for 2012 and 2013. Between 2003 and 2013, Matz&#x2019;s firm was paid $1.1 million from state asset forfeiture fund&#x2014;which includes money seized from drug dealers&#x2014;which is supposed to be used for law enforcement. </p>
+
+<p>The DOI found 1,200-1,300 emails that Hynes sent to Matz&apos;s personal AOL e-mail about campaign matters, like getting editorial board endorsements and fighting Thompson&apos;s campaign press releases.</p>
+
+<p>There are some other notable figures who got emails from Hynes: He thanked former governor (and father of the current governor) Mario Cuomo, &quot;Thank you Governor for your most generous support for my campaign. I look forward to our lunch sometime in September after I beat this Turkey. Fondly, Joe.&quot;</p>
+
+<p>Further, about 300 of the emails were from Judge Kamins, who was advising Hynes on his campaign (Hynes sent Kamins about 800 emails). In one email, Kamins told his friend how to attack rival Thompson by pointing out his &quot;Lack of experience in supervising a large number of attorneys. Until he puts forth a plan or set of goals, one must assume that he is not qualified to run the office.&#x201D; </p>
+
+<p>In another, Hynes asked Kamins for advice about talking to NY1 political anchor Errol Louis. Hynes asks, &#x201C;If I don&#x2019;t find a succinct way of responding to the criticism there&#x2019;ll be no opportunity to talk about my record&#x2026; Any ideas?&#x201D; Kamins says, &#x201C;Time is very limited. I would not get into the details of the Collins case&#x2014;recantations, etc. No one is going to understand the facts any way. I would say that your office looked into the allegations and found no misconduct. Period. I would also point out that all this does not come from &#x2018;federal judges&#x2019;&#x2014;it comes from one Judge, Judge Irizzary and that Block adopted her misguided opinion and never looked into the case himself. And I would say, political, that federal judges can be wrong just as any judge can be wrong.&#x201D;</p>
+
+<p>Jabbar Collins <a href="https://web.archive.org/web/20140606072429/http://gothamist.com/2010/06/10/man_goes_home_after_1995_murder_con.php#photo-1">was released in 2010</a> after his wrongful 1995 conviction was overturned. Collins is suing the Brooklyn DA&apos;s office <a href="https://web.archive.org/web/20140606072429/http://gothamist.com/2011/02/16/brooklyn_da_hit_with_150_million_la.php">for $150 million</a>, alleging that a <a href="https://web.archive.org/web/20140606072429/http://gothamist.com/2013/02/16/federal_judge_wrongfully_convicted.php">prosecutor coerced confessions</a>. </p>
+
+<p>Kamins has been removed from his duties; the NY Times reports, &quot;Judge Kamins has long been known as a straight-arrow player, and he had overseen New York criminal courts before being given the additional role of the head of policy and planning for New York State&#x2019;s courts this year.&quot; His lawyer said, &quot;Joe Hynes and Barry Kamins have known eachother for 40 years and have talked politics most of that time. Anyone who knows Barry knows that he would not abuse his judicial office.&quot;</p>
+
+<p>In last year&apos;s Democratic primary, Thompson <a href="https://web.archive.org/web/20140606072429/http://gothamist.com/2013/09/11/ken_thompson_hands_embattled_brookl.php">won 55% of the vote</a>. So Hynes <a href="https://web.archive.org/web/20140606072429/http://gothamist.com/2013/10/03/charles_hynes_wont_die_da_is_runnin.php">decided to run on the Republican</a> and Conservative lines&#x2014;to <a href="https://web.archive.org/web/20140606072429/http://gothamist.com/2013/11/06/new_brooklyn_da_ken_thompson.php">only get 25% of the vote to Thompson&apos;s 75%</a>. We contacted Hynes&apos; campaign spokesman George Arzt for comment; Arzt said he hasn&apos;t work for Hynes since the primary loss.<br>
+</p>					
+										
+									
+				

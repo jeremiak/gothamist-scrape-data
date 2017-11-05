@@ -1,0 +1,32 @@
+---
+author: Ben Yakas
+date: Mar 9, 2013 11:25 am
+title: Sandman's Last Stand: Mariano Rivera Announces He'll Retire After This Season
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="3913rivera.jpg" src="https://web.archive.org/web/20150426153520im_/http://gothamist.com/attachments/byakas/3913rivera.jpg" width="640" height="436"> <br> <i> <a href="https://web.archive.org/web/20150426153520/https://twitter.com/Yankees/status/310409959475122177">Yankee&apos;s Twitter</a></i></div> <p></p>
+
+<p><a href="https://web.archive.org/web/20150426153520/http://gothamist.com/2013/03/07/mariano_rivera_will_announce_retire.php">As was expected</a>, the greatest closer in the history of baseball formally announced today that he will retire after the 2013 season. <a href="https://web.archive.org/web/20150426153520/http://gothamist.com/tags/marianorivera">Mariano Rivera</a>, who has played all 18 years of his career for the Yankees, made the announcement beside his wife Clara and two sons <a href="https://web.archive.org/web/20150426153520/http://www.huffingtonpost.com/2013/03/09/mariano-rivera-retire-yankees-season_n_2843676.html?utm_hp_ref=sports">during a news conference</a> at George M. Steinbrenner Field in Tampa this morning. &quot;After this year, I will retire. Retiring from the game that I love and have passion for and have for so many years,&quot; Rivera said. &quot;It has been an honor to wear the pinstripe uniform...Now is the time. There is nothing left. It has been a journey. I will never stop missing the game, the action, teammates.&quot;</p>
+
+<center><blockquote class="twitter-tweet"><p>Yep, not your normal presser. All the <a href="https://web.archive.org/web/20150426153520/https://twitter.com/search/%23yankees">#yankees</a> on hand. <a href="https://web.archive.org/web/20150426153520/http://t.co/yh42asXW7r" title="http://twitter.com/GabeLacques/status/310406957259452416/photo/1">twitter.com/GabeLacques/st&#x2026;</a></p>&#x2014; Gabe Lacques (@GabeLacques) <a href="https://web.archive.org/web/20150426153520/https://twitter.com/GabeLacques/status/310406957259452416">March 9, 2013</a></blockquote>
+<script async src="//web.archive.org/web/20150426153520js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<p>The 43-year-old Rivera sat out last season <a href="https://web.archive.org/web/20150426153520/http://gothamist.com/2012/05/04/mo_no_mariano_rivera_tears_acl_duri.php">after tearing his ACLS</a> during spring training in May, but he had vowed to come back. &quot;I didn&apos;t want to leave like that,&quot; he said today, confirming he would have retired last year were it not for the injury. &quot;I felt like I wanted to give everything.&quot; He has a clear idea of how he&apos;d like his career to finish: &quot;The last game I hope will be throwing the last pitch in the World Series,&quot; he said. &quot;Winning the World Series, that would be my ambition.&quot; </p>
+
+<center><blockquote class="twitter-tweet"><p>Typical NYY fan reaction to the Mariano Rivera 2014 retirement news. <a href="https://web.archive.org/web/20150426153520/http://t.co/sJ0VlkYAP4" title="http://twitpic.com/c9y1ax">twitpic.com/c9y1ax</a></p>&#x2014; Slade Sohmer (@SladeHV) <a href="https://web.archive.org/web/20150426153520/https://twitter.com/SladeHV/status/310411236300955648">March 9, 2013</a></blockquote>
+<script async src="//web.archive.org/web/20150426153520js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<p>&quot;I don&apos;t feel I&apos;m the greatest of all time,&quot; Rivera said about his legacy. &quot;I want to be remembered as a player who was there for others, made others better.&quot; But despite his humbleness, there&apos;s no doubt that he was <a href="https://web.archive.org/web/20150426153520/http://sports.yahoo.com/news/fond-farewell---mo-body-did-it-better-in-baseball-than-mariano-rivera-and-his-cutter-231514327.html">the greatest closer ever</a>. Here&apos;s <a href="https://web.archive.org/web/20150426153520/https://twitter.com/AdamZagoria/status/310414440602419200">one particularly</a> eye-popping statistic: &quot;12 men have walked on the Moon. 11 have scored on earned runs against Mariano Rivera in the postseason.&quot;</p>
+
+<p><iframe width="640" height="360" src="https://web.archive.org/web/20150426153520if_/http://www.youtube.com/embed/dMVXjRGTtG0" frameborder="0" allowfullscreen></iframe></p>
+
+<p>While Rivera was surprisingly upbeat during the press conference, his teammates were much more emotional, <a href="https://web.archive.org/web/20150426153520/https://twitter.com/GabeLacques/status/310413109531652096">looking &quot;near tears.&quot;</a> Jorge Posada <a href="https://web.archive.org/web/20150426153520/http://www.yesnetwork.com/news/article.jsp?ymd=20130309&amp;content_id=42500106&amp;oid=36019">released this statement</a>: &quot;There is only one Mariano Rivera. There won&apos;t be another person who will come along and do what he did. No one does it like him. It was an honor to catch him and play alongside him for as long as I did.&quot; Yankees GM Brian Cashman added: &quot;You will never see that again. He&apos;s irreplaceable.&quot;</p>
+
+<p>Rivera noted: &quot;It&apos;s celebrating, not sadness. To have the joy of [a career] no one can take that joy away from me.&quot; River also ruled out changing his mind about retirement: &quot;I have just a few bullets left.&quot; <a href="https://web.archive.org/web/20150426153520/http://gothamist.com/tags/andypettitte">Andy Pettitte</a>, who did come out of retirement last year, and Derek Jeter are the last two Yankees remaining from the <a href="https://web.archive.org/web/20150426153520/http://en.wikipedia.org/wiki/Core_Four">Core Four.</a></p>
+
+<center><blockquote class="twitter-tweet"><p>Derek Jeter is going to be the last guy left in the Yankee locker room with an AOL email address.</p>&#x2014; Jason Gay (@jasonWSJ) <a href="https://web.archive.org/web/20150426153520/https://twitter.com/jasonWSJ/status/310409180462866432">March 9, 2013</a></blockquote>
+<script async src="//web.archive.org/web/20150426153520js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>					
+										
+									
+				

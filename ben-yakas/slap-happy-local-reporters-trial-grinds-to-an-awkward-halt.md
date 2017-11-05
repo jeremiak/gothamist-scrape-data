@@ -1,0 +1,13 @@
+---
+author: Ben Yakas
+date: March 16, 2011  4:53 PM
+title: Slap-Happy Local Reporter's Trial Grinds To An Awkward Halt
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:220px; "> <img alt="31611dementri.jpg" src="https://web.archive.org/web/20110412184909im_/http://gothamist.com/attachments/byakas/31611dementri.jpg" width="220" height="281"> <br> <i>Vince DeMentri</i></div> Last year, former WPIX reporter Vince DeMentri was hit with an <a href="https://web.archive.org/web/20110412184909/http://gothamist.com/2010/05/21/slap_happy_local_news_reporter_figh.php">assault charge</a> for allegedly slapping the Bahamian UN ambassador&#x2019;s chauffeur, in true NY-style, over a parking spot. He was fired soon after, and he&apos;s now standing trial for the incident. But the trial ground to an <a href="https://web.archive.org/web/20110412184909/http://www.mediabistro.com/tvspy/trial-of-former-wpix-reporter-vince-dementri-halted-following-n-word-accusation_b7706">awkward halt</a> yesterday after the chauffeur accused DeMentri of calling him the n-word.<p></p>
+
+<p>Chauffeur Hurley Senanayake testified that DeMentri slapped him across the face after he refused to move his car, which was parked in an NYP zone, reserved for New York Press. But he went one further, alleging that DeMentri called him the n-word as well, an allegation which came as a surprise to the defense, prosecution and judge. Senanayake insisted that he had told the prosecutor, but defense lawyer Jeffrey Lichtman accused him of being a liar, and halted his cross-examination to complain to the judge that prosecutor has stated he&apos;d never heard about the slur. </p>
+
+<p>Today, Manhattan Criminal Court Judge Abraham Clott put the case <a href="https://web.archive.org/web/20110412184909/http://www.nypost.com/p/news/local/translator_available_reporter_assault_uRfwJ4HSyIPaQuOrcFow8I">on hold</a> until at least Monday: &quot;It is simply not possible to get a Sinhalese interpreter for today. The parties are in agreement that the testimony should not proceed without the services of a Sinhalese interpreter.&quot;</p>
+
+<p>DeMentri, who once <a href="https://web.archive.org/web/20110412184909/http://www.nydailynews.com/entertainment/tv/2010/03/25/2010-03-25_new_guys_at_ch_11_come_with_stories_of_their_own.html">said</a> he felt like &quot;one of the bad boys, part of the &apos;70s Oakland Raiders.&quot; Next time he gets into a parking fight, he&apos;ll just have to call that person a <a href="https://web.archive.org/web/20110412184909/http://gothamist.com/2011/01/07/hipster_huckleberry_finn_replaces_n.php">&quot;hipster.&quot;</a></p>

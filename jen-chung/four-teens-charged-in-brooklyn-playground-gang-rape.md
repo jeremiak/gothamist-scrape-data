@@ -1,0 +1,41 @@
+---
+author: Jen Chung
+date: Jan 12, 2016 8:50 am
+title: Four Teens Charged In Brooklyn Playground Gang Rape
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2016_01_osbornp.jpg" src="https://web.archive.org/web/20160613234553im_/http://gothamist.com/attachments/jen/2016_01_osbornp.jpg" width="640" height="426"> <br> <i> At the Osborn Playground (AP)</i></div> <p></p>
+
+<p>The four teens accused of <a href="https://web.archive.org/web/20160613234553/http://gothamist.com/2016/01/11/brooklyn_gang_rape.php">raping of a young woman</a> in a Brownsville playground will be in court this morning, and all four are reportedly expected to plead not guilty. At least two of the teens claim that the 18-year-old victim consented to sex with them, as well as a fifth suspect still at large.</p>
+
+<p>Police say that after 9 p.m. on Thursday, January 7th, the victim and her father were in the playground when the group of males approached them; the person with a gun &quot;pointed it at them and told the father to leave the area.  The father complied and each one of the five suspects raped the victim.&quot;</p>
+
+<p>The authorities are trying to determine what exactly happened; <a href="https://web.archive.org/web/20160613234553/http://www.nytimes.com/2016/01/12/nyregion/brooklyn-rape-case.html">an official told the NY Times</a>, &quot;The initial report, that all five of them raped her, is not looking like it happened that way.&quot; The Times reports: </p>
+
+<blockquote>When she was interviewed, the woman told investigators she was raped by at least one of the suspects, the officials said. She was forced to perform oral sex on two others, they said, citing her account, and all of the suspects touched her breasts... Two of the suspects said a third suspect had sex with the woman. That suspect said he was present, but was on the phone, &#x201C;and when he finished the call his friends were gone,&quot; one of the officials said.</blockquote>
+
+<p><a href="https://web.archive.org/web/20160613234553/http://www.nydailynews.com/new-york/brooklyn/teens-charged-brooklyn-playground-rape-claim-consent-article-1.2492967">The Daily News has this sickening report</a>, from an anonymous law enforcement source: &quot;Two teens charged with raping an 18-year-old woman say the sex was consensual &#x2014; and told cops she was having intercourse with her father in a Brooklyn park when they first saw her... &apos;It&#x2019;s very complicated,&apos; the source said, adding both father and daughter appeared to be heavily intoxicated.&quot; (There is <a href="https://web.archive.org/web/20160613234553/http://nypost.com/2016/01/11/two-teens-busted-in-alleged-gang-rape-say-it-was-consensual/">reportedly surveillance video</a> showing the pair buying beer at a bodega before going to the playground.)</p>
+
+<p>Another police official told the News, &quot;She had significant injuries. There is very little question her injuries (are consistent) with a significant assault.&quot; Police Commissioner Bill Bratton said, &#x201C;At this juncture, we have no doubt she was raped.&quot;</p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2016_01_oscbornp2.jpg" src="https://web.archive.org/web/20160613234553im_/http://gothamist.com/attachments/jen/2016_01_oscbornp2.jpg" width="640" height="433"> <br> <i> Osborn Playground (AP)</i></div> <p></p>
+
+<p>The father returned to the playground about 20 minutes after the attack with police officers, but by then the suspects had gone. <a href="https://web.archive.org/web/20160613234553/http://abc7ny.com/news/four-teens-charged-with-gang-rape-of-teen-in-brooklyn-playground/1155650/">The victim&apos;s father told WABC 7</a> at the first bodega, Zaida Deli, he went to, he told a clerk, &quot;&apos;I need help, call the cops, my daughter is getting raped.&apos; They didn&apos;t want to call the cops for me.&quot; </p>
+
+<p><a href="https://web.archive.org/web/20160613234553/http://nypost.com/2016/01/11/two-teens-busted-in-alleged-gang-rape-say-it-was-consensual/">However, the clerk claims</a>, &#x201C;He was swaying side to side. He asked me, &#x2018;Lend me your phone.&apos; He didn&#x2019;t tell me it was an emergency or &#x2018;I need to call the police&#x2019; or of course I would&#x2019;ve given it to him or just called the police for him.&quot;</p>
+
+<p>The father went to another deli, Brownsville Plaza, where a worker told the Post, &quot;I could just tell [he was wasted] by the way he was acting.&quot; The Post also reports, &quot;Surveillance video from the store shows the victim&#x2019;s father walking inside before he begins to chat with two men. He does not appear to be frantic or in distress. After walking out of the store, the dad drunkenly ran past a marked police car before eventually circling back and alerting the cops to his daughter&#x2019;s attack &#x2014; 20 minutes after the alleged rape first began to unfold, sources said.&quot;</p>
+
+<p><a href="https://web.archive.org/web/20160613234553/http://nypost.com/2016/01/11/two-teens-busted-in-alleged-gang-rape-say-it-was-consensual/">According to the Post</a>, the victim &quot;only recently reconnected with&quot; her father &quot;after being adopted.&quot; And the Times reports that a &quot;picture emerged on Monday of the dark and difficult circumstances the woman had been living under.&quot; <a 12="" 2016="" href="" http:="" www.nytimes.com="" 01="" nyregion="" brooklyn-rape-case.html"="">From the Times</a>: </p><blockquote> Neighbors at an apartment complex near Osborn Playground said that her father had been an alcoholic for years.They said he did not supervise a young son who often played in the trash-strewn hallway outside the door of his apartment, leaving his older children to look after the boy. Clusters of empty 24-ounce cans of King Cobra malt liquor strewn in the hallway and stairwell had been left by him, they said.<p></p>
+
+<p>In his interview with WABC 7, the father, said he had to leave the playground, &quot;If I would have stood there and fought them (I would have died). Because they meant business. They weren&apos;t playing around.&quot;</p>
+
+<p>&#x201C;He&#x2019;s like that, a drunk, yes,&#x201D; said Bertha Payne, 44, who lives next door. She said he often knocked to beg for dollar bills and cigarettes.</p></blockquote>Denzel Murray, 14; Shaquell Cooper, 15; Ethan Phillip, 15; and Onandi Brown, 17, are all charged with rape, two counts of criminal sex act and sexual abuse. They are all <a href="https://web.archive.org/web/20160613234553/http://www.nbcnewyork.com/news/local/NYC-4-Suspects-Charged-In-Brooklyn-Gang-Rape-5th-Suspect-Sought-364952721.html">being charged as adults</a>.<p></p>
+
+<p>There has been some question about whether the NYPD <a href="https://web.archive.org/web/20160613234553/http://gothamist.com/2016/01/11/brooklyn_gang_rape.php">was too slow to tell the public</a> about the attack (the police say they &quot;preliminarily contacted community leaders&quot; on Friday and then issued details and surveillance video of the suspects to the media on Saturday night). <a href="https://web.archive.org/web/20160613234553/http://www.nydailynews.com/new-york/brooklyn/teens-charged-brooklyn-playground-rape-claim-consent-article-1.2492967">A spokesperson for Mayor Bill de Blasio said</a>, &quot;The Mayor was informed on Sunday of the tragic assault in Brooklyn. After further conversations with the NYPD, the Mayor now believes strongly that the local community should have been informed sooner and has instructed that the NYPD notify communities more quickly moving forward, whenever appropriate.&quot;</p>
+
+<p>The fifth suspect is still being sought. A source said that the <a href="https://web.archive.org/web/20160613234553/http://nypost.com/2016/01/11/two-teens-busted-in-alleged-gang-rape-say-it-was-consensual/">police have a &quot;good lead&quot;</a> on him.</p>					
+										
+									
+				

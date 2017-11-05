@@ -1,0 +1,19 @@
+---
+author: Ben Yakas
+date: Mar 3, 2011 1:37 pm
+title: State Upset About Schools With iPods, Sleeping, "Low-Level Thinking"
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="3311sleepingclass.jpg" src="https://web.archive.org/web/20140508010800im_/http://gothamist.com/attachments/byakas/3311sleepingclass.jpg" width="250" height="188" class="image-left"> </span>Three public high schools are so bad, an independent external review commissioned by the state Department of Education <a href="https://web.archive.org/web/20140508010800/http://www.nypost.com/p/news/local/where_kids_get_an_educa_shun_Zqck8duBQKfafK9cEdVMwI?CMP=OTC-rss&amp;FEEDNAME=">has recommended</a> that they be shut down. The review lambasted Jane Addams High School in the Bronx, August Martin High School in Queens and W.H. Maxwell High School in Brooklyn, three  &quot;persistently low-achieving&quot; schools who have been flagged previously by the city for bad performance. But what did the state see that could have caused such harsh recommendations?</p>
+
+<p><a href="https://web.archive.org/web/20140508010800/http://www.nypost.com/p/news/local/where_kids_get_an_educa_shun_Zqck8duBQKfafK9cEdVMwI?CMP=OTC-rss&amp;FEEDNAME=">According to the Post</a>, the state wrote about Jane Addams HS (which graduated only 48 percent of its students last year): &quot;After visiting 51 classes, the team determined that there was little evidence of learning taking place...Students were observed listening to headphones and communicating on mobile devices -- including telephone and text messages -- in hallways and in classrooms. <strong>Students were observed asleep in many classes</strong>.&quot; </p>
+
+<p>It said that for students at Maxwell HS, &quot;lateness appeared to be expected, and was accepted by the staff.&quot; And at August Martin HS, &quot;most classes were involved in copying notes, looking up definitions <strong>and other low-level thinking activities.</strong>&quot; One student testified to that: &quot;<strong>I could just go into class and sit there and still pass,&quot;</strong> said August Martin HS junior Jonathan Davis, 16.</p>
+
+<p>As depressing as that report is, it&apos;s comforting to know that there are some bright spots at other city public schools: a father of a first grader posted a <a href="https://web.archive.org/web/20140508010800/http://imgur.com/1cVcn?full">teacher&apos;s email to parents</a> on <a href="https://web.archive.org/web/20140508010800/http://www.reddit.com/r/reddit.com/comments/fw4rm/my_kid_is_a_firstgrader_in_a_nyc_public_school/">reddit</a>, which gives a positive report about one class who are certainly doing more than low-level thinking activities with their &quot;student-directed learning&quot;: </p>
+
+<blockquote>I should let you know that today was yet another productive and fascinating day in the life of the students (and teachers)...What was supposed to be a 40 minute exploration involving the construction of a clock face turned into a day long project. Students built their clocks and then went on to write detailed directions on how to construct homemade clock faces for the Kindergarten classes. Directions took the form of diagrams, descriptive paragraphs, How To Texts and Power Points (of course), and instruction manuals. Some students researched Roman Numerals and created variations on their clocks. Others learned about units of measurement and built compasses in an attempt to be as precise as possible!...I&apos;m afraid to admit I could have stayed at home...</blockquote>					
+										
+									
+				

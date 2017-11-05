@@ -1,0 +1,11 @@
+---
+author: Ben Yakas
+date: November 21, 2010  7:17 PM
+title: Flower-Carrying Home Invaders Thwarted By Teen
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="112110robbery.jpg" src="https://web.archive.org/web/20120122221311im_/http://gothamist.com/attachments/byakas/112110robbery.jpg" width="240" height="180" class="image-left"> </span></p>
+
+<p>Six men <a href="https://web.archive.org/web/20120122221311/http://www.nydailynews.com/news/ny_crime/2010/11/21/2010-11-21_li_teen_a_thorn_in_sides_of_flowertotin_homeinvaders.html">were arrested</a> after breaking into a house in Long Island during an attempted home invasion which was stopped by a quick-thinking 18-year-old. The suspects gained entry to the house by posing as flower delivery men: <strong>&quot;He&apos;s carrying flowers [and] he asks for someone, then begins to hand her the flowers and displays a silver handgun</strong>,&quot; said Lt. Kevin Smith of the Nassau County police. Next time someone says they&apos;re delivering roses, ask for ID!</p>
+
+<p>Four of the men <a href="https://web.archive.org/web/20120122221311/http://www.wpix.com/news/woodbury-home-invasion,0,1910994.story">stormed</a> the Woodbury home armed with two handguns and a Taser, and began tying up two women in the bedroom while pilfering the residence for more than $100,000 in jewelry and cash. Unbeknown to them, an 18-year-old had locked herself in the bathroom and called 911 when she heard the men come in. By the time they figured out she was there, and kicked down the bathroom door, it was too late. Police arrived within minutes and arrested three of the fleeing perps, Michael Mohammed, 23, of Brooklyn; Randolph Chase, 31, of Brooklyn, and Glen Campbell, 32, of Queens. Three more suspects, Goutam Persaud, 24, and Aadam Yusuf, 29, and Jose Fuertes, 27, were caught soon after. So we guess this proves that not every outlaw with <a href="https://web.archive.org/web/20120122221311/http://gothamist.com/2010/07/25/bouquet_bandit_says_flowers_show_he.php">a bouquet of flowers</a> is trying to be &quot;polite.&quot;</p>
