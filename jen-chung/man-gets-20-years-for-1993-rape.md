@@ -1,0 +1,11 @@
+---
+author: Jen Chung
+date: August 18, 2011  9:09 AM
+title: Man Gets 20 Years For 1993 Rape
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:215px; "> <img alt="2011_08_barriera.jpg" src="https://web.archive.org/web/20110820084115im_/http://gothamist.com/attachments/jen/2011_08_barriera.jpg" width="215" height="215"> <br> <i>Alberto Barriera</i></div> Yesterday, a convicted Virginia drug dealer was sentenced for 20 years for raping a 16-year-old girl on the Lower East Side in 1993. It <a href="https://web.archive.org/web/20110820084115/http://gothamist.com/2010/09/21/dna_leads_to_charge_for_17-year-old.php">took nine years for DNA evidence</a> at the crime scene to be analyzed and then last year, the DNA was entered into a national database&#x2014;bringing up Alberto Barriera.<p></p>
+
+<p>It turns out that Barriera had been committing various crimes in Virginia for years, but the <a href="https://web.archive.org/web/20110820084115/http://www.nydailynews.com/news/ny_crime/2011/08/18/2011-08-18_20_years_for_sicko_in_1993_sex_assault.html?r=ny_local&amp;utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+nydnrss%2Fny_local+%28NY+Local%29&amp;utm_content=Google+Reader">DNA collection laws are weak there</a>, so his DNA wasn&apos;t collected until he was convicted of felony drug possession.  When announcing that Barriera was charged with rape, burglary and robbery, Manhattan DA Cy Vance has called for DNA to be collected for all crimes, &quot;Since DNA evidence from the 1993 rape case had been analyzed in 2002, if the defendant&#x2019;s DNA had been eligible to be collected after his misdemeanor convictions and entered into the National DNA databank, justice for the victim could have been delivered eights years earlier.&quot;</p>
+
+<p>After sentencing Barriera, <a href="https://web.archive.org/web/20110820084115/http://www.nypost.com/p/news/local/manhattan/fiend_sent_to_prison_years_after_4geKhdqmVgaK0dn4VY7j9L">a judge said</a>, &quot;I&apos;m glad the complainant has some closure now.&quot;  </p>

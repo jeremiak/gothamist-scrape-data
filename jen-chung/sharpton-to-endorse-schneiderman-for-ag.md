@@ -1,0 +1,11 @@
+---
+author: Jen Chung
+date: Aug 25, 2010 3:37 pm
+title: Sharpton To Endorse Schneiderman For AG
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <a href="https://web.archive.org/web/20150101025634/http://gothamist.com/attachments/nyc_arts_john/061909sharpton.jpg"> <img alt="061909sharpton.jpg" src="https://web.archive.org/web/20150101025634im_/http://gothamist.com/assets_c/2009/06/061909sharpton-thumb-140x158-323431.jpg" width="110" height="124" class="image-right"> </a> </span>The <a href="https://web.archive.org/web/20150101025634/http://www.nydailynews.com/blogs/dailypolitics/2010/08/rev-al-sharpton-to-endorse-eri.html">Daily Politics&apos; Celeste Katz reports</a>, &quot;The Rev. Al Sharpton just confirmed to me that he is endorsing state Sen. Eric Schneiderman in the five-way Democratic primary for state attorney general. I&apos;m sure Team Schneiderman sees this as a real get as they continue to promote their campaign&apos;s supporters as the most racially and ethnically diverse group out there.&quot; There have been concerns about the <a href="https://web.archive.org/web/20150101025634/http://gothamist.com/2010/05/27/cuomo_calls_sharpton_to_discuss_all.php">Democratic party&apos;s all-white state ballot</a>, so much so that Democratic gubernatorial candidate Andrew Cuomo contacted Sharpton.  In recent days, Schneiderman has landed endorsements from the <a href="https://web.archive.org/web/20150101025634/http://gothamist.com/2010/08/21/ny_times_endorses_schneiderman_for.php">NY Times</a> and the good government group the <a href="https://web.archive.org/web/20150101025634/http://blog.timesunion.com/capitol/archives/30927/schneiderman-gets-citizens-union-endorsement/">Citizens Union</a> (rival Eric Dinallo received endorsements from the<a href="https://web.archive.org/web/20150101025634/http://gothamist.com/2010/08/22/daily_news_endorses_eric_dinallo_fo.php"> Daily News</a> and <a href="https://web.archive.org/web/20150101025634/http://capitaltonight.com/2010/08/crains-for-dinallo/">Crain&apos;s</a>). </p>					
+										
+									
+				

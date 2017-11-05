@@ -1,0 +1,17 @@
+---
+author: Jen Chung
+date: October 12, 2011  6:23 PM
+title: "Merchant Of Death" Jurors Can't Mention Trial On Facebook, Twitter
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="2011_10_bout.jpg" src="https://web.archive.org/web/20111018080443im_/http://gothamist.com/attachments/jen/2011_10_bout.jpg" width="640" height="425"> <br> <i>Viktor Bout with DEA agents last year (DEA)</i></div> <p></p>
+
+<p>Viktor Bout, the <a href="https://web.archive.org/web/20111018080443/http://gothamist.com/2010/11/17/merchant_of_death_and_his_mustache.php">Russian national whose arms dealing</a> allegedly brought him billions and the nickname &quot;Merchant of Death,&quot; is going on trial for terrorism charges in New York federal court.  And the judge overseeing the case is making jurors sign a pledge promising they will restrict their Internet and social media urges.</p>
+
+<p><a href="https://web.archive.org/web/20111018080443/http://abcnews.go.com/Blotter/merchant-death-viktor-bout-trial-york/story?id=14720692">According to ABC News</a>,  &quot;Judge Shira Scheindlin ordered jurors to sign a pledge not to research the case online or post information about their involvement as jurors on social media outlets like Facebook and Twitter.&quot; The (over)use of technology by jurors <a href="https://web.archive.org/web/20111018080443/http://www.nytimes.com/2009/03/18/us/18juries.html?pagewanted=all">has led to numerous mistrials</a>.  ABC News adds, &quot;Scheindlin questioned would-be jurors on Tuesday to make sure they could remain objective despite mentions of weapons including high-powered rifles, missile launchers and Stinger missiles. She also wanted jurors who would not be disturbed by allegations that Bout may have engaged in arms trafficking in Africa years ago that is not subject to U.S. law.&quot;</p>
+
+<p>Bout was extradited to the U.S. last year; U.S authorities <a href="https://web.archive.org/web/20111018080443/http://blogs.wsj.com/corruption-currents/2010/11/17/viktor-bout-pleads-not-guilty-to-terrorism-charges-hours-after-extradition/">caught him in a sting when they posed as members</a> of Columbia&apos;s radical FARC movement and Bout allegedly tried to sell them &quot;an arsenal that included more than 700 surface-to-air missiles, 5,000 AK47 assault rifles, anti-personnel land mines, C4 explosives and ultra-light planes that could be fitted out with grenade launchers.&quot;  </p>
+
+<p>His alleged notorious history inspired the 2005 Nicolas Cage movie, <a href="https://web.archive.org/web/20111018080443/http://www.lordofwarthemovie.com/">Lord of War</a> (which the New Yorker&apos;s David Denby called, &quot;A raffishly ironic and insinuating movie -- and probably the most sheerly enjoyable film of the year so far&quot;). Douglas Farah, a national security consultant who co-wrote a book about Bout, <a href="https://web.archive.org/web/20111018080443/http://www.cnn.com/2011/10/12/justice/new-york-viktor-bout-trial/">told CNN</a>, &quot;He unquestionably made some of the worst wars of the 20th century, early 21st century, much worse than they would have been.&quot;</p>
+
+<p>Besides having clients like Moammer Gadhafi and Charles Taylor, <a href="https://web.archive.org/web/20111018080443/http://gothamist.com/2011/03/04/merchant_of_death_upset_at_scarce_v.php">Bout is a vegetarian</a>.</p>

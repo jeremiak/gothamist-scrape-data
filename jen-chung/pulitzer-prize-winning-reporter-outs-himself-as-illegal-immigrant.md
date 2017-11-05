@@ -1,0 +1,25 @@
+---
+author: Jen Chung
+date: Jun 22, 2011 5:29 pm
+title: Pulitzer Prize-Winning Reporter Outs Himself As Illegal Immigrant
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="2011_06_varagas.jpg" src="https://web.archive.org/web/20171021165024im_/http://gothamist.com/attachments/jen/2011_06_varagas.jpg" width="640" height="366"> <br> <i> Jose Antonio Vargas on ABC News</i></div> <p></p>
+
+<p>This Sunday&apos;s NY Times Magazine has a <a href="https://web.archive.org/web/20171021165024/http://www.nytimes.com/2011/06/26/magazine/my-life-as-an-undocumented-immigrant.html?ref=magazine">long cover story by reporter Jose Antonio Vargas</a>, who reveals that he is an illegal immigrant from the Philippines.  Vargas, a writer who wrote <a href="https://web.archive.org/web/20171021165024/http://www.newyorker.com/reporting/2010/09/20/100920fa_fact_vargas">The New Yorker&apos;s profile</a> on Facebook founder Mark Zuckerberg and shared a Pulitzer Prize as part of the <a href="https://web.archive.org/web/20171021165024/http://www.washingtonpost.com/wp-srv/metro/vatechshootings/">Washington Post team covering</a> the Virginia Tech shootings, explains how he made the discovery when he was 16, &quot;I rode my bike to the nearby D.M.V. office to get my driver&#x2019;s permit. Some of my friends already had their licenses, so I figured it was time. But when I handed the clerk my green card as proof of U.S. residency, she flipped it around, examining it. &apos;This is fake,&apos; she whispered. &apos;Don&#x2019;t come back here again.&apos;&quot;</p>
+
+<p>Vargas&apos; mother had sent him to his grandparents in California when he was 12, and he watched TV (Frasier, Anne of Green Gables) so he could lose his accent.  After years of trying to get fake documents so he could pursue his dreams to be a journalist through internships at various newspapers (he was aided by school officials and some of his work supervisors found out, too), Vargas is coming forward now because he wants to draw attention to <a href="https://web.archive.org/web/20171021165024/http://gothamist.com/tags/dreamact">the DREAM Act</a>. The DREAM Act would grant citizenship to children who come to the U.S. illegally if they go to college or serve in the military, but the bill failed when the Senate was <a href="https://web.archive.org/web/20171021165024/http://gothamist.com/2010/12/18/senate_blocks_dream_act.php">unable to overcome a filibuster</a>.  </p>
+
+<p>Vargas <a href="https://web.archive.org/web/20171021165024/http://abcnews.go.com/Politics/immigration-journalist-jose-antonio-vargas-fights-dream-act/story?id=13899697">told ABC News</a>, &quot;You have to do what you have to do. I wanted to work. I wanted to prove that I was worthy of being here &#x2026; and I was gonna do whatever it took to prove that.&quot; He has started a website, <a href="https://web.archive.org/web/20171021165024/http://defineamerican.com/">Define American</a>, to campaign for the DREAM Act. There&apos;s also a video of Vargas explaining his story:</p>
+
+<p><iframe width="640" height="390" src="https://web.archive.org/web/20171021165024if_/http://www.youtube.com/embed/TJH1IKqF8PA" frameborder="0" allowfullscreen></iframe></p>
+
+<p>Vargas says, &quot;Are we seriously going to deport 11 million people? That&apos;s the estimated number of undocumented people in this country. We&apos;re not seriously going to do that. We have not had a really serious conversation about this issue... We are a part of this society. And I think everyone deserves dignity.&quot;  </p>
+
+<p>His former high school officials tell ABC News they would help him all over again; former Mountain View Los-Altos Union school district superintendent Rick Fisher said, &quot;If you worked with kids that you knew were undocumented and watched them just fade away as they began to approach adulthood, out of fear that they weren&apos;t gonna be-- that they&apos;d be found out &#x2026; The right thing to do is to try to help young people to meet their potential.&quot;</p>
+
+<p>And if you&apos;re wondering why Vargas didn&apos;t write this story for the Washington Post, the WaPo was originally working on it but decided to drop it, so <a href="https://web.archive.org/web/20171021165024/http://6thfloor.blogs.nytimes.com/2011/06/22/my-legal-editors-dream/">Vargas took it to the NY Times</a>. NY Times Magazine editor <a href="https://web.archive.org/web/20171021165024/http://www.huffingtonpost.com/2011/06/22/washington-post-jose-antonio-vargas-immigrant_n_882237.html">Hugo Lindgren said</a>, &quot;We knew it was from The Washington Post. We do not know why they didn&#x2019;t run it... We obviously think it is a provocative, well-written piece of journalism. So we were delighted to have it fall in our laps.&quot;</p>					
+										
+									
+				

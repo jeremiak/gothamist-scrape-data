@@ -1,0 +1,17 @@
+---
+author: Jen Chung
+date: Aug 1, 2010 3:28 pm
+title: Riverside Rape Suspect Eyed In Other UWS Incidents
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:200px; "> <img alt="2010_07_akassymug.jpg" src="https://web.archive.org/web/20150429083514im_/http://gothamist.com/attachments/jen/2010_07_akassymug.jpg" width="200" height="228"> <br> <i>Hugues-Denver Akassy&apos;s mugshot</i></div> The man <a href="https://web.archive.org/web/20150429083514/http://gothamist.com/2010/07/30/woman_raped_by_date_in_riverside_pa.php">suspected of raping a woman</a> in Riverside Park last week after their picnic date may have a history of questionable behavior with women.  The Manhattan DA&apos;s office is asking if anyone with information about suspect Hugues-Denver Akassy to <a href="https://web.archive.org/web/20150429083514/http://www.manhattanda.org/whatsnew/press/2010-07-30.shtml">contact the office</a> and the <a href="https://web.archive.org/web/20150429083514/http://www.nypost.com/p/news/local/manhattan/park_rapist_side_terror_da_bwSkIvLjUl27OZPf0f6yZP">Post reports</a>, &quot;Akassy allegedly struck three times since March 2009, tormenting his victims on the street, via e-mail, and even climbing a fire escape to one woman&#x2019;s apartment.&quot;  And a Post columnist who once went out with him also tells about her upsetting encounter with him.<p></p>
+
+<p>Akassy, who is, <a href="https://web.archive.org/web/20150429083514/http://www.orbitetv.org/hostbio.html">according to his website</a>, the host of the &quot;most watched French-English syndicated program&quot; in the world and is in jail right now, is accused of raping a Russian tourist he met last Sunday at the Time-Warner Center.  He allegedly chatted her up and then asked to meet her again, ultimately taking her to Riverside Park and allegedly assaulting her.  The <a href="https://web.archive.org/web/20150429083514/http://www.nypost.com/p/news/local/manhattan/park_rapist_side_terror_da_bwSkIvLjUl27OZPf0f6yZP">previous charges</a> against the 42-year-old stem from allegedly yelling at a woman on the Upper West Side who rebuffed his advances, allegedly emailing another Upper West Side woman (&#x201C;You are a pathetic retarded girl&quot;) and trespassing when he was found on the roof outside a woman&apos;s window on West 75th Street.  </p>
+
+<p>The woman said, &quot;I heard him outside. I stood at the window for a few minutes and then I saw his head pop up. I don&apos;t know what he was doing at that moment, but at 11:30 at night, a man on the roof of your building can&apos;t be up to anything good. I panicked.&quot;  In the criminal complaint, Akassy claimed he was homeless and that&apos;s why he was <a href="https://web.archive.org/web/20150429083514/http://www.nypost.com/p/news/local/delusions_of_sexual_grandeur_igxs1xSubptFkvOBwqaqCJ">sleeping on this cardboard &quot;bed.&quot;</a></p>
+
+<p><a href="https://web.archive.org/web/20150429083514/http://www.nypost.com/p/news/local/manhattan/date_with_the_rapist_ywrdGg4YUqQ6rcwiR08zVI">Post columnist Mandy Stadtmiller says</a> that when she met Akassy in 2007, the &quot;French-born TV reporter... hit on me as I shopped at the Fifth Avenue Apple store.&quot; During their first and only, they had wine at an Upper West Side bar&#x2014;&quot;Less than an hour into the date, he pressed himself into me and started kissing me intensely...</p>					
+										
+									
+				

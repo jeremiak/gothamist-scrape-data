@@ -1,0 +1,12 @@
+---
+author: Jen Chung
+date: July  4, 2011  5:15 PM
+title: Charges Unlikely For Postal Truck Driver Who Killed Cyclist Marilyn Dershowitz
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:365px; "> <img alt="2011_07_mdersh.jpg" src="https://web.archive.org/web/20120605182959im_/http://gothamist.com/attachments/jen/2011_07_mdersh.jpg" width="365" height="272"> <br> <i>Marilyn Dershowitz</i></div> While the incident is still under investigation, it&apos;s doubtful that the U.S. Postal Service employee driving the truck that <a href="https://web.archive.org/web/20120605182959/http://gothamist.com/2011/07/03/marilyn_dershowitz_killed_by_7-ton.php">fatally struck cyclist Marilyn Dershowitz</a> will face charges.  The <a href="https://web.archive.org/web/20120605182959/http://www.nypost.com/p/news/local/manhattan/no_charges_likely_in_deadly_postal_eDIuvmsRofCIiTzr8VLlMK?CMP=OTC-rss&amp;FEEDNAME=">NYPD&apos;s sources tell the Post</a> &quot;they did not anticipate charges being brought against driver Ian Clement.&quot;  <p></p>
+
+<p>Dershowitz, a lawyer and a retired court-appointed referee,  and her husband, Nathan Dershowitz, brother of famous lawyer Alan Dershowitz, were biking to the West Side bike path on West 29th Street near Ninth Avenue when the 7-ton truck hit her&#x2014;and the truck kept going.  Nathan Dershowitz, who had been biking ahead of his wife, was outraged, telling the Post, &quot;You cannot crash into a person on a bike and keep going.&quot;  He also spoke to the Daily News, &quot;If they did the work and spoke to the people I spoke to, it is inconceivable from what they told me that he did not see her... What I was told (at the scene) was that two vehicles, neither one was willing to yield to another, so they both went through too narrow of a space to get through She was ahead of both vehicles. The driver just ran her over.&quot;</p>
+
+<p>However, <a href="https://web.archive.org/web/20120605182959/http://www.dnainfo.com/20110704/chelsea-hells-kitchen/marilyn-dershowitz-funeral-scheduled-for-tuesday">DNAinfo reports</a> that police say she was biking <strike>against</strike> with traffic (the NYPD updated its information to say that she was in fact biking with traffic). <br>
+  </p>

@@ -1,0 +1,19 @@
+---
+author: Jen Chung
+date: Aug 21, 2011 3:26 pm
+title: Murdered Woman's Husband Introduced Her To His Mistress
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:300px; "> <img alt="2011_08_nooranikids.jpg" src="https://web.archive.org/web/20141018021759im_/http://gothamist.com/attachments/jen/2011_08_nooranikids.jpg" width="300" height="300"> <br> <i>Nazish Noorani and sons Shayaan (left) and Riyaan</i></div> The story of the Pakistani woman<a href="https://web.archive.org/web/20141018021759/http://gothamist.com/2011/08/20/brooklyn_man_mistress_plotted_wifes.php"> allegedly killed by her husband and his mistress</a> gets more depressing with news that the victim&apos;s family and her husband&apos;s family are fighting over custody of their young children.  Nazish Noorani&apos;s grieving sister, Lubna Choudhry, <a href="https://web.archive.org/web/20141018021759/http://www.nydailynews.com/news/ny_crime/2011/08/21/2011-08-21_ugly_fight_for_kids_families_of_murdered_mom_busted_dad_both_want_boys.html">told reporters</a>, &quot;I should raise them because of [their] father killing my sister.&quot; But <a href="https://web.archive.org/web/20141018021759/http://www.nypost.com/p/news/local/boys_pawns_in_bitter_family_feud_hKSCUrtakLD5eI9DSdjNAO">murder suspect Kashif Parvaiz&apos;s sister said</a> of Noorani&apos;s family, &quot;They are all taking welfare. How will they take care of these kids? My father owns buildings and has income, and we will take care of them.&quot;<p></p>
+
+<p>Noorani was fatally gunned down last Tuesday in Boonton, NJ while she, Parvaiz and their three-year-old son Shayaan were walking from her sister&apos;s home to her parents&apos; home.  Parvaiz was hit multiple times, while Shayaan was unharmed (though reportedly &quot;splattered in blood&quot;); five-year-old Riyaan was at Noorani&apos;s parents&apos; home.  Prosecutors say that Parvaiz had initially told police a group of men called them &quot;terrorists&quot; and used racial epithets but eventually admitted he plotted to kill his wife with another woman.  Parvaiz was allegedly upset at Noorani for speaking negatively about his family.  </p>
+
+<p>Parvaiz&apos;s family has been watching the two boys.  His mother took issue with Choudhry starting a website to raise money for the children, &quot;She set up the Web site to support her own children,&quot; and sister Zarren Hassan said to the Daily News, &quot;We&apos;re taking care of them because we love them. They&apos;ve always been attached to my mother.&quot;  And Riyaan said, &quot;I want to stay here.&quot;</p>
+
+<p>In news related to her sister&apos;s death and the apparent murder plot hatched by Parvaiz and mistress Antoinette Stephen, Choudry says that Parvaiz had been introducing Stephen as his &quot;fiancee.&quot;  When Noorani confronted him, <a href="https://web.archive.org/web/20141018021759/http://www.nj.com/news/index.ssf/2011/08/man_accused_in_fatal_boonton_s.html">the Star-Ledger reports</a>, &quot;Kashif Parvaiz had a ready excuse, the [Noorani&apos;s] said: He told his wife he was just pretending Stephen was his fianc&#xE9;e to get a family discount at Best Buy, where the 26-year-old woman worked.&quot;  </p>
+
+<p>Parvaiz claimed to have attended NYU, and Noorani&apos;s family <a href="https://web.archive.org/web/20141018021759/http://gothamist.com/2011/08/20/brooklyn_man_mistress_plotted_wifes.php#photo-7">shared the photograph the ID he showed them</a> (it was fake).  Parvaiz also said he went to Columbia for graduate school and was attending another graduate program at Harvard. Neither school has records of him, but Parvaiz&apos;s sister said they are sure he was at Harvard.</p>					
+										
+									
+				

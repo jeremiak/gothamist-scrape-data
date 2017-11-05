@@ -1,0 +1,19 @@
+---
+author: Jen Chung
+date: Jul 22, 2011 6:37 pm
+title: Justice Dept. Could Issue Subpoenas In News Corp. Probe
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="2011_07_rupermu.jpg" src="https://web.archive.org/web/20150406144227im_/http://gothamist.com/attachments/jen/2011_07_rupermu.jpg" width="640" height="465"> <br> <i>Rupert Murdoch is back in NYC today! (AP)</i></div> <p></p>
+
+<p>Last week, the U.S. Department of Justice said it <a href="https://web.archive.org/web/20150406144227/http://gothamist.com/2011/07/16/attorney_general_holder_looking_int.php">would look into allegations</a> about News Corp.&apos;s business practices, in light of the <a href="https://web.archive.org/web/20150406144227/http://gothamist.com/2011/07/15/dow_jones_ceo_resigns_murdoch_apolo.php">disgusting phone-hacking scandal</a> that a News Corp. tabloid was involved in (complete with payoffs to Scotland Yard).  Now the News Corp.-owned <a href="https://web.archive.org/web/20150406144227/http://online.wsj.com/article/SB10001424053111903461104576460393481721896.html#project%3DHACKINGWEB1107%26articleTabs%3Darticle">Wall Street Journal says</a> the Justice Department is preparing subpoenas! </p>
+
+<p>According to the WSJ, &quot;The issuance of such subpoenas, which would broadly seek relevant information from the company, requires approval by senior Justice Department leadership, which hasn&apos;t yet happened, the person said. The issuance of subpoenas would represent an escalation of scrutiny on the New York-based media company.&quot;</p>
+
+<p>Of course, this coincides nicely with News Corp.&apos;s <a href="https://web.archive.org/web/20150406144227/http://gothamist.com/2011/07/21/the_day_in_news_corp_lawyering_up_c.php">hiring of U.S. criminal lawyers</a>.  As the <a href="https://web.archive.org/web/20150406144227/http://www.nydailynews.com/news/world/2011/07/21/2011-07-21_murdoch_hiring_big_legal_guns_may_fear_scandal_spreading_to_us.html">Daily News explained</a>, &quot;The FBI is looking into whether any News Corp. employees hacked phones in the United States, and whether the bribes the midtown-based company has admitted were paid to cops in Britain violate the corrupt practices act. The 1977 law cracks down on U.S. companies using bribery abroad.&quot; Still, News Corp. itself says, &quot;We have not seen any evidence to suggest there was any hacking of 9/11 victim&apos;s phones, nor has anybody corroborated what are clearly very serious allegations. The story arose when an unidentified person speculated to the Daily Mirror about whether it happened. That paper printed the anonymous speculation, which has since mushroomed in the broader media with no substantiation.&quot;</p>
+
+<p>This news comes at the end of a week that saw News Corp. CEO Rupert Murdoch and his son James, the News Corp. deputy COO and head of the British newspaper division of the company, News International, <a href="https://web.archive.org/web/20150406144227/http://gothamist.com/2011/07/19/rupert_murdoch_this_is_the_most_hum.php">testify in front of a Parliamentary committee</a>.  While James Murdoch testified he had no idea that hacking was widespread at the News of the World, two News International executives said that they <a href="https://web.archive.org/web/20150406144227/http://www.nytimes.com/2011/07/23/world/europe/23murdoch.html?hp">told him in 2008 that, yes, hacking was widespread</a> and <a href="https://web.archive.org/web/20150406144227/http://www.guardian.co.uk/media/2011/jul/22/for-neville-email-empire">even brought up an email that said as much</a>.</p>					
+										
+									
+				

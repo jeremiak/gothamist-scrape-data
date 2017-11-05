@@ -1,0 +1,17 @@
+---
+author: Jen Chung
+date: Nov 1, 2010 5:19 pm
+title: Jews Worried About Their Mail After Mail Bomb Plot
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:270px; "> <img alt="2010_10_upsmail.jpg" src="https://web.archive.org/web/20150404225548im_/http://gothamist.com/attachments/jen/2010_10_upsmail.jpg" width="270" height="189"> <br> <i>Packages awaiting shipment from Cologne, Germany (AP)</i></div> After last week&apos;s<a href="https://web.archive.org/web/20150404225548/http://gothamist.com/2010/10/30/explosives_bound_for_us_bear_hallma.php"> apparent terror plot</a> involving explosives-filled packages being shipped via UPS and FedEx to Chicago synagogues (officials believe the explosives were <a href="https://web.archive.org/web/20150404225548/http://gothamist.com/2010/11/01/yemeni_mail_bomb_suspect_blew_up_hi.php">meant to detonate mid-air</a>), Jews in New York City are worried all over again.  State Assemblyman Dov Hikind <a href="https://web.archive.org/web/20150404225548/http://newyork.cbslocal.com/2010/11/01/local-jews-feel-terrorized-after-latest-terror-plot/">told WCBS 2</a>, &quot;When something like this happens, it&#x2019;s an awakening call to all of us saying the threat of radical Islam is not over, and will not be over, and we&#x2019;ve got to be on alert all the time.&quot;<p></p>
+
+<p>He added, &quot;I told my staff, my wife is the head of a Jewish organization, I told her on Friday, I said &#x2018;Don&#x2019;t open anything. Be extra careful, because that&#x2019;s the reality of life. <strong>That&#x2019;s the world we&#x2019;re living in, we&#x2019;re living in a world where there are enemies of America that want to kill us</strong>.&quot;  While it&apos;s been reported that fancy condo, 15 Central Park West, whose residents include Goldman Sachs chair Lloyd Blankfein and Yankees slugger Alex Rodriguez, <a href="https://web.archive.org/web/20150404225548/http://www.nypost.com/p/news/local/manhattan/threat_makes_rod_take_walk_dC6bOkvn1JqkfnF9OEFjhM">has halted deliveries</a>, a UPS deliveryman told 1010 WINS he wasn&apos;t having issues delivering there. </p>
+
+<p>Security was <a href="https://web.archive.org/web/20150404225548/http://www.nypost.com/p/news/local/airports_synagogues_on_alert_nTaG1hlfJRu8OARxM6PpcO">heightened around local synagogues</a> over the weekend  A worshipper at Chabad Lubavitch in Crown Heights, <a href="https://web.archive.org/web/20150404225548/http://www.vosizneias.com/67304/2010/10/31/new-york-ny-jewish-community-on-alert-nypd-keeps-closer-eye">Brooklyn told Vos Iz Neias</a>, &quot;It&#x2019;s always related to a Jewish organization... The threat is alive and well. I&#x2019;m not gonna say I&#x2019;m used to it, but anything can happen anytime, anywhere. We hope and pray that law enforcement takes it seriously. It&#x2019;s a different world now,&quot; while an Upper East Side congregant of the Fifth Avenue Synagogue said, &quot;It&#x2019;s a sad state of affairs not just for synagogues, but for the world today. Everybody has to be on heightened alert as Americans.&quot; </p>
+
+<p>NYPD spokesman Paul Browne said, &quot;Our counterterrorism coverage will continue to include coverage of synagogues, at least for the next few days. Although I want to emphasize that there&#x2019;s nothing to suggest New York is being targeted in this instance.&quot;</p>					
+										
+									
+				

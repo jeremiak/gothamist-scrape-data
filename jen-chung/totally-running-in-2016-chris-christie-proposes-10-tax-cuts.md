@@ -1,0 +1,13 @@
+---
+author: Jen Chung
+date: January 17, 2012  6:32 PM
+title: Totally Running In 2016: Chris Christie Proposes 10% Tax Cuts
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="123111christie.jpg" src="https://web.archive.org/web/20120131160252im_/http://gothamist.com/attachments/byakas/123111christie.jpg" width="640" height="465"> <br> <i>Romney would love some of that Christie appeal (AP) </i></div> <p></p>
+
+<p>NJ Governor Chris Christie discussed the &quot;<a href="https://web.archive.org/web/20120131160252/http://gothamist.com/2012/01/17/video_chris_christies_trailer_for_n.php">New Jersey Comeback</a>&quot; during his State of the State today and seemingly laid the cornerstone to his <a href="https://web.archive.org/web/20120131160252/http://www.nj.com/news/index.ssf/2012/01/gov_christie_tells_oprah_hell.html">2016 campaign</a>: He announced that he wanted <a href="https://web.archive.org/web/20120131160252/http://newyork.cbslocal.com/2012/01/17/gov-christie-proposes-10-percent-cut-for-all-income-tax-brackets/">10 percent tax reductions</a> for all Garden State residents.</p>
+
+<p>He said, &#x201C;In my budget, I will fulfill a promise I made to all the people of New Jersey in 2009. Real relief from the heavy income tax burden that has strangled our families and forced many to move away. I propose to reduce income tax rates for each and every New Jerseyan. In every tax bracket. By 10% across the board... This will send a loud signal to New Jerseyans and would-be New Jerseyans, to families here now and families who have left, to businesses and job creators thinking of coming here and those who have struggled to stay:  New Jersey is once again a place to plan your future, raise your family, grow your business and someday retire.  The New Jersey comeback has begun.&quot; In other words, move to New Jersey or he&apos;ll come after you.</p>
+
+<p>The cuts would begin next year and go into effect over three years. <a href="https://web.archive.org/web/20120131160252/http://www.nj.com/news/index.ssf/2012/01/in_2012_state_of_the_state_add.html">Christie also took the time to reference</a> our <a href="https://web.archive.org/web/20120131160252/http://gothamist.com/2012/01/13/christ_christie_and_oprah.php">&quot;dangerous&quot; president</a>, &quot;We have begun this turnaround in the face of strong national headwinds. Across our country, growth is still anemic. There has been no national solution to our debt and deficit problem, no catalyst for growth, no leadership on the economy.&#x201D;  </p>

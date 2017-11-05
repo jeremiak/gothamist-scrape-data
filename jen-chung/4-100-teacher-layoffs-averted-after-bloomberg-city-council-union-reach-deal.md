@@ -1,0 +1,13 @@
+---
+author: Jen Chung
+date: June 25, 2011 10:25 AM
+title: 4,100 Teacher Layoffs Averted After Bloomberg, City Council, Union Reach Deal
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="2011_06_bloomteach.jpg" src="https://web.archive.org/web/20120102221032im_/http://gothamist.com/attachments/jen/2011_06_bloomteach.jpg" width="640" height="433"> <br> <i>Mayor Bloomberg last night, with City Council Speaker Christine Quinn, UFT president Michael Mulgrew and Schools Chancellor Dennis Walcott (NYC Mayor&apos;s Office)</i></div> <p></p>
+
+<p>The Bloomberg administration had been warning that <a href="https://web.archive.org/web/20120102221032/http://gothamist.com/2011/05/07/bloombergs_budget_includes_5400_lay.php">4,100 teachers would be laid off</a> due to <a href="https://web.archive.org/web/20120102221032/http://gothamist.com/2011/02/18/bloombergs_656_billion_budget_teach.php#photo-1">budget constraints</a> but last night, Mayor Bloomberg, City Council Speaker Christine Quinn and the United Federation of Teachers reached a deal to take the layoffs off the table.  The <a href="https://web.archive.org/web/20120102221032/http://www.nytimes.com/2011/06/25/nyregion/deal-reached-to-avert-new-york-teacher-layoffs.html?_r=1&amp;partner=rss&amp;emc=rss">NY Times reports</a>, &quot;Details were still being worked out, but the agreement calls for concessions from the United Federation of Teachers and money from the Council.&quot;</p>
+
+<p>What are these concessions? <a href="https://web.archive.org/web/20120102221032/http://www.nydailynews.com/news/2011/06/25/2011-06-25_teachers_jobs_saved_bloomy__union_reach_deal_that_avoids_4100_layoffs.html">According to the Daily News</a>, the UFT &quot;agreed to suspend study sabbaticals for a year to save his members&apos; jobs. The deal also allows the city to use teachers who lack a permanent job as day-to-day substitutes. Those teachers, who the city is required to keep on the payroll, would be forced to take all daily assignments in their local districts, saving the city tens of millions of dollars in substitute teacher expenses.&quot;</p>
+
+<p> The Times adds, &quot;Bloomberg administration would concede that 2,600 teachers would be lost to attrition, 600 more than estimated, saving additional jobs. On one hand, the resolution spares Mr. Bloomberg from becoming the first mayor in nearly 40 years to impose mass teacher layoffs. On the other hand, though, it threatens to undermine his credibility, given that he has declared for two consecutive years that layoffs were inevitable, only to see them averted in a budget deal.&quot; </p>

@@ -1,0 +1,13 @@
+---
+author: Jen Chung
+date: December 27, 2011  2:57 PM
+title: Director Abel Ferrarra Might Make DSK Movie Starring Gerard Depardieu
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="2011_11_baddsk.jpg" src="https://web.archive.org/web/20120104095848im_/http://gothamist.com/attachments/jen/2011_11_baddsk.jpg" width="640" height="368"> <br> <i>Back-up for Depardieu: Harvey Keitel</i></div> <p></p>
+
+<p>This has the potential to be the greatest movie of all time:  <a href="https://web.archive.org/web/20120104095848/http://www.deadline.com/2011/12/abel-ferrara-working-on-dsk-inspired-project-depardieu-adjani-to-star/">Deadline reports</a> that writer-director Abel Ferrara has be working on a script &quot;partly inspired by this summer&#x2019;s sex scandal surrounding former International Monetary Fund chief Dominique Strauss-Kahn.&quot; Also: &quot;G&#xE9;rard Depardieu and Isabelle Adjani have been rumored circling characters based on the scandal-plagued former IMF chief and his wife Anne Sinclair and have met with the director.&quot;</p>
+
+<p><a href="https://web.archive.org/web/20120104095848/http://en.wikipedia.org/wiki/Abel_Ferrara">Ferrara</a> is the famously provocative auteur behind <em>Bad Lieutenant, King of New York</em> and <em>Go-Go Tales</em> who also directed the porno <em>9 Lives of a Wet Pussy</em> early in his career.  Producer Vincent Maraval told Deadline that the project is a long way from definitely happening but &quot;One thing we do know is that there&#x2019;s a real common desire amongst Depardieu, Adjani and Ferrara to work together. But like every day in this business, we have to see if there&#x2019;s a film there. Today, the only reality is that they are writing something inspired by Strauss-Kahn that will focus on addiction and politicians. It&#x2019;s more that than the Strauss-Kahn scandal itself.&quot;  We hope Harvey Keitel&apos;s Bad Lieutenant can make a cameo&#x2014;that guy likes his justice with some crack.</p>
+
+<p>Depardieu is no stranger to bad behavior: Earlier this year, he <a href="https://web.archive.org/web/20120104095848/http://gothamist.com/2011/08/17/drunk_gerard_depardieu_pees_all_ove.php">peed all over a plane</a> (he later <a href="https://web.archive.org/web/20120104095848/http://gothamist.com/2011/08/19/gerard_depardieus_medical_excuse_fo.php">blamed his prostate</a>).</p>

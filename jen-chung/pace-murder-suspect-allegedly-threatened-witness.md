@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: October 21, 2010 11:03 AM
+title: Pace Murder Suspect Allegedly Threatened Witness
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2010_10_rrizzo.jpg" src="https://web.archive.org/web/20130520172417im_/http://gothamist.com/attachments/jen/2010_10_rrizzo.jpg" width="107" height="108" class="image-right"> </span>Manhattan prosecutors say that one of the men <a href="https://web.archive.org/web/20130520172417/http://gothamist.com/2010/10/20/suspects_arrested_in_downtown_killi.php">suspected of killing</a> a Pace University student also beat a witness. Max Moreno, an apparent drug dealer, <a href="https://web.archive.org/web/20130520172417/http://gothamist.com/2010/09/30/drug_deal_gone_bad_suspected_in_pac.php">was fatally shot</a> after refusing to hand over money; at Raymond Rizzo&apos;s arraignment, prosecutor Cynthia Sittnick said Rizzo (pictured) beat a witness trying to escape, saying, &quot;he was going to die.&quot; She also said suspect Randy Colon, who was arrested in Pennsylvania, was the one who pulled the trigger.  Rizzo faces charges including murder, assault and burglary; <a href="https://web.archive.org/web/20130520172417/http://www.dnainfo.com/20101020/downtown/witness-pace-students-murder-was-beaten-says-da">his lawyer said</a>, &quot;<strong>If he was there, for argument&#x2019;s sake, to buy weed, and he had no knowledge of what was about to go down, he&#x2019;s not on the hook.</strong>&quot;</p>

@@ -1,0 +1,15 @@
+---
+author: Jen Chung
+date: Jul 29, 2010 3:45 pm
+title: No Deal: House Unveils Ethics Charges, Rangel Will Be On Trial
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="2010_07_rangeltrial.jpg" src="https://web.archive.org/web/20150501163055im_/http://gothamist.com/attachments/jen/2010_07_rangeltrial.jpg" width="640" height="426"> <br> <i>Photograph of Rangel earlier this morning by Alex Brandon/AP</i></div> <p></p>
+
+<p>Since the <a href="https://web.archive.org/web/20150501163055/http://gothamist.com/2010/07/29/will_rangel_make_a_deal_over_ethics.php">settlement talks</a> between the House Ethics Committee and Rep. Charles Rangel (D-Harlem) have either fizzled out or are too preliminary to be binding, the House rolled out the ethics charges against the long-serving Congressman.  <a href="https://web.archive.org/web/20150501163055/http://www.politico.com/news/stories/0710/40416.html">Politico reports</a>, &quot;The headliner allegations are that he <a href="https://web.archive.org/web/20150501163055/http://gothamist.com/2008/11/26/gop_wants_ethics_investigation_into.php">improperly solicited money</a> from corporate officials and lobbyists for the Charles B. Rangel Public Policy Center in New York, that he failed to <a href="https://web.archive.org/web/20150501163055/http://gothamist.com/2008/11/23/yet_more_taxreal_estate_issues_for.php">disclose hundreds of dollars of income and assets</a> on financial disclosure forms, that he maintained <a href="https://web.archive.org/web/20150501163055/http://gothamist.com/2008/07/11/congressman_charles_rangel_and_his.php">multiple rent-stabilized apartments</a> in violation of New York City rules and failed to <a href="https://web.archive.org/web/20150501163055/http://gothamist.com/2008/09/05/rangels_75000.php">pay income taxes</a> on a Dominican island resort home.&quot;  </p>
+
+<p><a href="https://web.archive.org/web/20150501163055/http://www.washingtonpost.com/wp-dyn/content/article/2010/07/29/AR2010072904083.html?hpid=topnews">According to the Washington Post</a>, the settlement talks failed. Plus Rep. Michael McCaul (R-Texas) said before announcing the charge, &quot;Mr. Rangel... was given opportunities to negotiate a settlement under the investigation phase. We are now in the trial phase.&quot; But the <a href="https://web.archive.org/web/20150501163055/http://online.wsj.com/article/SB10001424052748703578104575397303987006546.html?mod=WSJ_hps_LEADNewsCollection">Wall Street Journal says</a>, &quot;The settlement proposal is preliminary and could still be rejected by the 10-member ethics committee, which must approve or reject the agreement by a majority vote. That vote could take place Thursday afternoon.&quot;</p>					
+										
+									
+				

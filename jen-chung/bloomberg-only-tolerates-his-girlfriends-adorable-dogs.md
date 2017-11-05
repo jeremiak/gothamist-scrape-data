@@ -1,0 +1,15 @@
+---
+author: Jen Chung
+date: October 14, 2011  3:54 PM
+title: Bloomberg Only Tolerates His (Girlfriend's) Adorable Dogs
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="2011_10_bloomdog.jpg" src="https://web.archive.org/web/20111018080101im_/http://gothamist.com/attachments/jen/2011_10_bloomdog.jpg" width="640" height="440"> <br> <i>Via <a href="https://web.archive.org/web/20111018080101/http://dogboynyc.com/testimonials/">Dogboy</a>, Bonnie and Clyde&apos;s trainer</i></div> <p></p>
+
+<p>Fresh off of informing us <a href="https://web.archive.org/web/20111018080101/http://gothamist.com/2011/10/13/reviewing_a_toilet_for_the_1.php">about a $6,000 toilet</a>, the NY Times delves into an uncomfortable element of Mayor Bloomberg&apos;s life.  No, it&apos;s not another look at how he hates telling people where he is on the weekend.  This time, it&apos;s about the <a href="https://web.archive.org/web/20111018080101/http://www.nytimes.com/2011/10/14/nyregion/girlfriends-dogs-are-not-bloombergs-best-friends.html?_r=1&amp;ref=nyregion">two really cute yellow Labradors named Bonnie &amp; Clyde that his girlfriend, Diana Taylor, gave him</a> for Christmas: &quot;The dogs could stay, he told her. But she would be looking after them.&quot;  Maybe she forgot that he was Jewish and therefore didn&apos;t need a Christmas gift?</p>
+
+<p>The Times reports, &quot;The mayor has tolerated them &#x2014; in his kitchen, at his campaign functions, even at the wedding of two aides in July, at which Mr. Bloomberg officiated. He has been known to correct those who ask about his dogs. &apos;Diana&#x2019;s dogs,&apos; he says,&quot; and notes, &quot;But in a country whose 16 most recent presidents have had dogs, according to the Presidential Pet Museum in Williamsburg, Va., Mr. Bloomberg stands apart as one of the few public figures who have declined the opportunity, quite literally given to him, to use the animals to burnish his Everyman credentials.&quot;  </p>
+
+<p>In other words, Bloomberg&apos;s <a href="https://web.archive.org/web/20111018080101/http://gothamist.com/2010/12/09/so_2012_bloombergs_national_ideas_d.php">2012 campaign</a> is SCREWED unless he embraces the dogs&#x2014;let&apos;s have some photo ops with Bloomberg getting doggie kisses! However, Mayoral spokesman Stu Loeser told the Times, &quot;Ms. Taylor&#x2019;s dogs have nothing to do with the mayor&#x2019;s public life.&quot; </p>
+
+<p>Two years ago, the Daily News <a href="https://web.archive.org/web/20111018080101/http://articles.nydailynews.com/2009-06-23/local/17925575_1_senioritis-bonnie-and-clyde-mayor-bloomberg">interviewed Bonnie and Clyde&apos;s dogwalker, neighbor Eloise Cucui</a>: &quot;I&apos;ll take them to Central Park and let them play around on the Great Lawn... They can even give people high-fives. They&apos;re so much fun... Bonnie, she&apos;s really outgoing, she&apos;s the leader. Clyde is the mellow one, he&apos;s the big, goofy dog. He&apos;s a lap dog.&quot;</p>

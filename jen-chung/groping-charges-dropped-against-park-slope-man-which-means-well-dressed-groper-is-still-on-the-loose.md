@@ -1,0 +1,17 @@
+---
+author: Jen Chung
+date: May  7, 2012  2:35 PM
+title: Groping Charges Dropped Against Park Slope Man, Which Means "Well-Dressed" Groper Is Still On The Loose
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2012_04_karlvan.jpg" src="https://web.archive.org/web/20130506052428im_/http://gothamist.com/attachments/jen/2012_04_karlvan.jpg" width="640" height="410"> <br> <i> Karl Vanderwoude spoke to NBC New York </i></div> <p></p>
+
+<p>Following <a href="https://web.archive.org/web/20130506052428/http://gothamist.com/2012/05/06/charges_to_be_dropped_against_well-.php">yesterday&apos;s reports</a> that a Park Slope resident would be cleared, a judge has <a href="https://web.archive.org/web/20130506052428/http://www.nypost.com/p/news/local/manhattan/judge_dismisses_charges_against_71DE4jxHJIOnQQc6yYMhOI">officially cleared Karl  Vanderwoude</a> of forcible touching, unlawful surveillance and sexual abuse charges.  He told reporters, &quot;I&#x2019;m really glad this has come to an end. It&#x2019;s been hard.&quot;</p>
+
+<p>Police had asked the public for help in identifying a man who was <a href="https://web.archive.org/web/20130506052428/http://gothamist.com/2012/04/10/video_photos_well-dressed_groper_on.php">groping women in various Manhattan locations</a>.  Apparently a tipster contacted the police with Vanderwoude&apos;s information (&quot;his name, address, cell phone, place of employment and the name of the person with whom he was living&quot;), leading <a href="https://web.archive.org/web/20130506052428/http://gothamist.com/2012/04/13/cops_questioning_well-dressed_grope.php">cops to arrest him</a>.</p>
+
+<p>Vanderwoude, who <a href="https://web.archive.org/web/20130506052428/http://gothamist.com/2012/04/14/well-dressed_groper_suspect_hosted.php#photo-1">holds bible study classes in his home</a>, had emphasized that he had nothing to do with the crime, <a href="https://web.archive.org/web/20130506052428/http://www.nbcnewyork.com/news/local/Well-Dressed-Groper-Charges-to-be-Dropped-Karl-Vanderwoude-Wrong-Arrest-Lawyer-Says-District-Attorney-Manhattan-150342315.html">telling the media</a>, &quot;My integrity, my character, has been tarnished by this,&quot; and said security video at his office would clear him.  Vanderwoude&apos;s lawyer also pointed out that he was having dinner with a friend at Otto during one of the alleged attacks.</p>
+
+<p>The 26-year-old <a href="https://web.archive.org/web/20130506052428/http://www.nydailynews.com/new-york/tape-receipts-clear-park-slope-man-accused-preppy-groper-grabbed-women-chic-neighborhoods-article-1.1073808">said of the Manhattan DA&apos;s office</a>, &quot;They were acting on the information that they had. They were just doing their jobs.&quot; In an earlier interview with NBC New York, Vanderwoude added,  &quot;I knew this wasn&apos;t me, and I would be able to prove it, but at the time, it seemed like it spiraled out of control. I know that it will come out that it&apos;s not me, but it is hard to see that and know it&apos;s all over the Internet -- it&apos;s national.&quot;</p>
+
+<p>Of course, this means the groper is still out there&#x2014;here&apos;s <a href="https://web.archive.org/web/20130506052428/http://gothamist.com/2012/04/10/video_photos_well-dressed_groper_on.php">information on where the attacks took place and video and photos of the suspect</a>.</p>

@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: July 27, 2010  2:10 PM
+title: Military Contractor On Trial, Love Of Patriotic Bling Revealed
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2010_07_amfald.jpg" src="https://web.archive.org/web/20110623144209im_/http://gothamist.com/attachments/jen/2010_07_amfald.jpg" width="130" height="92" class="image-right"> </span>At the trial of DHB military contractor David Brooks, who is accused of <a href="https://web.archive.org/web/20110623144209/http://blogs.abcnews.com/theblotter/2007/10/feds-arrest-bod.html">fraud and insider trading</a>, his former CFO Dawn Schlegel has been testifying for 23 days. The <a href="https://web.archive.org/web/20110623144209/http://www.nytimes.com/2010/07/27/nyregion/27fraud.html?ref=us">NY Times reports</a> from the trial, being held at a district court on Long Island,  &quot;DHB, which specialized in making body armor used by the military in Iraq and Afghanistan, paid for more than $6 million in personal expenses on behalf of Mr. Brooks, covering items as expensive as luxury cars and as prosaic as party invitations, Ms. Schlegel testified. <strong>Also included were university textbooks for his daughter, pornographic videos for his son, plastic surgery for his wife, a burial plot for his mother, prostitutes for his employees, and, for him, a $100,000 American-flag belt buckle encrusted with rubies, sapphires and diamonds.</strong>&quot; </p>

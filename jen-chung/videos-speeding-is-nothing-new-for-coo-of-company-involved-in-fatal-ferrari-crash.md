@@ -1,0 +1,35 @@
+---
+author: Jen Chung
+date: May 17, 2012 4:34 pm
+title: Videos: Speeding Is Nothing New For COO Of Company Involved In Fatal Ferrari Crash
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2012_04_lambo.jpg" src="https://web.archive.org/web/20150428151913im_/http://gothamist.com/attachments/jen/2012_04_lambo.jpg" width="640" height="420" class="image-none"> </span></p>
+
+<p>On Sunday, a <a href="https://web.archive.org/web/20150428151913/http://gothamist.com/2012/05/14/motorcyclist_killed_in_collision_wi.php">motorcyclist was killed in a head-on collision</a> when a Ferrari swerved into his lane on a service road near the MetLife Stadium.  State police believe that the Ferrari driver, Joseph Ferretti, who was charged in Stephen Lenge&apos;s death, <a href="https://web.archive.org/web/20150428151913/http://gothamist.com/2012/05/15/ferrari_drivers_charged_in_nj_motor.php">was traveling above the 25 MPH speed limit</a>.  It also turns out that his brother, who works for the company that hired Ferretti to drive the car to an event, promotes a line of DVDs and experiences called, <a href="https://web.archive.org/web/20150428151913/http://superspeeders.com/">SuperSpeeders</a>, &quot;where Horsepower Rules and the rules of the road Don&apos;t Apply.&quot;</p>
+
+<p>Ferretti, 28, and Joseph Meyer, 19, were working for Gotham Dream Cars, which puts on the Dream Car Sprint, where people can pay $100 to drive a Ferrari or Lamborghini in a closed course at MetLife Stadium. Ferretti was driving a red Ferrari and Meyer a silver Ferrari from a gas station back to the event course when Meyer allegedly lost control of the silver Ferrari and spun, prompting Ferretti to go around the other vehicle&#x2014;and into the opposite lane, colliding head first into Lenge, a 56-year-old stagehand who was heading to work at another part of the stadium.  Lenge&apos;s motorcycle was split in half and he was pronounced dead at the scene.  A witness <a href="https://web.archive.org/web/20150428151913/http://www.northjersey.com/news/bergen/Ferrari_drivers_charged_in_Meadowlands_crash_that_killed_Kinnelon_motorcyclist.html?c=y&amp;page=2">told the Bergen Record</a> the cars were going &quot;faster than you see on an interstate.&quot;</p>
+
+<p>Ferretti&apos;s brother, Rob Ferretti, is the COO of Gotham Dream Cars, and he has been <a href="https://web.archive.org/web/20150428151913/http://www.northjersey.com/news/bergen/Ferrari_drivers_charged_in_Meadowlands_crash_that_killed_Kinnelon_motorcyclist.html?page=all">quoted in the Record</a> as calling the Dream Car Sprint &quot;safe. It&#x2019;s very controlled,&quot; and pointed out that the speeds of the cars in the course are 55-70 mph. But Rob Ferretti is the only person <a href="https://web.archive.org/web/20150428151913/http://superspeeders.com/bios">with a bio on SuperSpeeders</a>.  In a Q&amp;A; on the site, when asked, &quot;How many speeding violations have you gotten thus far?&quot; he says, &quot;That&apos;s a tough question to answer because I don&apos;t count I can say though I&apos;ve received over 100 citations to date, and been arrested on traffic related offenses twice.&quot; Here&apos;s a trailer for a video set in NYC that might make some people ill and upset:</p>
+
+<p><iframe width="640" height="480" src="https://web.archive.org/web/20150428151913if_/http://www.youtube.com/embed/GlQxKtWHh3Y" frameborder="0" allowfullscreen></iframe></p>
+
+<p>Answering the question, &quot;Do you believe the driving you feature in your DVDs is dangerous?&quot;, Rob Ferretti answers:</p><blockquote>I believe there is an inherent risk to living on this planet. You could get struck by lightening if you walk outside your house in a storm. You could get struck by a stray bullet walking down the street. You could be a victim of a violent crime. You could get killed playing baseball, football, golf, soccer, etc. You can get hit by a train crossing the railroad tracks. You could die in a plane crash. All of these are possibilities. You can live your life in fear of what may happen or you can enjoy life and accept that something bad can happen at any moment, however unlikely those options are. Super Speeders represents trained drivers in super performance cars navigating through the world of everybody else. <p></p>
+
+<p>Where as there is always a possibility of something bad happening on the road, fears would be much better directed at more prevalent dangers. Drunk driving, tired driving, distracted driving, poorly maintained vehicles, under-qualified drivers, vehicles being pushed beyond their limits (excessive speed of trucks, vans, buses, etc.) Mostly what you have to fear is poor judgment, most accidents are not the fault of the vehicle, they are a result of the driver who is not aware of their vehicles limitations or how to handle their vehicle in a specific situation. </p>
+
+<p>Where it&apos;s easy to fear sports cars wizzing down the highways because they are exceeding the ridiculously low speed limits 99.99% of accidents are not a result of a driver who is focused on their surrounds and enjoying their car. Google it.</p></blockquote><p></p>
+
+<p><iframe width="640" height="360" src="https://web.archive.org/web/20150428151913if_/http://www.youtube.com/embed/kBfGCiwFyEo" frameborder="0" allowfullscreen></iframe></p>
+
+<p>We asked Gotham Dream Cars about the investigation and whether Rob Ferretti truly believes that &quot;the rules of the road Don&apos;t Apply,&quot; given that the investigation suggests that the Ferraris were traveling above the speed limit, a spokeeperson gave us a statement:</p><blockquote>At approximately 7:30 am, Sunday, May 13th, two Gotham Dream Car employees drove two of our vehicles to be refueled and were involved in a three vehicle incident off a service road at the Meadowlands. This incident was off-site from our event and no customers were involved. <p></p>
+
+<p>Unfortunately there was a fatality from a motorcycle rider involved in the incident. First and foremost, we offer our condolences to the family and friends of this individual.</p>
+
+<p>The incident is under investigation, so we cannot comment any further until the investigation is complete and more details are available.<br>
+ <br>
+To clarify, Super Speeders and Gotham Dream Cars are two separate companies. Though they share a staff member, we can assure you that Gotham Dream Cars operates with different missions, values and procedures befitting a service-based rental firm as opposed to an entertainment-based website and content creator.</p></blockquote>Funeral services for <a href="https://web.archive.org/web/20150428151913/http://www.northjersey.com/news/151828255_Two_are_charged_in_fatal_Ferraris__smash_up_Sun__.html">Lenge&apos;s funeral were today</a>; his wife and two daughters survive him.<p></p>					
+										
+									
+				

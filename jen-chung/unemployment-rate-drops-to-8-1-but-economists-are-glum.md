@@ -1,0 +1,13 @@
+---
+author: Jen Chung
+date: May  4, 2012  9:04 AM
+title: Unemployment Rate Drops To 8.1%, But Economists Are Glum
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2012_04_shuttdog.jpg" src="https://web.archive.org/web/20120603105504im_/http://gothamist.com/attachments/jen/2012_04_shuttdog.jpg" width="640" height="430"> <br> <i> Photograph by <a href="https://web.archive.org/web/20120603105504/http://www.shutterstock.com/gallery-85726p1.html">WileeCole</a>/Shutterstock</i></div> <p></p>
+
+<p>The unemployment rate dropped to 8.1%, <a href="https://web.archive.org/web/20120603105504/http://www.bloomberg.com/news/2012-05-04/payrolls-in-u-s-rose-115-000-in-april-jobless-rate-at-8-1-.html">the lowest in three years</a>, but the <a href="https://web.archive.org/web/20120603105504/http://www.bls.gov/news.release/empsit.nr0.htm">April figures from the U.S. Department of Labor</a> are sobering because only 115,000 jobs were added, much fewer than expected.  </p>
+
+<p>The <a href="https://web.archive.org/web/20120603105504/http://www.nytimes.com/2012/05/05/business/economy/us-added-only-115000-jobs-in-april-rate-is-8-1.html?hp">NY Times reports</a>, &quot;April&#x2019;s job growth was less than what economists had been predicting. The unemployment rate ticked down to 8.1 percent in April, from 8.2 percent, partly because workers dropped out of the labor force. Government job losses totaling 15,000 continued to weigh on the economy, tugging down job growth as state and local governments grapple with strained budgets. Private companies added 130,000 jobs, with professional and business services, retail trade, and health care doing the most hiring. Such job growth is not nearly fast enough to recover the losses from the Great Recession and its aftermath. <strong>Today the United States economy is producing even more goods and services than it did when the recession officially began in December 2007, but with about five million fewer workers.&quot;</strong></p>
+
+<p>The <a href="https://web.archive.org/web/20120603105504/http://online.wsj.com/article/SB10001424052702304743704577383713904032818.html?mod=WSJ_hp_LEFTTopStories">Wall Street Journal says</a>, &quot;Economists surveyed by Dow Jones Newswires expected a gain of 168,000 in payrolls and for the jobless rate to remain at 8.2% in April. On a positive note, March payrolls grew by an upwardly revised 154,000 from an initially reported 120,000, and February payrolls posted a gain of 259,000, compared with an earlier estimate of 240,000.&quot; Yes, just focus on <a href="https://web.archive.org/web/20120603105504/http://www.sadtrombone.com/">that uplifting positive note</a>. </p>

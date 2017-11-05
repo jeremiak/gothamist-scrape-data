@@ -1,0 +1,21 @@
+---
+author: Jen Chung
+date: Jan 22, 2012 11:40 am
+title: Yesterday's 4 Subway Station Deaths: 3 Killed By Trains, 1 Found Dead On Staircase
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="2012_01_subwaytracks.jpg" src="https://web.archive.org/web/20161027171903im_/http://gothamist.com/attachments/jen/2012_01_subwaytracks.jpg" width="640" height="425"> <br> <i>Photograph of the tracks at the 42nd Street station by <a href="https://web.archive.org/web/20161027171903/http://www.flickr.com/photos/klingon65/5457288294/">Gary Burke on Flickr</a></i></div> <p></p>
+
+<p>While we mentioned two subway-related fatalities yesterday, it turns out two other men also died in the subway system&#x2014;one of them was apparently crushed to death at the Sixth Avenue L station.</p>
+
+<p>At 2 a.m., the <a href="https://web.archive.org/web/20161027171903/http://www.nydailynews.com/news/men-killed-manhattan-subway-tunnel-station-staircase-queens-article-1.1009802">Daily News reports</a>, &quot;a man in his 60s was found unconscious at the bottom of a staircase at the Elmhurst Ave. R line station. The man was bleeding from the mouth, said a police source.&quot;  The man died at Elmhurst Hospital center, and police &quot;believe the victim slipped and tumbled down the steps, striking his head, said a police source. It does not appear he was the victim of a crime, according to the source.&quot;</p>
+
+<p>Around 8:25 a.m., <a href="https://web.archive.org/web/20161027171903/http://gothamist.com/2012/01/21/man_fatally_struck_by_l_train_l_sus.php">a man was struck by an L train</a> while standing on the tracks between Third Avenue and Union Square. He was identified as Brian Omara of Garden City; it&apos;s unclear why he was on the tracks.</p>
+
+<p>At 4 p.m., a man was struck by a <a href="https://web.archive.org/web/20161027171903/http://gothamist.com/2012/01/21/man_fatally_struck_by_southbound_a.php">southbound A train at the Nostrand station</a>. <a href="https://web.archive.org/web/20161027171903/http://www.nypost.com/p/news/local/grisly_day_of_death_on_subways_NwS445RgT3I65z1HNAWtFN">According to the Post</a>, &quot;A friend at the station said the man worked at the station selling Metrocard swipes and that his body was discovered by a train conductor. There were no witnesses and it is unknown whether there is any criminality, cops said.&quot; </p>
+
+<p>At 10:10 p.m., a man was killed when he was pinned between an L train and the station platform at the Sixth Avenue station.  <a href="https://web.archive.org/web/20161027171903/http://www.reddit.com/r/nyc/comments/or3m3/i_just_saw_a_man_get_run_over_by_the_l_train/">A Redditor wrote</a>, &quot;I just saw a man get run over by the L train. It was... awful. Blood and intestines covering the platform. I don&apos;t know if he jumped or fell. An EMT that came over said that this happens on average twice a week.&quot; And another Redditor replied:</p><blockquote>EMT with the FDNY here. It happens all the time - especially in Manhattan. There&apos;s your classic hit and splatter, which sounds like what happened here. Then there&apos;s your &quot;space case&quot; which is where they get wedged in between the subway car and the platform. Usually it&apos;s because they dropped something on the tracks, jumped down, and didn&apos;t realize how high the platform actually is. So they try to get up on the platform, and they can&apos;t, and the train winds up coming and depending on how big the space is will either cut them in half or wedge them between the car and platform. Then, you have your &quot;screw driver&quot; which is the same as the space case, except the top half of the body stays in the same direction, and the waist/legs twist around and around as the subway car pulls the body down the side of the platform. This is actually a scenario that is practiced jointly between EMS and Fire at the academy - they have a fake subway track at the FDNY Academy on Randall&apos;s Island that they mimic this with.</blockquote><p></p>					
+										
+									
+				

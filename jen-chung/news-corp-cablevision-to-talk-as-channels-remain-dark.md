@@ -1,0 +1,15 @@
+---
+author: Jen Chung
+date: Oct 17, 2010 9:20 am
+title: News Corp, Cablevision To Talk As Channels Remain Dark
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2010_10_cablead.jpg" src="https://web.archive.org/web/20150422214513im_/http://gothamist.com/attachments/jen/2010_10_cablead.jpg" width="200" height="374" class="image-left"> </span>Hey, Giants fans who subscribe to Cablevision: You may need to watch today&apos;s 1 p.m. game against the Detroit Lions away from home, because News Corp. channels like WNYW Fox 5  and WWOR 9 are still dark. The two sides have been at odds over how much Cablevision should pay News Corp.&#x2014;Cablevision claims that News Corp. is demanding $150 million, up from $70 million&#x2014;and whether the two sides should go into arbitration (Cablevision wants it, News Corp. doesn&apos;t). Now, more than 24 hours after News Corp. <a href="https://web.archive.org/web/20150422214513/http://gothamist.com/2010/10/16/news_corp_yanks_channels_5_9_from_c.php">pulled its channels from Cablevision</a>, the companies are supposed to resume negotiations today.</p>
+
+<p>Cablevision subscribers hoping to see the Giants&apos; NLCS Game 1 win over the Phillies were out of luck last night&#x2014;<a href="https://web.archive.org/web/20150422214513/http://mediadecoder.blogs.nytimes.com/2010/10/16/fox-outage-approaches-second-day-for-cablevision-subscribers/">according to Media Decoder</a>, the companies met yesterday but broke off talks, with News Corp. saying, &quot;No material progress was made and we remain far apart.&quot; Cablevision&apos;s executive vice president of communications said last night, &#x201C;It is shameful for News Corp. to use Major League Baseball and NFL games to hold viewers hostage in order to extract tens of millions from Cablevision customers.  We have accepted the bipartisan calls from scores of political leaders to reach a fair agreement through binding arbitration, and demand that News Corp. also agree and immediately return its Fox programming to Cablevision customers.&#x201D;</p>
+
+<p>Cablevision customers getting the shaft seem split on who to blame:  <a href="https://web.archive.org/web/20150422214513/http://www.newsday.com/long-island/cablevision-news-corp-to-resume-talks-sunday-1.2364346">Newsday spoke to a few</a>, and a Giants fan said, &quot;I think it&apos;s outrageous that they&apos;re denying fans around New York... the game. I think it&apos;s ridiculous. Fox needs to let go a little bit. I blame Fox,&quot; while an overall Fox 5 viewer said, &quot;[Cablevision is] holding Fox and Channel 5 and Channel 9 ransom. I think it&apos;s good they&apos;re fighting back. I&apos;m upset. We should be getting all those channels. It&apos;s not right. I don&apos;t blame Fox. I blame Cablevision.&quot;</p>					
+										
+									
+				

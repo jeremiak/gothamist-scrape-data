@@ -1,0 +1,13 @@
+---
+author: Jen Chung
+date: March 25, 2011  5:30 AM
+title: Noose Found Hanging From Tree Near Queens School
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:365px; "> <img alt="2011_03_noose.jpg" src="https://web.archive.org/web/20110327085315im_/http://gothamist.com/attachments/jen/2011_03_noose.jpg" width="365" height="275"> <br> <i>Image via WCBS 2</i></div> Police are investigating a possible hate crime in Queens: A noose was found hanging from a tree outside an apartment building&#x2014;and right by an elementary school&#x2014;in Howard Beach on Wednesday. Residents were shaken and disgusted; <a href="https://web.archive.org/web/20110327085315/http://manhattan.ny1.com/text/?ArID=136123&amp;SecID=1000">one told NY1</a>, &quot;That&apos;s disgusting. I see it. It&apos;s a lynchman, a hangman&apos;s noose. I would never think that would happen in this neighborhood.&quot; <p></p>
+
+<p><a href="https://web.archive.org/web/20110327085315/http://newyork.cbslocal.com/2011/03/24/noose-found-hanging-across-from-nyc-elementary-school/">According to WCBS 2</a>, &quot;Police quickly took it down Wednesday morning after surrounding the tree. There are surveillance cameras on a nearby apartment building, but the problem is...they weren&#x2019;t working over the last few days so they are no help for police in their investigation.&quot; As for the Walter Ward Elementary School, the principal told NY1 that students weren&apos;t outside because of the bad weather, so it seemed unlikely any kids saw it.</p>
+
+<p><a href="https://web.archive.org/web/20110327085315/http://www.wpix.com/news/wpix-noose-found-hanging-outside-apt-building-near-school-20110324,0,4649361.story">State Senator Shirley Huntley said</a>, &quot;We know all too well that symbols of hatred fuel an atmosphere of intolerance and anger that can endanger lives. That is why it is disturbing to hear that a noose was hung from a tree near a public school in Lindenwood.  I am outraged by this evil display. It is a painful reminder of the darkest chapters in our nation&apos;s history and proof that we must remain vigilant.&quot;</p>
+
+<p>The neighborhood  has a <a href="https://web.archive.org/web/20110327085315/http://gothamist.com/2007/11/02/authorities_inv.php">history of racially charged incidents</a>, but one resident said, &quot;In spite of what everyone thinks about Howard Beach, it&#x2019;s not so. We get along with everybody over here.&quot;</p>

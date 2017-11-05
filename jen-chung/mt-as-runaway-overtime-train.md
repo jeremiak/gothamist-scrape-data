@@ -1,0 +1,13 @@
+---
+author: Jen Chung
+date: August  6, 2010  1:23 PM
+title: MTA's Runaway Overtime Train
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2010_08_mtaovertime.jpg" src="https://web.archive.org/web/20110623141900im_/http://gothamist.com/attachments/jen/2010_08_mtaovertime.jpg" width="640" height="401" class="image-none"> </span></p>
+
+<p>An <a href="https://web.archive.org/web/20110623141900/http://www.osc.state.ny.us/press/releases/aug10/080510.htm">audit</a> by State Comptroller Thomas DiNapoli found that not only have the MTA&apos;s overtime payments ballooned by 26% from 2005 to be $560 million last year, but, in a sampling, 77% of the time supervisors <a href="https://web.archive.org/web/20110623141900/http://www.wpix.com/news/wpix-mta-ot-policy,0,4247030.story">approve &quot;undocumented&quot; or &quot;unjustified&quot;</a> overtime.  That&apos;s potentially over $430 million right there! DiNapoli said that MTA has a &quot;culture of acceptance...Uncontrolled overtime has been the rule rather than the exception at the MTA. The MTA is <a href="https://web.archive.org/web/20110623141900/http://gothamist.com/tags/servicecut">cutting services</a>, <a href="https://web.archive.org/web/20110623141900/http://gothamist.com/tags/farehike">raising fares</a> and tolls and<a href="https://web.archive.org/web/20110623141900/http://gothamist.com/tags/stationagent"> laying-off employees</a>, but it should be doing more to control expenses.&quot;</p>
+
+<p>Other factoids: There&apos;s a Long Island Rail Road train car repairman who &quot;received $142,857 in overtime pay, equal to 220 percent of his $64,865 annual salary.&quot;  Also, 144 MTA employees earned more in overtime than their annual salaries last year.  DiNapoli suggests that the MTA &quot;match work schedules to work opportunities to reduce the need for overtime&quot; and &quot;restrict overtime budgets to specific targets for overtime reduction.&quot;</p>
+
+<p><a href="https://web.archive.org/web/20110623141900/http://beta.wnyc.org/articles/wnyc-news/2010/aug/05/dinapoli-assailts-mtas-overtime-mta-agrees/">The MTA said</a>, &quot;The comptroller&apos;s audit confirms what we reported earlier this year and reinforces the need for the aggressive actions we&apos;re taking to reduce unnecessary overtime.&quot; Indeed, when the agency <a href="https://web.archive.org/web/20110623141900/http://www.mta.info/news/stories/?story=64">made a pledge to crack down on overtime</a>, it cited this example: &quot;Locomotive engineers at the LIRR receive an extra day&apos;s pay for switching between electric and diesel equipment without working one extra minute.&quot;</p>

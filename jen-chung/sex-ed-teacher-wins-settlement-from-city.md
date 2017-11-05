@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: August 14, 2010  5:30 PM
+title: Sex Ed Teacher Wins Settlement From City
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2010_08_teacher2.jpg" src="https://web.archive.org/web/20130530150341im_/http://gothamist.com/attachments/jen/2010_08_teacher2.jpg" width="120" height="104" class="image-right"> </span>A Staten Island sex education teacher who sued the city after she was suspended for allowing slang in the classroom <a href="https://web.archive.org/web/20130530150341/http://www.nydailynews.com/ny_local/education/2010/08/13/2010-08-13_new_york_teacher_who_let_students_use_profanity_in_aids_discussion_settles_lawsu.html">won an undisclosed settlement</a>. <a href="https://web.archive.org/web/20130530150341/http://gothamist.com/2010/05/21/judge_sides_with_sex_ed_teacher_on.php">During one lesson</a>, Faith Kramer listed clinical words for sexual organs, sexual acts and bodily fluids on the chalkboard, and then asked her eighth grade students what language they used to discuss them. Kids shouted things like &quot;furburger,&quot; &quot;blow job,&quot; and &quot;schmeckle,&quot; and wrote them down in their notebooks. Cue the outraged parents and the reactionary Department of Education, which banished Kramer to a rubber room.  A judge ruled against the city&apos;s attempt to dismiss the lawsuit, noting there are no actual rules prohibiting &quot;vulgarisms&quot; during sex-ex classes. Kramer will be back at IS 72 this fall.  </p>

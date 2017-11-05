@@ -1,0 +1,12 @@
+---
+author: Jen Chung
+date: Oct 13, 2010 10:06 am
+title: Remember When Giuliani Dressed In Drag?
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2010_09_giudrag.jpg" src="https://web.archive.org/web/20160715082748im_/http://gothamist.com/attachments/jen/2010_09_giudrag.jpg" width="200" height="183" class="image-right"> </span>In its recap of Glee, <a href="https://web.archive.org/web/20160715082748/http://artsbeat.blogs.nytimes.com/2010/10/13/glee-it-takes-two-or-sometimes-just-one/">Arts Beat wrote</a>, &quot;Chris Colfer&#x2019;s recreation of &apos;Le Jazz Hot&apos; from &apos;Victor/Victoria&apos;... was a daring moment for the show and one of the bolder bits of transvestism since Mayor Rudolph W. Giuliani popped up in that same musical.&quot;  Which brings us to the <a href="https://web.archive.org/web/20160715082748/http://www.nytimes.com/1997/03/03/nyregion/jaws-drop-as-giuliani-steals-show-in-heels.html">NY Times&apos; coverage of that 1997 moment</a>:</p><blockquote> &quot;No one was fully prepared for the sight of New York City&apos;s brawling Mayor as he tottered onto the New York Hilton stage Saturday night in high heels, a full-figured spangled pink gown, a platinum-blond wig and several pounds of makeup. This is a man, after all, who has to pay media consultants to find his sensitive side.... The audience of journalists, public officials and lobbyists greeted Rudia with a huge outburst of applause and hoots of sustained laughter, but when it became clear that the Mayor was actually going to deliver a sustained performance in the outfit, members of the crowd seemed torn between being amused and being appalled.&quot;</blockquote><br>
+Giuliani&apos;s drag act was<a href="https://web.archive.org/web/20160715082748/http://www.foxnews.com/story/0,2933,266100,00.html"> for the annual Inner Circle dinner</a>, the roast where the Mayor pokes fun at himself and others in politics with help from Broadway&#x2014;this year, Mayor Bloomberg <a href="https://web.archive.org/web/20160715082748/http://gothamist.com/2010/03/28/trippy_man_hippie_bloomberg_meets_s.php">was in a spoof of Hair, with help from Snooki and The Situation</a>.<p></p>					
+										
+									
+				

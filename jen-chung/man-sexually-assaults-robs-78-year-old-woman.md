@@ -1,0 +1,9 @@
+---
+author: Jen Chung
+date: October 22, 2010  8:30 AM
+title: Man Sexually Assaults, Robs 78-Year-Old Woman
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:230px; "> <img alt="2010_10_enyth.jpg" src="https://web.archive.org/web/20120602115807im_/http://gothamist.com/attachments/jen/2010_10_enyth.jpg" width="230" height="165"> <br> <i>(WABC 7)</i></div> Police are seeking a man<a href="https://web.archive.org/web/20120602115807/http://abclocal.go.com/wabc/story?section=news/local&amp;id=7739606"> who sexually assaulted </a>and robbed a 78-year-old woman in her East New York home.  <a href="https://web.archive.org/web/20120602115807/http://www.nydailynews.com/news/ny_crime/2010/10/22/2010-10-22_thug_robs_assaults_woman_in_bklyn_home.html?r=ny_local&amp;utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+nydnrss%2Fny_local+%28NY+Local%29&amp;utm_content=Google+Reader">According to the Daily News</a>, &quot;The elderly woman woke up about 5:30 a.m. to the sound of an intruder rummaging through her East New York home... Desperate for the thief to leave, the frightened woman handed him some loot, which included a couple of cell phones, sources said.&quot;<p></p>
+
+<p>However, the man allegedly attacked and sexually assaulted her.  Then, the suspect called her son to sell the cell phones back (all this while the victim was being treated at the hospital).  The police tried to set up a sting, but the News says, &quot;When the deal was set to go down, the suspect slipped away... Cops nabbed a woman at the intersection who was holding the phones, but she claimed not to know the wanted man.&quot;  The suspect is described as a black male in his 30s with a thin build.</p>

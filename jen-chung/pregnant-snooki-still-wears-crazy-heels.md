@@ -1,0 +1,17 @@
+---
+author: Jen Chung
+date: Apr 10, 2012 6:39 pm
+title: Pregnant Snooki Still Wears Crazy Heels
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="2012_02_snookipreggos.jpg" src="https://web.archive.org/web/20150502174341im_/http://gothamist.com/attachments/jen/2012_02_snookipreggos.jpg" width="640" height="458"> <br> <i>Via <a href="https://web.archive.org/web/20150502174341/https://twitter.com/#!/snooki">Snooki&apos;s Twitter</a></i></div> <p></p>
+
+<p>Hey, Snooki <a href="https://web.archive.org/web/20150502174341/http://gothamist.com/2012/03/07/snooki_confirms_nations_worst_fears.php">may be pregnant</a> but it doesn&apos;t mean she&apos;s retreating into staid, sensible maternity wear (aka <a href="https://web.archive.org/web/20150502174341/http://www.google.com/imgres?um=1&amp;hl=en&amp;sa=N&amp;biw=1077&amp;bih=683&amp;tbm=isch&amp;tbnid=u-b9dpYbEo_DBM:&amp;imgrefurl=http://www.babble.com/CS/blogs/famecrawler/archive/2009/05/04/jennifer-garner-loves-being-pregnant.aspx&amp;docid=b4p1sTCKAKYrFM&amp;imgurl=http://www.babble.com/CS/blogs/famecrawler/2009/05/jennifer-garner-baby-bump-pregnant_0_0_0x0_290x494.jpg&amp;w=290&amp;h=494&amp;ei=TrOET9O8F8X10gGKo5GwBw&amp;zoom=1&amp;iact=hc&amp;vpx=385&amp;vpy=144&amp;dur=1892&amp;hovh=293&amp;hovw=172&amp;tx=86&amp;ty=178&amp;sig=108095133144728549277&amp;page=1&amp;tbnh=151&amp;tbnw=91&amp;start=0&amp;ndsp=21&amp;ved=1t:429,r:2,s:0,i:127">stuff Jennifer Garner would wear</a>).  No, instead the Jersey Shore &quot;star&quot; assured her Twitter followers with a Tweet that <a href="https://web.archive.org/web/20150502174341/https://twitter.com/#!/snooki/status/189716676361732096/photo/1">she&apos;s wearing studded high-heels</a>.</p>
+
+<p>She also Tweeted other pictures <a href="https://web.archive.org/web/20150502174341/https://twitter.com/#!/snooki/status/189721644825194498/photo/1">featuring pink lips</a> and <a href="https://web.archive.org/web/20150502174341/https://twitter.com/#!/snooki/status/189809016887717888/photo/1">heart-shaped sunglasses</a>&#x2014;and <a href="https://web.archive.org/web/20150502174341/https://twitter.com/#!/snooki/status/189746605363175424">acknowledged that she looks better now</a>, &quot;No shit, 3 yrs ago I was a waste case &apos;@barclayswag: @snooki youuuu loook so different compared to the first season of jersey shore !!!&apos;&quot;  Next question: Will she <a href="https://web.archive.org/web/20150502174341/http://gothamist.com/2012/04/09/blossom_still_breastfeeds_her_toddl.php">breastfeed and/or subscribe to &quot;attachment parenting&quot;</a>?</p>
+
+<p>Snooki, <a href="https://web.archive.org/web/20150502174341/http://gothamist.com/2012/03/05/pregnant_snooki_is_now_engaged_stil.php">who is engaged</a>, has been filming her <a href="https://web.archive.org/web/20150502174341/http://gothamist.com/2012/02/25/jersey_city_brace_yourself_snooki_j.php">new reality show with J Woww in Jersey City</a>&#x2014;real estate experts think their presence will <a href="https://web.archive.org/web/20150502174341/http://www.nj.com/jjournal-news/index.ssf/2012/03/jersey_city_real_estate_expert.html">help boost real estate prices</a>, oddly enough.</p>					
+										
+									
+				

@@ -1,0 +1,23 @@
+---
+author: Jen Chung
+date: May 30, 2012 4:52 pm
+title: Judge: Dharun Ravi Shouldn't Be In Prison With Murderers, Rapists
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2012_05_draci.jpg" src="https://web.archive.org/web/20151027004412im_/http://gothamist.com/attachments/jen/2012_05_draci.jpg" width="640" height="406"> <br> <i> Dharun Ravi in court today (AP)</i></div> <p></p>
+
+<p>This morning, Dharun Ravi appeared in court, in advance of turning himself to authorities and starting his <a href="https://web.archive.org/web/20151027004412/http://gothamist.com/2012/05/22/unclear_whether_dharun_ravis_30-day.php">30-day jail sentence</a> for spying on his Rutgers roommate Tyler Clementi.  <a href="https://web.archive.org/web/20151027004412/http://www.nj.com/news/index.ssf/2012/05/dharun_ravi_appears_in_court_t.html">According to the Star-Ledger</a>, he was silent and only answered yes/no questions, like &quot;whether he understands the consequences of heading to jail before he is required to.&quot;</p>
+
+<p>Prosecutors are appealing the sentence, with Assistant Prosecutor Julia McClure saying, &quot;I believed then and I believe now that a custodial term had to be imposed.&quot; But <a href="https://web.archive.org/web/20151027004412/http://www.nytimes.com/2012/05/31/nyregion/judge-defends-sentence-imposed-on-dharun-ravi.html?_r=1&amp;ref=nyregion">Judge Glen Berman defended</a> his controversial sentence in court today, calling it &quot;anything but spontaneous&quot; and adding, &quot;I can&#x2019;t find it in me to remand him to state prison that houses people convicted of offenses such as murder, armed robbery and rape. I don&#x2019;t believe that that fits this case. I believe that he has to be punished, and he will be.&quot;</p>
+
+<p>In September 2010, Ravi had set up a webcam in the dorm room he shared with Clementi and viewed Clementi and Clementi&apos;s guest during intimate encounters, and shared a link (unsuccessfully) to view the livestream via Twitter. Clementi killed himself by <a href="https://web.archive.org/web/20151027004412/http://gothamist.com/2010/09/29/rutgers_students_appalled_over_vide.php">jumping off the George Washington Bridge</a> the day after the second time he was filmed. While prosecutors have <a href="https://web.archive.org/web/20151027004412/http://gothamist.com/2012/02/24/trial_of_tyler_clementis_roommate_b.php"> portrayed Ravi as homophobic</a>, his lawyer and the witnesses speaking on his behalf said he <a href="https://web.archive.org/web/20151027004412/http://www.nj.com/news/index.ssf/2012/03/family_friends_of_dharun_ravi.html">was not homophobic</a>, instead claiming he was simply acting immaturely. But jurors <a href="https://web.archive.org/web/20151027004412/http://gothamist.com/2012/03/17/justice_has_been_served_for_tyler_c.php">agreed with prosecutors</a>, finding that Ravi invaded Clementi&apos;s and his guest&apos;s privacy twice and meant to intimidate Clementi when he spied a second time.</p>
+
+<p>Berman also noted that Ravi&apos;s 300 hours of community service are far greater than what was required and pointed out that the prosecution gave Ravi&apos;s friend, Molly Wei, who also watched Clementi and his guest, <a href="https://web.archive.org/web/20151027004412/http://gothamist.com/2011/05/06/tyler_clementi_case_molly_wei_accep.php">a deal with probation and community service</a> in exchange for testifying against Ravi. From the Times:</p><blockquote>Believing that &#x201C;consistency breeds fairness,&#x201D; the judge said he gave Mr. Ravi community service and probation. &#x201C;It wasn&#x2019;t my deal; it was the state&#x2019;s,&#x201D; he said.<p></p>
+
+<p>But because Mr. Ravi&#x2019;s &#x201C;involvement was more extensive,&#x201D; he said, he had added to the sentence, ordering Mr. Ravi to undergo counseling in &#x201C;alternate lifestyles.&#x201D; That phrase had angered gay rights advocates who believe it is derogatory; the judge said he took the language from the plea bargains the prosecution offered Mr. Ravi before he went to trial.</p></blockquote>Berman said, &quot;I&apos;ll stand on my belief that his conduct was wrong. But I don&apos;t believe it was hate-motivated.&quot;<p></p>
+
+<p>Yesterday, Ravi <a href="https://web.archive.org/web/20151027004412/http://gothamist.com/2012/05/29/finally_dharun_ravi_apologizes_for.php">apologized for the incident for the first time</a>.</p>					
+										
+									
+				

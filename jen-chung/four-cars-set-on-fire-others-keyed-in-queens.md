@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: August 31, 2010  1:29 PM
+title: Four Cars Set On Fire, Others Keyed In Queens
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2010_08_burnt.jpg" src="https://web.archive.org/web/20120311085804im_/http://gothamist.com/attachments/jen/2010_08_burnt.jpg" width="120" height="90" class="image-right"> </span>Earlier this morning, some car owners in Queens awoke to find their vehicles up in flames.  <a href="https://web.archive.org/web/20120311085804/http://newyork.cbslocal.com/2010/08/31/vandalism-spree-leaves-cars-torched-in-queens/">WCBS 2 reports</a>, &quot;Some were in the street, some were in driveways and at least one of the fires spread to an owner&#x2019;s home.&quot;  Plus, a dozen cars were keyed. One owner of a newly crisped auto said, &quot;At first i didn&#x2019;t know why my truck went on fire, then I found out that three other cars, three other vehicles on the block were also set on fire.&quot; Another resident said, &quot;We don&#x2019;t know why, unless they were kids that were drinking, we have no idea what could&#x2019;ve happened. No idea.&quot; Last week, two teens were accused of <a href="https://web.archive.org/web/20120311085804/http://gothamist.com/2010/08/23/teens_arrested_for_vandalizing_100.php">vandalizing 100 cars on Long Island</a>.</p>

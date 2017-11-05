@@ -1,0 +1,25 @@
+---
+author: Jen Chung
+date: Dec 20, 2011 10:49 am
+title: [UPDATE] 5 Killed In Small Plane Crash On I-287 Near Morristown
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="2011_11_smallplane.jpg" src="https://web.archive.org/web/20150501072444im_/http://gothamist.com/attachments/jen/2011_11_smallplane.jpg" width="640" height="448"> <br> <i>Via MyFoxNY</i></div> <p></p>
+
+<p><strong>[Updates Below] </strong>A small plane landed on I-287 near exit 33 in NJ. <a href="https://web.archive.org/web/20150501072444/http://abclocal.go.com/wabc/story?section=news/local/new_jersey&amp;id=8473709">WABC 7 reports</a>, &quot;The plane came down around 10:00 a.m. in the wooded area separating the north and southbound lanes of Interstate 287 in Harding, New Jersey. The plane caught fire on impact, and there are pieces of the plane in the roadway.&quot;  Morristown Airport is nearby. Here&apos;s aerial video <a href="https://web.archive.org/web/20150501072444/http://www.nbcnewyork.com/news/local/Plane-Crash-Route-287-Exit-33-New-Jersey-Morris-County-135923393.html?35f">courtesy NBC New York</a>: </p>
+
+<div style="text-align: center;"><embed width="576" height="324" src="https://web.archive.org/web/20150501072444oe_/http://media.nbcnewyork.com/assets/dev-thep-pdk/web/pdk/swf/flvPlayer.swf?pid=dCw588aZh8ZIfDz7SZtqpF0A1pb49DP3" flashvars="v=http%3A%2F%2Fwww.nbcnewyork.com%2Fi%2Fembed_new%2F%3Fcid%3D135931368&amp;path=%2Fhttp://www.nbcnewyork.com/news/local/Plane-Crash-Route-287-Exit-33-New-Jersey-Morris-County-135923393.html?35f" allowfullscreen="true" allowscriptaccess="always"> <p style="font-size:small">View more videos at: <a href="https://web.archive.org/web/20150501072444/http://nbcnewyork.com/?__source=embedCode">http://nbcnewyork.com</a>.</p></div>
+
+<p>MyFoxNY <a href="https://web.archive.org/web/20150501072444/http://www.myfoxny.com/subindex/video/skyfoxhd">has streaming video</a>. And state police say there <a href="https://web.archive.org/web/20150501072444/http://www.nbcnewyork.com/news/local/Plane-Crash-Route-287-Exit-33-New-Jersey-Morris-County-135923393.html">may be fatalities</a>. </p>
+
+<p> <b>Update</b>: The <a href="https://web.archive.org/web/20150501072444/http://twitter.com/#!/NJSP/status/149152060657500160">NJ State Police Tweeted</a>, &quot;Location update, Milepost 35. Roadway closed. Traffic being diverted both directions. Possible 3 fatalities.&quot;  The <a href="https://web.archive.org/web/20150501072444/http://www.nj.com/news/index.ssf/2011/12/small_plane_crashes_on_i-287_i.html">Star-Ledger reports</a> that the plane, a single-engine turboprop, took off from Teterboro Airport and spoke to a driver who was three cars away from the crash, &quot;Something was breaking off the plane as it was coming down. It was coming down fast. It looked like the right wing was breaking off.&quot;</p>
+
+<p>Two years ago, a small plane <a href="https://web.archive.org/web/20150501072444/http://www.northjersey.com/breakingnews/Small_plane_crashes_in_Mahwah.html">crashed on 287 near Mahwah</a>. The pilot was injured.</p>
+
+<p><strong>Update 12:55 p.m.:</strong> Police <a href="https://web.archive.org/web/20150501072444/http://www.nbcnewyork.com/news/local/Plane-Crash-Route-287-Exit-33-New-Jersey-Morris-County-135923393.html?35f">confirm to NBC New York</a> that there are at least three fatalities, possibly five. Officials said the dead were all on the plane and that no motorists were injured when the plane went down near Exit 33 in Morris Township. One driver tells the station she saw the plane going down: &quot;I knew that it was in trouble and I knew that it was going to crash. There was a big explosion and a big black cloud of smoke.&quot;</p>
+
+<p><b>Update 1:24 p.m.</b>:  The authorities have confirmed five deaths, and a press release from investment bank <a href="https://web.archive.org/web/20150501072444/http://www.nj.com/news/index.ssf/2011/12/victims_in_i-287_plane_crash_a.html">Greenhill &amp; Co. says</a> two of the victims were managing directors, Jeffrey Buckalew, 45, and Rakesh Chawla, 36.  Greenhill says the plane &quot;belonged to Mr. Buckalew, an experienced pilot whose passion was flying,&quot; and his wife, Corinne, and children, Jackson and Meriwether, were also on board.  The plane had taken off from Teterboro Airport and was headed to Atlanta.  <a href="https://web.archive.org/web/20150501072444/http://dealbook.nytimes.com/2011/12/20/greenhill-says-2-executives-died-in-plane-crash/">The firm said</a>, &quot;The firm is in deep mourning over the tragic and untimely death of two of its esteemed colleagues and members of Jeff&#x2019;s family. Jeff was one of the first employees of Greenhill. He and Rakesh were extraordinary professionals who were highly respected by colleagues and clients alike. They will be sorely missed and our sympathies go out to their families and friends&quot;</p>					
+										
+									
+				

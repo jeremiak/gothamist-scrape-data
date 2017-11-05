@@ -1,0 +1,9 @@
+---
+author: Jen Chung
+date: October 16, 2010  3:35 PM
+title: NY Times Endorses Republican Wilson For NY Comptroller
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2010_10_harrywil.jpg" src="https://web.archive.org/web/20110412161450im_/http://gothamist.com/attachments/jen/2010_10_harrywil.jpg" width="150" height="134" class="image-left"> </span>The NY Times weighed in on the NY State Comptroller race and <a href="https://web.archive.org/web/20110412161450/http://www.nytimes.com/2010/10/16/opinion/16sat2.html?ref=opinion">is endorsing the Republican candidate Harry Wilson</a>, noting how he &quot;helped turn around General Motors last year... It is rare for someone of Mr. Wilson&#x2019;s talents and expertise to compete for one of the most important and least glamorous jobs in state politics.&quot;</p>
+
+<p>Wilson, who used to work for Blackstone and Goldman Sachs, was criticized as a <a href="https://web.archive.org/web/20110412161450/http://gothamist.com/2010/10/05/24-year_creature_of_albany_vs_don_j.php">&quot;Don Juan of Wall Street&quot;</a> by current Comptroller Thomas DiNapoli, but the Times says, &quot;the investment and management skills exhibited with General Motors are just what are needed for New York&#x2019;s financial and ethical blight.&quot;  The Times says that DiNapoli, a former Assemblyman, has been a &quot;worthy caretaker&quot; since <a href="https://web.archive.org/web/20110412161450/http://gothamist.com/2006/10/24/state_ethics_co.php">his 2007 appointment</a> (when Alan Hevesi <a href="https://web.archive.org/web/20110412161450/http://gothamist.com/2006/10/24/state_ethics_co.php">resigned amid scandal</a>) but &quot;New Yorkers, however, have a chance to choose someone who knows finance and is not beholden to the Democrats in control in Albany.&quot; </p>

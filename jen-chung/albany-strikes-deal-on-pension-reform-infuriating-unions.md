@@ -1,0 +1,21 @@
+---
+author: Jen Chung
+date: Mar 15, 2012 12:41 pm
+title: Albany Strikes Deal On Pension Reform, Infuriating Unions
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="2012_02_albany.jpg" src="https://web.archive.org/web/20150103084058im_/http://gothamist.com/attachments/jen/2012_02_albany.jpg" width="640" height="497"> <br> <i>Photograph by <a href="https://web.archive.org/web/20150103084058/http://www.shutterstock.com/gallery-495445p1.html">Matt Valentine</a>/Shutterstock</i></div> <p></p>
+
+<p>Early this morning, legislators in Albany <a href="https://web.archive.org/web/20150103084058/http://blog.timesunion.com/capitol/archives/120948/tier-vi-just-passed-in-the-assembly/">passed the Tier VI pension reform package</a> that Governor Cuomo described as a &quot;bold and transformational&quot; plan and &quot;a historic win for New York taxpayers and municipalities that will save more than $80 billion over the next 30 years, while preserving retirement security for public workers.&quot;  But unions, obviously, don&apos;t agree.</p>
+
+<p>You can see the <a href="https://web.archive.org/web/20150103084058/http://www.governor.ny.gov/press/03152012pensionagreement">details of the plan here</a>&#x2014;some of the points passed were<a href="https://web.archive.org/web/20150103084058/http://www.nypost.com/p/news/local/pension_deal_near_3VHhpuoS8So0CmB4RZCxJN"> limiting overtime and lengthening &quot;from three years to five years average</a> final salaries for pension calculations, while prohibiting any pay over the governor&apos;s $179,000 annually from being used to figure retirement benefits.&quot;</p>
+
+<p><a href="https://web.archive.org/web/20150103084058/http://www.nytimes.com/2012/03/15/nyregion/plan-to-reduce-pensions-for-new-public-workers-takes-shape-in-albany.html?_r=1&amp;ref=nyregion">According to the NY Times</a>, &quot;The pension changes were less drastic than those sought by Gov. Andrew M. Cuomo, applying to fewer employees and saving less money than he had hoped. But they reflect a blow to the state&#x2019;s public-employee unions, which are enormously powerful in Albany and have been <a href="https://web.archive.org/web/20150103084058/http://gothamist.com/2011/05/17/union_freak_out_about_cuomos_propos.php">frequent sparring partners</a> for Mr. Cuomo as he has sought to rein in costs.&quot; For instance, one concession is that &quot;the deal did not make significant changes to the retirement benefits of New York City police officers and firefighters.&quot;</p>
+
+<p>Mayor Bloomberg was thrilled, issuing a statement, &quot;This landmark pension reform package is a huge victory for the taxpayers of New York and for the future of our city and state. As a result of Governor Cuomo&#x2019;s leadership, City taxpayers will save $21 billion over the next 30 years. Not a single current government worker or retiree will be affected, and not-yet-hired City workers will continue to be able to retire securely, but with pension plans that taxpayers can better afford.&quot; </p>
+
+<p>But CSEA, the public employees union, was livid. <a href="https://web.archive.org/web/20150103084058/http://www.csealocal1000.org/press.php#mar_15_12">CSEA President Danny Donohue said</a>, &quot;Tier 6 shoved down the throat of state legislators fixated on their own self-preservation, will be devastating to 99 percent of New Yorkers. This deal is about politicians standing with the 1 percent - the wealthiest New Yorkers - to give them a better break while telling nurses, bus drivers, teachers, secretaries, and laborers to put up and shut up.&quot; CSEA adds, &quot;There are no immediate savings from the Cuomo Tier 6 plan. Potential savings over decades will only come at the expense of working people. While hard-pressed localities will see no relief in the short term from Tier 6, they will be affected by loss of state services, downsizing and consolidation of vital facilities, along with other aid reductions and a further erosion of their middle class as workers get squeezed or have their jobs eliminated.&quot;</p>					
+										
+									
+				

@@ -1,0 +1,11 @@
+---
+author: Jen Chung
+date: May  1, 2012  6:05 PM
+title: HBO Won't Adapt The Corrections After All
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left"> <img alt="2012_04_ewanmcgregor.jpg" src="https://web.archive.org/web/20120529103924im_/http://gothamist.com/attachments/jen/2012_04_ewanmcgregor.jpg" width="365" height="276"> <br> <i>We&apos;re sad, too, Ewan</i></div> Do the Lamberts need more troubles?  Fans of Jonathan Franzen&apos;s novel <em>The Corrections</em> got excited that the tome <a href="https://web.archive.org/web/20120529103924/http://gothamist.com/2011/10/02/jonathan_franzen_confirms_hes_adapt.php">would be adapted by HBO</a> last year, delighting to the tantalizing casting news trickling out every now and then. But now the cable network has decided &quot;it&apos;s passing <a href="https://web.archive.org/web/20120529103924/http://www.hollywoodreporter.com/live-feed/hbo-corrections-not-moving-forward-318684">on the pricey adaptation</a>.&quot; <p></p>
+
+<p>Last year, it was announced that the Lambert clan would be headed up by Dianne Wiest and Chris Cooper <a href="https://web.archive.org/web/20120529103924/http://gothamist.com/2011/10/19/casting_begins_for_hbos_adaptation.php">as the parents</a> and <a href="https://web.archive.org/web/20120529103924/http://gothamist.com/2011/11/22/will_ewan_mcgregor_get_naked_in_hbo.php">Ewan McGregor</a> and Maggie Gyllenhaal would play two of the three children. Plus, Franzen and Noah Baumbach were adapting the novel and Scott Rudin was producing! What could go wrong?</p>
+
+<p><a href="https://web.archive.org/web/20120529103924/http://www.deadline.com/2012/05/hbo-pilot-the-corrections-not-going-forward/">Deadline claims</a>, &quot;Word is HBO brass liked the pilot and the performances but the decision came down to adapting the book&#x2019;s challenging narrative, which moves through time and cuts forwards and back. While that works in the novel, it proved difficult to sustain in a series and challenging for viewers to follow, hampering the potential show&#x2019;s accessibility.&quot;  Guess we&apos;ll have to settle for <a href="https://web.archive.org/web/20120529103924/http://www.bestweekever.tv/2012-04-30/game-of-thrones-recap-the-kids-in-the-harrenhal/">more boobs and gore on Game of Thrones</a>. </p>

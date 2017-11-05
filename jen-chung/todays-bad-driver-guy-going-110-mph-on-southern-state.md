@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: July 29, 2010  4:10 PM
+title: Today's Bad Driver: Guy Going 110 MPH On Southern State
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <a href="https://web.archive.org/web/20110706142916/http://gothamist.com/attachments/jen/2010_07_baddriver.jpg"> <img alt="2010_07_baddriver.jpg" src="https://web.archive.org/web/20110706142916im_/http://gothamist.com/assets_c/2010/07/2010_07_baddriver-thumb-216x238-533430.jpg" width="106" height="116" class="image-right"> </a> </span>Queens Village resident Kashaun Iqbal was charged with  reckless endangerment, unlawfully fleeing an officer, reckless driving and several traffic violations for allegedly driving around 110 MPH on the Southern State Parkway earlier today.  The <a href="https://web.archive.org/web/20110706142916/http://www.longislandpress.com/2010/07/29/cops-nyc-man-led-trooper-on-high-speed-chase/">Long Island Press report</a>s, &quot;A Trooper on patrol near Exit 14, Fletcher Avenue, spotted a black Acura driving at 110 mph and continuously changing lanes unsafely at 11:52 a.m.  The driver...almost caused several collisions and as he attempted to elude the Trooper, police said.&quot; While the trooper couldn&apos;t stop Iqbal, guess what did?  Yes, the bad traffic further ahead forced him to slow down.  </p>

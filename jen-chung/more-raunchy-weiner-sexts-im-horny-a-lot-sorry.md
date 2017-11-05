@@ -1,0 +1,21 @@
+---
+author: Jen Chung
+date: Jun 7, 2011 4:35 pm
+title: More Raunchy Weiner Sexts: "I'm Horny A Lot. Sorry"
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="2011_06_weiss.jpg" src="https://web.archive.org/web/20150216134958im_/http://gothamist.com/attachments/jen/2011_06_weiss.jpg" width="640" height="352"> <br> <i>Screenshots of Lisa Weiss&apos; Facebook conversations with Anthony Weiner, <a href="https://web.archive.org/web/20150216134958/http://www.radaronline.com/photos/image/131387/2011/06/-rep-anthony-weiners-facebook-sexts-revealed#image-load">via Radar Online</a></i></div> <p></p>
+
+<p>As more insanely graphic Facebook message sex sessions between <a href="https://web.archive.org/web/20150216134958/http://gothamist.com/2011/06/07/weiner_messaged_vegas_sext_partner.php">Rep. Anthony Weiner and Vegas blackjack dealer Lisa Weiss</a> have been disclosed (<a href="https://web.archive.org/web/20150216134958/http://www.radaronline.com/exclusives/2011/06/weiner-facebook-messages-lisa-weiss-sex-chat-las-vegas-mistress">Radar calls them &quot;explicit and embarrassing&quot;</a> which is an understatement&#x2014;<a href="https://web.archive.org/web/20150216134958/http://www.radaronline.com/sites/radaronline.com/files/Wiener-Facebook-Transcript-Watermarked.pdf">here&apos;s a PDF</a>), the question comes back to, &quot;Why the hell was Weiner doing this, as a successful Congressman married to a <a href="https://web.archive.org/web/20150216134958/http://gothamist.com/2010/07/11/anthony_weiner_marries_huma_abedin.php">smart and beautiful woman</a>?&quot;  The answer is, of course, &quot;For the thrills.&quot; </p>
+
+<p>A Manhattan psychotherapist, Jonathan Alpert, <a href="https://web.archive.org/web/20150216134958/http://www.nydailynews.com/news/politics/2011/06/07/2011-06-07_docs_weiner_did_it_for_thrills.html">tells the Daily News</a>, &quot;I see this a lot with high-powered people, usually men, where they&apos;re thrill-seekers. Often the risk of being caught heightens the intensity and makes it all the more thrilling.&quot; (Example: <a href="https://web.archive.org/web/20150216134958/http://gothamist.com/2010/04/15/eliot_superman_spitzer_steamrolled.php">Eliot Spitzer</a>.)  And behavior expert Patrick Wanis says, &quot;What we are seeing is a new pattern of these people who are very powerful in their position, but they seem to lack power in their personal relationships. It&apos;s a person who says, &apos;I&apos;m trying to find a way to feel powerful because I have no power in my personal relationship.&apos;&quot;  Whatever&#x2014;can you really ever explain detailed messages like this (from March of this year, <a href="https://web.archive.org/web/20150216134958/http://www.radaronline.com/sites/radaronline.com/files/Wiener-Facebook-Transcript-Watermarked.pdf">PDF</a>):</p><blockquote>Weiss: are you as passionate in the sack as u are about politics? I&apos;m getting bored of my f*** friend<br>
+Weiner: baby you&apos;d be crawling for the door to prevent me from f***ing you silly<br>
+Weiss: nice, just what I&apos;m looking for. I want to bang the future mayor of nyc!<br>
+Weiner: making me h**d<br>
+Weiss: I love that you are always h**d when I talk to you<br>
+Weiner: I&apos;m horny a lot. sorry<br>
+Weiss:me too! u have that affect on me</blockquote>And that&apos;s one of the tamer excerpts!  Also, why the crotch shots?  Society for Sex Therapy and Research president <a href="https://web.archive.org/web/20150216134958/http://bodyodd.msnbc.msn.com/_news/2011/06/06/6797079-why-do-guys-take-crotch-shots-anyway">Marta Meana gives the explanation</a>, &quot;The simplest theory for the behavior is that these men think the photos will serve to arouse the woman - because they, themselves, would find it arousing if that woman sent such a photo to them.... &#x201C;it is likely that the act &#x2026; is arousing to the sender -- sub-clinical or clinical exhibitionism. The primary intent &#x2026; is to arouse themselves.&quot; <p></p>					
+										
+									
+				

@@ -1,0 +1,15 @@
+---
+author: Jen Chung
+date: February 14, 2012 12:15 PM
+title: Now, Whitney Houston's Funeral Will Be Invitation-Only, Held At Newark Church
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="2012_01_houstonfhwi.jpg" src="https://web.archive.org/web/20120216033915im_/http://gothamist.com/attachments/jen/2012_01_houstonfhwi.jpg" width="640" height="415"> <br> <i>A hearse carrying Houston&apos;s body at the Whigham Funeral Home (AP)</i></div> <p></p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-right" style=" width:270px; "> <img alt="2012-01_newarkhope.jpg" src="https://web.archive.org/web/20120216033915im_/http://gothamist.com/attachments/jen/2012-01_newarkhope.jpg" width="270" height="398"> <br> <i>The New Hope Baptist Church in Newark, NJ (AP)</i></div> The funeral for <a href="https://web.archive.org/web/20120216033915/http://gothamist.com/tags/whitneyhouston">Whitney Houston</a> now appears to be scheduled for Saturday at the New Hope Baptist Church in Newark, NJ.  While a community leader with ties to the Houston family suggested yesterday the funeral and a public memorial <a href="https://web.archive.org/web/20120216033915/http://gothamist.com/2012/02/13/whitney_houstons_funeral_will_be_in.php">would be held at the Prudential Center</a>, the funeral home arranging the services said today that they would be much more private.  <p></p>
+
+<p><a href="https://web.archive.org/web/20120216033915/http://www.nj.com/news/index.ssf/2012/02/whitney_houston_funeral_to_be.html">According to the Star-Ledger</a>, &quot;Houston&apos;s funeral will be invitation only, [Whigham Funeral Home owner Carolyn] Whigham said, and there will be no wake or public viewing at the Prudential Center. Houston will not be buried in Newark, she said.&quot; The Star-Ledger believes that the plans changed late last night. The Prudential Center would have been able to hold almost 20,000 people, while the New Hope church holds about 300.  Additionally, &quot;Houston&apos;s body was brought to Whigham late Monday night as fans crowded Martin Luther King Jr. Boulevard to catch a glimpse. The crowd of around 40 sang songs and applauded.&quot;</p>
+
+<p><a href="https://web.archive.org/web/20120216033915/https://twitter.com/#!/dndailypolitics/status/169468889028231169">Flags are being flown</a> at half-mast in New Jersey to remember Houston.  On Sunday, Governor Christie Tweeted, &quot;Terrible day 4 NJ music w/passing of Whitney Houston. Fellow Mendham resident, she will be missed in NJ &amp; the music world. pray 4 her family.&quot;</p>
+
+<p><b>Update</b>: Mayor Cory Booker said the family asked that the city of Newark <a href="https://web.archive.org/web/20120216033915/http://www.tmz.com/2012/02/14/newark-mayor-whitney-houston-public-memorial/">not hold any public memorials for Houston</a>.</p>

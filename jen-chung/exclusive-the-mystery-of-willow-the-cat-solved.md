@@ -1,0 +1,17 @@
+---
+author: Jen Chung
+date: Sep 16, 2011 10:18 am
+title: EXCLUSIVE: The Mystery Of Willow The Cat Solved!
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="2011_09_willowcatmystery.jpg" src="https://web.archive.org/web/20160303082047im_/http://gothamist.com/attachments/jen/2011_09_willowcatmystery.jpg" width="640" height="480"> <br> <i>This really does look like Willow!</i></div> <p></p>
+
+<p>OMG, big <a href="https://web.archive.org/web/20160303082047/http://gothamist.com/tags/willowthecat">Willow the cat</a> news!  Although everyone has romantic ideas of how an adorable, but tiny, <a href="https://web.archive.org/web/20160303082047/http://gothamist.com/2011/09/15/wow_missing_colorado_cat_found_in_n.php">calico cat made it from Colorado to New York City</a> over the course of five years, a reader tells us that the pretty kitty took a plane.  With a human.  Here what our tipster says:</p><blockquote>I had Willow (aka Molly) for 3 months, while her NY owner was away for work. He fell in love with her on a ski trip when she was a stray in Colorado, and flew her back to Brooklyn, thinking she was too amazing to leave behind. She was vetted prior to flying, and none of her history came up. While in Brooklyn she was loved and very spoiled...she&apos;s had quite an adventure, but there&apos;s no great mystery behind her travels. Willow is a lovable cat who happens to fly well. She was brought to the shelter by someone who loved her very much, but was unable to give her all the time and attention she deserves.<p></p>
+
+<p>I&apos;m sure her Colorado family knows how extraordinary she is, and I am so thrilled she&apos;s able to go home.</p></blockquote>So, it turns out the <a href="https://web.archive.org/web/20160303082047/http://gothamist.com/2011/09/16/willow_the_cat_continues_to_charm_b.php#photo-1">most likely theory was the correct one</a>: That someone picked her up in Colorado, took her to New York and was a loving owner. In fact, <a href="https://web.archive.org/web/20160303082047/http://www.nytimes.com/2011/09/16/nyregion/theories-on-cats-trip-from-colorado-to-new-york.html">the NY Times suggested</a>, &quot;Or maybe she was so irresistible to a New York family on a ski vacation that they simply had to sneak her back home once the trip was up.&quot;  And based on this photograph, Molly really does look like Willow&#x2014;all her calico markings appear to match up (cue the <em>CSI: Cat Spot Investigation</em> music!).<p></p>
+
+<p>Willow went missing five years ago from her humans, the Squires family in Boulder, Colorado, during a home renovation project.  Just this week, someone brought in a cat&#x2014;apparently found on East 20th Street&#x2014;to NYC Animal Care and Control.  ACC checked for a microchip (pet owners, <a href="https://web.archive.org/web/20160303082047/http://www.aspca.org/about-us/policy-positions/microchip.aspx">PLEASE MICROCHIP YOUR PETS</a>) and found one, connecting the cat back home.  Willow needs a little more time to be cleared to go back to Colorado, so she&apos;s spending the next week or so in New York with a foster family.</p>					
+										
+									
+				

@@ -1,0 +1,15 @@
+---
+author: Jen Chung
+date: August 14, 2011 12:55 PM
+title: Homeless Man Squatting In Ann Curry's Still-Unrenovated-UWS Townhouse
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="2011_08_anncurry.jpg" src="https://web.archive.org/web/20120602074730im_/http://gothamist.com/attachments/jen/2011_08_anncurry.jpg" width="640" height="511"> <br> <i>Ann Curry&apos;s and her husband&apos;s home is the reddish townhouse on the left</i></div> <p></p>
+
+<p>Eight years ago, Today Show anchor Ann Curry and her husband Brian Ross bought a townhouse on West 71st Street, with a plan to renovate the building for their family.  But then their neighbors <a href="https://web.archive.org/web/20120602074730/http://www.nydailynews.com/archives/news/2006/08/16/2006-08-16_hot_over_curry___nbc_star_s_.html">got upset at the construction</a>, claiming in a 2006 lawsuit that Curry and Ross&apos;s crew had damaged their properties and caused too much noise.  Now, the one person who is living in the multi-million dollar townhouse today is someone the NY Post describes as a &quot;hobo.&quot;</p>
+
+<p><a href="https://web.archive.org/web/20120602074730/http://www.nypost.com/p/news/local/manhattan/anchor_away_bum_will_stay_v0R9iTLrzypVhkqlkuTamM">According to the Post</a>, one of the litigious neighbors found a homeless man sleeping at the home yesterday.  Eight cops were sent over to remove him.  While he said, &quot;Ann Curry means crap to me!&quot; explaining, &quot;The reason I lived there was because they chased me out of Central Park,&quot; he would be more than okay with returning: &quot;I&apos;ll go back if someone says, &apos;Here&apos;s the key. Maintain the building.&apos;&quot; </p>
+
+<p>Apparently a contractor never locked the door a while back and the unidentified man says he went there for warmth, &quot;I&apos;ve been living there for about a year now. I&apos;m not a drug addict; I just don&apos;t have a place to sleep.&quot;  He wasn&apos;t arrested because he was just sleeping in the vestibule.  Dr. John Lee, one of plaintiffs in the suit against Curry, said, &quot;The building is abandoned, for all practical purposes. It&apos;s become an eyesore and a problem.&quot; So, what&apos;s more annoying: Bad construction work or an abandoned, eyesore of a neighboring house?</p>
+
+<p>You can <a href="https://web.archive.org/web/20120602074730/http://webofdeception.com/anncurrysued.html">read the lawsuit here</a>.  In 2006, Curry and Ross&apos;s lawyer said the neighbors were trying to milk the couple for money for their own renovation projects, &quot;I don&apos;t think they [Curry and Ross] have the same feeling for [the townhouse] now. I don&apos;t know if they will move in at this point.&quot;  That stretch of West 71st Street, between West End Avenue and Riverside Boulevard, is a dead end, which <a href="https://web.archive.org/web/20120602074730/http://www.nytimes.com/2004/10/17/realestate/17SCAP.html">makes it a quiet and secluded area</a>.</p>

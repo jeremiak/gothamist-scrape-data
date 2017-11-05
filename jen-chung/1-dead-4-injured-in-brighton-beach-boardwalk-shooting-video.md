@@ -1,0 +1,19 @@
+---
+author: Jen Chung
+date: June  9, 2011 10:45 PM
+title: 1 Dead, 4 Injured In Brighton Beach Boardwalk Shooting (Video)
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="2011_06_brightshooting.jpg" src="https://web.archive.org/web/20110611045345im_/http://gothamist.com/attachments/jen/2011_06_brightshooting.jpg" width="640" height="384"> <br> <i>Via <a href="https://web.archive.org/web/20110611045345/http://www.youtube.com/watch?v=w8Y5wi_UikI">this video of the aftermath</a></i></div> <p></p>
+
+<p>A shooting broke out on the boardwalk at Brighton Beach around 5:20 p.m., injuring four men and one woman, <a href="https://web.archive.org/web/20110611045345/http://www.reuters.com/article/2011/06/10/us-boardwalk-shooting-idUSTRE7590CF20110610">who later died</a>.  With public schools closed for <a href="https://web.archive.org/web/20110611045345/http://gothamist.com/2010/06/10/its_brooklyn-queens_day_aka_anniver.php">Brooklyn-Queens Day</a> and the weather conditions sweltering, the beach was packed. A police source pointed to empty malt liquor bottles and <a href="klyn_near_manhattan_pkqNSOLaIf4HmZUX83hfsN">told the Post</a>, &quot;<strong>It&#x2019;s a bad combination of guns, heat, beer and angry young men</strong>.&quot;</p>
+
+<p>It seems that a feud broke out between two groups, creating a chaotic scene. <a href="https://web.archive.org/web/20110611045345/http://www.nydailynews.com/news/ny_crime/2011/06/09/2011-06-09_four_shot_on_brooklyns_bright_beach_boardwalk_two_critically_injured_when_gunman.html">According to the Daily News</a>, &quot;One man used an umbrella to crack another man in the head, as the fight erupted near Brighton 6th St. about 5:20 p.m. Then a gunman squeezed off about eight rounds into a crowd.&quot; Bystanders took cover and <a href="https://web.archive.org/web/20110611045345/http://cityroom.blogs.nytimes.com/2011/06/09/five-people-shot-on-boardwalk-in-brighton-beach/">rushed into restaurants and other businesses</a>. Here&apos;s video after the shooting:</p>
+
+<p><iframe width="640" height="510" src="https://web.archive.org/web/20110611045345if_/http://www.youtube.com/embed/CoWlZv3JA4A" frameborder="0" allowfullscreen></iframe></p>
+
+<p> A community leader, the Brighton Neighborhood Association president Pat Singer, told the News that violence occurred around the same time previous years, &quot;They get into turf wars. It happens every damn year. Feuds break out.&quot; </p>
+
+<p>On Twitter, <a href="https://web.archive.org/web/20110611045345/http://twitter.com/#!/djslicknick">djslicknick wrote</a>, &#x201C;Just watched  some idiot kid let off 8 rounds into a crowded beach. Some people have no sense. I&apos;m never going to Brighton beach again,&quot; and then added, &quot;yeah I saw like 4 ambulances... I saw the kid let off the shots.. It was a madhouse I just got on the train.&quot;  Later, he Tweeted, &quot;yoooo detectives showed up to my house this is nuts!!!&quot; &quot;I&apos;m kinda nervous right now the detectives are taking me to their precinct in bk&quot; and finally replied to another person &quot;I have nothing to snitch about I don&apos;t know anyone.&quot;  </p>
+
+<p>Police say that two people fired shots into the crowd and two people were being questioned.  It&apos;s unclear if the victims were the intended targets (the News suggests at least two were bystanders)&#x2014;beyond the female victim who died, a male victim is in critical condition while the three other male victims did not have life-threatening injuries.</p>

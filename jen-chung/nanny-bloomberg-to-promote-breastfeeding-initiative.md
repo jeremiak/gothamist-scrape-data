@@ -1,0 +1,17 @@
+---
+author: Jen Chung
+date: Apr 19, 2012 6:16 pm
+title: Nanny Bloomberg To Promote Breastfeeding Initiative
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="2012_04_oreocookie.jpg" src="https://web.archive.org/web/20150504141029im_/http://gothamist.com/attachments/jen/2012_04_oreocookie.jpg" width="640" height="360"> <br> <i>A Korean Oreo cookie ad concept</i></div> <p></p>
+
+<p><a href="https://web.archive.org/web/20150504141029/http://gothamist.com/tags/breastfeeding">Breast is best</a>, as the lactivists repeatedly tell everyone, but now one man is making sure new parents know about it:  Father-of-two Mayor Bloomberg.  The <a href="https://web.archive.org/web/20150504141029/http://www.nypost.com/p/news/local/mike_do_what_breast_for_baby_5x37cU1trizbh1T3qXtB6O">Post reports</a>, &quot;The Health Department is pushing a sweeping initiative to prod dozens of city hospitals to get more moms in their maternity wards to breast feed, The Post has learned. It&#x2019;s called the &apos;Baby-Friendly Hospital Initiative.&apos;&quot; </p>
+
+<p>The Health Department&apos;s proposal said, &quot;The benefits of breast feeding to infants, mothers and society are well established... Specifically, infants exclusively breast fed for at least six months have a 22 percent reduction in risk for childhood obesity.&quot;  Hospitals can apply for the program that&apos;s sponsored by the World Health Organization, which says <a href="https://web.archive.org/web/20150504141029/http://www.who.int/features/qa/21/en/index.html">infants up to six months should exclusively breastfeed</a>, after that, the babes can get supplementary foods.  FWIW, Blossom <a href="https://web.archive.org/web/20150504141029/http://gothamist.com/2012/04/09/blossom_still_breastfeeds_her_toddl.php">recommends breastfeeding for a while</a>.  Anyway, this adds breast milk to Bloomberg&apos;s hit list: <a href="https://web.archive.org/web/20150504141029/http://gothamist.com/2010/01/11/bloomberg_wants_everyone_to_cut_the.php">Salt</a>, check.  <a href="https://web.archive.org/web/20150504141029/http://gothamist.com/2010/10/29/behind_scenes_at_health_dept_what_c.php">Sugar</a>, check.  <a href="https://web.archive.org/web/20150504141029/http://gothamist.com/2012/04/18/now_bloomberg_doesnt_want_you_smoki.php">Smoking</a>, check. </p>
+
+<p>And speaking of boob food, this ad of the <a href="https://web.archive.org/web/20150504141029/http://gawker.com/5903447/korean-oreo-cookie-ad-may-be-breast-cookie-ad-yet">Korean Oreos ad</a> by <a href="https://web.archive.org/web/20150504141029/http://www.adweek.com/adfreak/south-korea-oreo-breast-milks-favorite-cookie-nsfw-139695">Cheil Worldwide</a> was disavowed by Kraft. <a href="https://web.archive.org/web/20150504141029/http://www.tmz.com/2012/04/19/oreo-cookies-breastfeeding-ad-never-to-kraft-foods/#.T5CK_zJAYU8">A spokesperson told TMZ,</a>   &quot;Kraft Foods did not create this ad. It has never run in Korea or any other markets. This ad was created by our agency for a one-time use at an advertising forum. The ad was never intended for public distribution or use with consumers.&quot; But it&apos;s so good!</p>					
+										
+									
+				

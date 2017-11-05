@@ -1,0 +1,9 @@
+---
+author: Jen Chung
+date: September  4, 2010  7:37 AM
+title: Last Night's Action: Yanks Win Seventh Straight
+---
+
+<span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <div class="image-right" style=" width:240px; "> <img alt="2010_08_curtgrand.jpg" src="https://web.archive.org/web/20110611053447im_/http://gothamist.com/attachments/jen/2010_08_curtgrand.jpg" width="240" height="212"> <br> <i>Curtis Granderson hits a two-run double (Bill Kostroun/AP)</i></div> </span><ul><li><a href="https://web.archive.org/web/20110611053447/http://www.nydailynews.com/sports/baseball/yankees/2010/09/03/2010-09-03_brett_gardner_curtis_granderson_lead_yankees_to_seventh_straight_win_beat_blue_j.html">Yankees 7 Blue Jays 3</a>: Even without Derek Jeter (taking a rest day), Nick Swisher and Alex Rodriguez, the Yankees won again, making it their seventh victory in a row.  Curtis Granderson had three RBIs and Brett Gardner scored three times.  Plus, Lance Berkman, Ramiro Pena and Eduardo Nunez each had two hits. The Daily News notes, &quot;Rookie Ivan Nova had his least effective performance of his three starts, giving up three runs in 4 2/3 innings before being replaced by Boone Logan in the fifth with the tying runs on base. Logan, Dave Robertson, Kerry Wood and Mariano Rivera combined for 4 1/3 scoreless innings to finish the game, with Wood (3-4) earning the win after retiring all five batters he faced.&quot;</li>
+	<li><a href="https://web.archive.org/web/20110611053447/http://www.nytimes.com/2010/09/04/sports/baseball/04mets.html?_r=1">Cubs 7 Mets 6</a>: Even though David Wright hit a home run and two-run double, the Mets fell yet again. R.A. Dickey gave up seven runs&#x2014;notably two three-run home runs&#x2014;during yesterday&apos;s loss in Chicago.  </li>
+</ul>

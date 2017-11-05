@@ -1,0 +1,17 @@
+---
+author: Jen Chung
+date: Jan 13, 2012 6:15 pm
+title: Upstate Teen Girls' Bizarre Tics Are "Mass Hysteria"
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2012_01_jessespane.jpg" src="https://web.archive.org/web/20170319044839im_/http://gothamist.com/attachments/jen/2012_01_jessespane.jpg" width="365" height="261" class="image-left"> </span>Last fall, teen girls at LeRoy High School in <a href="https://web.archive.org/web/20170319044839/http://en.wikipedia.org/wiki/Le_Roy_(village),_New_York">upstate NY</a> started exhibiting Tourette&apos;s-like symptoms.  As <a href="https://web.archive.org/web/20170319044839/http://www.wkbw.com/home/leroyjac-133424788.html">WKBW reported</a>, students were &quot;shaking and jerking in their necks and heads. One student, who did not want to be identified, said it started when she woke up from a nap and could not speak because the shaking was so severe.&quot;  Now, it seems that it was an outbreak of <a href="https://web.archive.org/web/20170319044839/http://www.buffalonews.com/city/article707323.ece">&quot;mass hysteria&quot;</a>.  </p>
+
+<p>According to the Buffalo News, &quot;After months of investigation and a battery of health and environmental tests, however, what school and state health personnel told concerned parents this week is that there is no known environmental or infectious cause for the bizarre condition that debilitated most of the girls. State Department of Health officials declined to publicly diagnose them, citing privacy laws, but at least one local expert in the field of movement disorders stated Thursday that what most of these girls experienced is likely the result of mass hysteria.&quot;</p>
+
+<p>Still, parents are not happy with the lack of diagnosis.  <a href="https://web.archive.org/web/20170319044839/http://www.wkbw.com/home/leroyjac-133424788.html">One father told WHEC</a>, &quot;Well in my opinion we&apos;ve only just begun. If you haven&apos;t found anything then we have to turn some more stones and we need to have another investigation that is not government related,&quot; while another parent said, &quot;My frustration is until September 10th of 2011 I had a healthy girl, a girl that was in junior high who loved school  had a lot of friends, was very happy high honor roll and then all of a sudden she wakes up from a nap and she&apos;s twitching out of control.&quot;</p>
+
+<p>Dr. Jonathan Mink, chief of child neurology at the University of Rochester Medical Center and co-chair of the scientific advisory board of the Tourette Syndrome Association, <a href="https://web.archive.org/web/20170319044839/http://thebatavian.com/howard-owens/expert-discuss-tic-outbreak-le-roy-meeting-scheduled-wednesday/29916">spoke to The Batavian</a> that, based on following coverage of the incident (he hasn&apos;t treated any of the teens), it doesn&apos;t seem like Tourette&apos;s, &quot;It&apos;s extremely unlikely that anything in the air, in the water or in the food they&apos;ve eaten is the cause of tics&quot; and suggested one cause could be stress, &quot;A person gets exposed to those symptoms and they take on those symptoms. It may be that the stresses of everyday life and how these girls deal with stress (that is the cause).&quot;</p>					
+										
+									
+				

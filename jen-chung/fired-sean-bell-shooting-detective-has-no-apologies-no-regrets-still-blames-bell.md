@@ -1,0 +1,22 @@
+---
+author: Jen Chung
+date: Apr 10, 2012 6:29 pm
+title: Fired Sean Bell Shooting Detective Has "No Apologies, No Regrets," Still Blames Bell
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2012_04_gisnora.jpg" src="https://web.archive.org/web/20161229120126im_/http://gothamist.com/attachments/jen/2012_04_gisnora.jpg" width="365" height="257" class="image-left"> </span>Three weeks after being <a href="https://web.archive.org/web/20161229120126/http://gothamist.com/2012/03/24/nypd_finally_firing_four_cops_conne.php">officially fired from the NYPD without his pension</a> for his role in the <a href="https://web.archive.org/web/20161229120126/http://gothamist.com/2006/11/25/man_killed_by_p.php">fatal shooting of Sean Bell</a>, Gescard Isnora is speaking out.  In an <a href="https://web.archive.org/web/20161229120126/http://www.nbcnewyork.com/news/local/Sean-Bell-Gescard-Isnora-NYPD-Police-Shooting-Pension-Ray-Kelly-Bloomberg-Interview-Exclusive-146754885.html">interview with NBC New York</a>, he said, &quot;I&apos;m not looking back, no apologies, no regrets. I came to grips with what I did. I am able to sleep at night. I am here talking to you.&quot;</p>
+
+<p>On November 25, 2006, Bell was out at a Queens strip club Club Kalua with friends for a bachelor party the night before his wedding. Undercover police officers were on the scene to make prostitution arrests and they believed Bell and his friends were armed. Then a chaotic scene unfolded: The undercover detectives claimed they identified themselves and told Bell, Joseph Guzman and Trent Benefield to get out of the car <a href="https://web.archive.org/web/20161229120126/http://gothamist.com/2006/11/29/queens_shooting_1.php">while drawing their guns</a>, but it&apos;s unclear if Bell, who was driving, heard them and drove into the cops upon seeing the drawn guns. When Guzman reached for his waistband, the police thought they were going to be fired upon, so they fired in return. It turned out that none of the men were armed. </p>
+
+<p>Isnora said to NBC New York, &quot;Joseph Guzman said, &apos;Go get my gun.&apos; And there was another individual that said &#x2018;Let&#x2019;s &apos;f&apos; &apos;em up.&quot; He added, &quot;I have to stop [Bell&apos;s] car. If I don&#x2019;t stop this car, Fabio Coicou gets shot. I served as Fabio Coicou&#x2019;s last line of defense. They would have gone around the corner and definitely gotten to him.&quot;  Isnora says he showed his shield, but Bell hit him with the car, &quot;<strong>What people don&apos;t understand is, a vehicle is a weapon as well. He used that vehicle. He basically wanted to run me over.</strong>&quot;</p>
+
+<center><embed width="576" height="324" src="https://web.archive.org/web/20161229120126oe_/http://media.nbcnewyork.com/assets/pdk449/pdk/swf/flvPlayer.swf?pid=Lz6k9v4RlXce_MGvYkgCnjDN2eM3d96W" flashvars="v=http%3A%2F%2Fwww.nbcnewyork.com%2Fi%2Fembed_new%2F%3Fcid%3D146762835&amp;path=%2Fhttp://www.nbcnewyork.com/news/local/Sean-Bell-Gescard-Isnora-NYPD-Police-Shooting-Pension-Ray-Kelly-Bloomberg-Interview-Exclusive-146754885.html" allowfullscreen="true" allowscriptaccess="always"> <p style="font-size:small">View more videos at: <a href="https://web.archive.org/web/20161229120126/http://nbcnewyork.com/?__source=embedCode">http://nbcnewyork.com</a>.</p></center>
+
+<p>Isnora fired at Bell first, shooting a total of 11 shots.  Other police officers fired 39 more, killing Bell and injuring Guzman and Benefield.  None of the men were armed. While Isnora and other cops <a href="https://web.archive.org/web/20161229120126/http://gothamist.com/2008/04/25/sean_bell_shoot_7.php">were acquitted of criminal charges</a>, Bell&apos;s family, Guzman and Benefield received a <a href="https://web.archive.org/web/20161229120126/http://gothamist.com/2010/07/28/city_settles_sean_bell_shooting_for.php">$7.15 million settlement from the city</a>.</p>
+
+<p>Isnora said of the number of bullets he fired, &quot;What is the right amount? What is not the right amount? In a heated situation, you are not counting bullets,&quot; and feels betrayed by Mayor Bloomberg and Police Commissioner Kelly, &quot;I was fed to the wolves, if you want to use that. That&#x2019;s exactly what the commissioner and the mayor did. I was there doing my job.&quot;<br>
+</p>					
+										
+									
+				

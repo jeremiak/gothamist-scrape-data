@@ -1,0 +1,15 @@
+---
+author: Jen Chung
+date: Aug 8, 2010 3:15 pm
+title: Reports: Donnie Walsh Unhappy With Isiah Thomas' Return
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:200px; "> <img alt="2010_08_walshthomas.jpg" src="https://web.archive.org/web/20150506172057im_/http://gothamist.com/attachments/jen/2010_08_walshthomas.jpg" width="200" height="200"> <br> <i>Walsh and Thomas in the old days (AP)</i></div> The Knicks may have heralded its <a href="https://web.archive.org/web/20150506172057/http://gothamist.com/2010/08/06/like_a_bad_penny_isiah_thomas_is_ba.php">rehiring Isiah Thomas,</a> its former GM and coach who left after a series of terrible decisions, with optimism but there&apos;s one important person reportedly fuming about Thomas&apos; boomerang back to Madison Square Garden: Knicks president Donnie Walsh.  The <a href="https://web.archive.org/web/20150506172057/http://www.nydailynews.com/sports/basketball/knicks/2010/08/08/2010-08-08_donnie_thought_about_quitting.html">Daily News reports</a> that Walsh &quot;considered resigning&quot; over the move while the <a href="https://web.archive.org/web/20150506172057/http://www.nypost.com/p/sports/knicks/walsh_your_back_AgooDKBkBqzS3vtJDZu7VP">Post says</a> Walsh is &quot;livid.&quot;  And it seems like other Knicks executives were anti-Thomas as well!<p></p>
+
+<p>Both papers say that Knicks owner James Dolan tried to get Walsh to hire Thomas as the team&apos;s general manager, but Walsh refused. According to the Post, &quot;When Walsh told Thomas he objected, Thomas went back to Dolan, who still has a love affair with the Hall of Famer and seemingly is on a mission to rehab Thomas&apos; image. Without Walsh&apos;s knowledge, Dolan and Thomas hatched a scheme in which Thomas could become a part-time consultant.&quot; However, the <a href="https://web.archive.org/web/20150506172057/http://www.nydailynews.com/sports/basketball/knicks/2010/08/08/2010-08-08_donnie_thought_about_quitting.html">Daily News explains</a>, &quot;Besides Walsh and Knicks head coach Mike D&apos;Antoni being against the move, Garden vice chairman Hank Ratner and Garden president Scott O&apos;Neil voiced their displeasure but were overruled by Dolan, sources said.&quot;  Also, at the end of the day, it&apos;s expected Thomas will make his way back as the GM.</p>
+
+<p>The News details how Thomas apparently convinced Dolan that &quot;Walsh and D&apos;Antoni don&apos;t have street credibility with today&apos;s young NBA stars, their agents and their entourages.&quot; One source told the Post, &quot;<strong>Donnie doesn&apos;t want him there, nobody wants him there but Dolan. Isiah seems to have Jim wrapped around his finger.</strong>&quot;  </p>					
+										
+									
+				

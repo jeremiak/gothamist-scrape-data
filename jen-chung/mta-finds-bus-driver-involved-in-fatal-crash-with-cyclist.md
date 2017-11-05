@@ -1,0 +1,11 @@
+---
+author: Jen Chung
+date: March 26, 2011 12:40 PM
+title: MTA Finds Bus, Driver Involved In Fatal Crash With Cyclist
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:365px; "> <img alt="2011_03_2ndave96.jpg" src="https://web.archive.org/web/20110328094352im_/http://gothamist.com/attachments/jen/2011_03_2ndave96.jpg" width="365" height="274"> <br> <i>From MyFoxNY</i></div> The MTA bus that fatally struck a bicyclist has been found.  The <a href="https://web.archive.org/web/20110328094352/http://www.nypost.com/p/news/local/manhattan/bus_in_fatal_deliveryman_hit_run_63V5oxieEnj1cbu5XG5CmN">Post reports</a> that the express bus, which kept going because the apparently driver didn&apos;t realize he hit someone at Second Avenue and East 96th Street, &quot;was identified once it arrived at a Yonkers depot earlier this morning after the driver completed his shift.&quot;  A witness <a href="https://web.archive.org/web/20110328094352/http://www.nydailynews.com/ny_local/2011/03/26/2011-03-26_city_bus_fatally_strikes_biker.html">told the Daily News</a>, &quot;The bus was heading downtown. The car swerved in front of the bus. The bus tried to avoid an accident and curved into the delivery guy... He didn&apos;t even see him.&quot;<p></p>
+
+<p>The bicyclist, Qi Yu Weng, 28, had been traveling south and had fallen off his electric bike at Second Avenue and East 96th Street; the MTA bus was also going south and ran over Weng. It took a while to identify Weng; the News reports, &quot;Restaurant workers were even escorted to the body at one point to see if they could identify the man.&quot;  A doctor who came upon the scene told us that it was a distressing scene, &quot;In the middle of 96th lying between two idling autos was a young man who was seriously injured and, at that time, dead. He was prone, face in the pavement. Skull crushed with his brains splattered across the intersection... I pray for his peace.&quot;</p>
+
+<p>The News&apos; witness, Kazi Hoque, blamed the accident on the Second Avenue subway construction in the area, &quot;The construction kills everything around here and now it kills people.&quot; The NYPD, which does not suspect criminality, will interview the bus driver, who will also be tested for drugs and alcohol.  </p>

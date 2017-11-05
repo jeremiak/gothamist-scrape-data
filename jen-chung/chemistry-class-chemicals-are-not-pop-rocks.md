@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: October 16, 2010  3:55 PM
+title: Chemistry Class Chemicals Are Not Pop Rocks
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2010_10_ptodi.jpg" src="https://web.archive.org/web/20110412161427im_/http://gothamist.com/attachments/jen/2010_10_ptodi.jpg" width="110" height="110" class="image-right"> </span>Kids are so gullible!  In an incident at Brooklyn&apos;s Seth Low IS 96, <a href="https://web.archive.org/web/20110412161427/http://www.nypost.com/p/news/local/brooklyn/chem_spill_school_panic_ODYm8aDYqJ6i2DiIQNCesI?CMP=OTC-rss&amp;FEEDNAME=">the Post reports</a> that &quot;two students took a bottle of potassium [dichromate] from a science class and sprinkled some of the powder into the hands of other kids&quot;&#x2014;and the principal says &quot;<strong>at least two of [the victims] then licked their hands</strong>.&quot;  An official explained that <a href="https://web.archive.org/web/20110412161427/http://en.wikipedia.org/wiki/Potassium_dichromate">potassium dichromate</a>&#x2014;&quot;an oxidizing agent and in pyrotechnics, explosives and matches&quot;&#x2014;resembles Pop Rocks, while another said some students thought it was just glitter.  The hazmat team responded; while the victims were not seriously injured, the pranksters were taken away in handcuffs.</p>

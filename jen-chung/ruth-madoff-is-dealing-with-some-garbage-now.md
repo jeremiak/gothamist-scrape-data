@@ -1,0 +1,11 @@
+---
+author: Jen Chung
+date: March 14, 2012  4:28 PM
+title: Ruth Madoff Is Dealing With Some Garbage Now
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2012_02_ruthgarb.jpg" src="https://web.archive.org/web/20120602102605im_/http://gothamist.com/attachments/jen/2012_02_ruthgarb.jpg" width="230" height="242" class="image-left"> </span>While the <a href="https://web.archive.org/web/20120602102605/http://www.nydailynews.com/gossip/ruth-madoff-living-old-greenwich-sources-unwarm-florida-article-1.1036550">Daily News apparently got the scoop</a> on Ruth Madoff&apos;s <a href="https://web.archive.org/web/20120602102605/http://gothamist.com/2012/03/11/ruth_madoff_now_lives_in_connecticu.php">move to Greenwich, Connecticut</a>, the Post is making an attempt to put itself back at the front of the Mrs. Madoff pack by publishing this <a href="https://web.archive.org/web/20120602102605/http://www.nypost.com/p/news/national/ruth_madoff_trashy_new_life_e6f0s1Hvclvjqp82WW5clJ">amazing photograph of her dragging her garbage can</a> with the headline: &quot;Ruth Madoff&#x2019;s trashy new life.&quot;</p>
+
+<p>According to the Post, &quot;Ruth recently began living in the Old Greenwich house owned by her surviving son, Andrew, and just glared when a Post lensman caught her doing chores.&quot; Which is way more restrained than when a Post photographer <a href="https://web.archive.org/web/20120602102605/http://gothamist.com/2009/06/25/ruth_madoff_takes_the_f_train_to_sc.php">caught her riding the F train in 2009</a>&#x2014;back then, she yelled, &quot;Are you having fun embarrassing me&#x2014;and ruining my life?&quot; (Duh!)  </p>
+
+<p>One neighbor simply told the Post, &#x201C;I&#x2019;m going to let her have her peace,&quot; but the trustee trying to get back money for victims of Bernard Madoff&apos;s Ponzi scheme believes that <a href="https://web.archive.org/web/20120602102605/http://gothamist.com/2009/10/02/finally_madoffs_sons_brother_niece.php">Andrew Madoff took $60 million in ill-gotten gains</a>.</p>

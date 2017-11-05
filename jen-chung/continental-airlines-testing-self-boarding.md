@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: July 27, 2010  3:50 PM
+title: Continental Airlines Testing "Self-Boarding"
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2010_07_kisok.jpg" src="https://web.archive.org/web/20110623131812im_/http://gothamist.com/attachments/jen/2010_07_kisok.jpg" width="110" height="130" class="image-right"> </span>At one gate at Continental Airlines&apos; hub in Houston, the airline is testing out &quot;self-boarding&quot; for passengers.  This is how <a href="https://web.archive.org/web/20110623131812/http://www.usatoday.com/travel/flights/2010-07-26-continental-self-boarding-houston-intercontinental_N.htm">USA Today explains it</a>: &quot;In self-boarding, passengers &#x2014; much like customers of the New York City subway&#x2014; swipe their boarding passes at a kiosk reader at the gate. That opens a turnstile or door to the jet-bridge. Although an agent isn&apos;t there to take the pass, one is typically present to handle problems and other customer service tasks.&quot;  Just hope those boarding pass kiosk sensors <a href="https://web.archive.org/web/20110623131812/http://gothamist.com/2010/07/25/station_agent_layoffs_mean_dirty_tu.php">don&apos;t get too dirty</a>, okay?  USA Today adds/warns, &quot;The practice has been common at many foreign airports for several years. And if the rate of adoption abroad is any indication, self-boarding could soon proliferate here.&quot;</p>

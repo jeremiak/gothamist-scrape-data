@@ -1,0 +1,17 @@
+---
+author: Jen Chung
+date: Oct 11, 2010 3:00 pm
+title: Paladino Hates Gay Pride Parade's Hot Guys In Speedos
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="2010_10_gaypride2.jpg" src="https://web.archive.org/web/20150510002645im_/http://gothamist.com/attachments/jen/2010_10_gaypride2.jpg" width="640" height="427"> <br> <i>Photograph from this year&apos;s Gay Pride Parade by <a href="https://web.archive.org/web/20150510002645/http://cognitivecreative.com/">Dan Lurie</a>/Gothamist; inset of Paladino from the Today Show</i></div> <p></p>
+
+<p>After his remarks about homosexuality not being an &quot;<a href="https://web.archive.org/web/20150510002645/http://gothamist.com/2010/10/10/paladino_homosexuality_not_an_equal.php">equally valid or successful option</a>&quot; (in the context of family values)&#x2014;and then subsequent explanations that he doesn&apos;t discriminate against gays, he just hates same-sex marriage, and by the way, his nephew is gay&#x2014;Paladino had to bring up one of his biggest peeves with the gay community.  The darn gay pride parades<a href="https://web.archive.org/web/20150510002645/http://today.msnbc.msn.com/id/39610257/ns/politics-decision_2010/">! On the Today Show</a>, he said of his rival, Andrew Cuomo, taking his daughters to this year&apos;s<a href="https://web.archive.org/web/20150510002645/http://gothamist.com/2010/06/28/gay_pride_3.php"> Gay Pride Parade</a> in NYC, &quot;<strong>I don&apos;t think it&apos;s proper for them to go there and watch a couple of grown men grind against each other. I don&apos;t think that&apos;s proper, I think it&apos;s disgusting</strong>.&quot; </p>
+
+<p>And on <a href="https://web.archive.org/web/20150510002645/http://empire.wnyc.org/2010/10/paladino-on-good-morning-america/">Good Morning, America</a>, Paladino also said, &quot;Now, Andrew Cuomo said he took his children to a gay pride parade. I was at one in Toronto one time, we stumbled on it, my wife and I. It wasn&#x2019;t pretty. It was a bunch of very extreme type people in bikini-type outfits grabbing at each other and doing these gyrations and I certainly wouldn&#x2019;t let my young children see that.&#x201D; </p>
+
+<p>Paladino was also defending his remarks, <a href="https://web.archive.org/web/20150510002645/http://www.myfoxny.com/dpp/news/local_news/brooklyn/paladino-dysfunctional-homosexuals-shouldnt-be-proud-20101010-ac">saying on Good Day, New York</a>, &quot;I don&#x2019;t believe that gays should be discussed in the schools. I think that morality is a situation that should be discussed in the home. I believe that homosexuals are severely discriminated against. I think it is a horrible situation. I don&#x2019;t disavow that comment. The comment was made about teaching children about homosexuality at a young age. I don&#x2019;t think it should be done in the schools.  Except for gay marriage, I&#x2019;m fine with it. I have a nephew, I have employees who are gay. I&#x2019;m sensitive to the discrimination about that.&quot;  So, can we expect a video from a gay employee soon, because Paladino released a <a href="https://web.archive.org/web/20150510002645/http://gothamist.com/2010/09/20/paladino_bullies_cuomo_for_debate_h.php">video of one of his black friends</a> to refute charges of racism.    </p>					
+										
+									
+				

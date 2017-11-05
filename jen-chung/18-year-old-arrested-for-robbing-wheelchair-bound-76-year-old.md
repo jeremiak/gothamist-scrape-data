@@ -1,0 +1,11 @@
+---
+author: Jen Chung
+date: August  4, 2011 11:55 AM
+title: 18-Year-Old Arrested For Robbing Wheelchair-Bound 76-Year-Old
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:240px; "> <img alt="2011_07_grannygrob.jpg" src="https://web.archive.org/web/20110805202155im_/http://gothamist.com/attachments/jen/2011_07_grannygrob.jpg" width="240" height="180"> <br> <i>Suspect Cody Santiago at left; screengrabs of suspect at right</i></div> Yesterday, the police identified the suspect who robbed a 78-year-old woman being pushed in a wheelchair last month.  Surveillance videos <a href="https://web.archive.org/web/20110805202155/http://gothamist.com/2011/08/02/video_man_steals_purse_from_78-year.php">captured the daytime theft of a purse in Bushwick</a> and the footage aired on TV:  <a href="https://web.archive.org/web/20110805202155/http://www.nydailynews.com/news/ny_crime/2011/08/03/2011-08-03_cops_id_suspect_who_stole_purse_from_woman_in_wheelchair.html?r=news%2Fny_crime&amp;utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+nydnrss%2Fnews%2Fny_crime+%28News%2FNY+Crime%29">According to the Daily News</a>, &quot;Cody Santiago, 18, was sitting on a couch in the living room of his family&apos;s Bushwick home Tuesday night when the TV began to broadcast the video of the heartless heist, his family said.&quot;  His mother even said, &quot;Cody, why did you do that?&quot; and when he denied it, she said, &quot;Yes, that&apos;s you, Cody. Don&apos;t deny it!&quot;<p></p>
+
+<p>Santiago&apos;s family, who adopted him when he was three, said they didn&apos;t approve of his actions and begged him to turn himself in.  Instead, the teen, who has &quot;prior arrests for sexual abuse and theft of services,&quot; left and the police arrested him last night.</p>
+
+<p>His mugging victim, Catalina Mateo said she&apos;s still frightened of him, &quot;He didn&apos;t even respect the fact that I was in a wheelchair. I&apos;m still afraid of this guy.&quot;  Her purse contained $15 and her medication.  </p>

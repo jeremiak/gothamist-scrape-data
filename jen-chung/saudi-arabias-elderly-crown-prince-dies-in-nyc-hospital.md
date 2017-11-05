@@ -1,0 +1,11 @@
+---
+author: Jen Chung
+date: October 22, 2011 11:15 AM
+title: Saudi Arabia's Elderly Crown Prince Dies In NYC Hospital
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-right" style=" width:280px; "> <img alt="2011_10_saudicrownprince.jpg" src="https://web.archive.org/web/20111031060439im_/http://gothamist.com/attachments/jen/2011_10_saudicrownprince.jpg" width="280" height="316"> <br> <i>Crown Prince Sultan bin Abdul-Aziz Al Saud last year</i></div> The heir to the kingdom of Saudi Arabia, Crown Prince Sultan bin Abdul-Aziz Al Saud, died in a New York City hospital late last night.  Prince Sultan, whose half-brother is King Abdullah bin Abd al-Aziz, was thought to be in his 80s&#x2014;his official age is 80&#x2014;and had been <a href="https://web.archive.org/web/20111031060439/http://gothamist.com/2010/11/23/saudi_king_abdullah_arrives_in_nyc.php">previously described as &quot;frail.&quot;</a>  The <a href="https://web.archive.org/web/20111031060439/http://online.wsj.com/article/SB10001424052970204485304576646451188968760.html">Wall Street Journal reports</a>, &quot;The Saudi government did not reveal the cause of death. Prince Sultan was thought by outside experts to have been suffering from cancer. He was in New York City for treatment.&quot;<p></p>
+
+<p>For nearly 50 years, Prince Sultan controlled Saudi Arabia&apos;s defense spending.  It&apos;s believed that Prince Nayef, the interior minister, will becoming the new Crown Prince; Nayef is reportedly has more traditional views on social and economic issues. <a href="https://web.archive.org/web/20111031060439/http://www.nytimes.com/reuters/2011/10/22/world/middleeast/international-us-saudi-arabia-sultan.html?_r=1&amp;hp">According to Reuters</a>, &quot;He has gained a reputation as more conservative than either King Abdullah or Prince Sultan, with a close relationship with the country&apos;s powerful clergy. However, as king he might be more likely to follow to a moderate line in keeping with the al-Saud tradition of governing by consensus, say analysts.&quot;</p>
+
+<p>Saudi Arabia has <a href="https://web.archive.org/web/20111031060439/https://www.cia.gov/library/publications/the-world-factbook/geos/sa.html">20% of the world&apos;s petroleum reserves</a>, making it the world&apos;s leading exporter of oil.</p>

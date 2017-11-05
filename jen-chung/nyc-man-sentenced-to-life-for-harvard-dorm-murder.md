@@ -1,0 +1,15 @@
+---
+author: Jen Chung
+date: Apr 23, 2011 12:15 pm
+title: NYC Man Sentenced To Life For Harvard Dorm Murder
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:250px; "> <img alt="2011_04_jcopney.jpg" src="https://web.archive.org/web/20160210213908im_/http://gothamist.com/attachments/jen/2011_04_jcopney.jpg" width="250" height="290"> <br> <i>Jabrai Jordan Copney in court earlier this month (AP)</i></div> A New York City resident who was accused of <a href="https://web.archive.org/web/20160210213908/http://gothamist.com/2009/05/22/nyc_man_pleads_not_guilty_to_k.php">fatally shooting a man</a> in a Harvard University dorm two years ago <a href="https://web.archive.org/web/20160210213908/http://www.thecrimson.com/article/2011/4/22/murder-copney-firstdegree-jury-murder-guilty-harvard-shooting/">was found guilty of first-degree murder</a> and sentenced to life in prison. Prosecutors claimed that Jabrai Jordan Copney, 22, and two other men (who made deals with prosecutors) lured Justin Cosby, a drug dealer, in the basement of the Kirkland House dorm to steal marijuana from him at gunpoint.  <p></p>
+
+<p><a href="https://web.archive.org/web/20160210213908/http://www.bostonherald.com/news/regional/view.bg?articleid=1332725">Middlesex County DA Gerald Leone said</a>, &quot;This brazen robbery and killing occurred in broad daylight on a well-known university campus, making it clear that the drug trade and violence go hand in hand, and no community is ... immune.&quot; And Cosby&apos;s mother said, &quot;My son made a mistake by selling marijuana to some students. However, what he did shouldn&#x2019;t have cost him his life. Jabrai Copney took it upon himself to be the judge and jury, and solicited his sick and misguided friends to help him lure, rob and murder my son.&quot;</p>
+
+<p>Copney, whose <a href="https://web.archive.org/web/20160210213908/http://www.nydailynews.com/news/ny_crime/2009/05/22/2009-05-22_harlem_man_arrested_in_murder_in_harvard_university_dorm.html">mother is a retired NYPD cop</a>, was not a student at Harvard, but his girlfriend, Brittany Smith, a senior at the time, was. Smith was not allowed to graduate and <a href="https://web.archive.org/web/20160210213908/http://www.nytimes.com/2011/04/23/nyregion/jabrai-j-copney-gets-life-term-for-harvard-murder.html">has since pleaded not guilty</a> to hiding the gun used in the shooting and <a href="https://web.archive.org/web/20160210213908/http://www.thecrimson.com/article/2011/3/21/smith-cosby-copney-jiggetts/">helping Copney and his friends</a> escape to NYC.  Copney&apos;s friends, Blayn Jiggetts and Jason Aquino, pleaded guilty to manslaughter; Jiggetts said he brought the 9mm gun from the city and Aquine said he took part in the robbery gone wrong.  </p>					
+										
+									
+				

@@ -1,0 +1,13 @@
+---
+author: Jen Chung
+date: Jul 22, 2011 1:55 pm
+title: Chef Ludo Lefebvre May Come To NYC, Even Though Authentic People Are In LA
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:365px; "> <img alt="2011_07_ludo.jpg" src="https://web.archive.org/web/20150504124352im_/http://gothamist.com/attachments/jen/2011_07_ludo.jpg" width="365" height="277"> <br> <i>Ludo Lefebvre and wife Krissy</i></div> You may remember Chef Ludo Lefebvre from his appearances on <em>Top Chef Masters</em> (<a href="https://web.archive.org/web/20150504124352/http://www.seriouseats.com/2009/06/top-chef-masters-episode-3-offal-on-the-street.html">offal tacos</a>! <a href="https://web.archive.org/web/20150504124352/http://www.slashfood.com/2010/04/22/ludo-and-the-electrified-tartar-sauce-top-chef-masters/">electrified tartar sauce</a>!) but he&apos;s garnered acclaim for his pop-up restaurant, <a href="https://web.archive.org/web/20150504124352/http://www.ludolefebvre.com/ludobites">Ludo Bites</a>, in LA to the point that the Sundance Channel is airing a show&#x2014;<a href="https://web.archive.org/web/20150504124352/http://www.sundancechannel.com/ludo-bites-america/">Ludo Bites America</a>&#x2014;that features him and wife Krissy opening pop-up restaurants in <a href="https://web.archive.org/web/20150504124352/http://laist.com/2011/07/11/interview_ludo_krissy_lefebvre_ludo.php">small towns the country</a>.  So, when is he going to open one in NYC?<p></p>
+
+<p><a href="https://web.archive.org/web/20150504124352/http://www.thefeast.com/newyork/ludolefebvre-ludobites-krissy-ludobitesamerica-shakeshack-shackburgers-madisonsquarepark-newyork.html">Lefebvre told The Feast</a> that they are looking at some spaces in Manhattan and Brooklyn (Krissy <a href="https://web.archive.org/web/20150504124352/http://mobile.twitter.com/frenchchefwife/status/93385168664006656">Tweeted about visiting DUMBO</a>).  He <a href="https://web.archive.org/web/20150504124352/http://ny.eater.com/archives/2011/07/nyc_vs_la.php">also said of NYC vs. LA</a>, &quot;I&apos;d say LA more interesting than New York [sic]. It&apos;s less fancy. It&apos;s more like a street restaurant scene. Authentic people. There&apos;s a bigger community of Asians, Latinos. You eat some amazing Mexican and Asian food in LA, trust me. It&apos;s just different, it&apos;s more simple, less city-like.&quot;</p>					
+										
+									
+				

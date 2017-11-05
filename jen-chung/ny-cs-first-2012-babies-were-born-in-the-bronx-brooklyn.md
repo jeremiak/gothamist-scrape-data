@@ -1,0 +1,11 @@
+---
+author: Jen Chung
+date: January  2, 2012  9:53 AM
+title: NYC's First 2012 Babies Were Born In The Bronx, Brooklyn
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:307px; "> <img alt="2012_01_rania.jpg" src="https://web.archive.org/web/20120104085010im_/http://gothamist.com/attachments/jen/2012_01_rania.jpg" width="307" height="211"> <br> <i>New Year&apos;s baby Rania Ali, via MyFoxNY</i></div> The 2012 baby derby seems to be won by a couple who delivered a 7-pound, 3-ounce, 18.5-inch baby girl at Montefiore Hospital in the Bronx.  The hospital says Rania Ali <a href="https://web.archive.org/web/20120104085010/http://www.myfoxny.com/dpp/news/first-newborns-of-the-year-20120101">was born at the stroke of midnight</a>. Also, she is VERY ADORABLE (see picture). But Maimonides Hospital in Brooklyn says 5-pound, 8-ounce Emma Sieminska was also the first baby of the New Year (and Emma&apos;s <a href="https://web.archive.org/web/20120104085010/http://www.nydailynews.com/new-york/city-welcomes-baby-girls-bronx-brooklyn-moments-midnight-stroke-12-article-1.999567?localLinksEnabled=false">pretty cute too</a>)!<p></p>
+
+<p>The <a href="https://web.archive.org/web/20120104085010/http://www.nydailynews.com/news/city-welcomes-baby-girls-bronx-brooklyn-moments-midnight-stroke-12-article-1.999567">Daily News reports</a> that both births were natural and has fun details. Apparently Rania&apos;s mother was in labor for <em>seven days</em> with brother Ryan, but Alia Ali, who started to go into labor on Saturday, said there was a TV in the delivery room, &#x201C;We saw the ball drop. At 11:59, I was having a contraction. The doctor told me, &#x2018;Push, push, push,&#x2019; and she just came out at 12 o&#x2019;clock.&#x2019;&quot; The Alis are Pakistani immigrants who live in Throgs Neck.</p>
+
+<p>As for little Emma, she&apos;s the first child of Polish immigrants and Greenpoint residents Monika and Mariusz Sieminska.  Monika&apos;s doctor said while many women were in labor at the hospital, &quot;she was the only one who was fully dilated by 11 p.m., so I thought, &#x2018;Hmm, there might be a possibility.&apos;&quot; </p>

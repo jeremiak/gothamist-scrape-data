@@ -1,0 +1,15 @@
+---
+author: Jen Chung
+date: Mar 8, 2012 2:57 pm
+title: Judge Overseeing Mets' Owners' Madoff Profit Case Is A Yankees Fan
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2009_09_rakoff.jpg" src="https://web.archive.org/web/20150426152946im_/http://gothamist.com/attachments/jen/2009_09_rakoff.jpg" width="150" height="220" class="image-right"> </span>The Mets&apos; owners are facing a <a href="https://web.archive.org/web/20150426152946/http://gothamist.com/2012/03/05/met_owners_owe_at_least_83_million.php">trial over the fake profits they made from Bernard Madoff&apos;s Ponzi scheme</a>, and the <a href="https://web.archive.org/web/20150426152946/http://www.nytimes.com/2012/03/08/sports/baseball/wealth-could-be-risky-issue-for-mets-owners-should-they-face-a-jury.html?_r=1&amp;partner=rss&amp;emc=rss">NY Times&apos; Richard Sandomir</a> notes how some legal experts think that a jury trial&#x2014;which this will be&#x2014;is bad news for Fred Wilpon and Saul Katz.  Also, Federal Judge Jed &quot;Rakoff, regarded as a brilliant but unpredictable jurist, alone will question the jury pool. He is a Yankees fan and a partial season-ticket holder.&quot;</p>
+
+<p>However, Sandomir continues, &quot;His neutrality is assured and seems unlikely to be affected by his rooting interests.&quot;  In a 2004 speech about &quot;Corporate Ethics in the Age of Steroids,&quot; Rakoff stated (<a href="https://web.archive.org/web/20150426152946/http://www.nycbar.org/pdf/report/CORPORATE_ETHICS.pdf">PDF</a>), &quot;All I can say in my defense is that at least I&#x2019;m a Yankees fan&#x2014;although, as a matter of professional courtesy, I always root for the umpires.&quot;  As for being brilliant, well, what else can you say about a judge who refers to <a href="https://web.archive.org/web/20150426152946/http://gothamist.com/2005/08/23/eckos_graffiti_party_is_on.php">Hamlet and Oedipus Rex in a judgement allowing a NYC graffiti party to go on</a> and quotes Oscar Wilde when <a href="https://web.archive.org/web/20150426152946/http://gothamist.com/2009/09/14/judge_quotes_oscar_wilde_while_reje.php">rejecting the SEC&apos;s Merrill Lynch settlement</a>?</p>
+
+<p>Back to the trial&apos;s jury: According to the Times, &quot;According to several lawyers and a jury consultant, the trustee will want jurors who resent millionaires. But Wilpon and Katz&#x2019;s team, they said, probably want less class-conscious people who might be more inclined to feel the trustee&#x2019;s pursuit of the Mets&#x2019; owners was overzealous and unfair. The trustee has accused the owners of ignoring warning signs about Madoff&#x2019;s operation as they benefited from steady returns during their many years of investing with him.&quot;</p>					
+										
+									
+				

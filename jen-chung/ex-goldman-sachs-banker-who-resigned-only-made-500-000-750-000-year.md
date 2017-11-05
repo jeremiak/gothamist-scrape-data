@@ -1,0 +1,17 @@
+---
+author: Jen Chung
+date: Mar 15, 2012 3:15 pm
+title: Ex-Goldman Sachs Banker Who Resigned "Only" Made $500,000-750,000/Year
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2012_02_gresmith.jpg" src="https://web.archive.org/web/20160426131200im_/http://gothamist.com/attachments/jen/2012_02_gresmith.jpg" width="230" height="312" class="image-left"> </span>Now that Greg Smith, ping-pong enthusiast and now <a href="https://web.archive.org/web/20160426131200/http://gothamist.com/2012/03/14/goldman_sachs_exec_calls_firm_toxic.php">former Goldman Sachs employee</a>, has secured his place in the annals of legendary resignations (<a href="https://web.archive.org/web/20160426131200/http://gothamist.com/2010/08/09/jet_blue_flight_attendant_activates.php">like this one</a>), the fallout from his NY Times op-ed f*ck-you to Goldman is being analyzed.  Goldman&apos;s market value <a href="https://web.archive.org/web/20160426131200/http://www.nydailynews.com/news/money/goldman-sachs-shares-tumble-chris-smith-op-ed-rocks-finance-world-article-1.1039520">fell by $2 billion yesterday</a>, and now the firm is trying to figure out why Smith was so upset.</p>
+
+<p><a href="https://web.archive.org/web/20160426131200/http://online.wsj.com/article/SB10001424052702304692804577281252012689294.html?mod=WSJ_hp_LEFTWhatsNewsCollection">According to the Wall Street Journal</a>, &quot;As part of the internal review, Goldman officials began talking Wednesday to Mr. Smith&apos;s former bosses and colleagues in London, hoping to determine whether he raised any concerns with them, a company spokesman said. Mr. Blankfein and other executives also spent much of the day discussing the matter with Goldman directors, shareholders and clients.&quot; Smith, who was described as &quot;executive director and head of the firm&#x2019;s United States equity derivatives business in Europe, the Middle East and Africa&quot; in the op-ed but some said he was &quot;just&quot; a vice president&#x2014;<a href="https://web.archive.org/web/20160426131200/http://dealbook.nytimes.com/2012/03/14/public-rebuke-of-culture-at-goldman-opens-debate/">Dealbook reports</a>, &quot;Some within Goldman sought to portray Mr. Smith as a lone wolf &#x2014; he did not manage anyone &#x2014; who had failed to become a managing director. &quot;</p>
+
+<p>And while Smith complained about Goldman&apos;s money-first, customers-last mentality, one client told Dealbook that &quot;the letter [was] &apos;na&#xEF;ve,&apos; saying that the firm had been trading against its clients for years. &apos;Come on, that is what they do and they are good traders, so I do business with them.&apos;&quot;  </p>
+
+<p>Smith&apos;s salary is also being mocked: According to various sources, he <a href="https://web.archive.org/web/20160426131200/http://dealbook.nytimes.com/2012/03/14/public-rebuke-of-culture-at-goldman-opens-debate/">&quot;only&quot; made $500,000</a>-<a href="https://web.archive.org/web/20160426131200/http://www.huffingtonpost.com/mark-gongloff/greg-smith-goldman-sachs_b_1344716.html">750,000 annually</a>, which is apparently chump change for Goldman.  As for his next move professionally, many think he&apos;s <a href="https://web.archive.org/web/20160426131200/http://www.forbes.com/sites/susanadams/2012/03/15/did-greg-smith-commit-career-suicide/">killed his chances within finance</a>, but maybe he could lead Occupy Wall Street.</p>					
+										
+									
+				

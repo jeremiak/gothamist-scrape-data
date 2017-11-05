@@ -1,0 +1,17 @@
+---
+author: Jen Chung
+date: Sep 23, 2010 9:35 am
+title: Facebook To Give Up To $100 MIllion To Newark Schools
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:280px; "> <img alt="2010_09_zukerop.jpg" src="https://web.archive.org/web/20160516161030im_/http://gothamist.com/attachments/jen/2010_09_zukerop.jpg" width="280" height="210"> <br> <i>Mark Zuckerberg and Oprah Winfrey</i></div> Tomorrow, the day that a film about the founding of Facebook opens the New York Film Festival, Facebook CEO Mark Zuckerberg will appear on the Oprah Winfrey show to announce a donation of up to $100 million to the Newark, NJ school system.  The <a href="https://web.archive.org/web/20160516161030/http://online.wsj.com/article/SB10001424052748703860104575508472745513134.html">Wall Street Journal noted</a>, &quot;<strong>Newark spends about $22,000 a year on each of its 40,000 pupils, but only about half of its students graduate. </strong>Of those who do, only one-fifth go on to four-year colleges. More than 85% of the Newark students at community colleges need remedial help in math and English.&quot;<p></p>
+
+<p>The WSJ also characterizes Zuckerberg/Facebook&apos;s move as a &quot;bold bid&quot; and explains,  &quot;Mr. Zuckerberg is setting up a foundation with $100 million of Facebook&apos;s closely held stock to be used to improve education in America, with the primary goal of helping Newark. Mr. Zuckerberg has had a long-standing interest in education, particularly teachers&apos; low salaries, according to a person familiar with the discussions. Over the last year, he had a series of meetings with people involved in education and developed a relationship with Newark Mayor Cory Booker.&quot;  That Cory Booker&#x2014;<a href="https://web.archive.org/web/20160516161030/http://www.nj.com/news/index.ssf/2009/09/newark_mayor_booker_ashton_kut.html">so good at social networking</a>!  Interestingly, Zuckerberg doesn&apos;t  have a connection to Newark&#x2014;he grew up in Ardsley, NY and graduated from Philip Exeter Academy before attending Harvard.</p>
+
+<p>NJ Governor Chris Christie had recently told the Newark schools superintendent that his contract would not be renewed. <a href="https://web.archive.org/web/20160516161030/http://www.nytimes.com/2010/09/23/education/23newark.html?_r=1&amp;hpw">According to the NY Times</a>, Christie will now &quot;cede some control of the state-run system&quot; to Booker, by &quot;choosing a new superintendent and redesigning the system,&quot; though Christie can take back control.  Still, the Times says, &quot;the arrangement tightens an already friendly relationship between the governor, a Republican, and the mayor, a Democrat who was once seen as a likely challenger for the State House in 2013. It also promises to be a rare happy moment in a state troubled by budget crises, scandals, political infighting and, most recently, the loss of a $400 million federal education grant <a href="https://web.archive.org/web/20160516161030/http://gothamist.com/2010/08/25/jersey_cant_read_directions_loses_r.php">because of a clerical error</a>.&quot;</p>
+
+<p>Zuckerberg, Christie and Booker will appeared on Oprah together.  </p>					
+										
+									
+				

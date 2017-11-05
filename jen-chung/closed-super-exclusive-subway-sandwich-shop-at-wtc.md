@@ -1,0 +1,15 @@
+---
+author: Jen Chung
+date: January 27, 2012  1:15 PM
+title: Closed: Super-Exclusive Subway Sandwich Shop At WTC
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="" src="https://web.archive.org/web/20120127183630im_/http://gothamist.com/attachments/bmuessig/2009_12_groundzerosubway3.jpg" width="640" height="424" class="image-none"> </span></p>
+
+<p><a href="https://web.archive.org/web/20120127183630/http://gothamist.com/2009/12/23/subway_sandwich_shop_takes_to_the_s.php#photo-1">After just two years</a>, the Subway sandwich shop situated inside the under-construction 1 World Trade Center has closed.  <a href="https://web.archive.org/web/20120127183630/http://www.crainsnewyork.com/article/20120127/REAL_ESTATE/120129899/1033">According to Crain&apos;s</a>, even though the lofty location had disappointing sales, &quot;It wasn&apos;t financial losses that shuttered the restaurant known for its $5 foot-long subs. The problem was strictly one of logistics. By design, 1 World Trade narrows as it rises, and the restaurant, which needs to be on a top floor to be near the workers, simply ran out of room as construction continued to the building&apos;s current 90th floor high point.&quot;</p>
+
+<p>The sandwich shop was picked to appeal to the 250 iron workers at the site, so they <a href="https://web.archive.org/web/20120127183630/http://gothamist.com/2009/11/16/subway_sandwich_shop_to_be_built_at.php">wouldn&apos;t have to waste time</a> by going down to street level (there are limited elevators)&#x2014;there&apos;s only 30 minutes for lunch, but a round-trip to street level could add another hour to the lunch time.  Crain&apos;s has more details:</p><blockquote>Still, many iron workers opted to take the long ride. That meant that the restaurant, which needed to sell about 200 meals a day just to break even, only ever doled out about 90. The Subway was run by a franchise operator and DCM [a <a href="https://web.archive.org/web/20120127183630/http://www.dcmerectors.com/DCM0/proj9.html">steel erector company</a>] had agreed to eat any losses it incurred. In its relatively brief life, the restaurant wound up running up a bill of about $180,000 for DCM, on top of the $500,000 it cost to construct it. </blockquote>DCM&apos;s Bill Grutta says it was worth it, &quot;It means we saved 90 rides on the hoist a day,&quot; but offered an opinion about the fare: &quot;The Subway food is fine. But these guys like something off the grill. They like a greasy steak sandwich or a greasy hamburger with fries.&quot; Here&apos;s a look inside the Subway at the WTC:<p></p>
+
+<p><iframe width="640" height="360" src="https://web.archive.org/web/20120127183630if_/http://www.youtube.com/embed/xKiqbysNX3M" frameborder="0" allowfullscreen></iframe></p>
+
+<p>DCM also revealed that they are &quot;considering hoisting the restaurant to the tower&apos;s roof when the building tops off at 105 stories, so the iron workers will have somewhere to eat while they are installing its antenna.&quot; Sounds like they are going for something with a grill.</p>

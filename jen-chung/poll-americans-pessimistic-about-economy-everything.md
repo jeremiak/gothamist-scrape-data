@@ -1,0 +1,11 @@
+---
+author: Jen Chung
+date: April 22, 2011  8:54 AM
+title: Poll: Americans Pessimistic About Economy, Everything
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:365px; "> <img alt="2011_04_obamafund.jpg" src="https://web.archive.org/web/20120125111355im_/http://gothamist.com/attachments/jen/2011_04_obamafund.jpg" width="365" height="282"> <br> <i>President Obama at a fundraiser in LA last night (AP)</i></div> A new NY Times/CBS News poll shows Americans are not happy with how things are going, with 70% saying the country is going in the wrong direction, 57% disapproving of how President Obama is handling the economy and 63% disapproving of how the Republicans are handling the economy.  The <a href="https://web.archive.org/web/20120125111355/http://www.nytimes.com/interactive/2011/04/21/us/nat-poll.html?ref=us">Times says</a>, &quot;Americans are more pessimistic about the nation&#x2019;s economic outlook and overall direction than they have been at any time since President Obama&#x2019;s first two months in office, when the country was still officially ensnared in the Great Recession.&quot;<p></p>
+
+<p>You can see how respondents answered various questions, like &quot;Do you think providing health coverage for the poor is the responsibility of the federal government?&quot; (56% overall believe it is; 25% of Republicans agree, while 61% of Independents and 73% of Democrats say yes), <a href="https://web.archive.org/web/20120125111355/http://www.nytimes.com/interactive/2011/04/21/us/nat-poll.html?ref=us">in this graphic</a>.  Interestingly, even the majority of Republicans  believe that the government should provide health care for the elderly (56%) and agree that federal taxes should be raised for those households making more than $250,000 (55%)&#x2014;about three-quarters of overall respondents agree with those concepts.  </p>
+
+<p>As for Obama&apos;s approval ratings, <a href="https://web.archive.org/web/20120125111355/http://www.cbsnews.com/8301-503544_162-20056256-503544.html">46% approve...while 45% disapprove</a>.</p>

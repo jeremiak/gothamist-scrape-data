@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: September 14, 2010  9:15 AM
+title: Biden Visit Accidents Mean New NYPD Motorcade Rules
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-right" style=" width:120px; "> <img alt="2010_09_vpaccc.jpg" src="https://web.archive.org/web/20110629163426im_/http://gothamist.com/attachments/jen/2010_09_vpaccc.jpg" width="120" height="103"> <br> <i>Photo: fleshtone</i></div> Vice President Joe Biden ruins everything for visiting dignitaries! The <a href="https://web.archive.org/web/20110629163426/http://www.nypost.com/p/news/local/biden_biker_rule_qstGFOju3j9BbJgJGScOeM?CMP=OTC-rss&amp;FEEDNAME=">Post reports</a> the &quot;motorcades for dignitaries at the upcoming UN General Assembly won&apos;t include motorcycle cops, sources said yesterday. This follows <a href="https://web.archive.org/web/20110629163426/http://gothamist.com/2010/08/05/joe_biden_is_a_magnet_for_car_crash.php">last month&apos;s accident</a> in Queens in which two motorcycle cops suffered minor injuries as part of Vice President Joe Biden&apos;s motorcade, and an <a href="https://web.archive.org/web/20110629163426/http://gothamist.com/2009/11/18/livery_cab_t-bones_vp_motorcade_adv.php">accident in November</a> in Hell&apos;s Kitchen that left two other motorcycle cops injured, also while escorting Biden.&quot;  However, when President Obama comes to visit for the UN General Assembly, he will get motorcycles in his motorcades.  <p></p>

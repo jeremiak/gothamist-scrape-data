@@ -1,0 +1,17 @@
+---
+author: Jen Chung
+date: February 23, 2012  3:49 PM
+title: Firefighters Rage At Guy Who Claimed To Be 9/11 Hero
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:300px; "> <img alt="2012_02_jlifander.jpg" src="https://web.archive.org/web/20120223223023im_/http://gothamist.com/attachments/jen/2012_02_jlifander.jpg" width="300" height="226"> <br> <i>Jordan Lifander</i></div> A former Long Island resident who has been posing as a 9/11 firefighter for the past year has finally admitted he was never near the World Trade Center on September 11, 2001.  A man accused of posing as a 9/11 hero has owned up to living a lie. <a href="https://web.archive.org/web/20120223223023/http://newyork.cbslocal.com/2012/02/22/phony-911-hero-comes-clean-but-his-apology-falls-on-deaf-ears/">Jordan Lifander told CBS 2&apos;s Lou Young</a>, &#x201C;It just snowballed into something that was out of my control. I&#x2019;m truly sorry for misleading and lying about the fact I was on FDNY.&quot;  <p></p>
+
+<p>Lifander, who now lives in South Carolina, appeared at a 9/11 anniversary event for firefighters in Spartanburg, S.C. He claimed that he was at Ground Zero, as captain of Ladder 133, which lost 12 men that day, but Lifander was really just on Long Island (he was part of a volunteer firefighting organization there).  Apparently real FDNY firefighters found out about Lifander&apos;s act and were <em>pissed</em>.  The real captain of Ladder 133 during 9/11, Bill Youngson, <a href="https://web.archive.org/web/20120223223023/http://www.blueridgenow.com/article/20120222/ARTICLES/120229908">told Blue Ridge Now</a>, &quot;I&apos;m outraged. I&apos;m sick and tired of people standing up and telling people these stories for a little bit of glory. People have cancer, I have asthma and we paid our dues. In six months, we buried more people than you&apos;ve ever seen and to read this story &#x2014; this lie &#x2014; it has to stop. Put that guy on the wall of shame.&quot;</p>
+
+<p>Youngson called Lifander&apos;s home but didn&apos;t get in touch with him, &quot;<strong>He&apos;s a clown and an imposter and I told his wife that</strong>.&quot; Lifander wore his old volunteer firefighter uniform with a FDNY patch that he&apos;s had for years.  </p>
+
+<p>Spartanburg County Sheriff Chuck Wright said, &quot;We didn&apos;t check his background because we didn&apos;t see a need to. We didn&apos;t have to fly him in, he lived here and someone with the fire department knew his story... He had the uniform and the whole [spiel]. I will say that the service was not about him, it was about remembering the victims of 9/11, and he was just one of the speakers.&quot; </p>
+
+<p>But <a href="https://web.archive.org/web/20120223223023/http://gothamist.com/2007/09/11/jim_riches_fdny.php">Jim Riches</a>, a former FDNY deputy chief whose son died on 9/11, said of fakers pretending to 9/11 heros, &quot;It happens a lot because they want to get that hero worship, people telling them &#x2018;thank you&#x2019; and everything else. It&#x2019;s a sick mind, but he&#x2019;s not the only one doing it. It&#x2019;s out there and I think people should verify who&#x2019;s actually speaking to them.&quot; </p>
+
+<p>Lifander said, &quot;It was that whole thing about portraying something I wasn&#x2019;t. The ego, the lie, keeping up with it, a very big mistake... You know, once you tell one lie, you gotta keep up that lie. I got all caught up in the whole 9/11 anniversary and just lied.&quot;</p>

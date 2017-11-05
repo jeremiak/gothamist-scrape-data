@@ -1,0 +1,15 @@
+---
+author: Jen Chung
+date: Aug 19, 2010 5:43 pm
+title: Archbishop Dolan: I Can Mediate "Ground Zero" Mosque Talks
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:230px; "> <img alt="2010_08_dolan.jpg" src="https://web.archive.org/web/20150429163523im_/http://gothamist.com/attachments/jen/2010_08_dolan.jpg" width="230" height="254"> <br> <i>Dolan <a href="https://web.archive.org/web/20150429163523/http://gothamist.com/2009/04/16/archbishop_timothy_dolan_basks_in_n.php?gallery0Pic=6#gallery">last year</a>, during his installation ceremony (AP)</i></div> As if the debate over whether a <a href="https://web.archive.org/web/20150429163523/http://gothamist.com/tags/groundzeromosque">mosque and community center</a> should be built two blocks from the World Trade Center site needed another player:  Archbishop Timothy Dolan has offered to mediate a discussion between the government and the Park 51 developers on a potential new location. He said, &quot;Those who wonder about the wisdom of the situation of the mosque, near such a wounded site, ask what I think are some legitimate questions that I think deserve attention.&quot;<p></p>
+
+<p>Dolan <a href="https://web.archive.org/web/20150429163523/http://newyork.cbslocal.com/2010/08/18/archbishop-dolan-speaks-against-ground-zero-mosque/">compared the situation</a> a few decades ago of <a href="https://web.archive.org/web/20150429163523/http://www.nytimes.com/1993/04/15/world/pope-orders-nuns-out-of-auschwitz.html">Carmelite nuns at Auschwitz</a>, &quot;John Paul II said &#x2018;Why don&#x2019;t we get together civilly and thoughtfully and with dignity and maybe decide a good solution&#x2019; and he&#x2019;s the one who said &#x2018;let&#x2019;s keep the idea and maybe move the address.&#x2019; It worked there. It might work here.&quot;  Of course, Dolan also has experience in saying no to mosques&#x2014;the Archdiocese agreed with plans to vote down a mosque <a href="https://web.archive.org/web/20150429163523/http://gothamist.com/2010/07/22/staten_island_mosque_voted_down.php">proposed for a former convent on Staten Island</a>.</p>
+
+<p>He did praise both Mayor Bloomberg and Governor David Paterson for their involvement; Bloomberg has pointed out the Park 51 developers bought the building and <a href="https://web.archive.org/web/20150429163523/http://gothamist.com/2010/08/03/bloomberg_chokes_up_during_ground_z.php">have a right to be there</a> (religious liberty) while Paterson is <a href="https://web.archive.org/web/20150429163523/http://gothamist.com/2010/08/17/islam_welcome_sign_missing_from_gro.php">proposing a land swap</a> (sensitivity to 9/11 victims&apos; families). Dolan added, &quot;My major prayer is that what has turned into somewhat of a divisive issue might develop into an occasion of very civil, rational, loving, respectful discussion.&quot;  Keep prayin&apos;, big guy.</p>					
+										
+									
+				

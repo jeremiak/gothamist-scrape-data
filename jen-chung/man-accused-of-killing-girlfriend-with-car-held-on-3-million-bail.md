@@ -1,0 +1,17 @@
+---
+author: Jen Chung
+date: Feb 22, 2012 12:17 pm
+title: Man Accused Of Killing Girlfriend With Car Held On $3 Million Bail
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:280px; "> <img alt="2012-01_chann.jpg" src="https://web.archive.org/web/20150503154648im_/http://gothamist.com/attachments/jen/2012-01_chann.jpg" width="280" height="264"> <br> <i>Charles Ann</i></div> The 26-year-old man who allegedly killed his girlfriend on a Fort Lee, NJ street by <a href="https://web.archive.org/web/20150503154648/http://gothamist.com/2012/02/21/hit-and-run_driver_kills_woman_in_n.php">driving his car over her multiple times</a> is still in Queens, awaiting extradition back to NJ.  Aena Hong, 25, was killed on Monday afternoon and, at 4 a.m. on Tuesday, Ann, a U.S. citizen, was found in a Flushing apartment with his passport and $3,000 cash.  Police think he was trying to flee the country after the brutal confrontation.  <a href="https://web.archive.org/web/20150503154648/http://www.northjersey.com/news/Rocky_relationship_tragic_end__Boyfriend_charged_in_Fort_Lee_killing_known_for_angry_outbursts.html?c=y&amp;page=1">A witness said</a>, &quot;The guy ran over the girl. He backed up again. It happened really quick&quot;&#x2014; the driver seemed to want &#x201C;to finish her.&quot;<p></p>
+
+<p>The Bergen County Prosecutor&apos;s Office said that the couple had a &quot;tumultuous&quot; relationship and that Hong, who is from South Korea and has no relatives here, was trying to break up with him.  <a href="https://web.archive.org/web/20150503154648/http://www.northjersey.com/news/Rocky_relationship_tragic_end__Boyfriend_charged_in_Fort_Lee_killing_known_for_angry_outbursts.html?c=y&amp;page=1">According to the Bergen Record</a>, &quot;Hong and Ann recently signed a lease on a one-bedroom apartment in a Fort Lee high-rise. But a doorman at the building recalled witnessing a physical altercation between the two, and a neighbor said Hong backed out of the living arrangement. A teacher at the language school where Hong was taking classes said Ann stormed into a classroom one day and angrily tossed an envelope stuffed with money on the table in front of her.&quot;</p>
+
+<p>The doorman told the Record that the couple seemed to have broken up a few weeks ago and that Ann had come to him for relationship guidance.  The doorman said, &quot;He asked me for advice. I told him to move on.&quot; He added that he witnessed one fight outside the building, &quot;At times she was crying or hitting him on the back of the head and in the face, and choking him and punching him in the stomach. He was the one getting abused, and he never laid a hand on her.&quot;</p>
+
+<p>Witnesses to the fatal incident say that, on Monday, the couple seemed to be arguing on a sidewalk.  The prosecutor&apos;s office says that Ann got in his car and drove away&#x2014;but then came back to hit Hong as she crossed the street.  A nearby bank manager who served in Iraq and saw Hong&apos;s body said, &quot;I&#x2019;m a vet. I was overseas. I haven&#x2019;t seen anything this horrific since I got back.&quot;</p>					
+										
+									
+				

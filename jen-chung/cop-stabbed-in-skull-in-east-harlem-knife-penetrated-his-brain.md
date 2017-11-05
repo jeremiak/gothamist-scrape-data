@@ -1,0 +1,15 @@
+---
+author: Jen Chung
+date: April 17, 2012  2:18 PM
+title: Cop Stabbed In Skull In East Harlem, Knife "Penetrated His Brain"
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="2012_03_ehscene.jpg" src="https://web.archive.org/web/20120602130103im_/http://gothamist.com/attachments/jen/2012_03_ehscene.jpg" width="640" height="484"> <br> <i>Police respond to the scene in East Harlem (Photograph by Erik Sommer)</i></div> <p></p>
+
+<p>Around 10:30 this morning, a police officer was stabbed in the skull while responding to a call about an emotionally disturbed man.  Police Commissioner Ray Kelly showed the knife, with a 3.5&quot; blade, to the media and said, &quot;Today is another reminder that in a split second, a police officer&#x2019;s life can be placed in great jeopardy.&quot; Kelly said that the &quot;blade penetrated the brain&quot; of Officer Eder Loor, 28. Loor underwent immediate surgery and doctors are &quot;cautiously optimistic.&quot;</p>
+
+<p>Loor and his partner had <a href="https://web.archive.org/web/20120602130103/http://www.nbcnewyork.com/news/local/Police-Officer-Stabbed-East-Harlem-107-Third-Avenue-147755905.html">responded to a call from a woman</a> at 107th Street and Third Avenue who said her son was &quot;acting in an erratic manner&quot; and should go to the hospital.  <a href="https://web.archive.org/web/20120602130103/http://cityroom.blogs.nytimes.com/2012/04/17/police-officer-stabbed-in-neck/">According to City Room</a>, &quot;The officers were met on the sidewalk by Mr. Hale&#x2019;s mother, entered the building with her and were met by Mr. Hale coming out of the elevator in the lobby, Mr. Kelly said. Mr. Hale&#x2019;s mother told him he had to go the hospital, to which Mr. Hale responded, &apos;I&#x2019;ll go by myself&apos;&#x201D; and walked out the door, Mr. Kelly said.&quot; </p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="2012_04_knife.jpg" src="https://web.archive.org/web/20120602130103im_/http://gothamist.com/attachments/jen/2012_04_knife.jpg" width="640" height="480"> <br> <i>The knife used in the attack (<a href="https://web.archive.org/web/20120602130103/https://twitter.com/#!/NYPDnews/status/192310582995730433">NYPD</a>)</i></div> <p></p>
+
+<p>Kelly told reporters, &quot;He had nothing in his hands, but suddenly produced a knife and struck the officer in the left temple.&quot;  Mayor Bloomberg said that Loor, who is assigned to the 23rd Precinct, <a href="https://web.archive.org/web/20120602130103/http://newyork.cbslocal.com/2012/04/17/suspect-in-custody-after-police-officer-stabbed-in-manhattan/">is &quot;not out of the woods yet.&quot;</a> Hale was charged with assault with a knife.</p>

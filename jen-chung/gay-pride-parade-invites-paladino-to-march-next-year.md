@@ -1,0 +1,17 @@
+---
+author: Jen Chung
+date: Oct 11, 2010 5:32 pm
+title: Gay Pride Parade Invites Paladino To March Next Year
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="" src="https://web.archive.org/web/20150428101554im_/http://gothamist.com/upload/2010/06/5gaypridemarch0610.jpg" width="640" height="427" class="image-none"> </span><br>
+<span class="photo_caption">Photograph from the 2010 Gay Pride Parade by <a href="https://web.archive.org/web/20150428101554/http://www.flickr.com/photos/atomische/4740083673/">Atomische &#x2022; Tom Giebel on Flickr</a></span></p>
+
+<p>Republican gubernatorial candidate Carl Paladino claims that he has <a href="https://web.archive.org/web/20150428101554/http://gothamist.com/2010/10/11/paladino_denies_dyfunctional_homose.php">no problems with gays</a>&#x2014;he just doesn&apos;t support gay marriage, doesn&apos;t want gays discussed amongst children and <a href="https://web.archive.org/web/20150428101554/http://gothamist.com/2010/10/11/paladino_hates_gay_pride_parade_has.php">detests the gay pride parade</a>.  We reached out to the organizers of the annual <a href="https://web.archive.org/web/20150428101554/http://www.hopinc.org/march.html">Heritage of Pride March in NYC</a> to respond to his comments slamming Andrew Cuomo&apos;s decision to march in the parade with his teen daughters (&quot;I don&apos;t think it&apos;s proper for them to go there and watch a couple of grown men grind against each other&quot;).  Co-Chair Ada Ospina said:</p><blockquote>We would hope that the personal views of a political figure do not adversely affect the struggles and challenges that the LGBT community is faced with on a daily basis. On National Coming Out Day we would hope that individuals would be more cognizant of the issues that are currently affecting our communities and embrace all aspects of our diversity. The unfortunate deaths of young people that have been making headlines could have been prevented with more tolerance based dialogue focused on inclusivity.<p></p>
+
+<p>The NYC Pride March is a prime example of an inclusivity based event, with over 500,000 marchers from a very broad spectrum and over 1,000,000 spectators from an equally as broad spectrum  We strive to continue to host events in which our attendees can freely express themselves, of course while following  city, state, and federal laws. Although we may not agree with views of Mr. Paladino, such statements highlight the importance of our Annual Pride events in combating the hatred and homophobia that is still present in our society. We welcome him to march with us, the LGBT community, our allies, and other political figures in the 2011 NYC Pride March on June 26th.</p></blockquote><br>
+Paladino is <a href="https://web.archive.org/web/20150428101554/http://gothamist.com/2010/10/10/paladino_homosexuality_not_an_equal.php">blaming the whole hullabaloo</a> about his remarks &quot;I don&apos;t want [children] brainwashed into thinking that homosexualtiy is an equally valid and successful option--it isn&apos;t&quot; <a href="https://web.archive.org/web/20150428101554/http://www.nydailynews.com/ny_local/2010/10/11/2010-10-11_crazy_carl_paladino_blames_furor_over_his_antigay_remarks_on_rival_andrew_cuomo.html">on Cuomo (of course)</a>!<p></p>					
+										
+									
+				

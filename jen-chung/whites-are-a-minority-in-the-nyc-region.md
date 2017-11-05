@@ -1,0 +1,11 @@
+---
+author: Jen Chung
+date: March 28, 2011  5:43 PM
+title: Whites Are A Minority In The NYC Region 
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="2011_03_subdiver.jpg" src="https://web.archive.org/web/20110329074256im_/http://gothamist.com/attachments/jen/2011_03_subdiver.jpg" width="640" height="357"> <br> <i>Photograph by <a href="https://web.archive.org/web/20110329074256/http://www.flickr.com/photos/michellerick/5024592487/">Michelle Rick on Flickr</a></i></div> <p></p>
+
+<p>Besides <a href="https://web.archive.org/web/20110329074256/http://gothamist.com/2011/03/24/census_says_nyc_population_barely_b.php">pissing New York officials off</a>, guess what else the latest Census figures are doing? They are showing that non-Hispanic whites are now a minority in the NYC-area, <a href="https://web.archive.org/web/20110329074256/http://www.nytimes.com/2011/03/28/nyregion/28nycensus.html">which the NY Times reports</a>, is the &quot;first major metropolitan area&quot; to show such a shift beyond the South or the West.  However, it&apos;s unclear if these findings will change when NYC <a href="https://web.archive.org/web/20110329074256/http://gothamist.com/2011/03/28/no_surprise_here_the_city_will_cont.php">demands a recount</a>!</p>
+
+<p>According to the Times, &quot;In 2000, the census found that non-Hispanic whites made up 54.3 percent of the area&#x2019;s population. By 2010, their share had declined to 49.6 percent.&quot; The metropolitan area,19 million people strong, covers NYC&apos;s five boroughs; Nassau, Suffolk, Westchester, Rockland and Putnam Counties in NY State; Connecticut&apos;s Fairfield County in Connecticut; and 12 counties in New Jersey. Everywhere, <a href="https://web.archive.org/web/20110329074256/http://gothamist.com/2010/12/26/census_data_manhattan_less_diverse.php">except Manhattan</a> and Brooklyn, saw a decline in the non-Hispanic white population. Queens College sociologist Andrew Beveridge says, &quot;<strong>It reflects the way the country is going; it&#x2019;s becoming more diverse. It&#x2019;s America now.</strong>&quot; </p>

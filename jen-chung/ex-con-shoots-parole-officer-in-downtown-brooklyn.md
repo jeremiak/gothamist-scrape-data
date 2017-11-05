@@ -1,0 +1,11 @@
+---
+author: Jen Chung
+date: April 16, 2010  8:30 AM
+title: Ex-Con Shoots Parole Officer In Downtown Brooklyn
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2010_04_parof.jpg" src="https://web.archive.org/web/20130517065905im_/http://gothamist.com/attachments/jen/2010_04_parof.jpg" width="230" height="211" class="image-left"> </span>Last night, a NY State parole officer <a href="https://web.archive.org/web/20130517065905/http://www.wpix.com/news/local/wpix-parole-officer-shot,0,276.story">was shot by an ex-convict</a> in the State Division of Parole offices on Schermerhorn Street near Nevins Street in downtown Brooklyn.  Parole officer Samuel Salters was hit in the right shoulder while another parole officer tackled suspect Robert Morales, 50, who was <a href="https://web.archive.org/web/20130517065905/http://www.nydailynews.com/news/ny_crime/2010/04/15/2010-04-15_parole_officer_wounded_as_shooter_strolls_into_office_in_brooklyn_after_sitting_.html">convicted of second-degree murder</a> (an arson that <a href="https://web.archive.org/web/20130517065905/http://abclocal.go.com/wabc/story?section=news/local&amp;id=7388907">killed a boy</a>) in 1979 and paroled in 2002.  Another parolee, Terrance Cofield, who witnessed the shooting said, &quot;It was crazy. Everybody was running around, trying to figure out what was going on. The parole officers were scared. The adrenaline was pumping. &quot;</p>
+
+<p>Morales had been waiting to see Salters for an appointment.  According to the Daily News, he &quot;sat stone-faced in a waiting room until his name was called shortly before 7 p.m. He then calmly walked into a cubicle in an adjoining office, took aim at Salters and squeezed off a single shot.&quot; Cofield, who said that meeting with parole officers take about a half hour, said that there&apos;s <a href="https://web.archive.org/web/20130517065905/http://www.nypost.com/p/news/local/parole_officer_shot_killed_by_parolee_OgqVwd9jf0aaSfJfdRRqRP?CMP=OTC-rss&amp;FEEDNAME=">no security screening at the offices</a>&#x2014; there&apos;s just a list of banned items (like weapons).  </p>
+
+<p>Salters is in stable condition at Bellevue Hospital.  Morales was arrested and charged with attempted murder and criminal possession of a weapon&#x2014;a 9mm Ruger was recovered at the scene.  </p>

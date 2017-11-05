@@ -1,0 +1,9 @@
+---
+author: Jen Chung
+date: December 27, 2011  4:09 PM
+title: Brooklyn Man Arrested For Shooting "Crack-Addicted" Stepson
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-right" style=" width:365px; "> <img alt="2011_10_handcuffs2.jpg" src="https://web.archive.org/web/20120113063000im_/http://gothamist.com/attachments/jen/2011_10_handcuffs2.jpg" width="365" height="256"> <br> <i>Phtoograph by <a href="https://web.archive.org/web/20120113063000/http://www.shutterstock.com/gallery-87133p1.html">Al Mueller</a> / Shutterstock.com</i></div> A 61-year-old man was arrested for shooting his 43-year-old stepson in a Canarsie apartment last night.  According to the Daily News, &quot;Osvaldo Vasquez was mortally wounded in his sixth-floor apartment at the Breukelen Houses in Canarsie by a single blast to the chest just after 6 p.m.&quot; <p></p>
+
+<p>The<a href="https://web.archive.org/web/20120113063000/http://www.nypost.com/p/news/local/man_kills_stepson_4fb2vV7Y2ila7N77qWQoyO?CMP=OTC-rss&amp;FEEDNAME="> Post has the apparent backstory:</a> Vasquez was &quot;crack-addicted,&quot; and he and his stepfather were arguing after Vasquez &quot;asked him for money to support his habit, police sources said.&quot; However, News 12 spoke to a family friend, <a href="https://web.archive.org/web/20120113063000/http://www.news12.com/articleDetail.jsp?regionId=1&amp;region_name=BK&amp;articleId=302193&amp;position=1&amp;news_type=news">who said</a> &quot;[The stepfather Dolores Fuentes] stated that the shooting was a mistake. The victim&apos;s mother says Fuentes was holding the gun when it accidentally went off.&quot; The stepfather was taken into custody and charges are pending.  </p>

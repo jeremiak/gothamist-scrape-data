@@ -1,0 +1,11 @@
+---
+author: Jen Chung
+date: April 11, 2011  2:33 PM
+title: NY Gas Station Sells Cheap Smokes From Ice Cream Truck On CT Side Of Property
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:365px; "> <img alt="2011_04_cigsmokes2.jpg" src="https://web.archive.org/web/20110412130110im_/http://gothamist.com/attachments/jen/2011_04_cigsmokes2.jpg" width="365" height="251"> <br> <i>NBC Connecticut</i></div> We all know that <a href="https://web.archive.org/web/20110412130110/http://gothamist.com/2010/11/22/are_smokers_quitting_or_just_buying.php">cigarettes are very expensive in New York</a>, thanks to another $1.60 state tax imposed last year, which prompts some smokers to head to cheaper pastures.  One gas station on the border of New York and Connecticut has now taken an ingenious approach: Put an ice cream truck selling smokes on the Connecticut part of its property. <p></p>
+
+<p>The Port Chester, NY Sunoco station has its pumps in Greenwich, CT.  And though the cigarette tax is $3 in Connecticut, the 4th highest in the country, it&apos;s easier to stomach than NY&apos;c $4.35 cigarette tax.  A <a href="https://web.archive.org/web/20110412130110/http://www.nbcconnecticut.com/news/local/119331604.html">Stamford resident knowingly told NBC Connecticut</a>, &quot;In Connecticut they&apos;re greatly cheaper than in New York. In New York, it&apos;s like $11.50 in the city for a pack of cigarettes. That&apos;s kind of ridiculous.&quot; </p>
+
+<p>While the addicts are happy, kids hoping for some Choco Tacos are not!  <a href="https://web.archive.org/web/20110412130110/http://www.stamfordadvocate.com/default/article/Gas-station-rips-ice-cream-ads-from-cigarette-1327991.php">A customer said,</a> &quot;The first week it was there, there were little kids running up to it thinking it was an ice cream truck.&quot; The gas station has now  taken down the signs advertising ice cream from the truck&#x2014;and let&apos;s face it, it&apos;s not like it&apos;s an <a href="https://web.archive.org/web/20110412130110/http://gothamist.com/2011/03/17/million_dollar_oxy_drug_ring_allege.php">oxy ring is being operated from it</a>.</p>

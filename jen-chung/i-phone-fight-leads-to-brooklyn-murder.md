@@ -1,0 +1,9 @@
+---
+author: Jen Chung
+date: September 25, 2011  9:38 AM
+title: iPhone Fight Leads To Brooklyn Murder
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2011_09_iphone5.jpg" src="https://web.archive.org/web/20111117143505im_/http://gothamist.com/attachments/jen/2011_09_iphone5.jpg" width="250" height="230" class="image-left"> </span><a href="https://web.archive.org/web/20111117143505/http://www.nypost.com/p/news/local/brooklyn/man_killed_over_iphone_8X7JZQmuWfmiEVZch4Y3WM">According to the Pos</a>t, a 27-year-old man was killed over an iPhone: &quot;The victim, whose name was withheld pending family notification, was shot in the back at about 9 p.m. in the lobby of a Sheepshead Bay apartment building on Ocean Avenue near Avenue W... Cops said the victim was arguing with two men shortly before he died. Two friends of the victim said the fight was over an iPhone.&quot;</p>
+
+<p>With expensive gadgets becoming more and more popular, there&apos;s been a corresponding rise in gadget-related crime.  After the iPhone was introduced, Police Commissioner Kelly said <a href="https://web.archive.org/web/20111117143505/http://gothamist.com/2008/07/26/commissioner_kelly_iphones_mean_mor.php">more iPhones meant more muggers</a>. The NYPD recently revealed that grand larcenies&#x2014;mostly for iPhones (and smartphones)&#x2014;are <a href="https://web.archive.org/web/20111117143505/http://gothamist.com/2011/09/23/blame_apple_subway_crime_jumps_169.php">driving the increase in subway crime</a>. And in 2005, a 15-year-old boy was <a href="https://web.archive.org/web/20111117143505/http://gothamist.com/2005/07/05/15_year_old_murdered_over_ipod.php">killed in Brooklyn over his iPod</a>, prompting Steve Jobs to <a href="https://web.archive.org/web/20111117143505/http://gothamist.com/2005/07/06/apples_sympathy_for_ipod_murder_victims_family.php">call his family to offer his condolences</a>. </p>

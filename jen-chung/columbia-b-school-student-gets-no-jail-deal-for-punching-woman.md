@@ -1,0 +1,11 @@
+---
+author: Jen Chung
+date: May  3, 2012 11:19 AM
+title: Columbia B-School Student Gets No-Jail Deal For Punching Woman
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left"> <img alt="2011_04_collwalk.jpg" src="https://web.archive.org/web/20120529111902im_/http://gothamist.com/attachments/jen/2011_04_collwalk.jpg" width="300" height="199"> <br> <i style=" width:300px; ;display:block"> Photograph by <a href="https://web.archive.org/web/20120529111902/http://www.flickr.com/photos/ciaophotos/2322511471/">ciaophotos on Flickr</a></i></div> Last year, Columbia business school student Ash Sinha suffered a psychotic break and <a href="https://web.archive.org/web/20120529111902/http://gothamist.com/2011/04/07/columbia_b-school_student_who_attac.php">punched, kicked and bit</a> a young woman who was walking at Broadway and 116th Street.  Sinha <a href="https://web.archive.org/web/20120529111902/http://www.dnainfo.com/new-york/20110427/harlem/columbia-mba-student-pleads-not-guilty-attacking-woman-nypd-officer">also kicked a police officer</a> in the face during the incident.  Now, prosecutors have given him a no-jail, no-probation plea deal.<p></p>
+
+<p>When Sinha, whose <a href="https://web.archive.org/web/20120529111902/http://articles.nydailynews.com/2011-04-07/news/29408576_1_psychiatric-ward-cop-stranger">father has diplomatic ties</a>, was taken into custody after the attack, he was treated at Bellevue&apos;s psychiatric ward and his lawyer characterized the episode as his &quot;first psychotic break.&quot; According to the Post, Sinha pleaded guilty to the misdemeanor assault (a change from his <a href="https://web.archive.org/web/20120529111902/http://www.dnainfo.com/new-york/20110427/harlem/columbia-mba-student-pleads-not-guilty-attacking-woman-nypd-officer">not guilty plea last year</a>): He &quot;will stay in school, in therapy and out of jail under a deal worked out with prosecutors.&quot;  His lawyer said, &quot;Everyone realized there was nothing intentional, because he had no real control over it at that time. Now that he is aware, he is receiving treatment.&quot;  </p>
+
+<p>Additionally, the Post reports, &quot;Sinha will return to his native India when his student visa expires upon his graduation in May.&quot;</p>

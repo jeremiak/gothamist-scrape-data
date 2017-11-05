@@ -1,0 +1,11 @@
+---
+author: Jen Chung
+date: January 21, 2012 11:20 AM
+title: Upstate Congressman's Wife Arrested For DWI, Texting While Driving
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2012_01_hincheywife.jpg" src="https://web.archive.org/web/20120604071200im_/http://gothamist.com/attachments/jen/2012_01_hincheywife.jpg" width="250" height="304" class="image-left"> </span>Rep. Maurice Hinchey, a 10-term upstate Democrat, thought that <a href="https://web.archive.org/web/20120604071200/http://www.theithacajournal.com/article/20120119/NEWS01/201190405/Hinchey-makes-retirement-announcement?odyssey=mod%7Cnewswell%7Ctext%7CLocal%20News%7Cs">news of his retirement</a> would be the big Hinchey story of the week. But his wife, a state lobbyist, was arrested for not only driving while intoxicated&#x2014;she was also hit with a texting-while-driving charge.  Allison Lee-Hinchley <a href="https://web.archive.org/web/20120604071200/http://www.timesunion.com/local/article/Hinchey-retires-wife-charged-with-DWI-in-Albany-2632843.php">reportedly admitted to cops</a> that she was texting when she got into a car crash in Albany on Wednesday.</p>
+
+<p>Lee-Hinchey, 49, had been driving a 2010 BMW when she hit a 2002 Nissan. Neither Lee-Hinchey or the Nissan&apos;s driver, a 34-year-old woman, were injured. The Times Union reports, &quot;Asked if she had been drinking alcohol, she allegedly said, &apos;I had a glass of wine&apos; at a work function. She told the officer she was headed home... One hour and 12 minutes after the crash, Hinchey registered a blood alcohol level of 0.14 percent &#x2014; nearly twice the threshold of the state&apos;s .08 percent limit for driving while intoxicated, police said.&quot; </p>
+
+<p>Cops also said she smelled of alcohol and had glassy eyes; plus she failed four field sobriety tests.  Lee-Hinchey, who is the principal lobbyist of Albany-based DKC Government Affairs, said, &quot;I am committed to addressing this both legally and personally. I am deeply sorry and apologize to my colleagues and friends.&quot;</p>

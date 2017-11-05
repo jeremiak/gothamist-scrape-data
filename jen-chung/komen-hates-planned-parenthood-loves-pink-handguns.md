@@ -1,0 +1,15 @@
+---
+author: Jen Chung
+date: Feb 3, 2012 11:12 am
+title: Komen: Hates Planned Parenthood, Loves Pink Handguns
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2012_01_pinkgun.jpg" src="https://web.archive.org/web/20150428113017im_/http://gothamist.com/attachments/jen/2012_01_pinkgun.jpg" width="365" height="306" class="image-left"> </span>While the Susan G. Komen Foundation <a href="https://web.archive.org/web/20150428113017/http://gothamist.com/2012/02/02/actually_planned_parenthood_made_65.php">remains on the defensive</a> about <a href="https://web.archive.org/web/20150428113017/http://gothamist.com/2012/01/31/susan_g_komen_foundation_ends_plann.php">defunding breast cancer prevention-related grants</a> to Planned Parenthood, its <a href="https://web.archive.org/web/20150428113017/http://www.salon.com/2012/02/01/komen_for_the_cure_sells_out_women_again/singleton/">marketing juggernaut</a> remains unabated.  For instance, what says ending breast cancer forever like a .22-caliber pink handgun?</p>
+
+<p><a href="https://web.archive.org/web/20150428113017/http://www.discountgunsales.com/walther-p-22-hope-edition-34-pr-4228.html">From a gun retailer&apos;s website</a>: &quot;Discount Gun Sales is proud to team up with the Susan B. Koman Foundation to offer the Walther P-22 Hope Edition in recognition of Breast Cancer Awareness Month. A portion of each P-22 Hope Edition will be donated to the Seattle Branch of the Susan G. Komen Foundation. The P-22 Hope Edition has an exclusive DuraCoat Pink slide in recognition of Breast Cancer Awareness month. Utilizing the same reliable controls and firing mechanism that has made the Walther P-22 America&#x2019;s top selling handgun, the Hope Edition will be a limited production pistol offered exclusively through Discount Gun Sales.&quot; And it&apos;s just $429.99! [via <a href="https://web.archive.org/web/20150428113017/http://www.wisconsingazette.com/breaking-news/komen-foundation-offers-pink-handgun-to-promote-breast-cancer-awareness-month.html">Wisconsin Gazzette</a>] </p>
+
+<p>The gun has &quot;Interchangeable frame back straps create an ideal fit to the shooter&apos;s hand&quot; and a &quot;Compact design and light-weight are achieved by a modern polymer frame (just 480 grams, including the magazine)&quot; with &quot;Traditional double-action operation&quot; and &quot;Ambidextrous controls for both left and right hand shooters.&quot; So Komen is happy to encourage gun ownership, but won&apos;t let women choose what they want to do with their bodies&#x2014;makes TOTAL sense.  You can <a href="https://web.archive.org/web/20150428113017/http://www.plannedparenthood.org/about-us/newsroom/politics-policy-issues/komen-foundation-ends-funding-breast-cancer-screenings-after-years-political-pressure-38620.htm">donate to Planned Parenthood here</a>&#x2014;Mayor Bloomberg will <a href="https://web.archive.org/web/20150428113017/http://gothamist.com/2012/02/02/bloomberg_to_donate_250000_to_plann.php">match up to $250,000 of new donations</a>.</p>					
+										
+									
+				

@@ -1,0 +1,13 @@
+---
+author: Jen Chung
+date: January 27, 2012  8:58 AM
+title: Your iPhone Or Your Life: Man Shot After Refusing To Give Up iPhone
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2012_01_iphonecribx.jpg" src="https://web.archive.org/web/20120128052925im_/http://gothamist.com/attachments/jen/2012_01_iphonecribx.jpg" width="303" height="235" class="image-left"> </span>Police are seeking two suspects who allegedly shot a man who refused to give them his iPhone in the Bronx.  The incident occurred last week, on January 18 around 6:30 p.m. when a 23-year-old man was walking on West 190th Street near Grand Avenue.  </p>
+
+<p><a href="https://web.archive.org/web/20120128052925/http://www.nydailynews.com/news/crime/man-shot-muggers-refuses-give-iphone-article-1.1012734?localLinksEnabled=false">According to the Daily News</a>, &quot;The robbers demanded the man&#x2019;s smartphone, but he refused. One of the assailants - described by police as a Latino male around 5-feet-7 and 150 lbs., wearing an expensive dark Marmot jacket, a black hoodie, blue jeans and black boots - whipped out his gun and pulled the trigger one time, sending a bullet into the young man&#x2019;s back as he tried to run away.&quot;</p>
+
+<p>The victim was treated for his injuries at St. Barnabas Hospital. The second suspect <a href="https://web.archive.org/web/20120128052925/http://newyork.cbslocal.com/2012/01/26/police-bronx-suspects-shot-victim-who-refused-to-give-up-iphone/">is described as a Latino male</a>, &quot;approximately 5&#x2019;08, 150 pounds. He was last seen wearing a blue New York Yankees cap, black jacket, black pants, and brown boots.&quot; Anyone with information is urged to contact <a href="https://web.archive.org/web/20120128052925/http://nypdcrimestoppers.com/">NYPD Crimestoppers</a>.</p>
+
+<p>iPhone crime has been <a href="https://web.archive.org/web/20120128052925/http://gothamist.com/2011/09/23/blame_apple_subway_crime_jumps_169.php">growing on subways</a> and <a href="https://web.archive.org/web/20120128052925/http://gothamist.com/2011/12/07/nypd_crooks_prefer_fancy_electronic.php">elsewhere</a>. In September, a Brooklyn man was <a href="https://web.archive.org/web/20120128052925/http://gothamist.com/2011/09/25/iphone_fight_caused_brooklyn_murder.php">killed for his iPhone</a>.  The NYPD has been setting <a href="https://web.archive.org/web/20120128052925/http://gothamist.com/2011/12/12/man_busted_for_stealing_iphone_from.php">traps for iPhone thieves</a> and last week the Port Authority <a href="https://web.archive.org/web/20120128052925/http://gothamist.com/2012/01/21/six_port_authority_cops_foil_15-yea.php">arrested a teenage serial iPhone thief</a> who had been terrorizing PATH riders.</p>

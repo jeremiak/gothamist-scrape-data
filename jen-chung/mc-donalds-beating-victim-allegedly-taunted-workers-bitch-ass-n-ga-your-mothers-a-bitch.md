@@ -1,0 +1,21 @@
+---
+author: Jen Chung
+date: Oct 19, 2011 2:03 pm
+title: McDonald's Beating Victim Allegedly Taunted Workers, "Bitch Ass N--ga," "Your Mother's A Bitch"
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2011_10_mccou.jpg" src="https://web.archive.org/web/20150825232635im_/http://gothamist.com/attachments/jen/2011_10_mccou.jpg" width="365" height="277" class="image-left"> </span>The McDonald&apos;s cashier who <a href="https://web.archive.org/web/20150825232635/http://gothamist.com/2011/10/14/video_mcdonalds_cashier_beats_custo.php">beat up two customers who slapped him and then jumped over the counter</a> at the West Village location appeared in court yesterday. Rayon McIntosh, 31, was charged with felony assault and criminal possession of a weapon for using a metal rod to hit Denise Darbeau and Rachel Edwards last week.  His <a href="https://web.archive.org/web/20150825232635/http://www.dnainfo.com/20111018/greenwich-village-soho/women-beaten-by-mcdonalds-cook-verbally-attacked-workers-witness-says">co-worker testified that Darbeau was offended that McIntosh</a> wanted to check the authenticity of the $50 she used to pay for her food, taunting, &quot;Bitch ass n--ga, checking my money like it&apos;s fake.&quot;</p>
+
+<p><a href="https://web.archive.org/web/20150825232635/http://www.dnainfo.com/20111018/greenwich-village-soho/women-beaten-by-mcdonalds-cook-verbally-attacked-workers-witness-says">According to DNAinfo</a>, cashier Michael Joseph also said that Darbeau &quot;was calling [McIntosh] Mexican and [saying] &apos;f--k you.&quot;&quot; Joseph said that a manager had jumped over the counter to stop a drunk woman from using the bathroom and suggested that Darbeau thought the manager wanted to fight her (&quot;She got in her defense mode and was like, &apos;Oh, you want to fight?&apos;&quot;).  Then, Joseph testified that Darbeau said to McIntosh, who was returning with her food, &quot;F--k you &#x2014; I hope you get deported. Your mother&apos;s a b--ch. So then he replies, &apos;No, your mother is a b--ch,&apos; and she smacks him.&quot;  </p>
+
+<p>The beating was caught on a cellphone video, and it shows McIntosh beating Darbeau and Edwards behind the counter.  Darbeau&apos;s skull was fractured: Her mother says <a href="https://web.archive.org/web/20150825232635/http://www.nydailynews.com/news/ny_crime/2011/10/17/2011-10-17_woman_beat_with_pipe_by_mcdonalds_cashier_faces_permanent_brain_damage_mother_cl.html">she may have brain damage</a> and <a href="https://web.archive.org/web/20150825232635/http://www.dnainfo.com/20111018/greenwich-village-soho/mcdonalds-worker-didnt-need-beat-my-daughter-dad-says">her father said</a>, &quot;I don&apos;t want to hear about self-defense. [McIntosh, who is 6&apos;2&quot;] was defending himself against what, a 5-1 female?... Although she was culpable, the attack itself was vicious and it shouldn&apos;t have happened. When he hit my daughter, she was out the first time. There was no reason to hit her again.&quot; Prosecutors agreed, &quot;The defendant could have handled the situation in a manner which did not lead him to repeatedly strike Ms. Darbeau and Ms. Edwards.&quot;</p>
+
+<p>Still, many think McIntosh, who served ten years for the manslaughter death of a friend in 2000, <a href="https://web.archive.org/web/20150825232635/http://gothamist.com/2011/10/16/customer-bashing_mcdonalds_cashier.php">acted in self-defense</a>. His lawyer <a href="https://web.archive.org/web/20150825232635/http://www.dnainfo.com/20111018/greenwich-village-soho/women-beaten-by-mcdonalds-cook-verbally-attacked-workers-witness-says">argued</a>, &quot;It&apos;s very clear [the two women] were coming after my client, who had in effect retreated to the rear part [of the kitchen] and was not seeking a confrontation.&quot;</p>
+
+<p><iframe width="640" height="360" src="https://web.archive.org/web/20150825232635if_/http://www.youtube.com/embed/25JtpI8jmuI" frameborder="0" allowfullscreen></iframe></p>
+
+<p>McIntosh was ordered to be held on $40,000 bail and is next due in court on December 2.</p>					
+										
+									
+				

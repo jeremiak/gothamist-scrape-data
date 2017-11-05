@@ -1,0 +1,9 @@
+---
+author: Jen Chung
+date: May 12, 2011  9:46 AM
+title: Pepper Spray Incident On 5 Train Sickens Subway Riders
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:365px; "> <img alt="2011_05_pepspray.jpg" src="https://web.archive.org/web/20110512233836im_/http://gothamist.com/attachments/jen/2011_05_pepspray.jpg" width="365" height="238"> <br> <i>Firefighters leave the train station (WPIX 11)</i></div> Yesterday evening, we received a tip about the Lexington Avenue subway line at 59th Street, &quot;5 train gas scare at about 6:15. I followed a mob of passengers waiting on the platform as they ran out of the station yelling and holding their noses. I couldn&apos;t get an answer out of anyone that made sense.&quot; Well, it turns out a woman <a href="https://web.archive.org/web/20110512233836/http://www.wpix.com/news/local/wpix-woman-pepper-sprays-man-on-crowded-subway-car-20110511,0,6618905.story">used her pepper spray on the train</a>&#x2014;which then sickened her fellow passengers.<p></p>
+
+<p>The southbound train was about to pull into the station when the spraying occurred and it seems the w<a href="https://web.archive.org/web/20110512233836/http://www.nypost.com/p/news/local/bronx/straphangers_hit_with_pepper_spray_HKoXedpEIIArQl2Us1AFPN">oman was in some sort of confrontation</a> with a man she was with when she broke out the pepper spray.  <a href="https://web.archive.org/web/20110512233836/http://www.dnainfo.com/20110511/upper-east-side/four-injured-by-pepper-spray-east-side-subway">Three people were treated</a> at the scene while one was taken to a hospital.</p>

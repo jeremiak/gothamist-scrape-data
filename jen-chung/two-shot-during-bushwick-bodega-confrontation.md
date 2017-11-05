@@ -1,0 +1,19 @@
+---
+author: Jen Chung
+date: April 30, 2012  3:17 PM
+title: Two Shot During Bushwick Bodega Confrontation
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:300px; "> <img alt="2012_04_lguillen.jpg" src="https://web.archive.org/web/20120503080819im_/http://gothamist.com/attachments/jen/2012_04_lguillen.jpg" width="300" height="300"> <br> <i>Lourdes Guillen (<a href="https://web.archive.org/web/20120503080819/https://twitter.com/#!/LGuillenNY/status/193506664937291778">Instagram</a>)</i></div> Yesterday morning, an argument at a bodega on Humboldt Street became violent when a group of impatient men confronted another group ordering sandwiches.  According to the Post, after one man shot Juan Medina, 24, twice in the stomach, his cousin, Lourdes Guillen, 25, begged the shooter, &quot;Put the gun down. Don&#x2019;t be that person.&quot; But Guillen, a staffer at &quot;The View,&quot; ended up with a bullet in the stomach.<p></p>
+
+<p>What prompted the gunfire?  The <a href="https://web.archive.org/web/20120503080819/http://www.nypost.com/p/news/local/brooklyn/heroic_gal_takes_bullet_rWor8zkoGYv5LGDcmTlU9L">Post reports</a>, &quot;Guillen and relatives, including cousin Juan Medina, 24, were ordering sandwiches at a deli...after a night out celebrating Medina&#x2019;s last day in town. Three men began hassling them for taking too long. When one of the thugs asked why Medina&#x2019;s arms were crossed, Guillen replied that her cousin was from the Dominican Republic and was just feeling a bit chilly.&quot; Then one of the men said, &quot;You&#x2019;re on my block now,&quot; and then briefly left with the two others... only to come back to start a fight: </p>
+
+<blockquote>They soon returned, and one thug began brawling with Medina as another smashed a cane over the head of a third cousin, Ramali Rodriguez. Guillen pleaded with the cane-wielding thug to stop. &#x201C;Look, we don&#x2019;t want any problems,&#x201D; she cried.
+
+<p>He then ran off. But the man scuffling with Medina suddenly pulled out a gun and opened fire. Guillen &#x2014; who has also worked for &#x201C;Good Morning America&#x201D; and interned for Anderson Cooper &#x2014; pleaded to no avail with the shooter.</p>
+
+<p>After firing a bullet into Guillen, he and the other man fled into one of the nearby housing projects. &#x201C;I fell down against a car next to my cousin,&#x2019;&#x2019; she said. &#x201C;I wasn&#x2019;t bleeding. It wasn&#x2019;t painful. It was just obstructing my breathing.&quot;</p></blockquote><p></p>
+
+<p>Guillen&apos;s bravery was mentioned on &quot;The View&quot;&#x2014;<a href="https://web.archive.org/web/20120503080819/http://www.nypost.com/p/news/local/the_view_praise_NlrPhjpG2cJCBryT33UUgM?utm_medium=rss&amp;utm_content=%20%20%20%20%20%20%20%20Local">Barbara Walters said</a>, &quot;Lourdes bravely stepped between them and pleaded with the gunman to stop the violence. He responded by shooting her in the stomach. I spoke with her just a little while ago from the hospital this morning. She said she&apos;s doing well. That she&apos;s in pain. She said that the bullet is lodged between her liver and kidney.&quot; Walters revealed that Guillen believed that her cousin would be okay, adding, &quot;She said &apos;I had to defend my family. I would do it again.&apos;&quot; </p>
+
+<p>Earlier this month, <a href="https://web.archive.org/web/20120503080819/https://twitter.com/#!/LGuillenNY/status/193506664937291778">Guillen Tweeted</a>, &quot;One day your life will flash before your eyes. Make sure it&#x2019;s worth watching.&quot;</p>

@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: September 21, 2010  2:50 PM
+title: Hillary Clinton's Hair Time Out
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2010_09_hilaryhair.jpg" src="https://web.archive.org/web/20111018080139im_/http://gothamist.com/attachments/jen/2010_09_hilaryhair.jpg" width="100" height="105" class="image-right"> </span>The <a href="https://web.archive.org/web/20111018080139/http://www.nydailynews.com/ny_local/2010/09/21/2010-09-21_secretary_of_state_hillary_clinton_unveils_new_hairdo_as_she_arrives_in_new_york.html">Daily News seems a little concerned</a> about a hairstyle that Secretary of State Hillary Clinton sported over the weekend: Noting that she&apos;s &quot;had more hair styles than a beauty-school dummy,&quot; the tabloid said, &quot;The secretary of state&apos;s chic coif was nowhere to be seen as she arrived at the United Nations over the weekend with her hair clipped back&quot; and then generously added, &quot;It was a more severe look than usual, but showed off some earrings that matched her vibrant blue suit.&quot; Now, we don&apos;t want to get into a <a href="https://web.archive.org/web/20111018080139/http://gothamist.com/2007/07/28/senator_clinton.php">whole style argument</a>, but the <a href="https://web.archive.org/web/20111018080139/http://jezebel.com/5644006/hillarys-butterfly-clip-will-not-bring-relief-to-pakistan-or-haiti">butterfly clip is maybe too distracting</a>.</p>

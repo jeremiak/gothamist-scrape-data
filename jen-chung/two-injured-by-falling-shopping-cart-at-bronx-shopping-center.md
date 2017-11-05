@@ -1,0 +1,14 @@
+---
+author: Jen Chung
+date: January 31, 2012 12:30 AM
+title: Two Injured By Falling Shopping Cart At Bronx Shopping Center
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-right" style=" width:365px; "> <img alt="2012_01_shoppingcart.jpg" src="https://web.archive.org/web/20120201194919im_/http://gothamist.com/attachments/jen/2012_01_shoppingcart.jpg" width="365" height="273"> <br> <i>Via NY1</i></div> Two men were <a href="https://web.archive.org/web/20120201194919/http://www.ny1.com/content/top_stories/155138/falling-shopping-cart-injures-two-men-by-home-depot-store-in-the-bronx">seriously injured when a shopping cart fell on them</a> at the <a href="https://web.archive.org/web/20120201194919/http://www.gatewaycenteratbronxterminalmarket.com/">Bronx Gateway Center</a>. The cart was dropped from a parking garage near the Home Depot around 5 p.m. NY1 reports, &quot;Police say a 52-year-old man is now in critical condition and a 30-year-old man who was sent to Lincoln Hospital is now in stable condition.&quot;<p></p>
+
+<p>The two men are deliverymen and one of their friends <a href="https://web.archive.org/web/20120201194919/http://newyork.cbslocal.com/2012/01/30/two-injured-one-critically-by-falling-shopping-cart-at-bronx-shopping-center/">told WCBS 2</a>, &quot;I&#x2019;m standing right here and when we see the cart coming down &#x2014; the shopping cart &#x2014; It crashed on my friend.  Two of my friends.&quot; Another witness spoke to NY1, &quot;I just ran in, grabbed his hand, tried to comfort him as much as I can, but the second one was not conscious at all. We had to actually wake him up. It was just, wow. One cart that hit both of them at the head.&quot;</p>
+
+<p>Police are looking for <a href="https://web.archive.org/web/20120201194919/http://www.dnainfo.com/20120130/south-bronx/falling-shopping-cart-injures-two-men-at-gateway-center-home-depot">at least one suspect </a>who was wearing a hooded sweatshirt.  </p>
+
+<p>In October, a woman was <a href="https://web.archive.org/web/20120201194919/http://gothamist.com/2011/10/31/harlem_mom_critical_after_being_hit.php">critically injured when two pre-teens threw a shopping cart</a> from a fourth floor walkway at an East Harlem shopping center.  The victim, Marion Salmon Hedges, nearly died but <a href="https://web.archive.org/web/20120201194919/http://gothamist.com/2012/01/08/woman_forgives_kids_who_hit_her_wit.php">reportedly forgave the kids,</a> who will <a href="https://web.archive.org/web/20120201194919/http://gothamist.com/2012/01/27/jail_not_likely_for_shopping_cart_t.php">probably avoid jail</a>.<br>
+</p>

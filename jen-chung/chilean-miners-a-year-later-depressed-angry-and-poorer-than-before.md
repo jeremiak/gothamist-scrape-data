@@ -1,0 +1,13 @@
+---
+author: Jen Chung
+date: October 12, 2011  4:28 PM
+title: Chilean Miners A Year Later: Depressed, Angry And Poorer Than Before
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="11510miner.jpg" src="https://web.archive.org/web/20111018081736im_/http://gothamist.com/attachments/byakas/11510miner.jpg" width="640" height="434" class="image-none"> </span></p>
+
+<p>Remember Edison Pena, one of the Chilean miners who had been <a href="https://web.archive.org/web/20111018081736/http://gothamist.com/2010/10/13/24_chilean_miners_rescued_so_far_se.php">trapped in a collapsed mine for 69 days</a> last year?  He ran <a href="https://web.archive.org/web/20111018081736/http://gothamist.com/2010/11/04/chilean_miner_the_runner_arrives_in.php#photo-1">three to six miles a day underground</a> during the ordeal and was invited to <a href="https://web.archive.org/web/20111018081736/http://gothamist.com/2010/11/08/miner_says_he_ran_faster_in_mine_fi.php#photo-4">run in last year&apos;s NYC Marathon</a>.  Pena even appeared on The Late Show with David Letterman, <a href="https://web.archive.org/web/20111018081736/http://gothamist.com/2010/11/05/video_chilean_miner_sings_suspiciou.php">singing &quot;Suspicious Minds.&quot;</a>  Well, now he&apos;s in a psychiatric clinic.</p>
+
+<p><a href="https://web.archive.org/web/20111018081736/http://www.nytimes.com/2011/10/12/world/americas/chiles-rescued-miners-face-major-struggles-a-year-later.html?_r=1&amp;partner=rss&amp;emc=rss&amp;pagewanted=all">The NY Times reports</a>, &quot;One year after their globally televised rescue, after the worldwide spotlight faded and the trips and offers have dwindled, the miners say that most of them are unemployed and that many are poorer than before. Only a handful of them have steady jobs, they say. Just four have returned to mining. Two others, V&#xED;ctor Zamora and Dar&#xED;o Segovia, are trying to make ends meet by selling fruits and vegetables, one from a stall, the other out of his truck... Mr. Pe&#xF1;a, the miner who became famous for his love of Elvis Presley and running, is coping with trauma caused not only by his time below but also by the aftermath of the rescue, when the demands of instant celebrity proved overwhelming, his doctor said, leading him to abuse drugs and alcohol.&quot;</p>
+
+<p>Pena told the Times, &quot;They made us feel like heroes. In the end, we are selling peanuts. It&#x2019;s ironic, isn&#x2019;t it?&quot;  The suffering miners blame the government for not doing more and many are hoping a planned Hollywood movie about the incident will provide some financial reward.</p>

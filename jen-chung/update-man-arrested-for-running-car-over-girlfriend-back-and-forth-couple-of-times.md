@@ -1,0 +1,23 @@
+---
+author: Jen Chung
+date: Feb 21, 2012 2:15 pm
+title: UPDATE: Man Arrested For Running Car Over Girlfriend "Back And Forth, Couple Of Times"
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:365px; "> <img alt="2012-01_njhr.jpg" src="https://web.archive.org/web/20150503154650im_/http://gothamist.com/attachments/jen/2012-01_njhr.jpg" width="365" height="275"> <br> <i>Via WCBS 2</i></div> A woman<a href="https://web.archive.org/web/20150503154650/http://newyork.cbslocal.com/2012/02/21/police-find-car-involved-in-deadly-fort-lee-hit-and-run-still-searching-for-driver/"> was killed when she was brutally mowed</a> down in Fort Lee, NJ last night, and witnesses say the driver ran over her multiple times.  Police found a car with NY plates abandoned a mile from the scene.  One of the good Samaritans who tried to help the woman told WCBS 2, &quot;I tried to open the [driver&apos;s] door and the door was locked. He deliberately killed that woman I think.&quot;<p></p>
+
+<p>The incident occurred at 5:20 p.m. at Anderson Avenue and Inwood Terrace.  Another witness said of the driving, &quot;Run back and forth, back and forth, couple of times. It&#x2019;s like at least, more than three times.&quot; A third said, &quot;Then he ran over her again. If you don&#x2019;t believe me, I was almost going to break the window.&quot;</p>
+
+<p>WCBS 2 reports, &quot;Fort Lee police have reportedly notified Port Authority police to be on the lookout for a suspect who may be trying to board a plane at an area airport, according to 1010 WINS&#x2019; Steve Sandberg,&quot; and now NBC New York <a href="https://web.archive.org/web/20150503154650/http://www.nbcnewyork.com/news/local/Fort-Lee-NJ-Fatal-Hit-Run-Homicide-Investigation-Anderson-Inwood-Terrace-139770713.html">says a suspect is in custody</a>.</p>
+
+<p><b>Update</b>: The police are reportedly <a href="https://web.archive.org/web/20150503154650/http://www.cliffviewpilot.com/bergen/3414-fort-lee-man-sought-in-hit-and-run-death">investigating the death as a homicide</a>.</p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-right" style=" width:280px; "> <img alt="2012-01_chann.jpg" src="https://web.archive.org/web/20150503154650im_/http://gothamist.com/attachments/jen/2012-01_chann.jpg" width="280" height="264"> <br> <i>Charles Ann</i></div> <b>Update</b>: The Bergen County Prosecutor&apos;s Office announced that police arrested  Charles J. Ann, 26, for running over his 25-year-old girlfriend, Aena Hong: &quot;After striking the victim, [Ann] put the car in reverse and backed up over the victim and subsequently drove forward over the victim again. It is believed that Ann drove over Ms. Hong, going forward and backward approximately three times.&quot; The couple reportedly had a fight and a &quot;tumultuous relationship&quot;&#x2014;it&apos;s <a href="https://web.archive.org/web/20150503154650/http://www.nypost.com/p/news/local/cops_arrest_man_murder_horrific_92NB9bhivgjxJHrCFuUDdL?CMP=OTC-rss&amp;FEEDNAME=">believed Hong was trying to break up</a> with him.<p></p>
+
+<p>The <a href="https://web.archive.org/web/20150503154650/http://www.nj.com/bergen/index.ssf/2012/02/charles_ann_suspect_in_fatal_fort_lee_hit-and-run_apprehended_in_queens.html">Star-Ledger reports</a>, &quot;Fort Lee police had put an advisory out to departments in surrounding towns and the Port Authority, believing that Ann intended to board a plane. An investigation lead New York City police to a friend&apos;s apartment in Flushing, Queens, where he was arrested around 4 a.m. this morning.&quot;  Prosecutor John Molinelli said,  &quot;Ann was found to be in possession of his passport and a large sum of cash. It is believed that he was attempting to flee the country.&quot; </p>
+
+<p>Ann, a naturalized citizen with family in Korea, is being held in Queens, awaiting extradition, on $3 million bail.  A bank manager who overheard the accident said, &quot;I heard the start and stop of tires spinning it happened four or five times. I heard the sound of a tire squealing and then stop, tire squealing and then stop. I heard someone crying and screaming.... When I got up from my desk, I heard people screaming I saw the body it was horrific. ... I haven&apos;t seen anything like that since I was overseas in combat in Iraq.&quot;</p>					
+										
+									
+				

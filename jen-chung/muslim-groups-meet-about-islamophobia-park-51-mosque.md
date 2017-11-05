@@ -1,0 +1,15 @@
+---
+author: Jen Chung
+date: Sep 19, 2010 11:09 am
+title: Muslim Groups Meet About Islamophobia, Park 51 Mosque
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:250px; "> <img alt="2010_09_mosuebur.jpg" src="https://web.archive.org/web/20150429163425im_/http://gothamist.com/attachments/jen/2010_09_mosuebur.jpg" width="250" height="225"> <br> <i>45-47 Park Place (AP)</i></div> Yesterday and today, a group of Muslim organizations <a href="https://web.archive.org/web/20150429163425/http://newyork.cbslocal.com/2010/09/19/mosque-summit-planned-for-sunday/">have been meeting to discuss</a> not only the controversial<a href="https://web.archive.org/web/20150429163425/http://gothamist.com/tags/mosque"> Park 51 community center and mosque</a> project but the apparently increasing anti-Muslim attitude in the United States.  The AP spoke to one of the organizers,  Shaik Ubaid of the Islamic Leadership Council of Metropolitan New York, who said, at first, some Muslim Americans weren&apos;t supporting the Park 51 project,  but &#x201C;Once it became a rallying cry for extremists, we had no choice but to stand with Feisal Rauf.&quot;<p></p>
+
+<p>Imam Feisel Abdul Rauf, the imam for the mosque, has said that if the project moves from its current proposed location at 45-47 Park Place&#x2014;<a href="https://web.archive.org/web/20150429163425/http://gothamist.com/2010/08/16/other_things_two_blocks_from_ground.php?gallery0Pic=6#gallery">two blocks from Ground Zero</a>&#x2014;<a href="https://web.archive.org/web/20150429163425/http://gothamist.com/2010/09/09/ground_zero_imam_moving_mosque_woul.php">then the radicals will win</a>.  Of course, the project has become a pawn in <a href="https://web.archive.org/web/20150429163425/http://gothamist.com/2010/09/11/florida_pastor_stops_playing_footsi.php">some radicals&apos; media moves</a>.  Interestingly, Ubaid also added that Rauf &quot;was not that involved with the local Muslim community&quot; and didn&apos;t get enough local support for the project, &quot;Had we consulted us, we probably would have told him, gently, no.&quot;</p>
+
+<p>The proposed building would have two floors for a mosque; Community Board 1 chairwoman Julie Menin, who supported the project, but <a href="https://web.archive.org/web/20150429163425/http://www.nydailynews.com/opinions/2010/08/30/2010-08-30_better_mosque_compromise_chair_of_community_board_wants_interfaith_center_inside.html">now wants there to be a floor for nondenominational interfaith space</a>, said, &quot;[Park 51 developers] had always talked about giving the center an interfaith concept like having classes in Buddhism... It&#x2019;s one thing to have panel discussions, but if you really want to bring these factions together &#x2026; have a nondenominational interfaith space, like the chapel at the Pentagon, where local rabbis and priests could hold services on different days of the week.&quot;  </p>					
+										
+									
+				

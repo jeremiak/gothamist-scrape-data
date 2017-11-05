@@ -1,0 +1,12 @@
+---
+author: Jen Chung
+date: October 21, 2011  5:23 PM
+title: Bernard Madoff Loves Being In Prison: "I Am Quite The Celebrity"
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="201107_madoff.jpg" src="https://web.archive.org/web/20111030170806im_/http://gothamist.com/attachments/garth/201107_madoff.jpg" width="365" height="329" class="image-left"> </span>The biggest Ponzi schemer&#x2014;that we know of&#x2014;Bernard Madoff is serving a <a href="https://web.archive.org/web/20111030170806/http://gothamist.com/2009/06/29/bernard_madoff_sentenced.php">150-year sentence in federal prison</a>, a far cry from his life between homes all over the world.  But apparently he likes being behind bars!  His daughter-in-law Stephanie Madoff Mack reveals <a href="https://web.archive.org/web/20111030170806/http://www.wpix.com/news/sns-rt-us-bernardmadofftre79j6v6-20111020,0,2957204.story">what he said in a letter to her</a>,  &quot;As you can imagine, I am quite the celebrity, and am treated like a Mafia don.&quot; </p>
+
+<p>Mack, who was married to Madoff&apos;s son Mark, who <a href="https://web.archive.org/web/20111030170806/http://gothamist.com/2010/12/11/bernard_madoffs_son_mark_found_dead.php">killed himself last year</a>, says she sent Madoff a letter telling him about the moments in his grandchildren&apos;s live he missed, hoping to make him feel bad. But Madoff wrote about his happy times, &quot;They call me either Uncle Bernie or Mr. Madoff. I can&apos;t walk anywhere without someone shouting their greetings and encouragement, to keep my spirit up. It&apos;s really quite sweet, how concerned everyone is about my well being, including the staff ... It&apos;s much safer here than walking the streets of New York.&quot;</p>
+
+<p>Mack, whose interview with 20/20 will air tonight on ABC (she <a href="https://web.archive.org/web/20111030170806/http://gothamist.com/2011/10/17/bernard_madoffs_daughter-in-law_wou.php">says she&apos;d spit in Madoff&apos;s face</a> if she saw him today), also said her husband was driven to death by his father&apos;s deception, &quot;My husband was in terrible, terrible pain. He was so deeply hurt by it all, that he just, he, he just couldn&apos;t move past it.&quot;<br>
+</p>

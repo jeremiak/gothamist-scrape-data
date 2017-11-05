@@ -1,0 +1,19 @@
+---
+author: Jen Chung
+date: May 6, 2012 2:55 pm
+title: Stringer Blasts MTA's "Stressful, Cumbersome" Process For Seniors, Disabled To Replace Their Metrocards
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2012-04_string10.jpg" src="https://web.archive.org/web/20150514055734im_/http://gothamist.com/attachments/jen/2012-04_string10.jpg" width="640" height="477"> <br> <i> Manhattan Borough Scott Stringer, flanked by City Council Member Gale Brewer and Assembly Member Linda Rosenthal on the left and Congressman Jerry Nadler on the right (Jen Chung/Gothamist)</i></div> <p></p>
+
+<p>As annoying as dealing with the MTA is for everyone, Manhattan Borough President Scott Stringer wants to make it a little less painful to two sets of vulnerable riders: seniors and the disabled. Today, Stringer pointed out that the current process for senior citizen and disabled customers to replace their reduced-fare Metrocards was &quot;stressful and cumbersome,&quot; creating a &quot;dangerous situation&quot; for these very vulnerable riders.  So, just how bothersome is the process?  </p>
+
+<p>According to Stringer&apos;s office, &quot;When [senior or disabled customers] call MTA to request a replacement... the wait for a new card can frequently take up to three months.&quot; Then:</p><blockquote>In the meantime, those who want to ride a bus at reduced-fare must present evidence of their age to bus drivers and come up with exact change of $1.10. To ride the subway, they first have to find a station agent&#x2014;not the easiest task these days. Next, seniors or disabled get a one-trip MetroCard and a paper voucher that&apos;s about as useful as an old token. It only works if they can find another subway station agent to take the voucher on their return trip.</blockquote>One senior citizen would make the trip down the stairs at the West 86th Street subway station repeatedly, only to find there were no station agents.  Another was told her card was come in a few days...but it took 12 weeks (and repeated calls to the MTA&apos;s Corporate Communications office).<p></p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2012_04_metrop.jpg" src="https://web.archive.org/web/20150514055734im_/http://gothamist.com/attachments/jen/2012_04_metrop.jpg" width="365" height="292" class="image-right"> </span>Apparently when the Manhattan Borough President initially contacted the MTA about the issue, the response was that the MTA didn&apos;t want to create more bureaucracy.  Stringer dryly said, &quot;More bureaucracy?&quot; before suggesting that the MTA already has a solution in place: When regular fare Metrocard customers have defective cards, they get replacement ones quickly&#x2014;even on the spot if they visit the MTA&apos;s  MetroCard Customer Service Center at 3 Stone Street. Noting that many senior and disabled customers are already economically strained (and many use mass transit to get to doctor&apos;s appointments), Stringer said that having them trying to navigate the subway system as they fear they might not have enough money to get home was a &quot;dangerous situation.&quot; </p>
+
+<p>Here&apos;s a <a href="https://web.archive.org/web/20150514055734/http://www.mbpo.org/uploads/LhotaMetrocardLetter.pdf">PDF</a> of the letter Stringer sent to MTA Chairman Lhota.  Stringer said, &quot;There is no reason why seniors and disabled riders should have to put up with such a Byzantine process in the nation&apos;s largest transit system, just to get a replacement card. The Reduced-Fare program is a daily lifeline to thousands of New Yorkers&#x2014;and that&apos;s why we need to reform it as soon as possible.&quot;</p>					
+										
+									
+				

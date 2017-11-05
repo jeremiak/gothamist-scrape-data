@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: July 28, 2010 11:39 AM
+title: NY Doesn't Know How Many Public Employees There Are
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2010_07_judici.jpg" src="https://web.archive.org/web/20110629170244im_/http://gothamist.com/attachments/jen/2010_07_judici.jpg" width="120" height="92" class="image-right"> </span><em>Forget it, Jake, it&apos;s Albany.</em> The <a href="https://web.archive.org/web/20110629170244/http://www.nytimes.com/2010/07/28/nyregion/28payroll.html?ref=nyregion">NY Times reports</a>, &quot;No one knows for sure how big the state work force actually is,&quot; because &quot;the state has not one but two public payrolls,&quot; one controlled by the governor for state agencies and another for employees of public authorities, like the MTA, SUNY and CUNY systems, and judiciary&#x2014;all of which have increased its workforce as the state has reduced its payroll.  Assemblyman Richard Brodsky (D-Westchester) wants the authorities to disclose what they doing, &quot;The state borrows less and less and hires less and less, and state authorities borrow more and more and hire more and more,&quot; and referring to the infamous figure who helped create the public authority system, &quot;<strong>I&#x2019;m sure Robert Moses was a nice man, but these are Frankenstein monsters.</strong>&quot;</p>

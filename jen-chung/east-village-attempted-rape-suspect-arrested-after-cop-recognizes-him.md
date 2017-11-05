@@ -1,0 +1,11 @@
+---
+author: Jen Chung
+date: November 16, 2011  9:30 AM
+title: East Village Attempted Rape Suspect Arrested After Cop Recognizes Him
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2011_11_rapesuspev.jpg" src="https://web.archive.org/web/20111117072143im_/http://gothamist.com/attachments/jen/2011_11_rapesuspev.jpg" width="315" height="224" class="image-left"> </span>After sharing surveillance video of a man who allegedly <a href="https://web.archive.org/web/20111117072143/http://gothamist.com/2011/11/14/video_cops_say_this_man_tried_to_ra.php">tried to rape a woman in the East Village</a> earlier this week, the police now say they have arrested Imre Meszesan, 35, for the incident.  And the tip about the suspect came from a cop who <a href="https://web.archive.org/web/20111117072143/http://www.nydailynews.com/new-york/brooklyn-man-arrested-east-village-rape-attempt-recognizes-photo-article-1.978260?localLinksEnabled=false&amp;utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+nydnrss%2Fnews+%28News%29">recognized him from a previous arres</a>t.</p>
+
+<p>According to police, Meszesan followed a woman into her East 11th Street apartment building, pushing her to the floor, but she was able to fight him off. The victim <a href="https://web.archive.org/web/20111117072143/http://gothamist.com/2011/11/15/would-be_rapist_still_at_large_in_e.php">told the Post</a> before the arrest, &quot;I didn&#x2019;t notice him until I walked into my building and I was in the hallway and I started walking faster [up to the first landing on the staircase]. Then I felt his hands on me, and I started screaming. He lifted my skirt. As soon as I felt that, I spun around kicking and screaming. I had lots of adrenaline, so I was pretty aggressive.&quot;</p>
+
+<p>The woman, identified today as Jane Callanan, <a href="https://web.archive.org/web/20111117072143/http://www.nypost.com/p/news/local/manhattan/suspect_nabbed_in_village_rape_bid_rmqfI5xu0vT1ISm0XrQy2M?CMP=OTC-rss&amp;FEEDNAME=">spoke to the Post,</a> &#x201C;I&#x2019;m thrilled. I can sleep soundly now.&#x201D;  She picked Meszesan out of a lineup, &quot;I recognized him instantly. I&#x2019;m very thankful for all the good work that the sexual victim&#x2019;s unit did.&quot; Meszesan was charged with burglary and attempted rape.</p>

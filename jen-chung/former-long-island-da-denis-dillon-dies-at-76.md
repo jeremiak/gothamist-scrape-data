@@ -1,0 +1,11 @@
+---
+author: Jen Chung
+date: August 16, 2010  2:18 PM
+title: Former Long Island DA Denis Dillon Dies At 76
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:180px; "> <img alt="2010_07_denisdel.jpg" src="https://web.archive.org/web/20110611054549im_/http://gothamist.com/attachments/jen/2010_07_denisdel.jpg" width="180" height="248"> <br> <i>Denis Dillon in 2001 (AP)</i></div> Denis Dillon, the former Nassau County prosecutor who oversaw the trials of Long Island Lolita Amy Fisher as well as LIRR mass murderer Colin Ferguson, passed away yesterday at age 76 in his Rockville Centre home. He had been battling lymphoma.  His daughter<a href="https://web.archive.org/web/20110611054549/http://www.nytimes.com/2010/08/16/nyregion/16dillon.html?_r=1&amp;partner=rss&amp;emc=rss"> told the NY Times</a>, &quot;My father had a passion for justice and public service, and he believed in a professional prosecutor&#x2019;s office. He strove for fairness, and I guess one of the things is that he was a voice for those that didn&#x2019;t have one.&quot;<p></p>
+
+<p>A former NYC cop and federal prosecutor, Dillon was elected at the Nassau County DA as a Democrat in 1974. <a href="https://web.archive.org/web/20110611054549/http://www.newsday.com/long-island/nassau/longtime-former-nassau-da-denis-dillon-76-dies-1.2211678">Newsday report</a>s, &quot;It was his unapologetic activism against abortion that elevated his profile in the public eye. A devout Catholic, Dillon marched in anti-abortion protests, drawing criticism for mixing politics with religious beliefs. The issue ultimately forced his switch from the Democratic Party to the Nassau GOP and in 1986, it prompted a losing bid for governor as the Right to Life candidate.&quot; He lost in 2005 to Kathleen Rice (a current Attorney General candidate). </p>
+
+<p>His close friend and former ADA, NY State Supreme Court Justice Arthur Diamond, told the Times that Dillon &quot;&apos;revolutionized&apos; the county&#x2019;s justice system by allowing felons to plead guilty before they were indicted, while eliminating most post-indictment plea bargains. &apos;He was a big, big believer when he came here in swift and certain punishment,&apos; Judge Diamond recalled.&quot; </p>

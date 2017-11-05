@@ -1,0 +1,21 @@
+---
+author: Jen Chung
+date: June 21, 2011  6:55 PM
+title: Extra, Extra: Team Jackass Vs. Team Ebert
+---
+
+<span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <div class="image-none" style=" width:640px; "> <img alt="2011_06_funcitynight.jpg" src="https://web.archive.org/web/20110623141251im_/http://gothamist.com/attachments/jen/2011_06_funcitynight.jpg" width="640" height="427"> <br> <i>Photograph by <a href="https://web.archive.org/web/20110623141251/http://www.flickr.com/photos/specialkrb/5853692524/">SpecialKRB on Flickr</a></i></div> </span>
+
+<ul>
+	<li>Follow Gothamist <a href="https://web.archive.org/web/20110623141251/http://twitter.com/#!/gothamist">on Twitter</a> and <a href="https://web.archive.org/web/20110623141251/http://www.facebook.com/pages/Gothamist/13927915491">like us on Facebook</a>.  You can also get the top stories mailed to you&#x2014;<a href="https://web.archive.org/web/20110623141251/http://eepurl.com/Mu4T">sign up here</a>.</li>
+	<li>Ever since <a href="https://web.archive.org/web/20110623141251/http://chicagoist.com/2011/06/21/ebert_reaps_the_jackass_whirlwind.php">Roger Ebert Tweeted</a> about the death of Jackass star Ryan Dunn, Jackass fans have been <a href="https://web.archive.org/web/20110623141251/http://www.buzzfeed.com/mjs538/top-20-roger-ebert-death-threats">threatening the movie critic</a> as well as succeeding in getting his Facebook page pulled.  Ebert <a href="https://web.archive.org/web/20110623141251/http://blogs.suntimes.com/ebert/2011/06/_bam_margera_i_just_lost.html">updated his thoughts today</a>.</li>
+	<li>Looks like the special election for Anthony Weiner&apos;s seat will, as many guessed, be <a href="https://web.archive.org/web/20110623141251/http://www.politico.com/news/stories/0611/57458.html">held on September 13</a> along with the primary.</li>
+	<li>Because Wall Street has cut bonuses and increased salaries, <a href="https://web.archive.org/web/20110623141251/http://dealbook.nytimes.com/2011/06/20/bonus-cuts-pay-raises-then-layoffs/?ref=business">layoffs are likely</a>.</li>
+	<li>In the end, <a href="https://web.archive.org/web/20110623141251/http://www.nydailynews.com/news/ny_crime/2011/06/21/2011-06-21_charges_dropped_against_lucalis_pizza_chef_mark_iacono_and_reputed_mafioso_for_k.html">no charges</a> for either the Lucali&apos;s pizza man or the reputed mafia goon over April&apos;s <a href="https://web.archive.org/web/20110623141251/http://gothamist.com/2011/04/15/a_stabbing_on_smith_street.php">Smith Street knife fight</a>.</li>
+	<li>Momofuku master David Chang gives a <a href="https://web.archive.org/web/20110623141251/http://gizmodo.com/5813934/inside-the-delicious-science-of-momofukus-secret-kitchen-lab">tour of his secret kitchen lab</a>.</li>
+	<li>A 19-year-old was <a href="https://web.archive.org/web/20110623141251/http://www.cnn.com/2011/WORLD/europe/06/21/uk.sony.hack.arrest/index.html?hpt=hp_t2">arrested in the Sony hack</a>.</li>
+	<li>50 Cent is writing an <a href="https://web.archive.org/web/20110623141251/http://www.billboard.com/news/50-cent-to-write-anti-bullying-novel-for-1005242502.story#/news/50-cent-to-write-anti-bullying-novel-for-1005242502.story">anti-bullying novel for young adults</a>.</li>
+	<li>JPMorgan Chase will pay a <a href="https://web.archive.org/web/20110623141251/http://www.washingtonpost.com/business/economy/jp-morgan-to-pay-1536m-in-fraud-case/2011/06/21/AGZJ5ieH_story.html?hpid=z1">$153 million fine/pittance to settle civil fraud charges</a> related to a hedge fund investment instrument.</li>
+	<li>There will be a <a href="https://web.archive.org/web/20110623141251/http://soulhead.wordpress.com/2011/06/20/long-live-moes-bar-in-brooklyn-join-the-silent-protest-on-wednesday-june-22-2011/">silent protest for Moe&apos;s bar tomorrow</a>. The Fort Greene establishment <a href="https://web.archive.org/web/20110623141251/http://gothamist.com/2011/04/27/moes_bar_blowout_closing_party_toni_1.php">closed in April</a>.</li>
+	<li>And four actors are <a href="https://web.archive.org/web/20110623141251/http://www.pastemagazine.com/articles/2011/06/5-compete-for-svu-male-lead-spot.html?utm_source=twitterfeed&amp;utm_medium=twitter">auditioning to take on leading man duties</a> on Law &amp; Order: Special Victims Unit.</li>
+</ul>

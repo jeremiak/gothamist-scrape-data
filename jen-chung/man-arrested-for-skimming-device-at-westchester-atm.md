@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: September 14, 2010 11:53 AM
+title: Man Arrested For Skimming Device At Westchester ATM
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2010_09_atmskimmer.jpg" src="https://web.archive.org/web/20110623145139im_/http://gothamist.com/attachments/jen/2010_09_atmskimmer.jpg" width="100" height="111" class="image-right"> </span>A Romanian man staying in Queens on a tourist visa was indicted for trying to commit identity theft after he allegedly placed skimming devices and cameras at ATMs. The Westchester County DA&apos;s office charged Razvan Apostal, 31, with eight counts of criminal possession of a forged instrument and one count of unlawful possession of a skimmer device. The police got involved after a customer at a Greenburgh Chase bank noticed the additional camera!  <a href="https://web.archive.org/web/20110623145139/http://rye.patch.com/articles/queens-man-indicted-for-tampering-with-rye-brook-atm-machine">Rye Patch reports</a>, &quot;After viewing the bank&apos;s ATM surveillance video, Apostal was pinpointed as the suspect. However, about a week later, Apostal committed the same crime at the Rye Ridge Shopping Center in Rye Brook.&quot; Police found him with the skimming device and also discovered eight counterfeit $100 bills in his car.  </p>

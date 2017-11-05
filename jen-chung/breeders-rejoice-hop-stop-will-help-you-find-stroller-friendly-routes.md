@@ -1,0 +1,13 @@
+---
+author: Jen Chung
+date: November  9, 2011  6:40 PM
+title: Breeders, Rejoice: HopStop Will Help You Find Stroller-Friendly Routes
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="2011_11_babystrollersubway.jpg" src="https://web.archive.org/web/20130726155243im_/http://gothamist.com/attachments/jen/2011_11_babystrollersubway.jpg" width="640" height="481"> <br> <i>Photograph by <a href="https://web.archive.org/web/20130726155243/http://www.flickr.com/photos/62159569@N08/5972761506/">Scoboco on Flickr</a></i></div> <p></p>
+
+<p><a href="https://web.archive.org/web/20130726155243/http://hopstop.com/">HopStop</a>, the ever-useful website that helps folks route their best subway and bus routes in various cities, has now rolled out an option for parents and caregivers&#x2014;and anyone else hauling a stroller&#x2014;to find the most stroller-friendly routes.  You can check the box for &quot;Stroller Friendly&quot; (it&apos;s also &quot;Wheelchair Accessible&quot;), which means getting a route that involves more walking and fewer stairs and, if possible, more elevators.  </p>
+
+<p>For instance, when mapping our usual work subway commute route, HopStop recommends a transfer at 14th Street from the 1/2/3 to the F.  But everyone knows that the transfer is a long warren of many sets of stairs.  When selecting the &quot;Stroller Friendly&quot; version, HopStop recommends staying on the 1/2/3 and just hoofing it.  Cue the inevitable etiquette question: If you <a href="https://web.archive.org/web/20130726155243/http://gothamist.com/2011/03/09/just_who_gives_up_seats_for_pregnan.php">give up your seat for pregnant women</a>, does that mean you are obligated to help people carry strollers up stairs? And if you do opt for a bus, remember you&apos;re supposed to <a href="https://web.archive.org/web/20130726155243/http://www.mta.info/nyct/safety/">fold up the stroller</a>!</p>
+
+<p>HopStop also offers this as an <a href="https://web.archive.org/web/20130726155243/http://brooklyn.mamasnetwork.com/kids-2/hopstop-launches-new-apps-to-help-nyc-parents-find-stroller-friendly-routes/">option on its smartphone app</a>.  Now, if only HopStop can figure out <a href="https://web.archive.org/web/20130726155243/http://gothamist.com/2011/05/16/how_many_calories_did_you_burn_on_y.php">how many calories are burned</a> by carrying the kid in the stroller up and down the subway station stairs...</p>

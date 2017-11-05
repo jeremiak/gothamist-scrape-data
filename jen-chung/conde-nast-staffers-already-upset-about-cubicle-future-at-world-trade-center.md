@@ -1,0 +1,13 @@
+---
+author: Jen Chung
+date: May 20, 2011 2:16 pm
+title: Condé Nast Staffers Already Upset About Cubicle Future At World Trade Center
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2011_05_devilwears.jpg" src="https://web.archive.org/web/20150424135815im_/http://gothamist.com/attachments/jen/2011_05_devilwears.jpg" width="365" height="262" class="image-left"> </span>The deal between Cond&#xE9; Nast and the Port Authority for the<a href="https://web.archive.org/web/20150424135815/http://gothamist.com/2011/05/18/its_official_conde_nast_will_move_t.php"> publisher to take over 1 million square feet </a>at One World Trade Center is only a few days old, but the freaking out about moving there has already begun&#x2014;even though the first staffers won&apos;t be able to move in until 2014.  <a href="https://web.archive.org/web/20150424135815/http://www.nypost.com/p/news/business/battle_over_conde_nast_office_space_etxETgbePBQY8t67sTB0CJ">According to the Post</a>, &quot;So far, the design plans are not being shared with the staff. And for good reason. &apos;<strong>I think it will be horribly received in many parts of the building</strong>,&apos;&quot; because the office space design might include... cubicles.</p>
+
+<p>The plans reportedly include open office space and not many offices with windows, which some view as a step down from 4 Times Square, where top editors have huge offices, sometimes with bathrooms with showers, (if you have Netflix Instant, you can <a href="https://web.archive.org/web/20150424135815/http://movies.netflix.com/Movie/The-September-Issue/70112749">watch The September Issue</a> for a glimpse inside Vogue&apos;s offices).  One &quot;Cond&#xE9; Nasty&quot; tells the Post&apos;s Keith Kelly, &quot;Newsrooms are all about speed and accuracy. The kind of writing we do is much more involved with style. You need quiet,&quot; and then Kelly outlines a fascinating hierarchy of office space:</p><blockquote>In the Cond&#xE9; Nast headquarters, there are five levels of office space, ranked from A, for top-level editors and publishers, which are corner offices with windows, to E level, where assistants and junior staffers are sitting in the open. But even the D level office space in the current headquarters have walls and doors -- although that level would be relegated to interior windowless space.</blockquote>Who knows, maybe Cond&#xE9; Nast will <a href="https://web.archive.org/web/20150424135815/http://gothamist.com/2009/10/05/conde_nast_cuts_more_mags.php">cut a few more magazines</a> and put the cubicle cowards out of their misery.<p></p>					
+										
+									
+				

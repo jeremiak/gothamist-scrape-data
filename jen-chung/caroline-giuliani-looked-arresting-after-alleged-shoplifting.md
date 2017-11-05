@@ -1,0 +1,19 @@
+---
+author: Jen Chung
+date: Aug 6, 2010 10:19 am
+title: Caroline Giuliani Looked Arresting After Alleged Shoplifting
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="2010_08_carogiuli.jpg" src="https://web.archive.org/web/20150920203648im_/http://gothamist.com/attachments/jen/2010_08_carogiuli.jpg" width="640" height="427"> <br> <i>Photograph of Caroline Giuliani leaving the 19th Precinct on Wednesday by <a href="https://web.archive.org/web/20150920203648/http://www.flickr.com/photos/midnightquill/4863691110/in/photostream/">Daniella Zalcman on Flickr</a></i></div> <p></p>
+
+<p>There&apos;s loads of Caroline Giuliani-related news, but let&apos;s start with one of the more curious matters: Her transformation from <a href="https://web.archive.org/web/20150920203648/http://gothamist.com/2010/08/05/caroline_giuliani_will_never_forget.php?gallery0Pic=3#gallery">grungy-looking (in a NYU t-shirt)</a> alleged shoplifter in handcuffs to glowing <a href="https://web.archive.org/web/20150920203648/http://gothamist.com/2010/08/05/caroline_giuliani_will_never_forget.php?gallery0Pic=1#gallery">Harvard sweatshirt clad co-ed</a>, with flowing blond tresses, confidently walking out of the station house. <a href="https://web.archive.org/web/20150920203648/http://www.nypost.com/p/news/local/manhattan/sin_derella_quick_change_QEWJrPwA9MOHOiFnqQrRCM?CMP=OTC-rss&amp;FEEDNAME=">According to the Post&apos;s sources</a>, it was because of...the Post! &quot;After a Post photographer snapped Rudy Giuliani&apos;s dowdy daughter in cuffs... she asked cops if she could put on a little makeup.&quot; </p>
+
+<p>The 20-year-old daughter of &quot;America&apos;s mayor&quot; was <a href="https://web.archive.org/web/20150920203648/http://gothamist.com/2010/08/04/caroline_giuliani_arrested_for_shop.php">arrested on Wednesday afternoon</a> after <a href="https://web.archive.org/web/20150920203648/http://www.nydailynews.com/ny_local/2010/08/06/2010-08-06_andrew_i_got_yer_back_lil_sister.html">allegedly stealin</a>g &quot;$40 Dior Skinflash primer sheer, a $22 Make Up For Ever Aqua Cream, a $10 Sephora brand Refillable Rollerball and three $3.50 snag-free elastics&quot; from a Sephora store at Lexington and 86th.  When at the 19th Precinct, she apparently spent 15 minutes in a bathroom glamming herself up. One stylist said, &quot;It will probably go down in history as the best jailhouse transformation ever.<strong> She made sure her hair and makeup were on point</strong>,&quot; while another sympathized, &quot;I think letting her hair down made a big difference. Everybody wants a good mug shot.&quot;</p>
+
+<p>The Daily News&apos; Joanna Molloy <a href="https://web.archive.org/web/20150920203648/http://www.nydailynews.com/ny_local/2010/08/06/2010-08-06_carolines_shoplifting_bust_a_perfect_way_to_poke_estranged_laworder_dad.html?r=news&amp;utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+nydnrss%2Fnews+%28News%29&amp;utm_content=Google+Reader">states the obvious</a>, at least to pop psychology fans, &quot;If you wanted to hurt the father who&apos;s barely spoken to you or your brother since he publicly dumped your mom for another woman a decade ago, breaking the law was the most embarrassing way to do it.&quot;  </p>
+
+<p>One woman&#x2014;busted on a Duane Reade shoplifting charged&#x2014;who was locked up in holding with Caroline <a href="https://web.archive.org/web/20150920203648/http://www.nypost.com/p/news/local/manhattan/it_cuff_love_for_rudy_kid_Yso5vHzdzavQTBreIMV55L?CMP=OTC-rss&amp;FEEDNAME=">revealed</a>, &quot;She introduced herself as Caroline. She didn&apos;t make any issue about being Giuliani&apos;s daughter. I didn&apos;t find out until I heard the police call out her name... We were in the same place. She was no better than me.&quot; </p>					
+										
+									
+				

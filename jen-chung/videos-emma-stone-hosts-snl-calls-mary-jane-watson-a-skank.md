@@ -1,0 +1,50 @@
+---
+author: Jen Chung
+date: Nov 13, 2011 12:15 pm
+title: Videos: Emma Stone Hosts SNL, Calls Mary Jane Watson A "Skank"
+---
+
+	
+					<div class="galleryEase" id="gallery-497564">
+<!-- gallery js -->
+<script type="text/javascript" src="https://web.archive.org/web/20150501175213js_/http://assets.gothamistllc.com/v5/js/gallery.js"></script>
+<!-- end gallery js -->
+
+<style type="text/css">
+#imgContainer {
+min-height: 300px;
+min-width: 300px;
+background: url('https://web.archive.org/web/20150501175213im_/http://assets.gothamistllc.com/v5/images/progress.gif') center center no-repeat;
+}
+</style>
+
+<!--start of gallery code-->
+<a name="gallery"></a>
+<div class="galleryEaseDisplayed">
+<div id="imgContainer">
+    <img id="galleryImg">
+</div>
+<div class="galleyEaseInfo"></div>
+<div class="galleryEaseNext"></div>
+<div class="galleryEasePrev"></div>
+</div>
+<div class="galleryEaseThumbs">
+		<img src="https://web.archive.org/web/20150501175213im_/http://gothamist.com/assets_c/2011/11/2011_11_snles0-thumb-60x60-674805.jpg" title="" id="photo_1" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":1, "image": "https://web.archive.org/web/20150501175213/http://gothamist.com/upload/2011/11/2011_11_snles0.jpg", "caption": "", "credit":""};galleryObj['photo_1'] = photo;</script>
+		<img src="https://web.archive.org/web/20150501175213im_/http://gothamist.com/assets_c/2011/11/2011_11_snles5-thumb-60x60-674804.jpg" title="" id="photo_2" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":2, "image": "https://web.archive.org/web/20150501175213/http://gothamist.com/upload/2011/11/2011_11_snles5.jpg", "caption": "Rick Perry vamps as best as he can:\<br\>\<br\>\<center\>\<iframe id=\"NBC Video Widget\" width=\"512\" height=\"347\" src=\"http://www.nbc.com/assets/video/widget/widget.html?vid=1368128\" frameborder=\"0\"\>\<\/iframe\>\<\/center\>", "credit":""};galleryObj['photo_2'] = photo;</script>
+		<img src="https://web.archive.org/web/20150501175213im_/http://gothamist.com/assets_c/2011/11/2011_11_snles3-thumb-60x60-674807.jpg" title="" id="photo_3" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":3, "image": "https://web.archive.org/web/20150501175213/http://gothamist.com/upload/2011/11/2011_11_snles3.jpg", "caption": "Emma Stone\'s Spider-Man co-star, Andrew Garfield, tries to talks some sense into Andy Samberg: \<br\>\<br\>\<center\>\<iframe id=\"NBC Video Widget\" width=\"512\" height=\"347\" src=\"http://www.nbc.com/assets/video/widget/widget.html?vid=1368127\" frameborder=\"0\"\>\<\/iframe\>\r\n\<\/center\>", "credit":""};galleryObj['photo_3'] = photo;</script>
+		<img src="https://web.archive.org/web/20150501175213im_/http://gothamist.com/assets_c/2011/11/2011_11_snles7-thumb-60x60-674803.jpg" title="" id="photo_4" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":4, "image": "https://web.archive.org/web/20150501175213/http://gothamist.com/upload/2011/11/2011_11_snles7.jpg", "caption": "At every bridal shower, there\'s one of these guests:\<br\>\<br/\>\<center\> \<iframe id=\"NBC Video Widget\" width=\"512\" height=\"347\" src=\"http://www.nbc.com/assets/video/widget/widget.html?vid=1368145\" frameborder=\"0\"\>\<\/iframe\>\<\/center\>", "credit":""};galleryObj['photo_4'] = photo;</script>
+		<img src="https://web.archive.org/web/20150501175213im_/http://gothamist.com/assets_c/2011/11/2011_11_snles9-thumb-60x60-674801.jpg" title="" id="photo_5" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":5, "image": "https://web.archive.org/web/20150501175213/http://gothamist.com/upload/2011/11/2011_11_snles9.jpg", "caption": "Herb Welch is back!\<br/\>\<br/\>\<center\> \<iframe id=\"NBC Video Widget\" width=\"512\" height=\"347\" src=\"http://www.nbc.com/assets/video/widget/widget.html?vid=1368179\" frameborder=\"0\"\>\<\/iframe\>\r\n\<\/center\>", "credit":""};galleryObj['photo_5'] = photo;</script>
+		<img src="https://web.archive.org/web/20150501175213im_/http://gothamist.com/assets_c/2011/11/2011_11_snles11-thumb-60x60-674799.jpg" title="" id="photo_6" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":6, "image": "https://web.archive.org/web/20150501175213/http://gothamist.com/upload/2011/11/2011_11_snles11.jpg", "caption": "The 1950 game show Secret Word has yet another member of the Brain Trust:\<br\>\<br\>\<center\> \<iframe id=\"NBC Video Widget\" width=\"512\" height=\"347\" src=\"http://www.nbc.com/assets/video/widget/widget.html?vid=1368180\" frameborder=\"0\"\>\<\/iframe\>\r\n\<\/center\>", "credit":""};galleryObj['photo_6'] = photo;</script>
+		<img src="https://web.archive.org/web/20150501175213im_/http://gothamist.com/assets_c/2011/11/2011_11_snles6-thumb-60x60-674806.jpg" title="" id="photo_7" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":7, "image": "https://web.archive.org/web/20150501175213/http://gothamist.com/upload/2011/11/2011_11_snles6.jpg", "caption": "The Devil discusses the Penn State scandal: \<Br\>\<br\>\<center\>\<iframe id=\"NBC Video Widget\" width=\"512\" height=\"347\" src=\"http://www.nbc.com/assets/video/widget/widget.html?vid=1368181\" frameborder=\"0\"\>\<\/iframe\>\<\/center\>\<br/\>\<br/\>And here\'s more Weekend Update highlights:\<br/\>\<center\>\<iframe id=\"NBC Video Widget\" width=\"512\" height=\"347\" src=\"http://www.nbc.com/assets/video/widget/widget.html?vid=1368146\" frameborder=\"0\"\>\<\/iframe\>\<\/center\>", "credit":""};galleryObj['photo_7'] = photo;</script>
+<br>		<img src="https://web.archive.org/web/20150501175213im_/http://gothamist.com/assets_c/2011/11/2011_11_snl13-thumb-60x60-674798.jpg" title="" id="photo_8" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":8, "image": "https://web.archive.org/web/20150501175213/http://gothamist.com/upload/2011/11/2011_11_snl13.jpg", "caption": "Garth and Kat add a third singer who suspiciously looks like the lead singer of Coldplay:\<br\>\<br/\>\<center\>\<iframe id=\"NBC Video Widget\" width=\"512\" height=\"347\" src=\"http://www.nbc.com/assets/video/widget/widget.html?vid=1368129\" frameborder=\"0\"\>\<\/iframe\>\<\/center\>", "credit":""};galleryObj['photo_8'] = photo;</script>
+		<img src="https://web.archive.org/web/20150501175213im_/http://gothamist.com/assets_c/2011/11/2011_11_snlea10-thumb-60x60-674800.jpg" title="" id="photo_9" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":9, "image": "https://web.archive.org/web/20150501175213/http://gothamist.com/upload/2011/11/2011_11_snlea10.jpg", "caption": "The Digital Short included Andy Samberg in yet another horrible hairdo:\<br\>\<br/\>\<center\>\<iframe id=\"NBC Video Widget\" width=\"512\" height=\"347\" src=\"http://www.nbc.com/assets/video/widget/widget.html?vid=1368178\" frameborder=\"0\"\>\<\/iframe\>\<\/center\>", "credit":""};galleryObj['photo_9'] = photo;</script>
+		<img src="https://web.archive.org/web/20150501175213im_/http://gothamist.com/assets_c/2011/11/2011_11_snles8-thumb-60x60-674802.jpg" title="" id="photo_10" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":10, "image": "https://web.archive.org/web/20150501175213/http://gothamist.com/upload/2011/11/2011_11_snles8.jpg", "caption": "Have you wanted to see an iPad hump a game controller?\<br\>\<br/\>\<center\>\<iframe id=\"NBC Video Widget\" width=\"512\" height=\"347\" src=\"http://www.nbc.com/assets/video/widget/widget.html?vid=1368130\" frameborder=\"0\"\>\<\/iframe\>\r\n\<\/center\>", "credit":""};galleryObj['photo_10'] = photo;</script>
+									
+</div></div>					<p>Last night, rising starlet Emma Stone hosted <a href="https://web.archive.org/web/20150501175213/http://www.nbc.com/saturday-night-live/">Saturday Night Live</a> for a second time since 2010 (flashback: <a href="https://web.archive.org/web/20150501175213/http://gothamist.com/2010/10/24/vido_the_rent_is_too_damn_high_on_s.php#photo-1">when Jimmy McMillan was the hot news figure</a>).  She mentioned her upcoming role as Gwen Stacy in the new Spider-Man reboot, adding, &quot;Not to be confused with Spider-Man&#x2019;s other girlfriend Mary Jane Watson, who is a skank and doesn&#x2019;t love him like I do.&quot;  </p>
+
+<p>SNL also touched upon Rick Perry&apos;s debate performance and the Penn State sex scandal, with the Devil weighing in during Weekend Update. At first, the Devil thought Joe Paterno was fired over a recruiting scandal because he gets his news from <a href="https://web.archive.org/web/20150501175213/http://gothamist.com/2011/11/10/ignorant_ashton_kutcher_tweets_that.php">Ashton Kutcher&apos;s Twitter</a>, but once Seth Meyers filled him in, the Devil wailed, &quot;Noooooo! Come on JoePa&#x2014;a cover-up?! This is college football not the Catholic Church... This is college football, not the Catholic Church.&quot; The Devil also admitted to inventing the Internet, where &quot;Bad decisions will live forever. Comments, tagging on Facebook, buffering&#x2014;that&apos;s me.&quot; Entertainment Weekly <a href="https://web.archive.org/web/20150501175213/http://popwatch.ew.com/2011/11/13/saturday-night-live-recap-emma-stone/">preferred the Daily Show&apos;s handling</a> of the Penn State situation, though&#x2014;<a href="https://web.archive.org/web/20150501175213/http://www.thedailyshow.com/watch/thu-november-10-2011/penn-state-riots">check that out</a>.</p>
+
+<p>Next week&apos;s host is Jason Segal with Florence at the Machine as musical guest.</p>					
+										
+									
+				

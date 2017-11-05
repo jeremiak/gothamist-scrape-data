@@ -1,0 +1,11 @@
+---
+author: Jen Chung
+date: August 16, 2010  9:55 AM
+title: Andrew Cuomo's War Chest Scares Albany Democrats
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2010_05_cuomologo.jpg" src="https://web.archive.org/web/20130726154944im_/http://gothamist.com/attachments/jen/2010_05_cuomologo.jpg" width="196" height="108" class="image-left"> </span>For NY State Democrats, it&apos;s a good news/bad news situation with gubernatorial candidate Andrew Cuomo&apos;s enormous $23 million. On one hand, it gives him an advantage over his challengers, whether it&apos;s Rick Lazio or Carl Paladino (or both).  But the worry, <a href="https://web.archive.org/web/20130726154944/http://www.nypost.com/p/news/local/dems_fear_friendly_fire_from_andy_abFzYs5Dp7Mq19D3GcWj7O?CMP=OTC-rss&amp;FEEDNAME=">according to the Post</a>, is that Cuomo might use some of that money to tell voters some <em>shocking</em> news&#x2014;that Albany is dysfunctional!&#x2014;which would cost Democrats seats in the Legislature.</p>
+
+<p>A &quot;prominent&quot; Democrat told the Post, &quot;The big question for many Democrats is, &apos;Does Andrew&apos;s message take a major toll on his own party?&apos;&quot; And sources &quot;said Assembly Speaker Sheldon Silver (D-Manhattan) worries that a dozen or more Democratic Assembly members will be defeated because of unprecedented anti-incumbent sentiment among voters -- as well as Albany&apos;s well-earned reputation for dysfunction and runaway tax-and-spend policies.&quot; </p>
+
+<p>A lobbyist said, &quot;If Andrew spends, say, $10 million in his campaign just emphasizing the theme that Albany is broken, that surely will contribute to the defeat of some Democratic candidates.&quot;  Remember, this is the same Albany that <a href="https://web.archive.org/web/20130726154944/http://gothamist.com/2010/08/04/it_only_took_over_four_months_alban.php">took ages to get the budget</a> passed this year, that <a href="https://web.archive.org/web/20130726154944/http://gothamist.com/2009/12/02/same-sex_marriage_bill_passes_in_ne.php">rejected the same sex marriage bill</a> last year, and that <a href="https://web.archive.org/web/20130726154944/http://gothamist.com/2010/06/08/happy_coup-versary_albany.php">went into gridlock</a> because two State Senate Democrats defected and essentially staged a coup.</p>

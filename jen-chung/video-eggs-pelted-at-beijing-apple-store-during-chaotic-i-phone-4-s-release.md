@@ -1,0 +1,25 @@
+---
+author: Jen Chung
+date: Jan 13, 2012 1:12 pm
+title: Video: Eggs Pelted At Beijing Apple Store During Chaotic iPhone 4S Release
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2012_01_beijingapple.jpg" src="https://web.archive.org/web/20150503144330im_/http://gothamist.com/attachments/jen/2012_01_beijingapple.jpg" width="640" height="431" class="image-none"> </span></p>
+
+<p>If you thought the crowd of people waiting for the new Grand Central Terminal Apple Store <a href="https://web.archive.org/web/20150503144330/http://gothamist.com/2011/12/09/blake_lively_visits_grand_central_a.php">was huge</a>&#x2014;or laughed at the <a href="https://web.archive.org/web/20150503144330/http://gothamist.com/2011/10/14/apple_fans_line_up_to_get_their_han.php">folks waiting for the iPhone 4S</a>&#x2014;then you&apos;ll be interested to know that the iPhone 4S release at the Apple Store in Beijing, China turned into a melee complete with <a href="https://web.archive.org/web/20150503144330/http://shanghaiist.com/2012/01/13/iphone_4s_release_cancelled_in_beij.php">eggs being tossed at the glassy store</a> when it sold out of the phones, upsetting buyers.</p>
+
+<p>Basically, &quot;an army of scalpers&quot; descended upon the store to buy up iPhone 4S&apos;s for the iPhone 4S-hungry Chinese market.  <a href="https://web.archive.org/web/20150503144330/http://www.nytimes.com/2012/01/14/technology/apple-suspends-iphone-4s-sales-in-mainland-china-stores.html?_r=1&amp;ref=business">According to the NY Times</a>, &quot;The horde of more than 1,000 people who gathered outside the store Friday in the Sanlitun district of Beijing Friday included organized teams of migrant workers, identifiable by matching armbands or hats. Some of the migrant workers said they were bused in and promised payment of 100 renminbi, or about $16, for purchasing a phone.&quot;  Bloomberg News spoke to some who were promised 120 renminbi for the phone ($19) and 10 renminbi food allowance (they waited 12 hours). </p>
+
+<p><iframe width="640" height="360" src="https://web.archive.org/web/20150503144330if_/http://www.youtube.com/embed/OXeSJh4p-rg" frameborder="0" allowfullscreen></iframe></p>
+
+<p><a href="https://web.archive.org/web/20150503144330/http://www.weibo.com/lifeng515">One photographer wrote</a>, &quot;In my ten years of reporting, I&apos;ve never seen scalpers this orderly. At Sanlitun most of the people here are working for the scalpers, either students or migrant workers. There are 30-50 people in each group, the level of organization is really just shocking. The group leaders are all carrying balloons, and each group is wearing a different colored ribbon tied around their arms. It all reminds me of a Wuchang Uprising movie...&quot;  Chinese immigrants in the U.S. have been <a href="https://web.archive.org/web/20150503144330/http://gothamist.com/2010/09/23/why_chinese_people_are_lining_up_ou.php">used to buy iPhones for the iPhone black market in China</a>.</p>
+
+<p>Apple <a href="https://web.archive.org/web/20150503144330/http://www.bloomberg.com/news/2012-01-12/apple-iphone-4s-beijing-debut-delayed-as-main-store-unopened.html">stopped sales of the iPhone 4S</a> at all of its five Chinese mainland stores out of concerns for the safety of its employees and customers. While sales at the Shanghai store did not involve egg-pelting, one woman complained to Bloomberg News, &quot;I&#x2019;m very angry. They had said they would start selling the iPhone 4S at 7 a.m. but I was told they were already sold out by the time I got here at 6 a.m.&quot;</p>
+
+<p><iframe width="640" height="360" src="https://web.archive.org/web/20150503144330if_/http://www.youtube.com/embed/32Wq3_chsVQ" frameborder="0" allowfullscreen></iframe></p>
+
+<p><a href="https://web.archive.org/web/20150503144330/http://gothamist.com/2011/10/10/mike_daisey.php">Monologuist Mike Daisey&apos;s recent one-man show</a>, <em>The Agony and the Ecstasy of Steve Jobs</em>, touched upon issues with Apple products and China.  Daisey visited the Foxconn factory where the products were made and told us, &quot;I met hundreds of people whose joints in their hands had been disintegrating from Carpel Tunnel Syndrome from doing the same repetitive motion again and again and again. It doesn&apos;t take much to rotate people on the production line so that doesn&apos;t happen to them. But it does require that you view the people that work for you as human beings and not as animals. And the truth is that Foxconn and the other subcontractors in the Special Economic Zone, they don&apos;t view their employees that way. And Apple and the other electronics makers, they don&apos;t view them that way either. They don&apos;t think about them at all, and as a consequence they&apos;re abused.&quot;</p>					
+										
+									
+				

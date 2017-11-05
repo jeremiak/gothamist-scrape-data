@@ -1,0 +1,17 @@
+---
+author: Jen Chung
+date: Jun 27, 2011 2:17 pm
+title: Gay Marriage Hero Cuomo Not Thinking About 2016, But Sorta Is
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="2011_06_cuomo2016.jpg" src="https://web.archive.org/web/20150404050316im_/http://gothamist.com/attachments/jen/2011_06_cuomo2016.jpg" width="640" height="422"> <br> <i>Governor Andrew Cuomo, with girlfriend Sandra Lee on his left, walks in the Gay Pride Parade with City Council Speaker Christine Quinn and Mayor Michael Bloomberg (Governor Cuomo&apos;s Flickr)</i></div> <p></p>
+
+<p>After managing to shepherd the marriage equality bill through the Legislature and <a href="https://web.archive.org/web/20150404050316/http://gothamist.com/2011/06/24/gay_marriage_legalized_in_new_york.php">getting it passed</a>, Governor Andrew Cuomo was victorious after his <a href="https://web.archive.org/web/20150404050316/http://www.nytimes.com/2011/06/26/nyregion/the-road-to-gay-marriage-in-new-york.html?_r=1">political maneuvering paid off</a>.  Which means a new kind of maneuvering must begin: What to do for Act II. And, of course, talk has turned to running for president in 2016.  </p>
+
+<p>The Post&apos;s Albany bureau chief <a href="https://web.archive.org/web/20150404050316/http://www.nypost.com/p/news/local/cuomo_prez_rumor_warning_the_staff_w1oOWW8eAk2BErYthVpQhJ?CMP=OTC-rss&amp;FEEDNAME=">Fred Dicker reported</a> that Cuomo has been telling aides &quot;to turn down invitations to appear on several high-profile national news shows to discuss gay marriage, believing the media would turn them into discussions of a possible presidential campaign.&quot;  A source said, &quot;He&apos;s seen this dance before, with his father [who considered running in 1992]. It&apos;s distracting and possibly destructive to a governor, and you have to shut it down immediately, immediately, because it will begin to fuel itself if you don&apos;t.&quot; Further, the source said, &quot;The governor also views the speculation as disrespectful to the position of governor, and it would make the governor look like just another politician looking to take the next step on the ladder, which is not the case.&quot;  </p>
+
+<p>Then, hours later, Dicker and Post reporter Carl Campanile <a href="https://web.archive.org/web/20150404050316/http://www.nypost.com/p/news/local/cuomo_doesn_rule_out_white_house_8PKcXIJCpRYqoGgeRFXV5N">filed another story</a>, noting how during a radio interview this morning, Cuomo said of a 2016 presidential run, &#x201C;No, it&#x2019;s not a possibility... It&#x2019;s not about 2016. It&#x2019;s about the power of the passage of marriage equality,&quot; but also admitted he would not close the door on running for president.  And why should he?  His girlfriend would make such <a href="https://web.archive.org/web/20150404050316/http://www.foodnetwork.com/shows/sandra-lee-tablescapes/pictures/index.html">awesome tablescapes</a> at the White House, even if she <a href="https://web.archive.org/web/20150404050316/http://gothamist.com/2010/11/05/sandra_lee_wont_live_at_governors_m.php">might not live there</a>.</p>					
+										
+									
+				

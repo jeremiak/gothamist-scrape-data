@@ -1,0 +1,12 @@
+---
+author: Jen Chung
+date: August 15, 2010 12:08 AM
+title: Last Night's Action: A-Rod Hits Trifecta Of Home Runs
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="2010_07_3arod.jpg" src="https://web.archive.org/web/20110611062412im_/http://gothamist.com/attachments/jen/2010_07_3arod.jpg" width="640" height="233"> <br> <i>Alex Rodriguez hit home runs during the sixth (left photo), seventh (center) and ninth (right) innings of the Yankees game in Kansas City (Ed Zurga/AP)</i></div> <p></p>
+
+<p><a href="https://web.archive.org/web/20110611062412/http://www.google.com/hostednews/ap/article/ALeqM5jlCBfN_3bkUjSeTnO_XexE8i191QD9HJMAI81">Yankees 8 Royals 3</a>: Alex Rodriguez notched hit three home runs and drove in five runs in the Bombers&apos; victory over Kansas City. The AP noted, &quot;It took Alex Rodriguez 47 pressure-laden at-bats to go from career home run No. 599 to No. 600. Going from 601 to 604 took five pitches.&quot;  Phil Hughes got the win after pitching six innings.  <br>
+<a href="https://web.archive.org/web/20110611062412/http://www.nj.com/mets/index.ssf/2010/08/in_loss_mets_see_flurry_of_unc.html">Phillies 4 Mets 0</a>: Roy Halladay only allowed the Mets four hits and no walks in the Phillies&apos; shut-out win.  The Mets also made three errors during Pat Misch&apos;s first start (he allowed only one earned run; the others were off the errors), and Mets fans were booing David Wright, whose error cost the Mets two runs, and Francisco Rodriguez, who returned to the mound after his two-game suspension.<br>
+<a href="https://web.archive.org/web/20110611062412/http://www.nydailynews.com/sports/more_sports/2010/08/15/2010-08-15_blunderful_bulls.html">LA Galaxy 1 Red Bulls 0</a>: In front of the team&apos;s first sellout crowd in history, the Red Bulls fell to the Galaxy.  Rafael Marquez turned over the ball, which led to the only goal.<br>
+<a href="https://web.archive.org/web/20110611062412/http://www.nydailynews.com/sports/basketball/2010/08/15/2010-08-15_liberty_puts_cap_on_berth.html">LIberty 107 Mercury 69</a>: Cappie Poindexter scored 26 points in a win that clinched the Liberty&apos;s playoff berth.</p>

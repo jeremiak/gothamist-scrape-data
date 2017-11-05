@@ -1,0 +1,19 @@
+---
+author: Jen Chung
+date: Aug 6, 2010 4:31 pm
+title: The Knicks Just Can't Quit Isiah Thomas
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <a href="https://web.archive.org/web/20150506172927/http://gothamist.com/attachments/tien/2010_02_thomasforehead.jpg"> <img alt="2010_02_thomasforehead.jpg" src="https://web.archive.org/web/20150506172927im_/http://gothamist.com/assets_c/2010/02/2010_02_thomasforehead-thumb-225x345-481086.jpg" width="200" height="306" class="image-left"> </a> </span>Finally, the missing piece of the Knicks&apos; road-to-a-championship puzzle has been found: It&apos;s Isiah Thomas!  The Knicks announced that they rehired their old coach and president as a consultant, saying, &quot;Isiah Thomas brings unique experience as a Hall of Fame player, coach, executive and owner, and we believe having him as part of our organization will be extremely beneficial to the team&#x2019;s success.&quot;</p>
+
+<p>The team also noted. &quot;Isiah was helpful to the team&#x2019;s senior management during our most recent recruitment efforts, including assisting with the <a href="https://web.archive.org/web/20150506172927/http://gothamist.com/2010/07/06/stoudemire_says_yes_to_knicks_997_m.php">acquisition of Amar&#x2019;e Stoudemire</a>. He will provide valuable insight and analysis of young prospects from around the world.&quot; (But <a href="https://web.archive.org/web/20150506172927/http://gothamist.com/2010/07/08/report_knicks_sent_isiah_thomas_to.php">wooing LeBron James</a> <a href="https://web.archive.org/web/20150506172927/http://gothamist.com/2010/07/09/ny_papers_hate_lebron_but_cleveland.php">didn&apos;t work out</a>!) Thomas <a href="https://web.archive.org/web/20150506172927/http://gothamist.com/2009/04/14/isiah_thomas_takes_college_coaching.php">will continue to coach</a> at Florida International University.  </p>
+
+<p><a href="https://web.archive.org/web/20150506172927/http://www.nypost.com/p/blogs/knicksblog/knicks_to_name_isiah_consultant_kkF77XscbADGo7aM8qiJFI">According to the Post</a>, &quot;Thomas has been on a campaign to try to rebuild his image for a return to the NBA, but Dolan risks the backlash of the fans if he gives Thomas a prominent role. Dolan, however, clearly wants to help Thomas... Thomas was 56-108 coaching the Knicks in the 2006-07 and 2007-08 seasons, and was president of basketball operations from 2003-08. The team did not win a playoff game in that time, making them only in 2004.&quot; Also, there was that whole sexual harassment <a href="https://web.archive.org/web/20150506172927/http://gothamist.com/2007/10/02/isiah_thomas_ms.php">case that cost the Knicks $11.6 million</a>.</p>
+
+<p>The <a href="https://web.archive.org/web/20150506172927/http://www.nydailynews.com/sports/basketball/knicks/2010/08/06/2010-08-06_isiahs_back_with_the_knicks__as_consultant.html">Daily News adds</a>, &quot;According to a person close to Thomas, he has convinced Dolan that if he were in charge of the Knicks&apos; free agent recruiting efforts, he could do a better job than team president Donnie Walsh or coach Mike D&apos;Antoni of convincing the NBA&apos;s young stars to come to New York.&quot; (Carmelo Anthony?) But since Thomas is also a college basketball coach, the NBA is reviewing the agreement to make sure its in compliance with league rules.</p>
+
+<p>For a reminder of the Thomas-years, read this 2008 New York magazine story, &quot;<a href="https://web.archive.org/web/20150506172927/http://nymag.com/news/sports/45787/">Absolutely, Positively the Worst Team in the History of Professional Sports</a>,&quot; and our <a href="https://web.archive.org/web/20150506172927/http://gothamist.com/2010/02/14/making_the_call_the_knicks_lost_dec.php">look at the Knicks&apos; lost decade</a>.</p>					
+										
+									
+				

@@ -1,0 +1,13 @@
+---
+author: Jen Chung
+date: February 17, 2012  2:51 PM
+title: Congress Passes Payroll-Tax Cut, Unemployment Extension
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="2012_01_capitolbldg.jpg" src="https://web.archive.org/web/20120217212019im_/http://gothamist.com/attachments/jen/2012_01_capitolbldg.jpg" width="640" height="401"> <br> <i>Photograph by <a href="https://web.archive.org/web/20120217212019/http://www.shutterstock.com/gallery-869878p1.html">Mesut Dogan</a> / Shutterstock</i></div> <p></p>
+
+<p>Today, the House of Representatives and Senate both &quot;passed a deal to extend the payroll-tax-cut through year-end, continue unemployment benefits and avoid a steep cut in Medicare doctors&apos; fees,&quot; as the <a href="https://web.archive.org/web/20120217212019/http://online.wsj.com/article/SB10001424052970204880404577229180280277616.html?mod=WSJ_hp_LEFTTopStories">Wall Street Journal reports</a>. The House passed the measure 292-132 (91 Republicans and 41 Democrats were against it) while the Senate&apos;s vote was 60 to 36 (30 Republicans, 5 Democrats and 1 Independent were against it)&#x2014;you can see the breakdown of the vote here&#x2014;<a href="https://web.archive.org/web/20120217212019/http://politics.nytimes.com/congress/votes/112/house/2/72?ref=politics">Congress</a>, <a href="https://web.archive.org/web/20120217212019/http://politics.nytimes.com/congress/votes/112/senate/2/22?ref=politics">Senate</a>.</p>
+
+<p>This means that the Social Security tax will remain at 4.2%, instead of going to 6.2% on March 1.  As for the unemployment benefits component, <a href="https://web.archive.org/web/20120217212019/http://www.bloomberg.com/news/2012-02-17/house-passes-extension-of-payroll-tax-cut-through-2012-by-vote-of-293-132.html">Bloomberg News reports</a>, &quot;The $30 billion unemployment extension would gradually reduce the number of weeks that recipients can receive benefits, down from the current 99 weeks, according to separate summaries provided by Democrats and Republicans on the House Ways and Means Committee. By the end of the year, most states would offer maximum benefits for 63 weeks while people in high-unemployment states would be eligible for 73 weeks of benefits.&quot;</p>
+
+<p>Senator John McCain explained why Republicans got on board, &quot;<strong>We&apos;re dumb, but we&apos;re not stupid.</strong> We didn&apos;t want to repeat the debacle of last December.&quot;</p>

@@ -1,0 +1,19 @@
+---
+author: Jen Chung
+date: May 10, 2011 12:52 PM
+title: Early Addition: Why Isn't SF The Gayest City Anymore?
+---
+
+<span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <div class="image-none" style=" width:640px; "> <img alt="2011_05_ea510.jpg" src="https://web.archive.org/web/20110511154046im_/http://gothamist.com/attachments/jen/2011_05_ea510.jpg" width="640" height="426"> <br> <i>Photograph of a Central Park raccoon by <a href="https://web.archive.org/web/20110511154046/http://www.flickr.com/photos/wallyg/5706845112/">wallyg on Flickr</a></i></div> </span><ul>
+	<li>Follow Gothamist <a href="https://web.archive.org/web/20110511154046/http://twitter.com/#!/gothamist">on Twitter</a> and <a href="https://web.archive.org/web/20110511154046/http://www.facebook.com/pages/Gothamist/13927915491">like us on Facebook</a>.  You can also get the top stories mailed to you&#x2014;<a href="https://web.archive.org/web/20110511154046/http://eepurl.com/Mu4T">sign up here</a>.</li>
+	<li>The Daily Show tries to get to the <a href="https://web.archive.org/web/20110511154046/http://sfist.com/2011/05/10/the_daily_show_visits_sf_again_to_f.php">bottom of the mystery that is SF&apos;s declining gayness</a>.</li>
+	<li>Arnold Schwarzenegger and Maria Shriver <a href="https://web.archive.org/web/20110511154046/http://www.people.com/people/article/0,,20488217,00.html">are separated</a>.</li>
+	<li>The son of the woman who killed herself and three children by driving her minivan into the Hudson River <a href="https://web.archive.org/web/20110511154046/http://www.nydailynews.com/ny_local/2011/05/10/2011-05-10_lashaun_armstrong_10yearold_hudson_plunge_survivor_visits_grave_on_mothers_day.html?r=news%2Fny_crime&amp;utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+nydnrss%2Fnews%2Fny_crime+%28News%2FNY+Crime%29&amp;utm_content=Google+Reader">visited her grave on Mother&apos;s Day</a>.</li>
+	<li>A man <a href="https://web.archive.org/web/20110511154046/http://www.dnainfo.com/20110510/greenwich-village-soho/man-falls-into-elevator-shaft-at-nyu-building">fell in a shaft at NYU</a>.</li>
+	<li>A missing man was found <a href="https://web.archive.org/web/20110511154046/http://www.nydailynews.com/news/ny_crime/2011/05/10/2011-05-10_40yearold_man_killed_with_blow_to_the_head_found_outside_queens_seafood_warehous.html?r=news%2Fny_crime&amp;utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+nydnrss%2Fnews%2Fny_crime+%28News%2FNY+Crime%29&amp;utm_content=Google+Reader">dead in front of a Queens warehouse</a>.</li>
+	<li>The gates to Liverpool&apos;s Strawberry Field <a href="https://web.archive.org/web/20110511154046/http://www.guardian.co.uk/music/2011/may/10/beatles-strawberry-fields-gates-removed?INTCMP=SRCH">have been removed</a>.</li>
+	<li>Bridezilla alert: The Washington Post&apos;s style editor is kinda pissed Kate Middleton <a href="https://web.archive.org/web/20110511154046/http://www.washingtonpost.com/opinions/me-and-kate-forever-wedded-by-a-gown/2011/05/05/AFbBsCCG_story.html">stole her wedding style</a>.</li>
+	<li>The James Beard Awards were handed out last night and <a href="https://web.archive.org/web/20110511154046/http://dinersjournal.blogs.nytimes.com/2011/05/10/eleven-madison-park-abc-kitchen-gabrielle-hamilton-win-james-beard-awards/">winners include</a> Prune&apos;s Gabrielle Hamilton (Best Chef, NYC), ABC Kitchen (Best New Restaurant) and Eleven Madison Park (Outstanding Restaurant).</li>
+	<li>Live Nation and Groupon are <a href="https://web.archive.org/web/20110511154046/http://www.nypost.com/p/news/business/groupon_live_nation_team_for_ticket_7G7FM74rGihgtDNtwQJYHN?CMP=OTC-rss&amp;FEEDNAME=">teaming up for concert tickets</a>.</li>
+	<li>The <em>Book of Mormon</em> is <a href="https://web.archive.org/web/20110511154046/http://www.npr.org/2011/05/09/136054170/first-listen-cast-recording-the-book-of-mormon">streaming live today on NPR.</a> </li>
+</ul>

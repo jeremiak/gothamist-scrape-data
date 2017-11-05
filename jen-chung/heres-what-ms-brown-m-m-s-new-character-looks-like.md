@@ -1,0 +1,16 @@
+---
+author: Jen Chung
+date: January 30, 2012  5:13 PM
+title: Here's What Ms. Brown, M&M;'s New Character, Looks Like
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="2012_01_mrsbrown.jpg" src="https://web.archive.org/web/20120131123814im_/http://gothamist.com/attachments/jen/2012_01_mrsbrown.jpg" width="640" height="423"> <br> <i>Photographs of Ms. Brown being unveiled at M&amp;M;&apos;s World inTimes Square by <a href="https://web.archive.org/web/20120131123814/http://www.garyhe.com/">Gary He</a></i></div> <p></p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <a href="https://web.archive.org/web/20120131123814/http://gothamist.com/attachments/jen/2012_01_msbrown1.jpg"> <img alt="2012_01_msbrown1.jpg" src="https://web.archive.org/web/20120131123814im_/http://gothamist.com/assets_c/2012/01/2012_01_msbrown1-thumb-500x745-690725.jpg" width="250" height="372" class="image-right"> </a> </span>While many Super Bowl commercials will be unveiling their multimillion-dollar campaigns on Sunday, a few advertisers are whetting the public&apos;s curiosity by springing the ads early (like Honda did with its <a href="https://web.archive.org/web/20120131123814/http://chicagoist.com/2012/01/30/extended_ferris_bueller_super_bowl.php">Ferris Bueller-inspired CR-V spot</a>). Now, M&amp;M;&apos;s, which has promised to unveil the brown M&amp;M;&apos;s persona in a game day commercial, showed off what Ms. Brown looks like at its Time Square store.</p>
+
+<p>Ms. Brown wears white high heels, <a href="https://web.archive.org/web/20120131123814/http://www.facebook.com/photo.php?fbid=10150508085196957&amp;set=a.131015676956.121420.30634981956&amp;type=1&amp;ref=nf">Judith Ripka gloves</a> and has a <a href="https://web.archive.org/web/20120131123814/http://www.google.com/search?hl=en&amp;client=safari&amp;rls=en&amp;q=liz+lemon+glasses&amp;gs_sm=e&amp;gs_upl=1832l1832l0l2135l1l1l0l0l0l0l94l94l1l1l0&amp;bav=on.2,or.r_gc.r_pw.,cf.osb&amp;biw=1123&amp;bih=640&amp;um=1&amp;ie=UTF-8&amp;tbm=isch&amp;source=og&amp;sa=N&amp;tab=wi&amp;ei=5xQnT8rnKYji0gHlwt2JCQ">Liz Lemon-y</a> (or are they <a href="https://web.archive.org/web/20120131123814/http://www.google.com/search?client=safari&amp;rls=en&amp;q=lisa+loeb+glasses&amp;oe=UTF-8&amp;um=1&amp;ie=UTF-8&amp;hl=en&amp;tbm=isch&amp;source=og&amp;sa=N&amp;tab=wi&amp;ei=-RQnT5SsNKnY0QHe9IGDDA&amp;biw=1123&amp;bih=640&amp;sei=-xQnT5rHDoHd0QHp6PiBCQ">more Lisa Loeb?</a>) glasses.  It&apos;s unclear how <a href="https://web.archive.org/web/20120131123814/http://www.mms.com/us/about/characters/green/">Ms. Green</a> feels about this new lady in the family.</p>
+
+<p>There was actually a live event in LA&#x2014;with Neil Patrick Harris&#x2014;<a href="https://web.archive.org/web/20120131123814/http://www.ustream.tv/mmschocolate">to unveil Ms. Brown</a>, but there were &quot;technical difficulties at our Ms. Brown Reveal event&quot; according to <a href="https://web.archive.org/web/20120131123814/http://www.facebook.com/mms?sk=wall">M&amp;M;&apos;s Facebook page</a>.</p>
+
+<p>Fun fact: J.K. Simmons (forever Emil Skoda in our heart) is the <a href="https://web.archive.org/web/20120131123814/http://en.wikipedia.org/wiki/J._K._Simmons">voice of Yellow M&amp;M;</a>.<br>
+</p>

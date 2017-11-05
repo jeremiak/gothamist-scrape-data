@@ -1,0 +1,15 @@
+---
+author: Jen Chung
+date: Aug 9, 2010 5:00 pm
+title: Stephon Marbury On Isiah's Return: "Good Luck, New York"
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <a href="https://web.archive.org/web/20150506172101/http://gothamist.com/attachments/jen/2010_07_stphon2.jpg"> <img alt="2010_07_stphon2.jpg" src="https://web.archive.org/web/20150506172101im_/http://gothamist.com/assets_c/2010/08/2010_07_stphon2-thumb-225x448-536904.jpg" width="150" height="298" class="image-left"> </a> </span>Who knew this day would come:  Stephon Marbury pities the Knicks and possibly even Knicks fans.  The <a href="https://web.archive.org/web/20150506172101/http://www.nypost.com/p/sports/knicks/steph_good_luck_with_isiah_nyc_iwQ0pciucLy8ql0pqpMEEL">Post caught up with the former player</a>, who is currently playing basketball in China, and Starbury said of <a href="https://web.archive.org/web/20150506172101/http://gothamist.com/2010/08/06/like_a_bad_penny_isiah_thomas_is_ba.php">Isiah Thomas&apos; return to the Knicks</a> as a consultant, &quot;<strong>Good luck, New York. Good luck, New York.</strong>&quot;</p>
+
+<p>Marbury, you may remember, left the team in 2009, after <a href="https://web.archive.org/web/20150506172101/http://gothamist.com/2008/12/02/marbury_must_stay_away_from_the_kni.php">being benched</a> and bought out the final year of his <a href="https://web.archive.org/web/20150506172101/http://www.insidehoops.com/nbasalaries.shtml">very rich contract</a> (the final year was worth $20.9 million; he <a href="https://web.archive.org/web/20150506172101/http://gothamist.com/2009/02/27/starbury_orbits_to_boston.php">gave up $2 million</a> to leave town).  The Post reports, &quot;Marbury said he believes that [his] relationship [with Thomas] became damaged because of the 2007 sexual harassment suit by Anucha Brown-Sanders against Thomas. Marbury was <a href="https://web.archive.org/web/20150506172101/http://gothamist.com/2007/09/13/marburys_slam_d.php">called in to testify that he had sexual relations with a Knicks intern</a>. A source close to Marbury said Thomas wanted him to be more evasive during testimony. Instead, Marbury&apos;s testimony was graphically blunt and honest.&quot;  Marbury said, &quot;It wasn&apos;t in my character to say it any other way.&quot;</p>
+
+<p>As for Knicks President Donnie Walsh&apos;s <a href="https://web.archive.org/web/20150506172101/http://gothamist.com/2010/08/08/reports_donnie_walsh_unhappy_with_i.php">reported unhappiness</a> about Thomas coming back, Marbury said it&apos;s nothing new for Walsh to be cut out of the process.  For instance, when he was benched, Marbury said it was all Knicks coach Mike D&apos;Antoni&apos;s doing, &quot;It looked to me like Donnie didn&apos;t have the power.&quot; However, <a href="https://web.archive.org/web/20150506172101/http://www.nypost.com/p/blogs/knicksblog/isiah_walsh_fine_with_me_coming_awEZ53RiHYiL8K4QrAy0gI">Thomas says</a> all is well, &quot;Donnie Walsh and I, and Jim and I, we&#x2019;ve always had great respect for each other.&quot;</p>					
+										
+									
+				

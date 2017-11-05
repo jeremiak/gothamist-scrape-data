@@ -1,0 +1,11 @@
+---
+author: Jen Chung
+date: January  1, 2012  2:30 PM
+title: Derek Jeter, Minka Kelly Continue Love Fest In Paris
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2012_01_jeterminka.jpg" src="https://web.archive.org/web/20120103113717im_/http://gothamist.com/attachments/jen/2012_01_jeterminka.jpg" width="350" height="379" class="image-left"> </span><a href="https://web.archive.org/web/20120103113717/http://gothamist.com/2011/12/13/after_you_sleep_with_derek_jeter_yo.php">Generous lover</a> Derek Jeter sure looks on-again with off-again lady friend Minka Kelly on the cover of today&apos;s Post (just try to look past the distracting Eli Manning Photoshop), <a href="https://web.archive.org/web/20120103113717/http://www.nypost.com/p/news/international/derek_minks_twice_RnIXZA2KvYslrDDI6N14JP">which says</a>, &quot;Here are the first pictures of the Yankees captain and his Hollywood sweetheart looking very much back together as they were spotted this weekend in the most romantic city in the world.&quot; </p>
+
+<p>The Yankees star and the, uh, star of the cancelled-after-just-four-episodes Charlie&apos;s Angels reboot were <a href="https://web.archive.org/web/20120103113717/http://gothamist.com/2011/12/31/derek_jeter_minka_kelly_appreciate.php">spotted last week at the Musee d&apos;Orsay</a> by an American college student. Yesterday, the couple was at the Basilica of the Sacred Heart: &quot;In the series of snaps, the 31-year-old Kelly lifts up her iPhone to take pictures of herself and Jeter on the entrance steps. While she concentrates on taking a shot, the Yankees shortstop smiles and gazes doe-eyed down at her.&quot;</p>
+
+<p>According to Page Six, the pair broke up <a href="https://web.archive.org/web/20120103113717/http://gothamist.com/2011/08/26/derek_jeter_minka_kelly_break_up.php">over the summer</a> due to a &quot;lull in their relationship,&quot; proving that even <a href="https://web.archive.org/web/20120103113717/http://gothamist.com/2010/10/11/derek_jeters_girlfriend_officially.php">Esquire&apos;s Sexiest Woman Alive</a> has boyfriend problems.  And about a year ago, the Post claimed they <a href="https://web.archive.org/web/20120103113717/http://gothamist.com/2010/01/10/derek_jeter_and_minka_kelly_to_wed.php">were getting married</a>.  </p>

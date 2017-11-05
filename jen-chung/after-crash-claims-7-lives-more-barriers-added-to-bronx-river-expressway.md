@@ -1,0 +1,15 @@
+---
+author: Jen Chung
+date: May  3, 2012  4:00 PM
+title: After Crash Claims 7 Lives, More Barriers Added To Bronx River Expressway
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="42912wreck.jpg" src="https://web.archive.org/web/20120529120643im_/http://gothamist.com/attachments/nyc_chrisrobbins/42912wreck.jpg" width="640" height="426"> <br> <i> (AP)</i></div> <p></p>
+
+<p>On Sunday, a minivan carrying a family of seven <a href="https://web.archive.org/web/20120529120643/http://gothamist.com/2012/04/29/seven_killed_after_car_falls_100_fe.php">flew off the Bronx River Expressway</a> and fell 60 feet, killing four adults and three children. Critics noted that there have been <a href="https://web.archive.org/web/20120529120643/http://gothamist.com/2012/04/30/family_devastated_destroyed_after_7.php">many accidents at that stretch of the BRE</a>, and the AAA <a href="https://web.archive.org/web/20120529120643/http://www.nbcnewyork.com/news/local/Bronx-River-Parkway-Accidents-Design-Problem-Vaulting-Family-Mourning-149590335.html">said the guardrails were inadequate</a>. Yesterday, crews started to <a href="https://web.archive.org/web/20120529120643/http://abclocal.go.com/wabc/story?section=news/local/new_york&amp;id=8645668">make improvements to the dangerous road</a>.</p>
+
+<p>The victims were driver Maria Gonzalez, 45; her 10-year-old daughter Jocelyn; her elderly parents, Jacob Nunez, 85, and Ana Julia Martinez, 81; and her sister Maria Nunez, 39, and her sister&apos;s daughter, Niely Rosario, 7, and Marly Rosario, 3, all died. Police say that Gonzalez was driving around 70 mph, above the speed limit, when she apparently <a href="https://web.archive.org/web/20120529120643/http://www.nypost.com/p/news/local/bronx/cops_blame_mom_for_zoo_crash_sMMd79MjqxRhrXDV167t2K">lost control of the car and hit a median</a>.  When she tried to correct the vehicle by turning right, the minivan careened across the lanes, hit a curb and catapulted off.  </p>
+
+<p>The curb that Gonzalez&apos;s car hit was two-feet high, and the minivan cleared the four-foot high guardrail.  The AAA&apos;s Rover Sinclar said, &quot;It is very strange that there is a curb there. You don&apos;t put curbs on high-speed roadways because they can serve as launching pads, which appears to be what happened here. A big Honda Pilot flew over a 4-foot guardrail.&quot;</p>
+
+<p>Among the fixes being made are painting lines, and making room for bigger barriers; the <a href="https://web.archive.org/web/20120529120643/http://www.nypost.com/p/news/local/bronx/now_they_fix_it_fiHUY7bProkUawJeRuaseM?utm_medium=rss&amp;utm_content=Bronx">speed limit may be reduced as well</a>.  Gonzalez&apos;s grieving husband said of the improvements, &quot;It feels good that they are doing something about it so this doesn&apos;t happen to some other family.&quot;</p>

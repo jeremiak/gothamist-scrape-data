@@ -1,0 +1,19 @@
+---
+author: Jen Chung
+date: Oct 13, 2011 2:11 pm
+title: License Plate Peekaboo: Trucker Arrested For Trying To Avoid $65 Toll
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:284px; "> <img alt="2011_10_liceplate.jpg" src="https://web.archive.org/web/20150719175235im_/http://gothamist.com/attachments/jen/2011_10_liceplate.jpg" width="284" height="254"> <br> <i>Via the Post</i></div> Because the toll for his tractor-trailer to go onto the George Washington Bridge is $65, Nelson Vaquiz decided that it was much easier to <a href="https://web.archive.org/web/20150719175235/http://www.nypost.com/p/news/local/big_rig_was_rigged_ul7I0Tuwwkze9HzczJFCqO?CMP=OTC-rss&amp;FEEDNAME=">build a contraption that lifts up and hides his license plate</a> instead of just paying the pesky toll.  Except he didn&apos;t count on a Port Authority cop to notice the disappearing license plate.<p></p>
+
+<p><a href="https://web.archive.org/web/20150719175235/http://www.nypost.com/p/news/local/big_rig_was_rigged_ul7I0Tuwwkze9HzczJFCqO?CMP=OTC-rss&amp;FEEDNAME=">According to the Post</a>, &quot;Nelson Vaquiz was caught allegedly trying to dodge the $65 toll as he hauled a load of iron pipes north on Interstate 95 Saturday at around 6:30 a.m., when a sharp-eyed Port Authority police officer saw the plate mysteriously vanish and reappear.&quot; Vaquiz had been in the EZ Pass lane, which would have taken an image of his license plate, and the Post adds, &quot;He also allegedly had the back plate on his trailer bent up so that it couldn&#x2019;t be read by cameras, sources said.&quot;</p>
+
+<center><object classid="clsid:d27cdb6e-ae6d-11cf-96b8-444553540000" codebase="https://web.archive.org/web/20150719175235oe_/http://fpdownload.macromedia.com/pub/shockwave/cabs/flash/swflash.cab#version=8,0,0,0" id="vxFlashPlayer5579" width="380" height="252"><param name="movie" value="http://publish.vx.roo.com/nypost/viral/2010/flashembed/"><param name="allowScriptAccess" value="always"><param name="allowFullscreen" value="true"><param name="quality" value="high"><param name="scale" value="noScale"><param name="wmode" value="windowed"><param name="flashvars" value="vxTemplate=http://publish.vx.roo.com/nypost/viral/2010/NYPost_Mini_Scalable.swf&amp;vxSiteId=b0debab1-419e-413a-bc36-ecb11d2ff4f8&amp;vxChannel=PostUsFeed&amp;vxClipId=1458_1324657&amp;vxClickToPlay=clip&amp;vxTint=&amp;vxServerBase=&amp;vxBitrate=300&amp;vxCore=http://publish.vx.roo.com/nypost/viral/2010/vxCore.swf&amp;"><embed type="application/x-shockwave-flash" src="https://web.archive.org/web/20150719175235oe_/http://publish.vx.roo.com/nypost/viral/2010/flashembed/" width="380" height="252" allowscriptaccess="always" allowfullscreen="true" quality="high" scale="noScale" wmode="windowed" flashvars="vxTemplate=http://publish.vx.roo.com/nypost/viral/2010/NYPost_Mini_Scalable.swf&amp;vxSiteId=b0debab1-419e-413a-bc36-ecb11d2ff4f8&amp;vxChannel=PostUsFeed&amp;vxClipId=1458_1324657&amp;vxClickToPlay=clip&amp;vxTint=&amp;vxServerBase=&amp;vxBitrate=300&amp;vxCore=http://publish.vx.roo.com/nypost/viral/2010/vxCore.swf&amp;"></object></center>
+
+<p> Officer Jason Malice noticed the mysteriously disappearing plate and sounded an alarm. Vaquiz was charged with theft of service, possession of burglar tools and eluding, plus his tractor-trailer was impounded and he had to pay $5,000 bail.</p>
+
+<p>This isn&apos;t the <a href="https://web.archive.org/web/20150719175235/http://gothamist.com/2008/09/04/ingenious_illegal_way_to_beat_tolls.php">first time someone has tried to dupe</a> the Port Authority, which says it loses millions thanks to toll violations.</p>					
+										
+									
+				

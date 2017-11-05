@@ -1,0 +1,13 @@
+---
+author: Jen Chung
+date: August  5, 2010  6:12 PM
+title: Hunter College High School Drama Over Admissions Test
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2010_07_huntercolleghs.jpg" src="https://web.archive.org/web/20110629174614im_/http://gothamist.com/attachments/jen/2010_07_huntercolleghs.jpg" width="240" height="162" class="image-left"> </span>As <a href="https://web.archive.org/web/20110629174614/http://www.hchs.hunter.cuny.edu/">Hunter College High School</a>, the elite public school on the Upper East Side, proudly basks in the knowledge that 1977 graduate Elena Kagan has been <a href="https://web.archive.org/web/20110629174614/http://gothamist.com/2010/08/05/senate_confirms_elena_kagan_to_supr.php">confirmed to the Supreme Court</a>, its administration and faculty are dealing with fallout over a principal&apos;s resignation. <a href="https://web.archive.org/web/20110629174614/http://www.nytimes.com/2010/08/05/nyregion/05hunter.html?ref=nyregion">According to the NY Times</a>, principal Eileen Coppola &quot;cited several reasons for her decision, including tensions over a lack of diversity at the school, which had been the subject of a controversial graduation address the day before by one of the school&#x2019;s few African-American students.&quot;</p>
+
+<p>Justin Hudson&apos;s speech was selected as the graduation speech, and Hudson, who is black and Hispanic, said he was grateful for his education, but &quot;More than anything else, I feel guilty. I don&#x2019;t deserve any of this. And neither do you... <strong>If you truly believe that the demographics of Hunter represent the distribution of intelligence in this city, then you must believe that the Upper West Side, Bayside and Flushing are intrinsically more intelligent than the South Bronx, Bedford-Stuyvesant and Washington Heights.</strong> And I refuse to accept that.&quot;</p>
+
+<p>The Times reports that he school&apos;s demographic make-up is &quot;3 percent black and 1 percent Hispanic; the balance was 47 percent Asian and 41 percent white, with the other 8 percent of students identifying themselves as multiracial,&quot; (the public school population overall is 70% black and Hispanic). Students who attend have passed a teacher-written test; a school official admitted was &quot;a good indicator of whether you will be successful at Hunter&quot; versus giftedness. </p>
+
+<p>One Asian student said of the speech, &quot;Some of my friends felt the reference to their neighborhoods was insulting. They felt like their admission was an individual achievement, not because of some racial community they belong to... [But] it really made us think about who we are and where we came from.&quot;</p>

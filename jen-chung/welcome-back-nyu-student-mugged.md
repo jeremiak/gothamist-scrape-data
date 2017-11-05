@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: September  3, 2010 11:58 AM
+title: Welcome Back: NYU Student Mugged
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <a href="https://web.archive.org/web/20110611053453/http://gothamist.com/attachments/jen/2009_12_nyug.jpg"> <img alt="2009_12_nyug.jpg" src="https://web.archive.org/web/20110611053453im_/http://gothamist.com/assets_c/2009/12/2009_12_nyug-thumb-200x181-468836.jpg" width="110" height="99" class="image-right"> </a> </span>The <a href="https://web.archive.org/web/20110611053453/http://www.nypost.com/p/news/local/nypd_blotter/nypd_daily_blotter_SmeXTY5PYhBeLzoSIlOwOK?CMP=OTC-rss&amp;FEEDNAME=">NY Post&apos;s Police Blotter says</a> a man who mugged an NYU student was arrested:  &quot;Victor Gasper, 31, confronted the victim at Thompson Street and Washington Square South at noon Tuesday, cops said. Gasper barked, &apos;I can get real gangster on you. I can stab you. I know you have $50. Give me your money,&apos;; sources said. When the victim handed over $5, Gasper became irate and snarled, &apos;Now you disrespected me. Now give me all your money,&apos; sources said. The victim forked over an additional $7.&quot; Hello, <a href="https://web.archive.org/web/20110611053453/http://gothamist.com/2008/01/15/flashback_to_th.php">mugger money</a>! Gasper was charged with robbery</p>

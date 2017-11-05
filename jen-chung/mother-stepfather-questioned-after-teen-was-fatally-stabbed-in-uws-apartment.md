@@ -1,0 +1,11 @@
+---
+author: Jen Chung
+date: October 15, 2011  9:30 AM
+title: Mother, Stepfather Questioned After Teen Was Fatally Stabbed In UWS Apartment
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:250px; "> <img alt="2011_10_wisetowers.jpg" src="https://web.archive.org/web/20111018080122im_/http://gothamist.com/attachments/jen/2011_10_wisetowers.jpg" width="250" height="212"> <br> <i>Wise Towers on West 92nd Street </i></div> An 18-year-old died after being stabbed in the leg at his family&apos;s Upper West Side apartment.  Police arrived at the home at the Wise Towers housing project on West 92nd Street after <a href="https://web.archive.org/web/20111018080122/http://www.nypost.com/p/news/local/manhattan/uws_couple_being_questioned_over_oMnjEgNLIjfpSBbV6iwaNP?CMP=OTC-rss&amp;FEEDNAME=">receiving numerous calls about a stabbing</a> around 11 p.m. last night.  The teen, Sean Hines, was dead when they arrived and his mother and stepfather were taken into custody.<p></p>
+
+<p><a href="https://web.archive.org/web/20111018080122/http://www.nypost.com/p/news/local/manhattan/uws_couple_being_questioned_over_oMnjEgNLIjfpSBbV6iwaNP?CMP=OTC-rss&amp;FEEDNAME=">According to the Post</a>, &quot;One neighbor said Hines&#x2019; mom ran from the apartment and said her daughter spotted the mom running down the stairs with blood all over her.&quot; The neighbor said, &quot;She gutted him like a fish.&quot;  But apparently the <a href="https://web.archive.org/web/20111018080122/http://www.dnainfo.com/20111015/upper-west-side/parents-questioned-murder-of-uws-teen-sean-hines">mother also screamed</a>, &quot;That&#x2019;s my last son!&#x201D; and &quot;My husband did that. I didn&#x2019;t do nothing. He killed my son!&quot; </p>
+
+<p>Police are still investigating and another neighbor told WCBS 2, &quot;I have never seen [the victim] get into trouble. I have never seen this child in trouble since he moved here.&quot;</p>

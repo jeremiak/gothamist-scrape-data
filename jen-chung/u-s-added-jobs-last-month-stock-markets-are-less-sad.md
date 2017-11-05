@@ -1,0 +1,13 @@
+---
+author: Jen Chung
+date: August  5, 2011  9:55 AM
+title: U.S. Added Jobs Last Month, Stock Markets Are Less Sad
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="2011_07_chin.jpg" src="https://web.archive.org/web/20110805195957im_/http://gothamist.com/attachments/jen/2011_07_chin.jpg" width="640" height="440"> <br> <i>A trader in China isn&apos;t thrilled with the market (AP)</i></div> <p></p>
+
+<p>The U.S. Department of Labor brought some relief to America and the world after yesterday&apos;s <a href="https://web.archive.org/web/20110805195957/http://gothamist.com/2011/08/04/it_was_wall_streets_worst_day_since.php">bad stock market day</a> (which extended into Asia today&#x2014;Tokyo&apos;s and Hong Kong&apos;s stock markets fell 3-4%) <a href="https://web.archive.org/web/20110805195957/http://www.bloomberg.com/news/2011-08-05/u-s-payrolls-rose-more-than-estimated-117-000-in-july-jobless-rate-9-1-.html">when it announced</a> that &quot;Payrolls rose by 117,000 workers after a 46,000 increase in June that was more than originally estimated.&quot; An economist told Bloomberg News it was good and bad, &quot;This report suggests an economy that is still growing, so we&#x2019;re not in a recession, but one that is definitely sub-par. The bottom line is that we&#x2019;re not really seeing any signs that we&#x2019;re in a recession just yet.&quot;  But we&apos;re still at 9.1% unemployment.</p>
+
+<p>After the job news hit, &quot;Dow Jones Industrial Average futures jumped 106 points soon after the jobs report was released but then pulled back to trade up 30 points at to 11401. Futures had been down 150 points overnight... Standard &amp; Poor&apos;s 500-stock index futures gained 13 points to 1212. Nasdaq 100 futures rose 16 points to 2225,&quot; <a href="https://web.archive.org/web/20110805195957/http://online.wsj.com/article/SB10001424053111903454504576489683638770922.html?mod=WSJ_Home_largeHeadline">according to the Wall Street Journal</a>.</p>
+
+<p>Still, the <a href="https://web.archive.org/web/20110805195957/http://www.nytimes.com/2011/08/06/business/economy/us-posts-solid-job-gains-amid-fears.html?hp">NY Times reports</a>, &quot;Signs that the recovery has slowed to a crawl are mounting. The Commerce Department reported earlier this week that consumer spending, which accounts for up to 70 percent of economic activity, actually declined in June for the first time in nearly two years. A closely watched survey of manufacturers showed that employment in July grew at a slower rate than in June and that new orders of factory goods actually fell. Housing prices are still extremely weak.&quot;</p>

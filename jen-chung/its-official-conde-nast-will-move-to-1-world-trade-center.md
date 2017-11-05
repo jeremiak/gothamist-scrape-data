@@ -1,0 +1,21 @@
+---
+author: Jen Chung
+date: May 18, 2011 11:14 am
+title: It's Official: Condé Nast Will Move To 1 World Trade Center
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="2011_05_wtctowe1.jpg" src="https://web.archive.org/web/20150408104052im_/http://gothamist.com/attachments/jen/2011_05_wtctowe1.jpg" width="640" height="427"> <br> <i>One World Trade Center last month (Port Authority)</i></div> <p></p>
+
+<p>After a <a href="https://web.archive.org/web/20150408104052/http://gothamist.com/2010/05/13/a_vogue_idea_conde_nast_considers_m.php">year of speculation</a>, Cond&#xE9; Nast, whose publications include Vogue, The New Yorker, Wired, Vanity Fair, Bon Appetit, and GQ, has agreed to lease 1 million square feet at One World Trade Center. Employees will start to move there in 2014 and the <a href="https://web.archive.org/web/20150408104052/http://www.nytimes.com/2011/05/18/nyregion/conde-nast-to-anchor-1-world-trade-center.html?partner=rss&amp;emc=rss">NY Times says</a> the deal  gives &quot;ground zero a much-needed corporate anchor with a proven ability to attract other businesses.&quot;  Also, the Port Authority figured out a way to make Cond&#xE9; Nast feel okay!</p>
+
+<p>Many Conde Nast employees have not been thrilled with the idea of the move, <a href="https://web.archive.org/web/20150408104052/http://gothamist.com/2010/08/04/conde_nasties_on_ground_zero_move_i.php">telling the Post last year</a>, It&apos;s just depressing. Everybody is pretty bummed out about it. Nobody wants to move down there,&quot; and &quot;If I&apos;m still here by then, just shoot me.&quot; But financial concerns won over the company, because its current rents at 4 Times Square <a href="https://web.archive.org/web/20150408104052/http://gothamist.com/2010/05/19/why_conde_nast_might_move_to_creepy.php">will jump in a few years</a>; the Times explains, &quot;To attract Cond&#xE9; Nast, the Port Authority of New York and New Jersey, which owns the site, had to take on some risk, notably by agreeing to assume the last four or five years of the company&#x2019;s current lease in Times Square. But the deal, worth an estimated $2 billion over 25 years, still represents a victory for the Port Authority, which has suffered criticism for years of missteps, delays and political squabbling over the rebuilding of the trade center.&quot;</p>
+
+<p>Also, the Times reports, &quot;Cond&#xE9; Nast executives drilled down to the finest details to understand the building and the site, pondering what would happen if, for instance, a Ralph Lauren wanted to pull up to the building in a limousine. Would he be able to get in? To give them comfort, Port Authority executives provided extensive traffic studies for both black cars and delivery vehicles, with data on vehicular flows and travel times from Brooklyn, the Upper East and West Sides and Jersey City.&quot;</p>
+
+<p>The Post&apos;s Steve Cuozzo is <a href="https://web.archive.org/web/20150408104052/http://www.nypost.com/p/news/business/our_towers_get_giant_boost_from_WwwhSeoJnlWW0M6Cc4zopM">thrilled with the deal</a>, &quot;It vindicates those rare New York public officials and real-estate executives who embraced rebuilding without qualifying, hedging or back-burnering it. It repudiates those who lobbied or propagandized against it. And, of course, it forever alters the perception that the &quot;Financial District&quot; would always be mainly about finance, notwithstanding its recent rise as a residential neighborhood and an uptick in leases to media companies.&quot;</p>
+
+<p>Last year, a Cond&#xE9; Nast staffer <a href="https://web.archive.org/web/20150408104052/http://www.observer.com/2010/media/conde-staffers-one-world-trade">told the Observer</a>, &quot;Basically everyone wants to get out of Times Square officially anyway. I did have a flash of concern. Of all the addresses in the world, do I really want mine to be One World Trade Center? ... Could you really pick a better target than Cond&#xE9; Nast? Literally everything that&apos;s wrong with the West.&#x201D;</p>					
+										
+									
+				

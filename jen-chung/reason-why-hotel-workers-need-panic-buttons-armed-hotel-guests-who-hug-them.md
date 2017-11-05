@@ -1,0 +1,11 @@
+---
+author: Jen Chung
+date: February  9, 2012  2:45 PM
+title: Reason Why Hotel Workers Need Panic Buttons: Armed Hotel Guests Who "Hug" Them
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2012_01_panicbutton.jpg" src="https://web.archive.org/web/20120210052341im_/http://gothamist.com/attachments/jen/2012_01_panicbutton.jpg" width="200" height="178" class="image-left"> </span>A proposed hotel workers&apos; union contract will <a href="https://web.archive.org/web/20120210052341/http://gothamist.com/2012/02/08/new_contract_promises_portable_pani.php">give staffers panic buttons</a> so &quot;they can quickly and easily activate to effectively summon prompt assistance to their location.&quot; And here&apos;s a <a href="https://web.archive.org/web/20120210052341/http://gothamist.com/tags/dominiquestrausskahn">non-DSK reason</a> why it seems like a good idea: Apparently a Midtown hotel guest from Ohio was arrested after allegedly trying to &quot;hug&quot; room service waitresses, who spotted guns in the  room.</p>
+
+<p><a href="https://web.archive.org/web/20120210052341/http://www.nypost.com/p/news/local/manhattan/ohio_from_room_breakfast_midtown_VUkhigmxRkIpJ2jNg7AtpJ?CMP=OTC-rss&amp;FEEDNAME=">According to the Post</a>, Ohio resident Fred Vankirk got too friendly with waitresses at the Radisson Hotel on Lexington Avenue on January 8: &quot;The first waitress told cops that when she entered Vankirk&apos;s 17th floor room there was a black handgun on the bed, and that Vankirk got down on one knee, proposed marriage to her and tried to hug her, all after telling her, &apos;Don&apos;t worry, if anyone ever tries to hurt you I&apos;ll kill them,&apos; Troy said.&quot;  There were two other guns (all were registered in Ohio) found in the room.</p>
+
+<p>Vankirk has been in jail since the arrest, trying to post $50,000 bail. Since he had a previous DWI conviction, he was &quot;arrested under a weapons charge that bars people from possessing guns in New York state if they have been previously convicted of a crime.&quot; He has pleaded not guilty so far.</p>

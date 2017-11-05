@@ -1,0 +1,15 @@
+---
+author: Jen Chung
+date: Oct 8, 2010 12:55 pm
+title: NJ Gov Christie Kills Hudson Tunnel Project
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:290px; "> <img alt="2010_09_arcchristie.jpg" src="https://web.archive.org/web/20150729124716im_/http://gothamist.com/attachments/jen/2010_09_arcchristie.jpg" width="290" height="306"> <br> <i>NJ Governor Christie at a press conference yesterday (Mel Evans/AP)</i></div> Yesterday, NJ Governor Chris Christie officially cancelled the country&apos;s largest public transit project, the <a href="https://web.archive.org/web/20150729124716/http://gothamist.com/2009/06/09/ground_broken_on_trans-hudson_trans.php">Trans Hudson Mass Transit Tunnel</a>, which would have <a href="https://web.archive.org/web/20150729124716/http://gothamist.com/2010/09/13/new_tunnel_too_rich_for_new_jerseys.php">doubled rail capacity between NJ and NY</a>.  The project is currently estimated at $8.7 billion (it was estimated at $5 billion in 2005), but Christie says it could go as high as $14 billion with overruns.  <a href="https://web.archive.org/web/20150729124716/http://www.nj.com/news/index.ssf/2010/10/gov_christie_kills_hudson_rive.html">Christie said</a>, &quot;The only prudent move is to end this project. I can&#x2019;t put taxpayers on a never-ending hook.&quot;<p></p>
+
+<p>NJ will have to forfeit $3 billion in federal funds for the <a href="https://web.archive.org/web/20150729124716/http://www.arctunnel.com/">project</a> (Christie: &quot;The $3 billion in federal funding doesn&#x2019;t even get us a third of the way under the river&quot;), which was hailed to bring in construction jobs, aside from easing transit between the Garden State and Big Apple.  Senator Frank Lautenberg (D) criticized the Republican governor&apos;s decision, &quot;Without increased transportation options into Manhattan, New Jersey&#x2019;s economy will eventually be crippled. <strong>The Governor has sentenced New Jersey to a future of insufficient access to New York City, fewer job opportunities, and lower home values</strong>.&quot; Also, the Star-Ledger reports, other Democratic legislators believe Christie&apos;s &quot;ultimate goal all along has been to redirect New Jersey&#x2019;s share of the tunnel project into the nearly bankrupt state Transportation Trust Fund, which pays for road and bridge repairs and transit services. That would enable Christie to avoid increasing the gas tax to pay for the fund, generally considered a politically unpopular move.&quot; </p>
+
+<p>The <a href="https://web.archive.org/web/20150729124716/http://blog.nj.com/njv_mark_diionno/2010/10/hudson_tunnel_project_cancelle.html">Star-Ledger&apos;s Mark DiIonno writes</a> about the &quot;Tunnel to Nowhere,&quot; &quot;After 53 years of talking, 17 years of actual studying and planning, and $478 million spent, this is what we got: a dirt lot, a shuttered storage center, and a new concrete overpass.&quot;</p>					
+										
+									
+				

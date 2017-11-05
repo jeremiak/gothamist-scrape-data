@@ -1,0 +1,15 @@
+---
+author: Jen Chung
+date: Aug 4, 2011 4:15 pm
+title: What Recession: Rich People Buying Lots Of $860 Shoes, $9000 Coats
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2011_0_loubou.jpg" src="https://web.archive.org/web/20150607145441im_/http://gothamist.com/attachments/jen/2011_0_loubou.jpg" width="280" height="342" class="image-left"> </span>The NY Times is continuing its ascent into &quot;what rich people do with all their stinking money besides <a href="https://web.archive.org/web/20150607145441/http://www.nytimes.com/2011/07/21/garden/playhouses-childs-play-grown-up-cash.html?ref=style">$50,000 playhouses</a>, chartering private planes <a href="https://web.archive.org/web/20150607145441/http://gothamist.com/2011/07/25/more_rich_kids_are_flying_private_p.php">for their kids to go to camp</a>, <a href="https://web.archive.org/web/20150607145441/http://gothamist.com/2010/12/09/if_you_dont_hire_a_bartender_for_yo.php">home bartenders</a>, and <a href="https://web.archive.org/web/20150607145441/http://gothamist.com/2011/06/19/youre_not_rich_enough_to_read_the_n.php">clubs for multimillionaires</a>&quot; with <a href="https://web.archive.org/web/20150607145441/http://www.nytimes.com/2011/08/04/business/sales-of-luxury-goods-are-recovering-strongly.html?ref=business">this important information</a>: &quot;Nordstrom has a waiting list for a Chanel sequined tweed coat with a $9,010 price. Neiman Marcus has sold out in almost every size of Christian Louboutin &#x201C;Bianca&#x201D; platform pumps, at $775 a pair [pictured]. Mercedes-Benz said it sold more cars last month in the United States than it had in any July in five years.&quot; Yes, the rich are spending more, because as a retail consultant says, &quot;<strong>If a designer shoe goes up from $800 to $860, who notices?</strong>&quot;</p>
+
+<p>Gilt Groupe general manager Jyothi Rao says, &quot;You just can&#x2019;t buy a pair of shoes for less than $1,000 in some of the luxury brands, and some of the price points have gone to $2,000. There&#x2019;s absolutely a customer for it.&quot; And one facial cream has raised its price $300 since 2008&#x2014;16 ounces of Cr&#xE8;me de la Mer is now $1,650.</p>
+
+<p>There&apos;s some bizarre timing, because the article says, &quot;The rich do not spend quite as they did in the free-wheeling period before the recession, but they are closer to that level... What changed? Mostly, the stock market, retailers and analysts said, as well as a good bit of shopping psychology. Even with the sharp drop in stocks over the last week, the Dow Jones is up about 80 percent from its low in March 2009. And with the overall economy nowhere near its recession lows, buying nice, expensive things is back in vogue for people who can afford it.&quot;  Maybe the global stock markets wanted to give a nice eff-you to the rich <a href="https://web.archive.org/web/20150607145441/http://gothamist.com/2011/08/04/is_the_double_dip_coming_stocks_fal.php">by taking a big dump today</a>?  </p>					
+										
+									
+				

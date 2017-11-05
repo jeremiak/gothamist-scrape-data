@@ -1,0 +1,21 @@
+---
+author: Jen Chung
+date: Dec 24, 2011 1:55 pm
+title: Bernhard Goetz On Death Of Man He Shot: "Sounds Like He Was Depressed"
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:250px; "> <img alt="2011_11_ramseur.jpg" src="https://web.archive.org/web/20170401231749im_/http://gothamist.com/attachments/jen/2011_11_ramseur.jpg" width="250" height="231"> <br> <i>James Ramseur</i></div> James Ramseur, one of the teens shot by &quot;Subway Vigilante&quot; Bernhard Goetz in 1984, <a href="https://web.archive.org/web/20170401231749/http://gothamist.com/2011/12/23/man_shot_by_bernhard_goetz_found_de.php">died in an apparent suicide 27 years</a> to the day of the Goetz shooting.  Goetz told us in an e-mail, &quot;It sounds like he was depressed.&quot;<p></p>
+
+<p>In 1984, Ramseur, 18, and friends Darrell Cabey, Barry Allen and Troy Canty, all 19, ran across Goetz on a 2 train. Goetz says the teens <a href="https://web.archive.org/web/20170401231749/http://www.nypost.com/p/news/local/manhattan/goetz_thug_NliYG9CtovUuIdVWItJ46I?CMP=OTC-rss&amp;FEEDNAME=">were trying to mug him</a>, so he fired five times at them from his unlicensed Smith &amp; Wesson.  The teens, who claimed they were just panhandling, were all injured and Ramseur, who had been holding a screwdriver, lapsed into a coma.  Goetz was acquitted of attempted murder, but served eight and a half months for gun possession charge.</p>
+
+<p>On Thursday, Ramseur, 45, was found in a Bronx motel room, with two empty prescription pill bottles nearby.  Goetz said in his e-mail, &quot;It must have seemed weird to him, being raised with violence, spending 25 years in prison, and then coming back to a changed New York. Maybe his suicide was a statement, but I haven&apos;t figured it out.&quot;  Goetz was apparently<a href="https://web.archive.org/web/20170401231749/http://www.nytimes.com/2011/12/24/nyregion/james-ramseur-victim-of-bernhard-goetz-subway-shooting-dies-at-45.html"> referring to the many years Ramseur served</a> for raping, sodomizing and robbing a pregnant woman in 1986.  </p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <a href="https://web.archive.org/web/20170401231749/http://gothamist.com/attachments/jen/2011_11_timegoetz.jpg"> <img alt="2011_11_timegoetz.jpg" src="https://web.archive.org/web/20170401231749im_/http://gothamist.com/assets_c/2011/12/2011_11_timegoetz-thumb-300x395-683819.jpg" width="200" height="263" class="image-right"> </a> </span>Goetz also said, &quot;I might have met him at a NY Civic meeting about a year ago where [former mayor Ed] Koch was scheduled to speak. He seems to have become an honest person and was working for the caterer. But I&apos;m not sure it was him.&quot;  </p>
+
+<p>Ron Kuby, who represented Cabey, who is now paralyzed and brain damaged, <a href="https://web.archive.org/web/20170401231749/http://www.nydailynews.com/new-york/subway-gunman-bernie-goetz-speaks-pill-overdose-james-ramseur-4-people-shot-1984-article-1.996184">told the Daily News</a>, &quot;When you&#x2019;re shot down by a racist madman, and most of the city hails your attacker as a hero, I imagine it takes a toll on your soul... And, apparently, Mr. Ramseur couldn&#x2019;t take it anymore.&quot; And Koch said of Ramseur&apos;s death, &quot;It&apos;s always sad when someone takes their own life.&quot;</p>
+
+<p>Ramseur was <a href="https://web.archive.org/web/20170401231749/http://www.nytimes.com/1987/05/23/nyregion/judge-sentences-a-goetz-victim-over-outbursts.html">sentenced for contempt of court during Goetz&apos;s trial</a>, for repeatedly not cooperating as a witness when Goetz&apos;s lawyer, Barry Slotnick, was questioning him. A Times article from 1987 reports, &quot;The trial judge said the young man&apos;s behavior before the jury had conveyed &apos;viciousness and selfishness more eloquently than words could.&apos;&quot; </p>					
+										
+									
+				

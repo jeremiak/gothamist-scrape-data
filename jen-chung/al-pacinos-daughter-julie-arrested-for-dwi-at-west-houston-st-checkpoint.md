@@ -1,0 +1,17 @@
+---
+author: Jen Chung
+date: Jul 30, 2011 9:57 pm
+title: Al Pacino's Daughter Julie Arrested For DWI At West Houston St. Checkpoint
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:300px; "> <img alt="2011_07_alpac.jpg" src="https://web.archive.org/web/20140515203645im_/http://gothamist.com/attachments/jen/2011_07_alpac.jpg" width="300" height="413"> <br> <i>Photograph of Al Pacino filming &quot;Righteous Kill&quot; in NYC back in 2007 by <a href="https://web.archive.org/web/20140515203645/http://www.flickr.com/photos/tracy_collins/1750393479/">threecee on Flickr</a></i></div> The 21-year-old daughter of Al Pacino was <a href="https://web.archive.org/web/20140515203645/http://www.nydailynews.com/gossip/2011/07/30/2011-07-30_al_pacinos_daughter_julie_busted_for_drunken_driving_in_manhattan_late_friday_ni.html">charged with driving while intoxicated and driving while ability impaired</a> by the combined influence of drugs and alcohol at around 1:20 a.m. in Manhattan this morning. According to the Daily News, Julie Pacino, who was pulled over at a West Houston Street checkpoint, allegdly told cops, &quot;Yes I was drinking. I had about three beers and I smoked weed at home. That was a few hours ago.&quot;<p></p>
+
+<p>Apparently the police pulled her over because her California license plates had an expired registration. The <a href="https://web.archive.org/web/20140515203645/http://www.nypost.com/p/news/local/manhattan/al_pacino_daughter_arrested_on_dwi_NYNxkzqq5Afc8aipwvvPmO">criminal complaint says</a> that Pacino, who had a male passenger in the car, had &quot;watery and bloodshot eyes, had slurred speech and had the odor of an alcoholic beverage on [her] breath&quot; and blew a 0.12 blood alcohol on a Breathalyzer (0.08 is the legal limit).  She was released without bail and her lawyer said, &quot;She doesn&apos;t have anything to say right now.&quot;</p>
+
+<p>Pacino is the daughter of the acting legend and acting coach Jan Tarrant.  She <a href="https://web.archive.org/web/20140515203645/http://www.lohud.com/article/20070708/SPORTS02/707080318/Softball-Pacino-threat-behind-plate">went to Tappan Zee High School</a> and played softball at UCLA and <a href="https://web.archive.org/web/20140515203645/http://www.uclabruins.com/sports/w-softbl/mtt/pacino_julie00.html">her player bio says</a>, &quot;her biggest athletic thrill as making the state Final Four in 2006 ... admires New York Yankees shortstop Derek Jeter ... favorites include the television show &quot;The Office&quot;, actor Brad Pitt, the movie &quot;Superbad&quot; and musical group Red Hot Chili Peppers ... hobbies include watching movies with her best friend ... majoring in english with a career goal of becoming a filmmaker.&quot;</p>
+
+<p>Last year, beloved Giants quarterback Phil Simms&apos; son, Chris Simms, was arrested at the West Houston Street checkpoint and <a href="https://web.archive.org/web/20140515203645/http://gothamist.com/2010/07/01/chris_simms_arrested_for_dwi.php">charged with driving while stoned</a>; he <a href="https://web.archive.org/web/20140515203645/http://gothamist.com/2011/05/04/simmsacquitted_of_marijuana_dui_dov.php">went to trial and was acquitted</a>.</p>					
+										
+									
+				

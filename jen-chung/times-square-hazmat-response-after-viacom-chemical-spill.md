@@ -1,0 +1,9 @@
+---
+author: Jen Chung
+date: August 16, 2010  8:39 AM
+title: Times Square Hazmat Response After Viacom Chemical Spill
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:240px; "> <img alt="2010_08_tshazmat.jpg" src="https://web.archive.org/web/20130725085634im_/http://gothamist.com/attachments/jen/2010_08_tshazmat.jpg" width="240" height="183"> <br> <i>Tourists gawking in Times Square (WCBS 2)</i></div> Last night, Seventh Avenue between 42nd and 48th Streets was closed so the Fire Department could attend to a hazmat situation at 1515 Broadway, better known as the Viacom building where MTV, VH1 and other subsidiaries are housed.  Why?  Because building workers <a href="https://web.archive.org/web/20130725085634/http://newyork.cbslocal.com/2010/08/16/hazmat-situation-causes-scare-in-heart-of-times-square/">spilled 10 gallons of hydrogen peroxide</a> on the top floor.  <p></p>
+
+<p>The spill was accidental&#x2014;it seems that a machine the workers were using <a href="https://web.archive.org/web/20130725085634/http://www.msnbc.msn.com/id/38719078/ns/us_news-life/">malfunctioned.</a>  The workers refused medical attention after being decontaminated.  WCBS 2 reports that dozens of emergency vehicles were at the scene, but just as a precaution.  Which brought up the typical mixed reactions from tourists: &quot;I figured if there was something really wrong, obviously they would make sure we weren&#x2019;t around. [We&#x2019;re] just watching them do their job and do it well,&quot; said one woman from Idaho, while a Connecticut resident said, &#x201C;Of course I&#x2019;m concerned. What&#x2019;s going on here? Because we know something <a href="https://web.archive.org/web/20130725085634/http://gothamist.com/2010/05/01/times_square_closed_after_police_fi.php">happened here a few months back</a>.&quot; </p>

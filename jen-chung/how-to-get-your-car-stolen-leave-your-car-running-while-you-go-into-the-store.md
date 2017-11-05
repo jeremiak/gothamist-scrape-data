@@ -1,0 +1,11 @@
+---
+author: Jen Chung
+date: January 16, 2012  5:45 PM
+title: How To Get Your Car Stolen: Leave Your Car Running While You Go Into The Store
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-right" style=" width:230px; "> <img alt="2012_01_keysignition.jpg" src="https://web.archive.org/web/20120131150812im_/http://gothamist.com/attachments/jen/2012_01_keysignition.jpg" width="230" height="300"> <br> <i>Photograph by <a href="https://web.archive.org/web/20120131150812/http://www.shutterstock.com/gallery-106408p1.html">Shebeko</a> / Shutterstock</i></div> Did you know that if you keep your car running while you run into a store, someone might just steal it?  This is what happened to a NJ woman who visited a gas station&apos;s mini mart in her 2011 BMW.<p></p>
+
+<p>The <a href="https://web.archive.org/web/20120131150812/http://www.nj.com/hudson/index.ssf/2012/01/womans_bmw_is_stolen_after_she.html">Jersey Journal reports</a>, &quot;At 11:46 p.m. a 26-year-old Pilesgrove woman pulled into a gas station on the westbound side of Route 3 and left the 3-series luxury car running as she popped into the store, police said. While she was in the store another BMW pulled into the gas station and police believe that someone jumped out of that BMW and into her BMW, cops said, adding that both vehicles went west on Route 3.&quot;</p>
+
+<p>As it happens, Insurance.com has a <a href="https://web.archive.org/web/20120131150812/http://www.insurance.com/auto-insurance/claims/prevent-your-car-from-being-stolen.aspx">list of tips on how to prevent car theft,</a> such as &quot;Don&apos;t leave your car with the motor running. A car left unattended and with the motor running is an open invitation to a thief,&quot; but these <a href="https://web.archive.org/web/20120131150812/http://republicanherald.com/news/leaving-car-running-unattended-opens-possibility-of-theft-1.1258176">stories are</a> <a href="https://web.archive.org/web/20120131150812/http://www.kron.com/Article.aspx?ArticleID=2682">perennials</a>.</p>

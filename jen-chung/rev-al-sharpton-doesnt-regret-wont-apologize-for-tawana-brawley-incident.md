@@ -1,0 +1,17 @@
+---
+author: Jen Chung
+date: May 20, 2011 5:00 pm
+title: Rev. Al Sharpton Doesn't Regret, Won't Apologize For Tawana Brawley Incident
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2011_05_reval2.jpg" src="https://web.archive.org/web/20170225163144im_/http://gothamist.com/attachments/jen/2011_05_reval2.jpg" width="365" height="243" class="image-left"> </span>This Sunday, the Rev. Al Sharpton will <a href="https://web.archive.org/web/20170225163144/http://www.cbsnews.com/stories/2011/05/19/60minutes/main20064391.shtml">be featured on 60 Minutes</a>.  Telling interviewer Lesley Stahl to call him a &quot;refined agitator&quot; (hey, he has been working with <a href="https://web.archive.org/web/20170225163144/http://gothamist.com/2009/05/07/bloomberg_sharpton_newt.php">Mayor Bloomberg and Newt Gingrich</a>), he says, &quot;I&apos;ve learned to pick my fights and also to be more strategic about my fight plan. Doesn&apos;t mean it&apos;s not the same fight, but it means I&apos;m a different and I&apos;m a more seasoned fighter.&quot;  Of course, one of the main things Stahl wants to talk about is the <a href="https://web.archive.org/web/20170225163144/http://en.wikipedia.org/wiki/Tawana_Brawley_rape_allegations">Tawana Brawley incident</a>.</p>
+
+<p>As we wrote on the <a href="https://web.archive.org/web/20170225163144/http://gothamist.com/2007/11/28/tawana_brawley.php">20th anniversary of the incident</a>, in 1987, a 15-year-old woman named Tawana Brawley &quot;was found discovered partially nude, smeared with feces, and had racial epithets scrawled on her body&quot; in Wappinger Falls, NY. &quot;Brawley claimed that she had been abducted by a group of white men who raped her repeatedly and that at least one of them identified himself as a police officer. District Attorney Steven Pagones was eventually accused as one of her assailants. Police investigated the incident, but no charges were ever filed when conflicting statements and physical evidence seemed to contradict Brawley&apos;s account of her ordeal. (Brawley has since insisted that she is not a liar and was telling the truth.)&quot;  </p>
+
+<p>During the allegations, Sharpton led protests against the police and accused government officials of covering up the alleged rape, becoming a national figure as a result.  He was eventually found liable for making defamatory statements about Pagones.  Now, when Stahl tells Sharpton why he hasn&apos;t apologized, &quot;I&apos;ll be honest with you. I have thought about that a million times. I just don&apos;t believe they treated that case fair.&quot; And when Stahl says if she knew that she made false statements like that, she&apos;d apologize, to which Sharpton replies, &quot;I think you&apos;re right. I think the operative word is: if you knew that. I don&apos;t know that.&quot; </p>
+
+<center><embed src="https://web.archive.org/web/20170225163144oe_/http://cnettv.cnet.com/av/video/cbsnews/atlantis2/cbsnews_player_embed.swf" scale="noscale" salign="lt" type="application/x-shockwave-flash" background="/web/20170225163144im_/http://gothamist.com/2011/05/20/rev_al_sharpton_doesnt_regret_tawan.php#333333" width="425" height="279" allowfullscreen="true" allowscriptaccess="always" flashvars="si=254&amp;&amp;contentValue=50105095&amp;shareUrl=http://www.cbsnews.com/video/watch/?id=7366594n&amp;tag=contentMain;cbsCarousel"></center>					
+										
+									
+				

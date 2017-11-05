@@ -1,0 +1,19 @@
+---
+author: Jen Chung
+date: Apr 24, 2012 2:17 pm
+title: Cooper Union To Make Graduate Students Pay Tuition
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="2012_04_cooperunion.jpg" src="https://web.archive.org/web/20160822075709im_/http://gothamist.com/attachments/jen/2012_04_cooperunion.jpg" width="640" height="425"> <br> <i>Photograph by <a href="https://web.archive.org/web/20160822075709/http://www.flickr.com/photos/wallyg/6281600133/">Wally G on Flickr</a></i></div> <p></p>
+
+<p>Cooper Union has announced a plan to keep undergraduate tuition free, amid its financial troubles (and it&apos;s a plan that, uh, <a href="https://web.archive.org/web/20160822075709/http://gothamist.com/2012/04/16/shocker_cash-strapped_cooper_union.php">doesn&apos;t involve selling its fancy building</a>):  Charge graduate students tuition.</p>
+
+<p>The East Village institution has been <a href="https://web.archive.org/web/20160822075709/http://gothamist.com/2011/11/01/cooper_union_may_have_to_charge_tui.php">tuition-free for over 100 years</a>, but recent economic malaise (plus paying for a new building) <a href="https://web.archive.org/web/20160822075709/http://www.nytimes.com/2012/04/25/nyregion/cooper-union-will-charge-tuition-for-graduate-students.html?partner=rss&amp;emc=rss&amp;pagewanted=all">has forced it to reassess things</a>.  <a href="https://web.archive.org/web/20160822075709/http://www.nytimes.com/2012/04/25/nyregion/cooper-union-will-charge-tuition-for-graduate-students.html?partner=rss&amp;emc=rss&amp;pagewanted=all">According to the NY Times</a>, &quot;The Greenwich Village college also will expand graduate and other programs to generate more income as it searches for a way out of a deepening financial hole... The plan announced Tuesday stops far short of broad-based tuition, which might have been the simplest and surest route to financial stability. It also falls short of meeting the fiscal target the school set last fall, and in an interview, [President Dr. Jamshed] Bharucha made clear that the school may yet have to be more aggressive about raising revenue.&quot;  </p>
+
+<p>However, Bharucha <a href="https://web.archive.org/web/20160822075709/http://cooper.edu/about/news/update-president-bharucha-framework-action">reiterated in a statement</a>, &quot;Full-tuition scholarships will be assured for all students entering our three core undergraduate programs this fall (as previously announced)&#x2014;and also for the class entering in the fall of 2013. Our capacity to sustain our scholarship program will be tied to our success in generating additional revenues from new programs, as well as from philanthropy.&quot; There are about 1,000 undergraduate students and around <a href="https://web.archive.org/web/20160822075709/http://cooper.edu/admissions/facts/faq#q1">50-100</a> graduate students; tuition costs are valued <a href="https://web.archive.org/web/20160822075709/http://cooper.edu/admissions/tuition-fees">at $37,500</a>.</p>
+
+<p>Cooper Union&apos;s tuition-free policy was made possible after donations from its founder, industrialist and philanthropist <a href="https://web.archive.org/web/20160822075709/http://en.wikipedia.org/wiki/Peter_Cooper">Peter Cooper</a>, his descendants, as well as money from <a href="https://web.archive.org/web/20160822075709/http://query.nytimes.com/mem/archive-free/pdf?res=F50C12FC3F5911738DDDAB0894D9405B808CF1D3">Andrew Carnegie</a> and his descendants.  The Times also shares this interesting fact: &quot;The school uses its $600 million endowment to cover operating deficits. <strong>Those assets include the land under the Chrysler building, on which it collects $7 million a year in rent, which is set to rise to $32.5 million in 2018.</strong>&quot;</p>					
+										
+									
+				

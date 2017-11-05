@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: September  3, 2010  2:13 PM
+title: Attorney General Race Is Anyone's Game
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2010_08_licarz.jpg" src="https://web.archive.org/web/20110611050520im_/http://gothamist.com/attachments/jen/2010_08_licarz.jpg" width="120" height="89" class="image-right"> </span>Yesterday, Quinnipiac reported that<a href="https://web.archive.org/web/20110611050520/http://www.quinnipiac.edu/x1318.xml?ReleaseID=1495"> 85% of registered Democrats</a> don&apos;t know who they&apos;ll vote for come the Democratic Attorney General primary on September 14. The <a href="https://web.archive.org/web/20110611050520/http://www.observer.com/2010/politics/about-poll?utm_medium=partial-text&amp;utm_campaign=politics">Observer reports</a> some people think the poll was flawed&#x2014;&quot;Instead of giving respondants a list of names and asking them to pick one&#x2014;which would have at the very least given a sense of who has the highest name i.d.&#x2014;respondents were asked who they are voting for. Thus, 8 percent of respondent named somebody not running&quot;&#x2014;which poll director Maurice Carroll doesn&apos;t necessarily disagree with, &quot;There is no great interest in this race right now. So there is absolutely no way to predict who is going to win.&quot;</p>

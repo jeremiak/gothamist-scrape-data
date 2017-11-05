@@ -1,0 +1,17 @@
+---
+author: Jen Chung
+date: January 23, 2012 11:01 AM
+title: Rand Paul Detained By TSA After Refusing Full Body Pat-Down
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="2012_01_randpaul.jpg" src="https://web.archive.org/web/20120124014759im_/http://gothamist.com/attachments/jen/2012_01_randpaul.jpg" width="640" height="396"> <br> <i>Photoillustration of the patdown Paul COULD HAVE received</i></div> <p></p>
+
+<p>Senator Rand Paul, <a href="https://web.archive.org/web/20120124014759/http://gothamist.com/2011/03/22/rand_paul_friend_to_911_truthers_is.php">friend to 9/11 Truthers</a>, was detained by the Transportation Security Administration after refusing to submit to a full body pat-down at Nashville&apos;s airport.  The Kentucky Republican&apos;s plight was mentioned by his father, 2012 presidential contender Rep. Ron Paul, <a href="https://web.archive.org/web/20120124014759/https://twitter.com/#!/RonPaul/status/161468829996826625">who Tweeted</a>, &quot;My son @SenRandPaul being detained by TSA for refusing full body pat-down after anomaly in body scanner in Nashville. More details coming.&quot; Senator Paul was on his way to D.C. for the Senate session.</p>
+
+<p>Paul&apos;s spokeswoman Moira Badgley was actually the first to acknowledge the incident (<a href="https://web.archive.org/web/20120124014759/https://twitter.com/#%21/moirabagley/statuses/161463071724945408">she Tweeted it</a>, ofco) and <a href="https://web.archive.org/web/20120124014759/http://www.politico.com/news/stories/0112/71818.html">told Politico</a>, &quot;I spoke with him five minutes ago and he was being detained indefinitely. The image scan went off, he refused patdown.&quot; Of course, <a href="https://web.archive.org/web/20120124014759/http://www.aclu.org/technology-and-liberty/tsa-pat-down-search-abuse">pat-downs</a> and libertarians are like oil and water!</p>
+
+<p>The AP <a href="https://web.archive.org/web/20120124014759/http://hosted.ap.org/dynamic/stories/U/US_RAND_PAUL_FLIGHT?SITE=AP&amp;SECTION=HOME&amp;TEMPLATE=DEFAULT">says there was some &quot;anomaly&quot;</a> on Paul&apos;s knee, but the TSA didn&apos;t provide any details.</p>
+
+<p><b>Update</b>: The <a href="https://web.archive.org/web/20120124014759/http://dailycaller.com/2012/01/23/report-tsa-detains-sen-rand-paul-in-nashville/">TSA now says</a> that Senator Paul was never detained.  Instead, the agency says he &quot;triggered an alarm during routine airport screening and refused to complete the screening process in order to resolve the issue... Passengers, as in this case, who refuse to comply with security procedures are denied access to the secure gate area. He was escorted out of the screening area by local law enforcement.&#x201D;</p>
+
+<p>Further, the TSA said in a statement, &quot;The passenger was screened by millimeter wave imaging technology using automated target recognition. This technology uses the same generic image for all passengers to further protect passengers privacy. When an alarm occurs a yellow box indicates where an anomaly is. A targeted pat down is used to resolve the alarm.&quot;</p>

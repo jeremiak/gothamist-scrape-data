@@ -1,0 +1,17 @@
+---
+author: Jen Chung
+date: Mar 19, 2012 1:58 pm
+title: Assemblywoman Grace Meng Poised To Run For Congress
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:365px; "> <img alt="2012_02_lingmeng.jpg" src="https://web.archive.org/web/20161118154958im_/http://gothamist.com/attachments/jen/2012_02_lingmeng.jpg" width="365" height="324"> <br> <i>Grace Meng and her husband with Jeremy Lin (Meng&apos;s Facebook)</i></div> The race for <a href="https://web.archive.org/web/20161118154958/http://gothamist.com/2012/03/16/rep_gary_ackerman_announces_retirem.php">Rep. Gary Ackermans&apos; Congressional seat</a> is on: While Assemblyman Rory Lancman has been public about his interest in running, Queens Democrats have <a href="https://web.archive.org/web/20161118154958/http://www.nydailynews.com/new-york/queens-democrats-choose-state-assemblywoman-grace-meng-queens-run-retiring-congressman-gary-ackerman-seat-article-1.1043380?localLinksEnabled=false">tapped Assemblywoman Grace Meng as their candidate</a>.  The redrawn Congressional district&#x2014;<a href="https://web.archive.org/web/20161118154958/http://www.capitalnewyork.com/article/politics/2012/03/5464789/map-confirmed-bob-turners-bid-senate-and-preserved-rangel">the 6th</a>&#x2014;would be 37-40% Asian.  <p></p>
+
+<p><a href="https://web.archive.org/web/20161118154958/http://www.capitalnewyork.com/article/politics/2012/03/5506203/grace-meng-get-queens-democratic-organization-support-post-gary-ack">As Capital New York notes</a>, &quot;If elected, <a href="https://web.archive.org/web/20161118154958/http://assembly.state.ny.us/mem/Grace-Meng/">Meng, a trained lawyer</a> and mother of two children, would be the first Asian-American elected to Congress from New York. The history-making potential of her candidacy has been a key part of her public profile. Her official biography says she &quot;is proud to have been elected to the New York State Assembly on the same historic day as President Barack Obama.&quot;</p>
+
+<p>On Friday, Meng <a href="https://web.archive.org/web/20161118154958/http://www.facebook.com/profile.php?id=806956678&amp;sk=wall">posted on her Facebook page</a>, &quot;Long before it was popular or easier to have meaningful relationships in the Asian-American community, Congressman Ackerman was hard at work making himself helpful there. This new congressional district is heavily Asian, and I will be sitting down with our Queens Democratic Organization Chairman, Congressman Joseph Crowley, our community leaders and activists to discuss how the coming months may shape out,&quot; and on Saturday, &quot;Did you know only 16% of Congress are women?&quot; with a <a href="https://web.archive.org/web/20161118154958/http://queens.ny1.com/content/top_stories/157761/queens-democrats-begin-to-eye-congressman-ackerman-s-seat">link to this NY1 story</a>. Someone commented, &quot;Maybe you can make it 17.&quot;</p>
+
+<p><a href="https://web.archive.org/web/20161118154958/http://assembly.state.ny.us/mem/Rory-I-Lancman">Lancman</a> himself Tweeted, &quot;Congrats to my friend Grace, looking forward to a spirited campaign on the issues.&quot;</p>					
+										
+									
+				

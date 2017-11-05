@@ -1,0 +1,19 @@
+---
+author: Jen Chung
+date: April 25, 2012  6:43 PM
+title: Is This The New Brooklyn Nets Logo?
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="2012_04_hellobklyn.jpg" src="https://web.archive.org/web/20120602120006im_/http://gothamist.com/attachments/jen/2012_04_hellobklyn.jpg" width="640" height="361"> <br> <i>The image on the Nets&apos; website yesterday above; the leaked image below</i></div> <p></p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <a href="https://web.archive.org/web/20120602120006/http://gothamist.com/attachments/jen/2012_04_bklynnetslogo.jpg"> <img alt="2012_04_bklynnetslogo.jpg" src="https://web.archive.org/web/20120602120006im_/http://gothamist.com/assets_c/2012/04/2012_04_bklynnetslogo-thumb-450x344-709867.jpg" width="325" height="248" class="image-right"> </a> </span>With their <a href="https://web.archive.org/web/20120602120006/http://gothamist.com/2012/04/24/photos_nets_end_35_years_in_nj_with.php">exit from New Jersey just a day old</a>, a photograph <a href="https://web.archive.org/web/20120602120006/http://notmatthias.tumblr.com/post/21807253306/the-new-brooklyn-nets-logo-has-leaked">has been circulating</a> <a href="https://web.archive.org/web/20120602120006/http://www.netsdaily.com/2012/4/25/2975364/was-nets-new-logo-leaked">of what could be the</a> new Brooklyn Nets&apos; logo.  It seems that someone Tweeted the image and  noted that he was working at the Barclays Center.  Well, it does fit into the shield silhouette shown on the Nets website yesterday and that blue tape does look like carpenter&apos;s tape!</p>
+
+<p>Some people are speculating <a href="https://web.archive.org/web/20120602120006/http://forums.realgm.com/boards/viewtopic.php?f=23&amp;p=31513785">that it&apos;s a plant</a> and Nets CEO Brett Yormark <a href="https://web.archive.org/web/20120602120006/https://twitter.com/#!/brettyormark/status/195283703809847297">would only say</a>, &quot;will not comment on what has been circulated on the internet. Our entire brand identity will be introduced by us on monday. #hello brooklyn&quot; Still, the Tweet with the leaked image has been deleted.</p>
+
+<p>The <a href="https://web.archive.org/web/20120602120006/http://online.wsj.com/article/SB10001424052702303592404577364140785832370.html?mod=WSJ_NY_MIDDLELEADNewsCollection">Wall Street Journal&apos;s Jason Gay</a> feels the Nets should just pick a new name, &quot;&apos;The Nets&quot;&apos;is a punt. It&apos;s a dull holdover, a surrender flag, with bad mojo. There have been plenty of suggested alternatives: the Bridges, the Brownstones, the Knights, the Lions, the Dodgers (!), the Pigeons, the Rats. None of them feel exactly right. The Rats would sell a ton of T-shirts, but you can&apos;t call them the Rats. Come on.&quot;  Gay&apos;s suggestion:</p><blockquote>Just &quot;Brooklyn.&quot; Not the Nets or the Squirrels or the Curbstones. Brooklyn. A confident mononym, like Cher or Pele or Beyonce.<p></p>
+
+<p>Brooklyn.</p>
+
+<p>It is brilliant in its simplicity. It is everything in one word.</p>
+
+<p>Leave the nicknames to everyone else. &quot;Brooklyn&quot; alone works on a basketball jersey, on a T-shirt, in an NBA conversation. The Knicks are playing Brooklyn tonight. Lakers versus Brooklyn. Did you see Brooklyn beat the Celtics?</p></blockquote>FWIW, Brooklyn Borough President Marty Markowitz <a href="https://web.archive.org/web/20120602120006/https://twitter.com/#!/MartyMarkowitz/status/195248236645187586">reTweeted this</a>, &quot;I would love to have Isles in Bklyn. This way, Bklyn Isles can beat Manhattan Rangers at Barclays Center. #hellobrooklyn&quot;  <p></p>

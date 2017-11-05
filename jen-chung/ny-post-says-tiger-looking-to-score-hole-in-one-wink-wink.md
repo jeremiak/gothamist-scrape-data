@@ -1,0 +1,11 @@
+---
+author: Jen Chung
+date: March 26, 2012 10:21 AM
+title: NY Post Says Tiger Looking To Score Hole In One (WINK WINK)
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2012_02_lookout.jpg" src="https://web.archive.org/web/20120327235926im_/http://gothamist.com/attachments/jen/2012_02_lookout.jpg" width="600" height="650" class="image-none"> </span></p>
+
+<p>Yesterday, the man who brought us Rachel Uchitel, golf superstar Tiger Woods, <a href="https://web.archive.org/web/20120327235926/http://espn.go.com/golf/story/_/id/7735914/tiger-woods-wins-bay-hill-end-pga-tour-drought">won his first PGA tournament</a> since the <a href="https://web.archive.org/web/20120327235926/http://gothamist.com/2009/11/27/tiger_woods_seriously_hurt_in_flori.php">November 2009 car crash</a> that turned out to be <a href="https://web.archive.org/web/20120327235926/http://gothamist.com/2009/11/28/report_wife_scratched_tiger_woods_f.php">prompted by Woods&apos; infidelities</a>.  So the NY Post put Woods on the cover, with the headline, &quot;LOOK OUT, LADIES.&quot; Which is kinda boring ever since the <a href="https://web.archive.org/web/20120327235926/http://gothamist.com/2009/12/03/police_reveal_more_details_on_tiger.php">classic &quot;I&apos;M A CHEETAH&quot;</a> of December 2009.  </p>
+
+<p>After winning the Arnold Palmer Invitational at Bay Hill, <a href="https://web.archive.org/web/20120327235926/http://www.nypost.com/p/sports/golf/tiger_ends_month_drought_with_five_42EVfy4dL2YT4VjxEuNWSI">Woods said</a>, &quot;It was just pure joy. This is for me personally. This is why I play.&quot; His caddie Joe LaCave said that Tiger was effusive, &quot;He just said, &#x2018;Effin&#x2019; yeah!&apos; Then he said, &#x2018;All that hard work has paid off.&#x2019;&quot; It probably feels good to have a win after his former coach published a tell-all that accused Woods of <a href="https://web.archive.org/web/20120327235926/http://www.dailymail.co.uk/news/article-2116637/Tiger-Woods-ex-coach-Hank-Haneys-tell-book-Tigers-rude-watches-porn.html">not only being rude and a porn enthusiast, but also a popsicle hog</a>.</p>

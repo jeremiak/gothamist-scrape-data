@@ -1,0 +1,17 @@
+---
+author: Jen Chung
+date: April 28, 2012  1:00 PM
+title: Missing Autistic Bronx Boy Found After He Wandered Subways For 3 Days
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:340px; "> <img alt="2012_04_rosharri.jpg" src="https://web.archive.org/web/20120428200512im_/http://gothamist.com/attachments/jen/2012_04_rosharri.jpg" width="340" height="277"> <br> <i>Ross Harrison (MyFoxNY)</i></div> A 13-year-old Bronx boy who went missing on Tuesday morning was thankfully found yesterday. Ross Harrison had refused to get on a school bus and headed to a 4 train. The NYPD issued a missing person alert <a href="https://web.archive.org/web/20120428200512/http://newyork.cbslocal.com/2012/04/26/police-looking-for-missing-13-year-old-bronx-boy/">on Wednesday</a>&#x2014;and it turns out he spent the three days in the subway system, getting scraps of food and water from strangers.<p></p>
+
+<p><a href="https://web.archive.org/web/20120428200512/http://www.myfoxny.com/story/17861302/autistic-bronx-boy-to-get-gps-tracker">According to MyFoxNY</a>, Ross didn&apos;t want to go to school because of a bully&#x2014;so he got on the 4 train at 183rd Street. His family posted flyers, and some people remembered seeing Ross on the subway, but didn&apos;t realize he was missing <a href="https://web.archive.org/web/20120428200512/http://newyork.cbslocal.com/2012/04/26/police-looking-for-missing-13-year-old-bronx-boy/">until seeing media reports later</a>. </p>
+
+<p>Ross was found yesterday early yesterday morning in Brooklyn, either on an R train or a <a href="https://web.archive.org/web/20120428200512/http://www.nypost.com/p/news/local/bronx/runaway_rail_odyssey_mNEHclgOCUi0XQ7OWdMk7K">J train</a>, by a pair of Good Samaritans. The Post reports that when his mother saw Ross at the police precinct, Ross said, &quot;Mommy, you mad?&quot;</p>
+
+<p>Ross survived by getting water and cake from strangers (Ross&apos;s father said, &quot;I&#x2019;m thankful to anyone who helped him&quot;) and his mother said that Ross told her he was trying to come home, &quot;That he was walking and going inside the train and was trying to come back home.&quot; The boy <a href="https://web.archive.org/web/20120428200512/http://newyork.cbslocal.com/2012/04/27/missing-bronx-autistic-boy-found-safe-by-good-samaritans/">told WCBS 2</a>, &quot;I&#x2019;m running and running and running and running.&quot;  </p>
+
+<p>Ross&apos; father said he was grateful to the people who found him, &quot;It&apos;s good to know that we still have New Yorkers that care.&quot; And MyFoxNY visited the teen and revealed that they got him <a href="https://web.archive.org/web/20120428200512/http://www.emfinders.com/">a GPS tracking bracelet</a>, free of cost.</p>
+
+<center><script type="text/javascript" src="https://web.archive.org/web/20120428200512js_/http://WNYW.images.worldnow.com/interface/js/WNVideo.js?rnd=527172;hostDomain=www.myfoxny.com;playerWidth=630;playerHeight=355;isShowIcon=true;clipId=7059830;flvUri=;partnerclipid=;adTag=News;advertisingZone=;enableAds=true;landingPage=;islandingPageoverride=false;playerType=STANDARD_EMBEDDEDscript;controlsType=overlay"></script></center>

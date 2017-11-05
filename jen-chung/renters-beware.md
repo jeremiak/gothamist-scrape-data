@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: September 17, 2010 11:07 AM
+title: Renters, Beware!
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2010_09_moneybag.jpg" src="https://web.archive.org/web/20120605125251im_/http://gothamist.com/attachments/jen/2010_09_moneybag.jpg" width="100" height="108" class="image-right"> </span>People, remember that since NYC&apos;s real estate market is crazy, there are some unsavory types out there. The Post&apos;s<a href="https://web.archive.org/web/20120605125251/http://www.nypost.com/p/news/local/nypd_blotter/nypd_daily_blotter_4ZU6CfFa5KnRvve0Yj2x4I?CMP=OTC-rss&amp;FEEDNAME=#ixzz0znewqHhf"> Police Blotter reports</a> that one renter paid $2,900 to man allegedly posing as a real estate broker in East Harlem. &quot;Lawrence Paul, 49, showed the victim an apartment in a building on East 116th Street on June 27 and allegedly said a similar one on the fourth floor would soon be available, the sources said. The victim forked over cash and returned on the move-in date only to find the apartment occupied and no sign of Paul, the sources said.&quot; Paul was charged with grand larceny. Also, don&apos;t fall for the <a href="https://web.archive.org/web/20120605125251/http://gothamist.com/2010/05/10/the_ol_fake_rental_scam.php">&quot;give me the deposit, I&apos;ll send you keys later&quot; scam</a>.</p>

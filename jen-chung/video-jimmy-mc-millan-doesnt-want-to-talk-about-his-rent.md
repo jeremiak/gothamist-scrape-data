@@ -1,0 +1,18 @@
+---
+author: Jen Chung
+date: Oct 26, 2010 11:10 am
+title: Video: Jimmy McMillan Doesn't Want To Talk About His Rent
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2010_10_renttoo.jpg" src="https://web.archive.org/web/20150130070427im_/http://gothamist.com/attachments/jen/2010_10_renttoo.jpg" width="640" height="402" class="image-none"> </span></p>
+
+<p>Jimmy McMillan, the darling of last week&apos;s <a href="https://web.archive.org/web/20150130070427/http://gothamist.com/2010/10/19/ny_governors_debate_send_in_the_clo.php">NY gubernatorial debate</a>, made another appearance on MSNBC&apos;s <a href="https://web.archive.org/web/20150130070427/http://thelastword.msnbc.msn.com/">The Last Word</a>.  After showing the <a href="https://web.archive.org/web/20150130070427/http://gothamist.com/2010/10/24/vido_the_rent_is_too_damn_high_on_s.php?gallery0Pic=3#gallery">Saturday Night Live skit spoofing</a> the Vietnam veteran-turned-affordable housing advocate/politician, host Lawrence O&apos;Donnell wanted to get to the bottom of how much McMillan <a href="https://web.archive.org/web/20150130070427/http://gothamist.com/2010/10/20/rent_is_too_damn_high_candidates_re.php">actually pays for his one bedroom in Brooklyn</a>. But McMillan sorta dodged the question, saying his movement is not about him. Here&apos;s a rough transcript:</p><blockquote>I pay rent. I&apos;m in it for all the people that lost their homes to foreclosures, the children sleeping in homeless shelters...This is why I&apos;m here. I&apos;m not the plain old politicians, everyone wants to get on and talk about them, what they are going to do. [This] is the fight for the people. That&apos;s why the Rent Is Too Damn High party [is] fighting for the people. People can&apos;t afford breakfast, lunch and dinner  Working eight hours a day, 40 hours a week, sometimes a third job. This [is a] problem. I will not fall down that same old political trend everybody else has. The Rent Is Too Damn High Party is different. We can create 3 to 6 million jobs but can&apos;t do it if everybody talks about themselves...  People needs to work. Mothers and fathers have to work three jobs and can&apos;t work to afford to feed their children.  I&apos;m a Vietnam veteran, my brothers are coming from Iraq and Afghanistan homeless.  Those are my brothers. </blockquote><br>
+O&apos;Donnell said, &quot;Okay, I&apos;m going to go home to watch the rerun of the show to figure out what you just said.  And we&apos;re going to get you back to find out how much rent you&apos;re paying.&quot;<p></p>
+
+<p>As for the SNL skit, McMillan said, &quot;I have never seen anyone imitate me.  It is funny as h-e-l-l.&quot; </p>
+
+<center><object width="420" height="245" id="msnbc6250ac" classid="clsid:D27CDB6E-AE6D-11cf-96B8-444553540000" codebase="https://web.archive.org/web/20150130070427oe_/http://download.macromedia.com/pub/shockwave/cabs/flash/swflash.cab#version=10,0,0,0"><param name="movie" value="http://www.msnbc.msn.com/id/32545640"><param name="FlashVars" value="launch=39841258&amp;width=420&amp;height=245"><param name="allowScriptAccess" value="always"><param name="allowFullScreen" value="true"><param name="wmode" value="transparent"><embed name="msnbc6250ac" src="https://web.archive.org/web/20150130070427oe_/http://www.msnbc.msn.com/id/32545640" width="420" height="245" flashvars="launch=39841258&amp;width=420&amp;height=245" allowscriptaccess="always" allowfullscreen="true" wmode="transparent" type="application/x-shockwave-flash" pluginspage="http://www.adobe.com/shockwave/download/download.cgi?P1_Prod_Version=ShockwaveFlash"></object></center>					
+										
+									
+				

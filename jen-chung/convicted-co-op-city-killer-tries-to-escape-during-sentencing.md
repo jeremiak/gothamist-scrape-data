@@ -1,0 +1,11 @@
+---
+author: Jen Chung
+date: May  6, 2011 10:41 AM
+title: Convicted Co-op City Killer Tries To Escape During Sentencing
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2011_05_concoopsh.jpg" src="https://web.archive.org/web/20110508064817im_/http://gothamist.com/attachments/jen/2011_05_concoopsh.jpg" width="240" height="295" class="image-left"> </span>After a judge sentenced him to 90 years to life in prison, the man convicting of killing a former boss Co-op City leaped from his chair.  <a href="https://web.archive.org/web/20110508064817/http://www.nypost.com/p/news/local/bronx/slay_janitor_flips_over_yr_term_pB5yrXjZx17JF6KzMv0ioM">Paulino Valenzuela was also screaming</a>, &quot;Please let me go!&quot;  but five to seven court officers jumped on top of him.  </p>
+
+<p>Back in 2007, Valenzuela went to Co-op City, where he had previously worked as a janitor (he was fired and then unsuccessfully sued to get his job back), and <a href="https://web.archive.org/web/20110508064817/http://gothamist.com/2007/08/30/coop_city_shoot.php">shot ex-supervisor Audrey Bent</a> and wounded two other people (one is now paralyzed).  Then he went to the Bronx Criminal Court building, <a href="https://web.archive.org/web/20110508064817/http://gothamist.com/2007/08/31/coop_city_shoot_1.php">where he confessed</a>, &quot;Cuff me, because I just killed somebody. I have my revolver in my bag, and I have the blood on my hands to prove it.&quot; </p>
+
+<p>The <a href="https://web.archive.org/web/20110508064817/http://www.nydailynews.com/news/ny_crime/2011/05/05/2011-05-05_convicted_killer_tries_to_escape_courtroom_after_being_sentenced_to_90_years_to_.html">Daily News reports</a> that Judge Alvin Yearwood scolded Valenzuela, &quot;You have no remorse. That&apos;s why this sentencing is going to be very easy... Sir, you will have 90 years to life to think about what you did.&quot;  A lawyer for Valenzuela, who claimed that Bent attacked him first, says he will appeal.</p>

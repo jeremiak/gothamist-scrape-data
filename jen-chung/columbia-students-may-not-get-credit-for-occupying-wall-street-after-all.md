@@ -1,0 +1,13 @@
+---
+author: Jen Chung
+date: January  5, 2012  6:00 PM
+title: Columbia Students May Not Get Credit For Occupying Wall Street After All
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="2012_01_owscolumbia.jpg" src="https://web.archive.org/web/20120602101703im_/http://gothamist.com/attachments/jen/2012_01_owscolumbia.jpg" width="640" height="481"> <br> <i>Photograph by <a href="https://web.archive.org/web/20120602101703/http://www.flickr.com/photos/62159569@N08/6236673934/in/photostream/">Scoboco on Flickr</a></i></div> <p></p>
+
+<p>Hold on, Columbia University students&#x2014;you may not be able to major in &quot;Mic-Checking The Man&quot; anymore!  A <a href="https://web.archive.org/web/20120602101703/http://gothamist.com/2012/01/01/columbia_university_offering_course.php">course offered by the Ivy League school</a>&apos;s Anthropology Department titled &quot;Occupy the Field&quot; has been evicted from the school&apos;s course bulletin  Was <a href="https://web.archive.org/web/20120602101703/http://gothamist.com/2011/09/26/anonymous_outs_nypd_officer_who_all.php">Tony Bologna involved</a>?</p>
+
+<p><a href="https://web.archive.org/web/20120602101703/http://bwog.com/2012/01/05/anthro-ows-class-is-history/">Bwog reports</a> that the listing is M.I.A. They spoke to the Anthropology chair Elizabeth Povinelli, who dismissed conspiracy theories.  She says the class was&quot;proposed at the last minute&quot; and, as Bwog puts it, &quot;did not undergo the requisite Committee on Instruction overview and new instructor approval for postdoc fellows. Povinelli said it was &apos;an inadvertent mistake&apos; that the class was posted last week. We&#x2019;ve received no response as to whether the class will now undergo the overview.&quot;  </p>
+
+<p>The course <em>was</em> to be taught by Professor Hannah Appel and would include &quot;training in ethnographic research methods alongside a critical exploration of the conjunctural issues in the Occupy movement: Wall Street, finance capital, and inequality; political strategies, property and public space, and the question of anarchy; and genealogies of the contemporary moment in global social movements.&quot;  For now, if you want to pay thousands to study OWS, <a href="https://web.archive.org/web/20120602101703/http://gothamist.com/2011/12/08/nyu_offering_course_in_occupy_wall.php">go to NYU</a>.</p>

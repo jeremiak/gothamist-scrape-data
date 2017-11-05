@@ -1,0 +1,11 @@
+---
+author: Jen Chung
+date: September  3, 2010 10:30 AM
+title: Sean Bell's Fiancee Would Need To Move For Council Run
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:228px; "> <img alt="2010_07_sbellpau.jpg" src="https://web.archive.org/web/20110611054919im_/http://gothamist.com/attachments/jen/2010_07_sbellpau.jpg" width="228" height="237"> <br> <i>Nicole Paultre Bell, with Joseph Guzman behind her, <a href="https://web.archive.org/web/20110611054919/http://gothamist.com/2010/07/29/sean_bells_family_friends_discuss_p.php">in July</a> (AP)</i></div> Yesterday brought speculation that the fiancee of the Queens man shot and killed by police before his wedding <a href="https://web.archive.org/web/20110611054919/http://gothamist.com/2010/09/02/sean_bells_fiancee_may_run_for_city.php">might run for the City Council seat</a> left vacant with Councilman Thomas White&apos;s death.  At White&apos;s funeral, Nicole Paultre Bell <a href="https://web.archive.org/web/20110611054919/http://www.nydailynews.com/ny_local/queens/2010/09/03/2010-09-03_bell_fianceacutee_move_could_shake_up_qns_council_race.html">told the Daily News</a>, &quot;One thing that Tom White did tell me sitting in his office is the only way you can make change is getting involved, so I&apos;ll keep that in mind.&quot;<p></p>
+
+<p>The News notes that while as many as a dozen people might be vying for the seat, <a href="https://web.archive.org/web/20110611054919/http://gothamist.com/tags/nicolepaultrebell">Bell</a> &quot;brings name recognition and a heart-stopping personal story.&quot; However, &quot;She lives outside the district in Far Rockaway, and is still registered to vote at her mother&apos;s house in Suffolk County. Under state election law, however, Bell would have to move into the district by Election Day - and get 899 signatures from registered voters on her nominating petitions.&quot;  </p>
+
+<p>In July, the city agreed to pay <a href="https://web.archive.org/web/20110611054919/http://gothamist.com/2010/07/29/sean_bells_family_friends_discuss_p.php">Sean Bell&apos;s family $3.25 million to settle</a> the wrongful death suit. The money goes to his and Nicole Paultre Bell&apos;s two daughters.</p>

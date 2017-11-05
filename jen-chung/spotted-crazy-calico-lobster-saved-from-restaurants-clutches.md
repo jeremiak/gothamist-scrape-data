@@ -1,0 +1,13 @@
+---
+author: Jen Chung
+date: May 10, 2012  6:15 PM
+title: Spotted! Crazy Calico Lobster Saved From Restaurant's Clutches
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2012_04_calicolob.jpg" src="https://web.archive.org/web/20120511035639im_/http://gothamist.com/attachments/jen/2012_04_calicolob.jpg" width="640" height="371"> <br> <i> Calvin the Calico Lobster ( New England Aquarium)</i></div> <p></p>
+
+<p>Listen, people&#x2014;you may have been mesmerized by the <a href="https://web.archive.org/web/20120511035639/http://gothamist.com/2011/06/03/freak_of_nature_blue_lobster.php">freak of nature blue lobster</a>, but here&apos;s something even freakier: A <em>calico</em> lobster.  This guy, now named Calvin, was originally picked to be cooked and served at a Massachusetts restaurant, but the chef realized there was something magical about him.</p>
+
+<p><a href="https://web.archive.org/web/20120511035639/http://www.boston.com/news/local/massachusetts/articles/2012/05/08/rare_calico_lobster_found_at_summer_shack_headed_for_new_england_aquarium/">According to the Boston Globe</a>, Jasper White, at <a href="https://web.archive.org/web/20120511035639/http://www.summershackrestaurant.com/Locations_Cambridge.asp">Summer Shack in Cambridge</a>, was drawn to the pound-and-half lobster: &quot;We happened to be cleaning the tank and I happened to be there. One of my guys said, &#x2018;Chef, look at this lobster,&#x2019; and from across the room I knew it was special.&quot;  He believes that Calvin was &quot;was caught in Winter Harbor, Maine, and had passed through at least four pairs of hands before arriving in his tank. White sent a picture of the lobster to the [New England Aquarium], which agreed to hold the lobster for the Biomes Marine Biology Center in Rhode Island.&quot;</p>
+
+<p>Apparently calico lobsters are about one in 30 million&#x2014;while blue lobster are way more common, at one in 1 million.  White is the rarest&#x2014;they are one in 100 million.  Here are some <a href="https://web.archive.org/web/20120511035639/http://galleries.neaq.org/2012/01/its-not-easy-beingcalico.html">more facts about colorful lobsters</a>&#x2014;and are we horrible for having a <a href="https://web.archive.org/web/20120511035639/http://gothamist.com/2012/05/10/claws_lobster_rolls_roll_from_hells.php">hankering for a lobster roll</a>?</p>

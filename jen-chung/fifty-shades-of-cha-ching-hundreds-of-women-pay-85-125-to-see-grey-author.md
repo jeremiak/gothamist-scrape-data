@@ -1,0 +1,25 @@
+---
+author: Jen Chung
+date: May 8, 2012 12:42 pm
+title: Fifty Shades Of Cha-Ching: Hundreds Of Women Pay $85-125 To See "Grey" Author
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="" src="https://web.archive.org/web/20150123041827im_/http://gothamist.com/upload/2012/05/2012_04_snl50.jpg" width="640" height="398"> <br> <i> This Mothers Day, all moms want is some private time.</i></div> <p></p>
+
+<p>Who cares if <a href="https://web.archive.org/web/20150123041827/http://gothamist.com/2012/03/10/mommy_porn_book_lets_ladies_love_er.php"><em>Fifty Shades Of Grey</em></a> author E.L. James is speaking at various free events in the New York area?  Yesterday, around 400 women paid $85-125 for the chance to have a buffet lunch with James, where she answered pre-screened questions, and get their books signed by the erotica author.  Worth it?  <a href="https://web.archive.org/web/20150123041827/http://www.newsday.com/entertainment/books/fifty-shades-of-grey-author-e-l-james-regales-li-1.3704038">Newsday got a mixed reaction</a>: One woman called it a waste (&quot;I wanted her to talk about whether she thinks this strengthened people&apos;s relationships or had the opposite effect. You&apos;re British, how did you write such an American book?&quot;) but another raved about James, &quot;<strong>She&apos;s really a modern-day hero for us suburban housewives. She put a little zest back into our lives</strong>.&quot;</p>
+
+<p>The <em>Fifty Shades</em> trilogy, which features a naive college student named Anastasia falling in love with a young, handsome billionaire named Christian Grey who introduces her to the world of BDSM, has become such a naughty phenomenon that it was incorporated into <a href="https://web.archive.org/web/20150123041827/http://gothamist.com/2012/04/01/photos_video_mayor_bloomberg_sings.php#photo-1">Mayor Bloomberg&apos;s Inner Circle sketch</a> this year, though not everyone is embracing it. In fact, <a href="https://web.archive.org/web/20150123041827/http://www.floridatoday.com/article/20120504/NEWS01/305040006/Brevard-libraries-pull-erotic-best-seller-Fifty-Shades-Grey-?nclick_check=1">Florida libraries are banning it</a>. James herself is very press-shy&#x2014;<a href="https://web.archive.org/web/20150123041827/http://www.youtube.com/watch?v=IdKVEjdoHXY">WABC 7 seemed upset</a> that she wouldn&apos;t stop and speak to them&#x2014;but News 12 did capture James in action at the event.</p>
+
+<p><iframe width="640" height="480" src="https://web.archive.org/web/20150123041827if_/http://www.youtube.com/embed/XqgRTLYpOCs" frameborder="0" allowfullscreen></iframe></p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-right"> <img alt="2012_04_50shadesladies.jpg" src="https://web.archive.org/web/20150123041827im_/http://gothamist.com/attachments/jen/2012_04_50shadesladies.jpg" width="420" height="316"> <br> <i style=" width:420px; ;display:block"> &quot;50 Shades Of Grey&#x201D; fans Enid Darrigo,67; Karen Thaler,70; Sandy Levine,70; Pat Orfinger, 72 (1010 WINS)</i></div> James told the audience she did &quot;research&quot; for the books, &quot;That was great, great fun. My husband would give me this sort of terrified look when I&apos;d say, &apos;Can we try this?&apos; Some of it ended up in the book and some of it didn&apos;t.&quot; Newsday added, &quot;James said it&apos;s possible she&apos;ll write a book telling the same story from Christian Grey&apos;s point of view.&quot;<p></p>
+
+<p>One 72-year-old woman, Pat Orfinger, waiting to go to the event <a href="https://web.archive.org/web/20150123041827/http://newyork.cbslocal.com/2012/05/07/50-shades-of-grey-author-kicks-off-week-of-events-in-new-york/">told 1010 WINS</a> that the book is simply &quot;a great love story&quot; and she&apos;s read it twice.  So, suck it, <a href="https://web.archive.org/web/20150123041827/http://en.wikipedia.org/wiki/Gone_with_the_Wind">Margaret Mitchell</a>!</p>
+
+<p>The event was the first of two on Long Island (the other was last night at the Carle Place Barnes &amp; Noble). James is also speaking at the Barnes &amp; Noble in Paramus tonight and she&apos;ll be at the Union Square (!!) Barnes &amp; Noble on Thursday.  Toys in Babeland is hosting a <a href="https://web.archive.org/web/20150123041827/http://gothamist.com/2012/04/19/50_shades_of_grey.php">Fifty Shades event on Friday</a>; it&apos;s perfect for thes who apparently have not discovered <a href="https://web.archive.org/web/20150123041827/http://gothamist.com/2012/04/26/men_are_reading_fifty_shades_of_gre.php">Bon Iverotica</a>:</p>
+
+<center><iframe id="NBC Video Widget" width="512" height="347" src="https://web.archive.org/web/20150123041827if_/http://www.nbc.com/assets/video/widget/widget.html?vid=1400037" frameborder="0"></iframe></center>					
+										
+									
+				

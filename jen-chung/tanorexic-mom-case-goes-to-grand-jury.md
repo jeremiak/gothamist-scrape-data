@@ -1,0 +1,11 @@
+---
+author: Jen Chung
+date: June  4, 2012  1:24 PM
+title: Tanorexic Mom Case Goes To Grand Jury
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2012_04_pkrentcil.jpg" src="https://web.archive.org/web/20121225043736im_/http://gothamist.com/attachments/jen/2012_04_pkrentcil.jpg" width="365" height="278" class="image-left"> </span>Just in case you needed your fix of Patricia Krentcil, the NJ mom turned <a href="https://web.archive.org/web/20121225043736/http://gothamist.com/2012/05/05/tanorexic_mom_keeps_on_tanning_show.php">national laughingstock</a> <a href="https://web.archive.org/web/20121225043736/http://gothamist.com/2012/05/02/nj_tanorexic_mom_accused_of_taking.php">over her ultra-tanned appearance</a>, there&apos;s a legal update.  A grand jury is now hearing her case!</p>
+
+<p>Last month, Krentcil was accused of child endangerment for allegedly taking her fair-skinned 6-year-old child into a Nutley, NJ tanning booth, after a school nurse saw a severe burn on the little girl&apos;s arm...and after the little girl said, &quot;I went tanning with Mommy.&quot;  Krentcil denied the charges, saying that her daughter got burned while playing outside.  While she&apos;s been <a href="https://web.archive.org/web/20121225043736/http://gothamist.com/2012/05/06/videos_eli_manning_occupies_wall_st.php#photo-9">spoofed on Saturday Night Live</a> and mocked on late night shows, Krentcil <a href="https://web.archive.org/web/20121225043736/http://gothamist.com/2012/05/21/nj_tanning_my_kids_are_mad_everyone.php">has recently said</a>, &quot;Look in the mirror and look at yourself and stop looking at me. And I&#x2019;m sorry I&apos;m tan. I can be tan; it just feels good. But I really think that these moms and dads or whoever, need to step off and step away.&quot;</p>
+
+<p>As for the grand jury... well, former NY chief judge Sol Wachtler <a href="https://web.archive.org/web/20121225043736/http://www.barrypopik.com/index.php/new_york_city/entry/indict_a_ham_sandwich/">once said that a grand jury</a> &quot;would &apos;indict a ham sandwich,&apos; if that&apos;s what you wanted.&quot;</p>

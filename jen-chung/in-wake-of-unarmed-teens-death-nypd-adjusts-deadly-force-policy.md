@@ -1,0 +1,21 @@
+---
+author: Jen Chung
+date: Feb 14, 2012 6:05 pm
+title: In Wake Of Unarmed Teen's Death, NYPD Adjusts "Deadly Force" Policy
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="2012_01_rgraham.jpg" src="https://web.archive.org/web/20150503233845im_/http://gothamist.com/attachments/jen/2012_01_rgraham.jpg" width="640" height="360"> <br> <i>Via <a href="https://web.archive.org/web/20150503233845/http://www.nbcnewyork.com/news/local/Ramarley-Graham-Police-Shooting-Al-Sharpton-Bronx-139225259.html">NBC New York</a></i></div> <p></p>
+
+<p>As the NYPD is being scrutinized for <a href="https://web.archive.org/web/20150503233845/http://gothamist.com/2012/02/03/cop_kills_unarmed_18-year-old_in_hi.php">killing an unarmed 18-year-old in his bathroom</a>, the department has revised its &quot;deadly use&quot; policy.  <a href="https://web.archive.org/web/20150503233845/http://www.nydailynews.com/new-york/nypd-revises-policy-deadly-force-shooting-ramarley-graham-article-1.1022110">According to the Daily News</a>, the NYPD &quot;added a clause likely to give cops an added layer of legal protection.&quot;</p>
+
+<p>Previously, police &quot;officers can essentially make a judgment call as to when they should fire their weapons,&quot; but now the revision says &quot;cops can&#x2019;t shoot if &apos;in their professional judgment&apos; innocents would be endangered,&quot; and the definition of &quot;professional judgement&quot; is &quot;based not only upon experience as an individual but taking into account the knowledge, experience and training gained through employment as a police officer.&quot; </p>
+
+<p>While the change was motivated by a 2010 incident where a bystander was shot when cops fired at a robber, the police officer who shot Ramarley Graham, the Bronx teen, earlier this month had <a href="https://web.archive.org/web/20150503233845/http://gothamist.com/2012/02/10/cop_who_shot_unarmed_teen_in_bathro.php">no training as a plainclothes police officer or in narcotics enforcement</a>. (Graham was being pursued by two police officers who <a href="https://web.archive.org/web/20150503233845/http://gothamist.com/2012/02/04/bronx_teen_did_not_struggle_with_po.php">thought he was armed</a>; after he was killed, police only found marijuana on him.)  Manhattan Borough President and mayoral hopeful Scott Stringer referenced the staggering stop-and-frisk numbers in a statement today about Graham&apos;s death:</p><blockquote>It is hard not to see the killing as an extension of the NYPD&#x2019;s stop and frisk policies. Today we learned that this policy resulted in a record 684,330 stops in 2011 - the vast majority of them aimed at men of color, who in 94% of cases are not arrested... The overwhelming majority of our police officers put their lives on the line for us every day, and they need training policies and guidelines that keep them safe as well as the people they protect. We need to determine if the Graham case is an outgrowth of a system that relies on unconstitutional stops and widespread profiling and, as I have for months, I urge the Justice Department to examine the NYPD&#x2019;s stop and frisk policies.</blockquote><p></p>
+
+<p>Stringer&apos;s words appeared to be what  the Reverend Al Sharpton wanted to hear from mayoral candidates.  Sharpton, expressed <a href="https://web.archive.org/web/20150503233845/http://www.nydailynews.com/new-york/al-sharpton-calls-federal-probe-police-killing-bronx-teen-article-1.1021878?localLinksEnabled=false">desire for a federal probe</a>, said candidates must speak out the incident, &quot;If you don&#x2019;t address this issue, stay out of our churches and our community.&quot;</p>
+
+<p>Sharpton also wants a transparent investigation and <a href="https://web.archive.org/web/20150503233845/http://www.capitalnewyork.com/article/politics/2012/02/5260830/sharpton-condemns-cone-silence-around-shooting-ramarley-graham">criticized the lack of information</a>, &quot;It minimizes the value of our own lives. It&#x2019;s like we&#x2019;re worthless. It&#x2019;s like we&#x2019;re a one-day story and we are not going to allow this to happen.&#x201D;</p>					
+										
+									
+				

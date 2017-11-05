@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: August  6, 2010 10:50 AM
+title: National Unemployment Rate Remains At 9.5%
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <a href="https://web.archive.org/web/20110623150805/http://gothamist.com/attachments/jsaxena/071210unemployment.jpg"> <img alt="071210unemployment.jpg" src="https://web.archive.org/web/20110623150805im_/http://gothamist.com/assets_c/2010/07/071210unemployment-thumb-250x246-527561.jpg" width="110" height="108" class="image-right"> </a> </span>U.S. Labor Secretary Hilda Solis gave the July job numbers: &quot;The economy gained 71,000 jobs in the private sector. Overall, employment declined by 131,000, and the unemployment rate was unchanged at 9.5 percent. This year we&apos;ve seen the creation of 630,000 private sector jobs - steady growth averaging 90,000 new private sector jobs each month, which tracks closely with what the Council of Economic Advisors had predicted earlier this year.&quot; Still, the gain of 71,000 jobs was less than what economists predicted; one <a href="https://web.archive.org/web/20110623150805/http://www.bloomberg.com/news/2010-08-06/company-payrolls-rose-by-71-000-in-july-u-s-jobless-rate-9-5-.html">told Bloomberg News</a>, &quot;To the extent that we have a labor market recovery, it&#x2019;s a slow one. I don&#x2019;t see anything to indicate that the third quarter will be better.&quot;</p>

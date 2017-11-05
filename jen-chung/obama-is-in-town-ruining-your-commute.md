@@ -1,0 +1,15 @@
+---
+author: Jen Chung
+date: March  1, 2012  5:49 PM
+title: Obama Is In Town, Ruining Your Commute
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="2012_02_motorcade.jpg" src="https://web.archive.org/web/20120309163608im_/http://gothamist.com/attachments/jen/2012_02_motorcade.jpg" width="640" height="481"> <br> <i>Photograph by <a href="https://web.archive.org/web/20120309163608/http://lockerz.com/s/188626242">Ravi Chandler</a></i></div> <p></p>
+
+<p>President Obama, <a href="https://web.archive.org/web/20120309163608/http://gothamist.com/2012/03/01/video_president_obama_knew_about_je.php">the Linsider</a>, is raising money for his re-election campaign&#x2014;&apos;cause <a href="https://web.archive.org/web/20120309163608/http://gothamist.com/2012/02/07/obama_gives_in_to_super_pac_lust_a.php">SuperPACs only do so much</a>&#x2014; in the Big Apple tonight.  And, boy, is he pissing off some people:</p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2012_02_obamatweets.jpg" src="https://web.archive.org/web/20120309163608im_/http://gothamist.com/attachments/jen/2012_02_obamatweets.jpg" width="500" height="778" class="image-center"> </span></p>
+
+<p>He&apos;s just left a fundraiser on the Upper West Side&#x2014;<a href="https://web.archive.org/web/20120309163608/http://myupperwest.com/upper-west-side/breaking-president-obama-visiting-the-upper-west-side-today/">West 67th Street to be specific</a>&#x2014;and there are some others: <a href="https://web.archive.org/web/20120309163608/http://www.nydailynews.com/new-york/president-obama-swoops-nyc-fund-raisers-thursday-night-article-1.1031607">According to the Daily News</a>, &quot;The big-ticket event is a $35,000-a-plate dinner at ABC Kitchen, an E. 18th St. organic restaurant run by celebrity chef Jean-Georges Vongerichten. After that, Obama will move around the corner to ABC Carpet &amp; Home for a gala hosted by &apos;Parks and Recreation&apos; star Aziz Ansari and featuring music by The Roots and Ben Folds.&quot;  Deepak Chopra is <a href="https://web.archive.org/web/20120309163608/http://www.nytimes.com/2012/03/01/garden/abc-carpet-home-prepares-for-an-obama-dinner.html?partner=rss&amp;emc=rss">one of the organizers of the ABC Carpet &amp; Home event</a>.  Chopra spoke to the NY Times: &quot;Mr. Chopra said he was proud to help the president, who has &apos;displayed complete loyalty to reasoned policies&apos; and needs another term. &apos;<strong>Through 30 years of reactionary conditioning, we&#x2019;ve allowed basic values to deteriorate</strong>,&apos; Mr. Chopra wrote in an e-mail.&quot;</p>
+
+<p>Get updates on traffic by checking out <a href="https://web.archive.org/web/20120309163608/http://twitter.com/#!/gridlocksam">Gridlock Sam&apos;s Twitter</a>.</p>

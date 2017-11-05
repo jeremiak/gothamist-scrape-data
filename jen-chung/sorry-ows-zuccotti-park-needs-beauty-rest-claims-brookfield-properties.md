@@ -1,0 +1,15 @@
+---
+author: Jen Chung
+date: January  2, 2012  2:10 PM
+title: Sorry, OWS: Zuccotti Park Needs Beauty Rest, Claims Brookfield Properties
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="2012_01_owszp.jpg" src="https://web.archive.org/web/20120119105855im_/http://gothamist.com/attachments/jen/2012_01_owszp.jpg" width="640" height="474"> <br> <i>Photograph take on New Year&apos;s Eve at Zuccottti Park by <a href="https://web.archive.org/web/20120119105855/http://www.flickr.com/photos/62159569@N08/6611207183/in/set-72157628660212525">Scoboco on Flickr</a></i></div> <p></p>
+
+<p>Last night, <a href="https://web.archive.org/web/20120119105855/http://gothamist.com/tags/occupywallstreet">Occupy Wall Street</a> protesters found their favorite meeting place, Zuccotti Park, was closed. (See video below that shows police stifling dissent by threatening to arrest activists trying to meet in a <em>different</em> privately-owned public space.) And <a href="https://web.archive.org/web/20120119105855/https://twitter.com/#!/Newyorkist/status/153876003410817025">Zuccotti Park remains closed</a> today. Does this mean the rumor that Zuccotti Park is <a href="https://web.archive.org/web/20120119105855/http://gothamist.com/2011/12/28/rumor_that_zuccotti_park_will_close.php">closing for months-long renovations</a> actually true? </p>
+
+<p>One spokesman for Brookfield Properties, which owns the space, tells us, &quot;The park is closed today for maintenance and cleanup. Over the weekend the park sustained broken tree limbs, broken glass and cut electrical wires. We are hoping to reopen the park on Tuesday morning.&quot; But a different Brookfield spokesperson is even more explicit: &quot;Damage was caused by drunk and disorderly OWS protesters in the park on New Year&apos;s Eve resulting in 79 arrests; NYPD closed the park due to the unsafe conditions. We are currently cleaning up the broken glass and broken tree limbs, and repairing electrical wiring and outlets that were damaged. If all goes well we will open the park tomorrow morning.&quot;</p>
+
+<p>After running that through our de-PR-speak-ifier, the translation is roughly, &quot;Uh, remember how <a href="https://web.archive.org/web/20120119105855/http://gothamist.com/2012/01/01/occupy_the_new_year_hundreds_clash.php">hundreds of OWS protesters were having their little party at Zuccotti Park</a> on New Year&apos;s Eve? The one with people tearing down police barricades and <a href="https://web.archive.org/web/20120119105855/http://gothamist.com/2012/01/01/occupy_the_new_year_hundreds_clash.php#photo-3">climbing trees</a>? This is what you get, punks.&quot; Anyway, here&apos;s that rather infuriating video of police prohibiting activists from peacefully assembling and discussing politics at a privately owned public space at 100 William Street:</p>
+
+<p><iframe width="640" height="360" src="https://web.archive.org/web/20120119105855if_/http://www.youtube.com/embed/GoZ2adGM7cY" frameborder="0" allowfullscreen></iframe></p>

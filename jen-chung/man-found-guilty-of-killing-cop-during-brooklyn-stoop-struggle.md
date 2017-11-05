@@ -1,0 +1,11 @@
+---
+author: Jen Chung
+date: May  2, 2012  2:54 PM
+title: Man Found Guilty Of Killing Cop During Brooklyn Stoop Struggle
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left"> <img alt="031311schaberger.jpg" src="https://web.archive.org/web/20120504042243im_/http://gothamist.com/attachments/jsaxena/031311schaberger.jpg" width="365" height="256"> <br> <i>Left: Officer Alain Schaberger; Right: George Villanueva</i></div> Last year, a police officer died while <a href="https://web.archive.org/web/20120504042243/http://gothamist.com/2011/03/13/brooklyn_cop_killed_after_being_pus.php">responding to a call about a domestic disturbance</a> in Boerum Hill.  George Villanueva, whose girlfriend said he was drunk and trying to kill her, was fighting off police officers and shoved Officer Alain Schaberger off the stoop railing, only for Schaberger to fall to his death.  Today, a jury found Villaneuva <a href="https://web.archive.org/web/20120504042243/http://www.nydailynews.com/new-york/brooklyn-crook-convicted-shoving-a-veteran-death-a-boerum-hill-stoop-article-1.1071250?localLinksEnabled=false">guilty of aggravated manslaughter</a>, but he was acquitted of murder.<p></p>
+
+<p>The nine-foot fall broke Schaberger&apos;s neck and the 42-year-old cop was pronounced dead at a hospital.  Villanueva, who had dozens of prior arrests, insisted to the Daily News in a jailhouse interview that it was an accident&#x2014;&quot;I did not know anyone had fallen. The only thing I&#x2019;m guilty of is domestic abuse.&quot; His girlfriend, Kim Dykstra, even <a href="https://web.archive.org/web/20120504042243/http://articles.nydailynews.com/2012-04-25/news/31400948_1_schaberger-dykstra-accused-cop">testified that Villaneuva didn&apos;t touch Schaberger</a>, but another police officer  said Villaneuva shoved Schaberger, who had been trying to handcuff him.</p>
+
+<p>The <a href="https://web.archive.org/web/20120504042243/http://www.nypost.com/p/news/local/man_who_fatally_pushed_cop_off_stoop_uFWwbSxoxSn4B8J3bgHqrN">Post reports</a>, &quot;Villanueva&apos;s five prior felony convictions means he&apos;ll still be facing a long prison time&#x2014;a minimum of 15 to life and a maximum of 25 to life.&quot;</p>

@@ -1,0 +1,13 @@
+---
+author: Jen Chung
+date: October 10, 2011 11:49 AM
+title: Schumer Proposes LIRR Riders Bill of Rights
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="LIRRmess092911.jpg" src="https://web.archive.org/web/20111018080225im_/http://gothamist.com/attachments/arts_jen/LIRRmess092911.jpg" width="640" height="478" class="image-none"> </span></p>
+
+<p>Senator Charles Schumer had his Sunday press conference <a href="https://web.archive.org/web/20111018080225/http://www.nydailynews.com/news/politics/2011/10/10/2011-10-10_chuck_seeks_end_to_drugs_gray_market.html">decrying prescription drug price-gouging</a>, but since this is Columbus Day, he&apos;s having ANOTHER one today about a <a href="https://web.archive.org/web/20111018080225/http://www.newsday.com/long-island/schumer-to-seek-lirr-rider-bill-of-rights-1.3233612">Long Island Rail Road passengers&apos; bill of rights</a>, spurred by the September 29 <a href="https://web.archive.org/web/20111018080225/http://gothamist.com/2011/09/29/lirr_first_casualty_of_todays_weath.php">lightning strike that made commuting a mess</a>.  His office said it would be &quot;similar to a passenger&apos;s bill of rights established for the airline industry, to provide baseline protections for passengers of Long Island&apos;s commuter rail system.&quot;</p>
+
+<p><a href="https://web.archive.org/web/20111018080225/http://newyork.cbslocal.com/2011/10/10/sen-charles-schumer-proposes-passenger-bill-of-rights-for-lirr/?utm_source=home&amp;utm_medium=dl&amp;utm_campaign=a-passenger-bill-of-rights">According to WCBS 2</a>, this is what Schumer&apos;s LIRRBOR will include:</p><blockquote>- The LIRR will be required to notify passengers of delays<br>
+- The LIRR will be required to provide information of alternative transit options<br>
+- The LIRR will be required to let passengers off stranded rail cars</blockquote>The LIRR already does offer updates and alternate transportation info via its email to passengers and Tweets, and the LIRR says letting passengers off of train cars isn&apos;t that simple, given the third rail (so passengers who have been stranded for hours are <a href="https://web.archive.org/web/20111018080225/http://gothamist.com/2011/09/30/lirr_service_is_near-normal_this_mo.php">threatened with arrest for trying to leave</a>). And one MTA employee told WCBS 880, &quot;You can introduce any &#x2018;Bill of Rights&#x2019; you want, but if you don&#x2019;t have hourly employees on, ready to help, what good is a bill of rights?&quot;  Oh, snap.<p></p>

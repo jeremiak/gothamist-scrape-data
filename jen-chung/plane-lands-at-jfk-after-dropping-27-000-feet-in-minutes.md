@@ -1,0 +1,9 @@
+---
+author: Jen Chung
+date: April  4, 2011 10:30 AM
+title: Plane Lands At JFK After Dropping 27,000 Feet In Minutes
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2011_03_american.jpg" src="https://web.archive.org/web/20110405034229im_/http://gothamist.com/attachments/jen/2011_03_american.jpg" width="200" height="127" class="image-left"> </span>Yesterday morning, an American Airlines flight from Boston to St. Thomas made an emergency landing at JFK Airport after some sort of &quot;<a href="https://web.archive.org/web/20110405034229/http://online.wsj.com/article/AP1707bc90f822423ba644d69c994f014a.html">pressurization problem in the cabin</a>.&quot;  The plane apparently <a href="https://web.archive.org/web/20110405034229/http://www.nypost.com/p/news/local/queens/flight_is_forced_to_drop_in_on_jfk_MD8igGnHerm9Id37wzYNPK">dropped 27,000 feet in less than a minute</a>, and one passenger said to the Post, &quot;It was a roller-coaster ride. My stomach... dropped, and I was freaking out. I didn&apos;t know what was going on. My heart was pounding. I had sweaty palms.&quot;</p>
+
+<p>Another passenger said, &quot;People were opening their window shades and looking out. You could see they were pretty nervous. The plane came in smooth [at Kennedy], and everybody clapped in the end. I thought the captain was great.&quot; American Airlines said passengers were put on another flight and that the Boeing 757 would be inspected.   This comes two days after the Southwest Airlines &quot;fuselage rupture&quot; <a href="https://web.archive.org/web/20110405034229/http://gothamist.com/2011/04/03/southwest_grounds_79_planes_after_h.php">caused a Boeing 737 to lose pressure</a>.</p>

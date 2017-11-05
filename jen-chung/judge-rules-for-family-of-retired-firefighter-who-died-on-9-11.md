@@ -1,0 +1,11 @@
+---
+author: Jen Chung
+date: July 27, 2010  2:49 PM
+title: Judge Rules For Family Of Retired Firefighter Who Died On 9/11
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2010_07_corrigan.jpg" src="https://web.archive.org/web/20110623141808im_/http://gothamist.com/attachments/jen/2010_07_corrigan.jpg" width="140" height="180" class="image-left"> </span>The family of retired FDNY Lt. James Corrigan believes that Corrigan, who retired in 1994, should be listed with other FDNY members who died in the line of duty at the Ground Zero memorial, because he died while helping his brethren.  However, the city pointed out he was working in the private sector as a safety coordinator.  Yesterday, a judge ruled for the family, <a href="https://web.archive.org/web/20110623141808/http://www.nydailynews.com/ny_local/2010/07/27/2010-07-27_judge_list_fallen_911_hero_with_fdny.html">saying</a>,&quot;While this court hesitates to become embroiled in the internal decisions of the FDNY regarding a matter of such a sensitive nature, there is simply no rational basis for the FDNY&apos;s position herein.&quot;</p>
+
+<p>According to the Daily News, Queens Supreme Court Justice Augustus Agate pointed out that &quot;Marie Corrigan got death benefits reserved for the families of the fallen and his name was read aloud at an FDNY memorial service in 2002. And her sons, Brendan and Sean, received &apos;legacy credits&apos; on their entrance exams when they both left private-sector jobs to join the FDNY after their father&apos;s death.&quot;</p>
+
+<p>While it&apos;s unclear what the city will do next, widow Marie Corrigan <a href="https://web.archive.org/web/20110623141808/http://www.nypost.com/p/news/local/retired_fdny_hero_memorial_died_z7udJrkYvLftQvtfDevZrL?CMP=OTC-rss&amp;FEEDNAME=">was grateful</a>, &quot;We&#x2019;re just thankful that the judge saw the law as it is. My grandbabies will get to see their grandfather listed where he should be. The ideal situation is he wouldn&#x2019;t have been there in the first place.&quot;</p>

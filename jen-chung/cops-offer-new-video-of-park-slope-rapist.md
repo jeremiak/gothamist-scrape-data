@@ -1,0 +1,13 @@
+---
+author: Jen Chung
+date: September 21, 2011  9:35 AM
+title: Cops Offer New Video Of Park Slope Rapist 
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2011_09_psloperapist.jpg" src="https://web.archive.org/web/20110922105606im_/http://gothamist.com/attachments/jen/2011_09_psloperapist.jpg" width="365" height="274" class="image-left"> </span>Last night, police officers met with Brooklyn residents at a local community safety meeting to update them about series of sexual assaults, including one rape, that have occurred in  Park Slope, Sunset Park, and Bay Ridge.  The fears have <a href="https://web.archive.org/web/20110922105606/http://gothamist.com/2011/09/15/in_wake_of_sexual_assaults_hundreds.php">prompted a rally</a>, a <a href="https://web.archive.org/web/20110922105606/http://gothamist.com/2011/09/13/as_brooklyn_rapist_strikes_again_vo.php">volunteer effort to escort women</a> to their homes (cyclists have also <a href="https://web.archive.org/web/20110922105606/http://gothamist.com/2011/09/20/following_sexual_assaults_cyclists.php">offered to escort women</a>) and concerns that the police ignored a <a href="https://web.archive.org/web/20110922105606/http://gothamist.com/2011/09/09/did_the_nypd_ignore_a_911_call_abou.php">911 call about the rapist</a>.  The NYPD, which believes <a href="https://web.archive.org/web/20110922105606/http://gothamist.com/2011/09/14/police_release_3rd_sketch_of_brookl.php">there are at least two suspects</a>, released a new surveillance video and also refuted claims they aren&apos;t being responsive.</p>
+
+<p><a href="https://web.archive.org/web/20110922105606/http://newyork.cbslocal.com/2011/09/20/police-release-new-video-in-string-of-brooklyn-sex-crimes/">According to WCBS 2</a>, &quot;Police said they have upped the numbers of uniformed and plain-clothed officers on patrol, continue to hand out flyers and sketches and follow up on the many leads they&#x2019;ve received.&quot;</p>
+
+<center><script type="text/javascript" src="https://web.archive.org/web/20110922105606js_/http://video.newyork.cbslocal.com/global/video/videoplayer.js?rnd=945623;hostDomain=video.newyork.cbslocal.com;playerWidth=425;playerHeight=332;isShowIcon=true;clipId=6272522;flvUri=;partnerclipid=;adTag=News;advertisingZone=CBS.NY%252Fworldnowplayer;enableAds=true;landingPage=;islandingPageoverride=false;playerType=STANDARD_EMBEDDEDscript;controlsType=fixed"></script></center>
+
+<p>This suspect is described as a white or Hispanic man, around 28 years old. Contact <a href="https://web.archive.org/web/20110922105606/http://a056-crimestoppers.nyc.gov/crimestoppers/public/index.cfm">NYPD Crimestoppers with information</a>.</p>

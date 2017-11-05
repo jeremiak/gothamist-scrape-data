@@ -1,0 +1,11 @@
+---
+author: Jen Chung
+date: May 12, 2011  2:48 PM
+title: Undercover Cop Fatally Shoots Armed Man Trying To Rob Him
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2011_05_380gun.jpg" src="https://web.archive.org/web/20110521081814im_/http://gothamist.com/attachments/jen/2011_05_380gun.jpg" width="365" height="246" class="image-left"> </span>Last night, while working in a gun buy-and-bust operation, an undercover police officer <a href="https://web.archive.org/web/20110521081814/http://www.nydailynews.com/news/ny_crime/2011/05/11/2011-05-11_undercover_cop_shoots_dead_man_trying_to_rob_him_in_brooklyn_source.html">fatally shot a man who tried to rob him at gunpoint</a> in Brooklyn.  The cop was buying six guns from a 22-year-old gun trafficker at 193 Knickerbocker Avenue when another man <a href="https://web.archive.org/web/20110521081814/http://brooklyn.ny1.com/content/top_stories/138940/man-shot--killed-by-undercover-officer-during-brooklyn-gun-bust">showed up and pretended to rob them</a>.  The second man pointed his .380-caliber gun at the gun dealer and then at the cop, who fired three times. </p>
+
+<p>The undercover police officer had been <a href="https://web.archive.org/web/20110521081814/http://www.nypost.com/p/news/local/brooklyn/buy_and_bust_cop_kills_gun_suspect_Ux9TIowVYX73Wpe2NazlWL">carrying $4,200 in cash for the gun buy</a> and it&apos;s believed the fake robber was working in concert with the gun dealer. <a href="https://web.archive.org/web/20110521081814/http://www.nytimes.com/2011/05/12/nyregion/undercover-officer-kills-gun-trafficker-in-brooklyn-police-say.html?partner=rss&amp;emc=rss">According to the NY Times</a>, &quot;[T]he wounded gunman then fled to the second floor of the building, where he collapsed and died. As the undercover officer backed out of the building and called for backup, the other man picked up the pistol and made his way to the building&#x2019;s rooftop, where he tried to hide the weapon behind a plaster board,&quot; a police spokesman said. </p>
+
+<p>A neighbor told the Daily News, &quot;I heard three shots. Three undercovers ran into the building - then, all the cops came. It&apos;s shocking. I never saw anything like that before.&quot;</p>

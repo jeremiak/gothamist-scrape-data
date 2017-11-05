@@ -1,0 +1,19 @@
+---
+author: Jen Chung
+date: Jun 21, 2011 5:49 pm
+title: Music Manager Jimmy "Henchman" Rosemond Arrested On Drug Charges At Union Square W Hotel
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="2011_06_jrosemond.jpg" src="https://web.archive.org/web/20160101125930im_/http://gothamist.com/attachments/jen/2011_06_jrosemond.jpg" width="640" height="475"> <br> <i>DEA agents escort James Rosemond after his arrest on cocaine-dealing charges (DEA)</i></div> <p></p>
+
+<p>Jimmy Rosemond, who manages hip hop artists The Game and Sean Kingston, was arrested at the Union Square W Hotel today on drug trafficking charges.  The federal authorities had been <a href="https://web.archive.org/web/20160101125930/http://www.nydailynews.com/news/ny_crime/2011/06/21/2011-06-21_james_jimmy_henchman_rosemond_thug_accused_of_shooting_tupac_shakur_busted_on_dr.html?r=news&amp;utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+nydnrss%2Fnews+%28News%29&amp;utm_content=Google+Reader">conducting a &quot;month-long manhunt&quot;</a> for him; <a href="https://web.archive.org/web/20160101125930/http://www.nypost.com/p/news/local/brooklyn/hip_hop_talent_agent_rosemond_charged_F9HEFWbhiw8IKB0hifqaoJ">according to the Post</a>, &quot;The hip-hop mogul spotted the agents at about noon as he walked out of the W Hotel in Union Square, sources said. Once on the street, Rosemond walked north and tried to outrun the agents until he was finally arrested on 21st Street and Park Avenue South.&quot; </p>
+
+<p>The Drug Enforcement Agency says, &quot;The Rosemond Organization distributed hundreds of kilograms of cocaine since 2008 and generated millions of dollars through its narcotics sales,&quot; and the complaint alleges that the drugs were smuggled in musical instrument cases across the country&#x2014;the feds say they found $800,000 in a case in one NYC studio&#x2014;&#x2014; and &quot;vacuum-sealed packages of cocaine and cash [were slathered] in mustard to keep drug-sniffing dogs off the scent.&quot;  Federal agents found nearly $800,000 in one such case inside a New York recording studio this last winter, the feds say.</p>
+
+<p>Rosemond issued a <a href="https://web.archive.org/web/20160101125930/http://www.xxlmag.com/news/2011/05/game%E2%80%99s-manager-breaks-silence-on-arrest-xxclusive/">statement last month, claiming innocence</a> and blaming the Daily News and prosecutors, &quot;With the Name of God, the Gracious, the Merciful I have decided to break my silence to address slanderous media once and for all... I would like to expose the two prosecutors spearheading this slanderous and trumped up case against me. The first, prosecutor Todd Kaminsky, is a 33-year-old White hip-hop head that if he weren&#x2019;t a lawyer he would probably be a member of the Beastie Boys. Second, Carolyn Porkony, who failed in convicting the Murder Inc. Irv Gotti brothers on trumped up charges of money laundering. Both have a personal stake in pursuing me and will stop at nothing to bring down an innocent man.&quot;</p>
+
+<p>Rosemond&apos;s name has been in the news lately because a prison inmate claimed he <a href="https://web.archive.org/web/20160101125930/http://gothamist.com/2011/06/15/man_confesses_to_shooting_tupac_ign.php">was paid $2,500 by Rosemond</a> to kill Tupac Shakur in 1994.  And you may remember that <a href="https://web.archive.org/web/20160101125930/http://gothamist.com/2007/03/26/when_rap_rivalr.php">Rosemond&apos;s son was pistol-whipped</a>, allegedly by a member of 50 Cent&apos;s crew, back in 2007.</p>					
+										
+									
+				

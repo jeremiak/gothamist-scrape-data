@@ -1,0 +1,26 @@
+---
+author: Jen Chung
+date: Jan 29, 2012 10:55 am
+title: Video: Hong Kong's Version Of "Subway Spaghetti" Fight
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <a href="https://web.archive.org/web/20151023004811/http://gothamist.com/attachments/jen/2012_01_mtrfight.jpg"> <img alt="2012_01_mtrfight.jpg" src="https://web.archive.org/web/20151023004811im_/http://gothamist.com/assets_c/2012/01/2012_01_mtrfight-thumb-450x384-690329.jpg" width="200" height="170" class="image-left"> </a> </span>In the wake of some optimistic NY lawmakers&apos; <a href="https://web.archive.org/web/20151023004811/http://gothamist.com/2012/01/27/food_fight_state_senators_want_to_o.php">proposed bill to ban food on subways</a>, we thought we&apos;d share the video that&apos;s been sparking tensions between <a href="https://web.archive.org/web/20151023004811/http://shanghaiist.com/2012/01/20/hong-kong-mainland-mtr-bitchfight.php">Hong Kong residents and mainland Chinese visitors</a>.  While it&apos;s not as knockdown and drag-out as the <a href="https://web.archive.org/web/20151023004811/http://gothamist.com/2011/03/18/video_subway_spaghetti_spat_sparks.php">infamous NYC subway spaghetti fight</a>, it does get pretty tense&#x2014;because Hong Kong&apos;s subway system, the MTR, prohibits food on its rather immaculate trains&#x2014;and one Hong Kong rider gets upset at a Chinese girl who spilled some dry noodles on the train floor. The girl&apos;s mother says, it&apos;s not a big deal... and then all hell breaks loose.</p>
+
+<p><iframe width="640" height="480" src="https://web.archive.org/web/20151023004811if_/http://www.youtube.com/embed/R7xRXb0rL3Y?rel=0" frameborder="0" allowfullscreen></iframe></p>
+
+<p><a href="https://web.archive.org/web/20151023004811/http://topics.scmp.com/news/china-news-watch/article/Tempers-flare-over-snacking-tourist-on-MTR">Here&apos;s a description</a>: </p><blockquote>At the start of the video, a Hong Kong man demands an apology from the girl and her mother but the tourists refuse, saying it is not a big deal. Others then join in on both sides.<p></p>
+
+<p>One of the Hongkongers presses the emergency button and notifies platform staff. An MTR employee tells the tourists they can&apos;t eat inside the train and a mainland woman says sorry in English. A Hong Kong man then says sarcastically: &quot;Oh, she knows English&quot;.</p>
+
+<p>A mainland woman tries to explain the situation to the MTR staff member but is interrupted by the Hongkongers as the quarrel resumes. At the end of the video, a Hong Kong man says: &quot;No need to speak to them. That&apos;s what mainlanders are like.&quot;</p></blockquote>Oh, no, he didn&apos;t!  As Bloomberg News&apos;s <a href="https://web.archive.org/web/20151023004811/http://www.bloomberg.com/news/2012-01-25/tension-boils-over-spilled-noodles-in-china-adam-minter.html">Adam Minter points out</a>, &quot;Hong Kongers grew up accustomed to thinking of mainland Chinese as poor country cousins. A city proud of its British heritage is now part of a country that many Hong Kongers still perceive as an authoritarian, provincial backwater. It&#x2019;s a quantifiable phenomenon: According to a December 2011 poll conducted by the Public Opinion Program at the University of Hong Kong, only 16.6 percent of Hong Kongers identify first as Chinese citizens. Yet today, Hong Kongers depend on mainlanders for investments, tourism and political largesse.&quot;<p></p>
+
+<p>An ultra-national university professor in Beijing <a href="https://web.archive.org/web/20151023004811/http://shanghaiist.com/2012/01/20/kong-qingdong-hk-bastards-dogs.php">said of the people of Hong Kong</a>, &quot;I know many Hong Kongers don&#x2019;t think they are Chinese. They declare, &apos;We are Hong Kong, you are China.&apos; Those kinds of people were British running dogs. Now they are dogs. They aren&#x2019;t human,&quot; and if they can&apos;t take people from China, &quot;Go ask for help from your British daddy.&quot;</p>
+
+<p>Plans for an &quot;eat-in&quot; on Friday <a href="https://web.archive.org/web/20151023004811/http://www.wantchinatimes.com/news-subclass-cnt.aspx?id=20120128000049&amp;cid=1303">didn&apos;t go happen</a> and the MTR, <a href="https://web.archive.org/web/20151023004811/http://gothamist.com/2012/01/04/ex-mta_ceo_loves_land_of_riches_fir.php">which is now run by the MTA&apos;s former CEO, Jay Walde</a>r, issued a statement, &quot;We hereby remind all passengers to help maintain a clean subway system. It is everybody&apos;s efforts to keep it one of the cleanest railways in the world.&quot; The MTR does have HK$2000 fines (about $258) but &quot;this punishment is rarely enforced due to local people&apos;s self-discipline and the company&apos;s lack of manpower.&quot;  So, enjoy that, Walder&#x2014;don&apos;t you miss arguments that are as cut-and-dry as this:</p>
+
+<p><iframe width="640" height="480" src="https://web.archive.org/web/20151023004811if_/http://www.youtube.com/embed/T00i7_sC7lg" frameborder="0" allowfullscreen></iframe><br>
+</p>					
+										
+									
+				

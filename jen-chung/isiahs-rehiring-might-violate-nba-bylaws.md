@@ -1,0 +1,13 @@
+---
+author: Jen Chung
+date: Aug 10, 2010 5:26 pm
+title: Isiah's Rehiring Might Violate NBA Bylaws
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:230px; "> <img alt="2010_06_fantasy.jpg" src="https://web.archive.org/web/20150506172917im_/http://gothamist.com/attachments/jen/2010_06_fantasy.jpg" width="230" height="278"> <br> <i>A <a href="https://web.archive.org/web/20150506172917/http://gothamist.com/2007/12/12/isiah_says_its.php">December 2007 Daily News back cover</a></i></div> The NBA is still reviewing the Knicks&apos; <a href="https://web.archive.org/web/20150506172917/http://gothamist.com/2010/08/06/like_a_bad_penny_isiah_thomas_is_ba.php">rehiring of Isiah Thomas as a consultant</a>, while Thomas remains coach of Florida International University&apos;s basketball team, because, well, the proposition is simply very sketchy. One Eastern Conference GM <a href="https://web.archive.org/web/20150506172917/http://www.nydailynews.com/sports/basketball/knicks/2010/08/10/2010-08-10_isiah_draws_nba_fire.html">tells the Daily News</a>, &quot;If the league lets this go through, it&apos;s opening Pandora&apos;s Box. If they allow it, then why wouldn&apos;t teams go out and hire Coach K (Mike Krzyzewski) or Tom Izzo and have them consult, too? The league has very strict and specific rules on when we can and can&apos;t have contact with high school players or underclassmen. But Isiah can do that with his current college job and also working again for the Knicks? That&apos;s got to be in violation of those rules.&quot;<p></p>
+
+<p>The <a href="https://web.archive.org/web/20150506172917/http://www.nypost.com/p/sports/knicks/nba_may_void_isiah_deal_mbQlJ9larvb1gvB48MCLdP">Post reports</a>, &quot;There is a growing sentiment among NBA executives the league will void the [Thomas&apos;] contract&quot; with the Knicks, maybe as soon as tomorrow.  But this might not end up well for Knicks fans...at least the <a href="https://web.archive.org/web/20150506172917/http://gothamist.com/2010/08/08/making_the_call_we_declare_our_inde.php">ones who don&apos;t want Thomas near the franchise</a>:  The News lays out a scenario where Thomas ditches FIU and comes back (because Knicks owner James Dolan wants him to come back) to work for the Knicks and &quot;that likely would result in Walsh stepping down, which he considered doing when <a href="https://web.archive.org/web/20150506172917/http://gothamist.com/2010/08/08/reports_donnie_walsh_unhappy_with_i.php">he rejected Dolan&apos;s suggestion</a> to hire Thomas as general manager.&quot; </p>					
+										
+									
+				

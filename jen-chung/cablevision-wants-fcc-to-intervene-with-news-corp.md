@@ -1,0 +1,15 @@
+---
+author: Jen Chung
+date: Oct 27, 2010 10:29 am
+title: Cablevision Wants FCC To Intervene With News Corp.
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2010_10_coldday.jpg" src="https://web.archive.org/web/20150422214503im_/http://gothamist.com/attachments/jen/2010_10_coldday.jpg" width="300" height="156" class="image-left"> </span>As Cablevision customers contemplate what bars to head to or <a href="https://web.archive.org/web/20150422214503/http://gothamist.com/2010/10/26/cablevision_news_corp_still_annoyin.php#comment-2724062">which antenna to buy</a> to watch the World Series tonight, Cablevision president and CEO (and Knicks owner) James Dolan sent a letter to FCC Chairman Julius Genachowski yesterday, saying that he could be in D.C. this morning for an FCC-run meeting with News Corp., because only with the FCC&apos;s involvement could good faith talks occur.  However, News Corp., which served Cablevision <a href="https://web.archive.org/web/20150422214503/http://www.myfoxny.com/dpp/news/local_news/fox-serves-cablevision-with-cease-and-desist-letter">a cease &amp; desist letter</a> (because the cable company&apos;s reps were <a href="https://web.archive.org/web/20150422214503/http://gothamist.com/2010/10/26/cablevision_news_corp_still_annoyin.php">allegedly telling customers</a> how to illegally access Fox programming online) <a href="https://web.archive.org/web/20150422214503/http://mediadecoder.blogs.nytimes.com/2010/10/26/cablevision-asks-for-f-c-c-run-meeting-with-fox/">said that Dolan&apos;s letter was a &quot;stunt.</a>&quot;</p>
+
+<p>The two companies have been at odds <a href="https://web.archive.org/web/20150422214503/http://gothamist.com/2010/10/16/news_corp_yanks_channels_5_9_from_c.php">since October 16</a>, when News Corp. pulled its Fox programming&#x2014;shows like Glee and House, sporting events like the ALDS and NFL games, channels like WNYW 5, WWOR 9 and Fox News&#x2014;from Cablevision.  Cablevision claims that News Corp. is demanding $150 million in transmission fees, up from $70 million, while News Corp. says that Cablevision isn&apos;t even trying to negotiate&#x2014;all this leaving over 3 million people in the NY, NJ and PA area in the dark.  According to Media Decoder, a FCC official &quot;indicated that the commission is likely to take a couple of days to review the responses from the two parties to the formal filings each submitted on their efforts to solve the dispute,&quot; which means there will probably not be any Fall Classic tonight for Cablevision customers.</p>
+
+<p>Verizon <a href="https://web.archive.org/web/20150422214503/http://www.bloomberg.com/news/2010-10-27/fans-plot-world-series-sweep-to-bars-mlb-com-amid-tv-blackout.html">tells Bloomberg News</a> their FIOS subscriptions are up since the conflict.</p>					
+										
+									
+				

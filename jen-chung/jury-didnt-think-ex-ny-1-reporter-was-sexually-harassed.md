@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: April 22, 2010  5:17 PM
+title: Jury Didn't Think Ex-NY1 Reporter Was Sexually Harassed
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2010_04_ny1.jpg" src="https://web.archive.org/web/20110706143523im_/http://gothamist.com/attachments/jen/2010_04_ny1.jpg" width="110" height="110" class="image-right"> </span>Former NY1 reporter <a href="https://web.archive.org/web/20110706143523/http://gothamist.com/tags/adelesammarco">Adele Sammarco&apos;s claims</a> that NY1 was a hostile work environment rife with sexual innuendo, <a href="https://web.archive.org/web/20110706143523/http://www.nypost.com/p/news/local/verdict_reached_in_ny_sex_suit_zouWVX6Kdak5qhHDqLCvAK?CMP=OTC-rss&amp;FEEDNAME=">questions about her sexual preferences</a>, breasts and butt as well as harassment were rejected by a federal jury today.  The <a href="https://web.archive.org/web/20110706143523/http://www.nydailynews.com/ny_local/2010/04/22/2010-04-22_jury_rejects_former_ny1_reporter_adele_sammarcos_sexual_harrassment_lawsuit_agai.html">Daily News reports</a>, &quot;The panel of seven men and one woman deliberated just 40 minutes on Thursday before delivering a verdict in favor of the cable news station.&quot; Sammarco alleged she was blackballed in media for complaining about the &quot;locker room&quot; antics at the station, while NY1 and parent company Time Warner said she was fired because she wasn&apos;t doing a good job.</p>

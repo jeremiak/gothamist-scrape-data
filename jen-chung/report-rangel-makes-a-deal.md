@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: July 29, 2010 12:50 PM
+title: Report: Rangel Makes A Deal!
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2010_07_rangelpic.jpg" src="https://web.archive.org/web/20120123073840im_/http://gothamist.com/attachments/jen/2010_07_rangelpic.jpg" width="110" height="100" class="image-right"> </span>Will today be as <a href="https://web.archive.org/web/20120123073840/http://gothamist.com/2010/07/29/rangel_today_might_be_as_bad_as_kor.php">bad as the day he survived</a> an attack from the Chinese during the Korean War?  It&apos;s too soon to tell, but things might be looking moderately okay for Rep. Charles Rangel (D-Harlem) now that he may have <a href="https://web.archive.org/web/20120123073840/http://gothamist.com/2010/07/29/will_rangel_make_a_deal_over_ethics.php">settled</a>: <a href="https://web.archive.org/web/20120123073840/http://wcbstv.com/politics/charlie.rangel.ethics.2.1831649.html">WCBS 2 reports</a> that he &quot;cut a deal to admit to ethical wrongdoing and avoid a potentially humiliating public trial. Harlem friends of Rangel tell CBS 2 they have been told that the details could be unveiled when the House Ethics Committee meets Thursday afternoon.&quot;  And the <a href="https://web.archive.org/web/20120123073840/http://www.nypost.com/p/news/local/rep_charlie_rangel_grows_wary_become_HxmpXZC60izMWWZBYIPvMN">AP says</a> Rangel&apos;s lawyer negotiated the deal.</p>

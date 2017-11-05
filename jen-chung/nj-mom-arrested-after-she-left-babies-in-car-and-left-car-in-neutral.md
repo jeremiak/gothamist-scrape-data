@@ -1,0 +1,13 @@
+---
+author: Jen Chung
+date: May 23, 2012 11:54 AM
+title: NJ Mom Arrested After She Left Babies In Car—And Left Car In Neutral
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left"> <img alt="2012_05_njmombabies.jpg" src="https://web.archive.org/web/20120523182255im_/http://gothamist.com/attachments/jen/2012_05_njmombabies.jpg" width="375" height="306"> <br> <i style=" width:375px; ;display:block"> Via NBC New York</i></div> A woman who was arrested after leaving her six-month-old twins in her minivan while she ducked into a NJ CVS&#x2014;only for the minivan to roll away&#x2014;is insisting that it was just a &quot;<a href="https://web.archive.org/web/20120523182255/http://www.northjersey.com/fairlawn/052212_Fair_Lawn_mother_charged_after_minivan_carrying_infant_twins_rolls_into_traffic.html">momentary lapse in judgment</a>.&quot; Natalie Akselrod was arrested for endangering the welfare of a child, and told the Bergen Record that the eight hours in processing was the longest she had been away from her children.  Akselrod added, &quot;They&apos;re my life. I would never put them in danger.&quot;<p></p>
+
+<p>The 35-year-old mother explains that one of her sons had been sick&#x2014;he went to the emergency room on Sunday&#x2014;and had slept in nearly a day.  When she went to the Fair Lawn CVS, <a href="https://web.archive.org/web/20120523182255/http://www.nbcnewyork.com/news/local/Babies-Left-Moving-Minivan-Mother-Arrested-Fair-Lawn-New-Jersey-152679875.html">she noticed he was finally sleeping</a>, &quot;This was the first time he fell asleep in 22 hours, and I did think, take him out in the pouring rain and put them in the stroller? Or just run in?&quot; So she ran in, leaving the babies in the car.  But then the minivan, which was in neutral &quot;started to roll through the parking lot.&quot;</p>
+
+<p>According to the Record, &quot;A witness, Elliot Hecht, said the van rolled out of its parking spot and almost hit another car that was driving through the lot. He said a passer-by pulled a crying baby out of the car, which apparently was not locked, and the child fell silent as the man cradled him in his arms.&quot;</p>
+
+<p>Akselrod is due for a hearing tonight at 6 p.m. Her lawyer said she would plead not guilty and that Akselfrod was upset at being away from her children for so long since she is breastfeeding, &quot;I think my client has suffered enough. This happens in towns across America. Moms have errands to run.<strong> I don&#x2019;t think we want to put moms in jail for doing what they need to do.&quot;</strong></p>

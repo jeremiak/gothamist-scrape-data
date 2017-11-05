@@ -1,0 +1,62 @@
+---
+author: Jen Chung
+date: Sep 25, 2011 2:25 pm
+title: Solber Pupusas, Korilla BBQ, Wooly's Ice Take Street Food Honors At Vendy Awards
+---
+
+	
+					<div class="galleryEase" id="gallery-490191">
+<!-- gallery js -->
+<script type="text/javascript" src="https://web.archive.org/web/20150505143425js_/http://assets.gothamistllc.com/v5/js/gallery.js"></script>
+<!-- end gallery js -->
+
+<style type="text/css">
+#imgContainer {
+min-height: 300px;
+min-width: 300px;
+background: url('https://web.archive.org/web/20150505143425im_/http://assets.gothamistllc.com/v5/images/progress.gif') center center no-repeat;
+}
+</style>
+
+<!--start of gallery code-->
+<a name="gallery"></a>
+<div class="galleryEaseDisplayed">
+<div id="imgContainer">
+    <img id="galleryImg">
+</div>
+<div class="galleyEaseInfo"></div>
+<div class="galleryEaseNext"></div>
+<div class="galleryEasePrev"></div>
+</div>
+<div class="galleryEaseThumbs">
+		<img src="https://web.archive.org/web/20150505143425im_/http://gothamist.com/assets_c/2011/09/2011_09_vendypup-thumb-60x60-661097.jpg" title="" id="photo_1" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":1, "image": "https://web.archive.org/web/20150505143425/http://gothamist.com/upload/2011/09/2011_09_vendypup.jpg", "caption": "Solber Pupusas", "credit":"\<a href=\"http://www.flickr.com/photos/remydwd/sets/72157627621755099/with/6179634727/\"\>Dan Dickinson\<\/a\>"};galleryObj['photo_1'] = photo;</script>
+		<img src="https://web.archive.org/web/20150505143425im_/http://gothamist.com/assets_c/2011/09/2011_09_vendywool1-thumb-60x60-661098.jpg" title="" id="photo_2" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":2, "image": "https://web.archive.org/web/20150505143425/http://gothamist.com/upload/2011/09/2011_09_vendywool1.jpg", "caption": "Shaved ice, brownie pieces, strawberries, leche w/ sea salt.", "credit":"\<a href=\"http://www.flickr.com/photos/remydwd/sets/72157627621755099/with/6179634727/\"\>Dan Dickinson\<\/a\>"};galleryObj['photo_2'] = photo;</script>
+		<img src="https://web.archive.org/web/20150505143425im_/http://gothamist.com/assets_c/2011/09/2011_09_vendykorilla-thumb-60x60-661087.jpg" title="" id="photo_3" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":3, "image": "https://web.archive.org/web/20150505143425/http://gothamist.com/upload/2011/09/2011_09_vendykorilla.jpg", "caption": "Korilla BBQ!", "credit":"\<a href=\"http://twitter.com/#!/sugarphilly\"\>Sugar Philly\<\/a\>"};galleryObj['photo_3'] = photo;</script>
+		<img src="https://web.archive.org/web/20150505143425im_/http://gothamist.com/assets_c/2011/09/2011_09_vendy11-thumb-60x60-661088.jpg" title="" id="photo_4" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":4, "image": "https://web.archive.org/web/20150505143425/http://gothamist.com/upload/2011/09/2011_09_vendy11.jpg", "caption": "At Governors Island", "credit":"\<a href=\"http://www.flickr.com/photos/remydwd/sets/72157627621755099/with/6179634727/\"\>Dan Dickinson\<\/a\>"};galleryObj['photo_4'] = photo;</script>
+		<img src="https://web.archive.org/web/20150505143425im_/http://gothamist.com/assets_c/2011/09/2011_09_vendypup2-thumb-60x60-661092.jpg" title="" id="photo_5" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":5, "image": "https://web.archive.org/web/20150505143425/http://gothamist.com/upload/2011/09/2011_09_vendypup2.jpg", "caption": "Serving up Solber Pupusas", "credit":"\<a href=\"http://www.flickr.com/photos/remydwd/sets/72157627621755099/with/6179634727/\"\>Dan Dickinson\<\/a\>"};galleryObj['photo_5'] = photo;</script>
+		<img src="https://web.archive.org/web/20150505143425im_/http://gothamist.com/assets_c/2011/09/2011_09_vendycup-thumb-60x60-661093.jpg" title="" id="photo_6" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":6, "image": "https://web.archive.org/web/20150505143425/http://gothamist.com/upload/2011/09/2011_09_vendycup.jpg", "caption": "The coveted Vendy Cup", "credit":"\<a href=\"http://www.flickr.com/photos/remydwd/sets/72157627621755099/with/6179634727/\"\>Dan Dickinson\<\/a\>"};galleryObj['photo_6'] = photo;</script>
+		<img src="https://web.archive.org/web/20150505143425im_/http://gothamist.com/assets_c/2011/09/2011_09_vendwool-thumb-60x60-661094.jpg" title="" id="photo_7" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":7, "image": "https://web.archive.org/web/20150505143425/http://gothamist.com/upload/2011/09/2011_09_vendwool.jpg", "caption": "Wooly\'s menu", "credit":"\<a href=\"http://www.flickr.com/photos/remydwd/sets/72157627621755099/with/6179634727/\"\>Dan Dickinson\<\/a\>"};galleryObj['photo_7'] = photo;</script>
+<br>		<img src="https://web.archive.org/web/20150505143425im_/http://gothamist.com/assets_c/2011/09/2011_09_vendytaim-thumb-60x60-661095.jpg" title="" id="photo_8" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":8, "image": "https://web.archive.org/web/20150505143425/http://gothamist.com/upload/2011/09/2011_09_vendytaim.jpg", "caption": "Falafel from Taim Falefel", "credit":"\<a href=\"http://www.flickr.com/photos/remydwd/sets/72157627621755099/with/6179634727/\"\>Dan Dickinson\<\/a\>"};galleryObj['photo_8'] = photo;</script>
+		<img src="https://web.archive.org/web/20150505143425im_/http://gothamist.com/assets_c/2011/09/2011_09_vendsoft-thumb-60x60-661096.jpg" title="" id="photo_9" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":9, "image": "https://web.archive.org/web/20150505143425/http://gothamist.com/upload/2011/09/2011_09_vendsoft.jpg", "caption": "Miss Softee\'s treats", "credit":"\<a href=\"http://www.flickr.com/photos/remydwd/sets/72157627621755099/with/6179634727/\"\>Dan Dickinson\<\/a\>"};galleryObj['photo_9'] = photo;</script>
+		<img src="https://web.archive.org/web/20150505143425im_/http://gothamist.com/assets_c/2011/09/2011_09_vendsouv-thumb-60x60-661091.jpg" title="" id="photo_10" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":10, "image": "https://web.archive.org/web/20150505143425/http://gothamist.com/upload/2011/09/2011_09_vendsouv.jpg", "caption": "Souvlaki GR", "credit":"\<a href=\"http://www.flickr.com/photos/remydwd/sets/72157627621755099/with/6179634727/\"\>Dan Dickinson\<\/a\>"};galleryObj['photo_10'] = photo;</script>
+		<img src="https://web.archive.org/web/20150505143425im_/http://gothamist.com/assets_c/2011/09/2011_09_vendbella-thumb-60x60-661090.jpg" title="" id="photo_11" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":11, "image": "https://web.archive.org/web/20150505143425/http://gothamist.com/upload/2011/09/2011_09_vendbella.jpg", "caption": "According to Dan Dickinson, \"lockwise from top: chocolate mousse (very sound), banana nutella cake (surprisingly balanced and delicious), cannoli (well executed), and olive oil blood orange cake (AMAZING).\"", "credit":"\<a href=\"http://www.flickr.com/photos/remydwd/sets/72157627621755099/with/6179634727/\"\>Dan Dickinson\<\/a\>"};galleryObj['photo_11'] = photo;</script>
+		<img src="https://web.archive.org/web/20150505143425im_/http://gothamist.com/assets_c/2011/09/2011_09_vendy10-thumb-60x60-661089.jpg" title="" id="photo_12" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":12, "image": "https://web.archive.org/web/20150505143425/http://gothamist.com/upload/2011/09/2011_09_vendy10.jpg", "caption": "Some more food", "credit":"\<a href=\"http://www.flickr.com/photos/remydwd/sets/72157627621755099/with/6179634727/\"\>Dan Dickinson\<\/a\>"};galleryObj['photo_12'] = photo;</script>
+									
+</div></div>					<p>With only a <a href="https://web.archive.org/web/20150505143425/http://gothamist.com/2011/09/20/who_makes_the_best_street_food_in_n.php">few days to contemplate the finalists</a> battling for top honors at <a href="https://web.archive.org/web/20150505143425/http://streetvendor.org/vendys">this year&apos;s Vendy Awards</a>, crowds of foodies descended on Govenors Island yesterday to feast on the vendors vying.  In the top category, <a href="https://web.archive.org/web/20150505143425/http://twitter.com/#!/solberpupusas">Solber Pupusas</a>, <a href="https://web.archive.org/web/20150505143425/http://midtownlunch.com/category/eggs-travaganza-cart/">Eggstravaganza</a>, <a href="https://web.archive.org/web/20150505143425/http://twitter.com/#!/chimielmalecon">Chimichury el Malecon</a>, <a href="https://web.archive.org/web/20150505143425/http://www.souvlakigr.com/">Souvlaki GR</a>, <a href="https://web.archive.org/web/20150505143425/http://midtownlunch.com/category/trini-paki-boys-cart/">Trini-Paki Boys Halal Food</a> and <a href="https://web.archive.org/web/20150505143425/http://www.yelp.com/biz/sams-falafel-stand-new-york">Sam&apos;s Falafel</a> were all vying for the Vendy Cup.  And the winner?  Solber Pupusas!</p>
+
+<p>Cesar Fuentas <a href="https://web.archive.org/web/20150505143425/http://www.ny1.com/content/top_stories/147812/street-pupusas-maker-takes-top--vendy-award-">said Solber Pupusas was</a> &quot;Representing anyone who has tried hard and started from, I guess, the very bottom, literally with an old van, with a table with second, third-hand wares. And coming up to this and being loved like this it&apos;s human, it&apos;s history.&quot;</p>
+
+<p>Rookie of the Year was Korilla BBQ, which avenged getting <a href="https://web.archive.org/web/20150505143425/http://gothamist.com/2011/09/12/korilla_bbq_truck_kicked_off_food_n.php">kicked off The Great Food Truck Race</a>. The Queens and Long Island natives <a href="https://web.archive.org/web/20150505143425/http://twitter.com/#!/urbanoyster/status/117705532722266112">said</a>, &quot;We&apos;re all winners here!&quot; </p>
+
+<p><a href="https://web.archive.org/web/20150505143425/http://twitter.com/#!/woolysice">Wooly&apos;s Ice</a> won best dessert&#x2014;the shaved ice operation, which located 79 Elizabeth in Chinatown&#x2014;thanks supporters last night and Tweeted this morning, &quot;Had a dream I was king, I woke up, still king. #vendyawards #bestdessert #bessert?&quot;  It wasn&apos;t a dream&#x2014;for many people, it was their introduction to Woolys and, as one happy customer put it, their epic desserts, like Maker&apos;s Mark ice, nutmeg, and bourbon maple syrup.</p>
+
+<p>Some additional notes, from our own Jamie Feldmar: </p><ul>	<li>Vendy Cup finalist Sam&apos;s Falafel revealed, &quot;I&apos;ve been up since 1am to prep for today. Everything is made fresh. The babaganoush alone takes 4 hours!&quot;</li><br>
+	<li>Paty&apos;s Tacos, which was <a href="https://web.archive.org/web/20150505143425/http://cityroom.blogs.nytimes.com/2011/09/23/taco-truck-operator-honored-as-most-heroic-vendor/">honored as the Most Heroic Vendor</a>, said a difference with their tacos was that &quot;Ours is a family owned business. Our Tacos made with love.&quot; </li><br>
+	<li>Korilla BBQ had one of the longest lines of the day. When asked why a Korean-taco fusion, they said, &quot;We like to think of ourselves as more of a Korean BBQ truck. The tortilla is a vehicle for the BBQ. The salsa and cheese are just compliments.&quot; Indeed&#x2014;the BBQ beef had a nice marinade.  </li><br>
+	<li>Souvlaki GR had a man from Greece playing bazouki, a Greek guitar, for people waiting in the also-very-long line, &quot;In Greece, there&apos;s a whole culture around souvlaki shops&#x2014;one on every corner. Here, people thnnk it&apos;s just meat on a stick&#x2014;but so much more than that.&quot; </li><br>
+	<li>Judges were wearing red sashes&#x2014; Gayle King looked fab, Colon Quinn looked a little haggard (as in, the way he usually looks!). </li><br>
+	<li>Personal favorites: Taim falafel&#x2014;great spicy sauce. Pupusas&#x2014;lovely crispy corn crust giving way to creamy, cheesy middle. Souvlaki&apos;s Greek fries, coated in Feta and herbs were also memorable.</li><br>
+</ul><p></p>					
+										
+									
+				

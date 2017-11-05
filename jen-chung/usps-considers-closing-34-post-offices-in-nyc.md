@@ -1,0 +1,13 @@
+---
+author: Jen Chung
+date: Jul 26, 2011 2:33 pm
+title: USPS Considers Closing 34 Post Offices In NYC
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:300px; "> <img alt="2011_07_postof.jpg" src="https://web.archive.org/web/20150404225539im_/http://gothamist.com/attachments/jen/2011_07_postof.jpg" width="300" height="268"> <br> <i>Photograph by <a href="https://web.archive.org/web/20150404225539/http://www.flickr.com/photos/goggla/216445224/">Goggla on Flickr</a></i></div> The United States Postal Service, which has been battling financial problems as fewer people are relying on its offering, is<a href="https://web.archive.org/web/20150404225539/http://www.npr.org/blogs/thetwo-way/2011/07/26/138706193/is-your-post-office-closing-usps-is-studying-shuttering-3-700-locations"> looking to close 3700 locations</a> across the country&#x2014;and 34 are in NYC.  <a href="https://web.archive.org/web/20150404225539/http://origin.ny1.com/content/top_stories/143710/usps-considers-34-post-office-closures-in-city">According to NY1</a>, &quot;The Bronx has the most in jeopardy with 17, followed by Manhattan with six, then Brooklyn and Queens with five each and Staten Island with just one.&quot; You <a href="https://web.archive.org/web/20150404225539/http://about.usps.com/news/electronic-press-kits/expandedaccess/states/newyork.htm">can see the list here</a>.<p></p>
+
+<p>Last week, Postmaster General Patrick Donahue issued videos to employees to discuss the situation, &quot;We are no different than any other business out there.  You have to have revenue. If you don&#x2019;t have revenue, you got to get the cost down. It&#x2019;s that simple. There&#x2019;s nobody that&#x2019;s going to come in here with a bucketload of money to make up that difference.&quot;  And Senator Tom Carper (D-Maryland) <a href="https://web.archive.org/web/20150404225539/http://www.cnbc.com/id/43894726">told CNBC</a>, &quot;In order to survive in era when more people rely on email, Twitter, and Facebook to communicate, the Postal Service has to have the freedom and flexibility to make tough but necessary business decisions.  Broadly, I would like to see Congress stop acting like a 535 member Board of Directors and get out of the way of the Postal Service pursuing innovative and cost-effective business solutions.&quot;  One idea he has is setting up USPS stations at chains like Walgreens.</p>					
+										
+									
+				

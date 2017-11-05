@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: April 21, 2010  8:48 AM
+title: Pedro Espada's Bronx Non-Profit's Office Raided
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <a href="https://web.archive.org/web/20120605141728/http://gothamist.com/attachments/nyc_arts_john/051209espada.jpg"> <img alt="051209espada.jpg" src="https://web.archive.org/web/20120605141728im_/http://gothamist.com/assets_c/2009/05/051209espada-thumb-250x243-215801.jpg" width="110" height="106" class="image-right"> </a> </span><a href="https://web.archive.org/web/20120605141728/http://abclocal.go.com/wabc/story?section=news&amp;id=7397922">WABC 7 reports</a>, &quot;Investigators executed a search warrant at Senate Majority Leader Pedro Espada, Jr.&apos;s non profit this morning, searching for evidence in several ongoing investigations into the Bronx Democrat. Eyewitness News is told law enforcement officials descended on the Soundview Health Center on White Plains Road at 7 a.m. Investigators from multiple agencies  including the FBI, IRS, and Attorney General Andrew Cuomo&apos;s office -- immediately began bringing out boxes of evidence.&quot; Investigators are apparently looking for signs of wire and mail fraud. Yesterday,  Cuomo <a href="https://web.archive.org/web/20120605141728/http://gothamist.com/2010/04/20/espada_allegedly_looted_millions_fr.php">filed a suit</a> against Espada, accusing him of siphoning $14 million from Soundview for himself and his family.  We expect an outraged comment from Espada shortly.</p>

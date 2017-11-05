@@ -1,0 +1,19 @@
+---
+author: Jen Chung
+date: Apr 21, 2010 1:57 pm
+title: Update: Fatal Van Driver Was High, Says She's Sorry
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2010_04_licrash2.jpg" src="https://web.archive.org/web/20161016035215im_/http://gothamist.com/attachments/jen/2010_04_licrash2.jpg" width="270" height="160" class="image-left"> </span>Yesterday morning, a 69-year-old woman who was mowing her front yard was killed when a runaway van <a href="https://web.archive.org/web/20161016035215/http://gothamist.com/2010/04/20/runaway_van_kills_li_woman_crashes.php">slammed her into her home</a> in Hempstead, Long Island.  Now Nassau County Police say the van&apos;s driver was <strike>drunk</strike> high.  <a href="https://web.archive.org/web/20161016035215/http://www.newsday.com/long-island/nassau/police-driver-18-arrested-after-van-kills-woman-in-hempstead-1.1871472">Newsday reports</a>, &quot;The driver, Kayla Gerdes, of Meister Boulevard, Freeport, was arrested and charged with vehicular manslaughter, DWI, and driving without a license.&quot; <b>Update</b>: The police now say that Gerdes was speeding to make a court appearance (she stole her mother&apos;s jewelry) and that <em>she was high on oxycodone</em>.  [More details below.]</p>
+
+<p>A neighbor <a href="https://web.archive.org/web/20161016035215/http://www.nydailynews.com/news/2010/04/20/2010-04-20_long_island_woman_killed_by_outofcontrol_van_as_she_mowed_her_lawn.html">told the Daily News </a>that when the van jumped the curb, hit Rebecca Twine-Wright, and barreled into Twine-Wright&apos;s home, there was a &quot;tremendous boom.&quot; Another witness  said that after the van crashed, a young woman was running down the street crying and a man was running after her, to calm her down.  The van&apos;s owner, Brian Steele, was a passenger in the van but he was not charged.  </p>
+
+<p>Police believe that excessive speed was probably involved.  And another neighbor said of Twine-Wright, a retired doctor, &quot;I saw her all the time doing her own lawn work. She loved gardening... My thoughts are that she died doing what she loved.&quot;</p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2010_04_kgerdes.jpg" src="https://web.archive.org/web/20161016035215im_/http://gothamist.com/attachments/jen/2010_04_kgerdes.jpg" width="230" height="320" class="image-left"> </span><b>Update</b>: According to Newsday, Gerdes told reporters, &quot;<strong>It was a mistake. The car went out of control. I was pressing the brake and it wouldn&apos;t go. I&apos;m sorry.</strong>&quot;  Apparently she was initially a passenger in the van, but felt the driver was going too slow, so they switched.  Gerdes &quot;was facing grand larceny charges for stealing jewelry from her mother to sell for drugs.&quot;   </p>
+
+<p>Twine-Wright&apos;s son said, &quot;I just hope the girl who is responsible for this does the right thing and pleads guilty and asks the judge for the maximum penalty allowable if she&apos;s truly remorseful for what she did.&quot;  And the chatter on Gerdes&apos; Facebook wall (which was just taken down) suggests she had a troubled history: &quot;i can&apos;t be having this conversation on her drama-ridden page. this girl got a chance to be rehabilitated. she&apos;s ruining my uncles life with her bullshit. i&apos;m not TECHNICALLY related to her, but she&apos;s my uncles girlfriends daughter... She&apos;s not a wonderful person. As I buried my grandpa, all she could talk about was leaving rehab to be with some guy... stupid stupid girl. She got arrested 3 times this month already. You&apos;d think you&apos;d get the picture, eventually.&quot;</p>					
+										
+									
+				

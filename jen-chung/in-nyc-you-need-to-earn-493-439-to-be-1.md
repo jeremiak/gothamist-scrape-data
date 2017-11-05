@@ -1,0 +1,17 @@
+---
+author: Jen Chung
+date: Dec 12, 2011 3:48 pm
+title: In NYC, You Need To Earn $493,439 To Be 1%
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="2011_11_99per.jpg" src="https://web.archive.org/web/20150120070607im_/http://gothamist.com/attachments/jen/2011_11_99per.jpg" width="640" height="470"> <br> <i>Photograph by <a href="https://web.archive.org/web/20150120070607/http://www.flickr.com/photos/62159569@N08/6256336386/">Scoboco on Flickr</a></i></div> <p></p>
+
+<p>City Councilman James Oddo, one of the few Republicans in the City Council, has been hearing a lot about this <a href="https://web.archive.org/web/20150120070607/http://gothamist.com/tags/occupywallstreet">Occupy Wall Street stuff</a>.  The <a href="https://web.archive.org/web/20150120070607/http://www.nydailynews.com/blogs/dailypolitics/2011/12/councils-james-oddo-isnt-buying-that-1-stuff">Daily Politics reports</a> that he was so curious about who really is NYC&apos;s 1%&#x2014;and 10%, for that matter&#x2014;and how much they pay in NYC taxes that he asked the Independent Budget Office for some details.  Oddo shared the IBO&apos;s response today, &quot;I think the numbers bear out the argument that we should not be attacking higher-income New Yorkers because their tax dollars fund, in large measure, all the services that New Yorkers have come to rely on.&quot; Another thing: <a href="https://web.archive.org/web/20150120070607/http://gothamist.com/2007/10/09/video_of_the_da_119.php">don&apos;t get him mad</a>.</p>
+
+<p>Based on 2009 data, the IBO says: &quot;The minimum income of a member of the so-called 1% in New York City is approximately $493,439 with an average income per filer of $2,247,515. To be a member of the top 10% in New York City requires a minimum income of $105,368. The top 10% of city taxpayers (about 345,169 payers) accounts for 71.2% of the city personal income tax. The top 1%, or about 34,598 people, pays 43.2% of the total burden. About 1.18 million filers pay no New York City personal income taxes at all, and some who live in poverty receive &apos;refund&apos; payments of the values of their earned income tax credit, child care and dependent care credit.&quot;</p>
+
+<p><font size="1"><a href="https://web.archive.org/web/20150120070607/http://www.docstoc.com/docs/108255537/ScanIBOIncomeDistributionLetter">Scan.IBOIncomeDistributionLetter</a></font><br><object id="_ds_108255537" name="_ds_108255537" width="630" height="550" type="application/x-shockwave-flash" data="https://web.archive.org/web/20150120070607im_/http://viewer.docstoc.com/"><param name="FlashVars" value="doc_id=108255537&amp;mem_id=15724457&amp;showrelated=1&amp;showotherdocs=1&amp;doc_type=pdf&amp;allowdownload=1"><param name="movie" value="http://viewer.docstoc.com/"><param name="allowScriptAccess" value="always"><param name="wmode" value="opaque"><param name="allowFullScreen" value="true"></object><br><script type="text/javascript">var docstoc_docid="108255537";var docstoc_title="Scan.IBOIncomeDistributionLetter";var docstoc_urltitle="Scan.IBOIncomeDistributionLetter";</script><script type="text/javascript" src="https://web.archive.org/web/20150120070607js_/http://i.docstoccdn.com/js/check-flash.js"></script></p>					
+										
+									
+				

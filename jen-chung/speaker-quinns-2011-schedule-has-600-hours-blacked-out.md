@@ -1,0 +1,13 @@
+---
+author: Jen Chung
+date: May 25, 2012 12:54 PM
+title: Speaker Quinn's 2011 Schedule Has 600 Hours "Blacked Out"
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2012_04_redacted.jpg" src="https://web.archive.org/web/20120527034357im_/http://gothamist.com/attachments/jen/2012_04_redacted.jpg" width="640" height="360"> <br> <i> Via NY1</i></div> <p></p>
+
+<p>As City Council Speaker Christine Quinn sits <a href="https://web.archive.org/web/20120527034357/http://gothamist.com/2012/04/24/quinn-credible_speaker_tops_2013_ma.php">atop the polls for 2013 mayoral contenders</a>, there&apos;s more scrutiny on what she does during city hours.  NY1 recently requested her 2011 schedules through a Freedom of Information Law request... and got back a lot of blacked out itineraries.</p>
+
+<p><a href="https://web.archive.org/web/20120527034357/http://www.ny1.com/content/top_stories/161879/ny1-exclusive--more-than-600-hours-blacked-out-of-speaker-quinn-s-2011-schedule">According to NY1</a>, &quot;More than 600 hours were blacked out. Hours council officials say include events that if disclosed would be an unwarranted invasion of the speaker&apos;s personal privacy. They could be instances when she goes to spinning class in TriBeCa. They could also be certain instructions to staff or interagency deliberations that aren&apos;t finalized.&quot;  Robert Freeman of the <a href="https://web.archive.org/web/20120527034357/http://www.dos.state.ny.us/coog/">State Committee on Open Government </a>said, &quot;It seems that there might have been names, names of staff members for example, public employees, other people that Ms. Quinn might have met that did involve the performance of her duties. <strong>It would be difficult to understand why those names would be redacted.</strong>&quot;</p>
+
+<p>There were some tidbits about her meeting with campaign fundraisers&#x2014;but not about her mayoral campaign&#x2014;and she &quot;met at least 10 times about Walmart.&quot; Well, as of April 2012, <a href="https://web.archive.org/web/20120527034357/http://gothamist.com/2012/04/24/wal-mart_briberygate_mexico_is_only.php">Quinn is anti-Walmart</a> (&quot;This is precisely the type of business we do not want in our communities and I remain committed to fighting against Wal-Mart&apos;s corporate poison from entering the five boroughs&quot;).</p>

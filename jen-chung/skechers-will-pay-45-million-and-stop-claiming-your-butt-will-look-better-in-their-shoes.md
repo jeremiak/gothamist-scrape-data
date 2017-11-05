@@ -1,0 +1,17 @@
+---
+author: Jen Chung
+date: May 16, 2012  2:34 PM
+title: Skechers Will Pay $45 Million And Stop Claiming Your Butt Will Look Better In Their Shoes
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2012_04_skecherbutt.jpg" src="https://web.archive.org/web/20120517041505im_/http://gothamist.com/attachments/jen/2012_04_skecherbutt.jpg" width="640" height="459" class="image-none"> </span></p>
+
+<p>Possibly confirming that Kim Kardashian <a href="https://web.archive.org/web/20120517041505/http://laist.com/2011/11/30/kris_humphries_files_annulment_from_kim_kardashian.php">is a fraud</a>, NY Attorney General Eric Schneiderman announced a $45 million settlement between 45 states and the Federal Trade Commission with Skechers, for the shoe company &quot;to end the deceptive marketing of its footwear products including Shape-Ups, Tone-Ups, and the Skechers Resistance Runner athletic shoes.&quot; Basically, Skechers was lying about your butt looking better and your sleep being better by wearing its shoes.</p>
+
+<p>An investigation looked into <a href="https://web.archive.org/web/20120517041505/http://www.whatapair.com/SkechersShapeUpShoes.aspx">Skechers&apos; claims that its toning shoes</a> caused consumers to lose weight, burn calories, improve circulation, fight cellulite, and firm, tone or strengthen thigh, buttock, and back muscles and that its products also reduce stress and improve sleep. According to Schneiderman&apos;s office, &quot;These grandiose claims were not substantiated by credible scientific evidence. Following the investigation, Skechers agreed to change its marketing of its toning shoe products.&quot;  </p>
+
+<p>Forty million will go back to consumers in refunds while $5 million will go to 45 states; Skechers will not admit wrongdoing.  Schneiderman said, &quot;This settlement forces Skechers to &#x2018;shape up&#x2019; by ceasing to make unsubstantiated health and medical claims for their so-called toning shoes. New Yorkers who purchased these shoes as a result of Skechers&#x2019; deceptive marketing practices will now be eligible for refunds. A fair market only exists when there are no false marketing claims that give one company an unfair advantage over the competition. Corporations will not be allowed to mislead consumers into spending their hard-earned money on products that promise what they can&#x2019;t deliver.&quot;  Yeah, think about all those poor people who bought the shoes after this 2011 commercial:</p>
+
+<p><iframe width="640" height="360" src="https://web.archive.org/web/20120517041505if_/http://www.youtube.com/embed/VY0BCIgEQTk" frameborder="0" allowfullscreen></iframe></p>
+
+<p>This year&apos;s <a href="https://web.archive.org/web/20120517041505/http://abcnews.go.com/Business/kim-kardashian-replaced-dog-skechers-super-bowl-ad/story?id=15328202#.T7PhwnlYuI0">Skechers&apos; ad had a French bulldog</a>, instead of Kardashian.  Anyway, for consumers who purchased Shape-Ups, Tone-Ups, or the Skechers Resistance Runner, you should go to <a href="https://web.archive.org/web/20120517041505/http:// www.ftc.gov/skechers"> www.ftc.gov/skechers</a> or call 866-325-4186 beginning today to submit a claim for a partial refund. &quot;The amount of each refund will be determined by how many consumers apply for a refund from the available pool of $40,000,000.&quot;</p>

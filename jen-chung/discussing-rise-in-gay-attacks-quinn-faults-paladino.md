@@ -1,0 +1,15 @@
+---
+author: Jen Chung
+date: Oct 20, 2010 5:15 pm
+title: Discussing Rise In Gay Attacks, Quinn Faults Paladino
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:190px; "> <img alt="2010_10_bencarv.jpg" src="https://web.archive.org/web/20150509194115im_/http://gothamist.com/attachments/jen/2010_10_bencarv.jpg" width="190" height="249"> <br> <i>Stonewall beating victim <a href="https://web.archive.org/web/20150509194115/http://www.bencarveronline.com/post/1249353620">Ben Carver</a></i></div> With a series of anti-gay hate crimes being reported in recent weeks, the <a href="https://web.archive.org/web/20150509194115/http://www.nydailynews.com/ny_local/2010/10/20/2010-10-20_quinn_rails_against_gay_attacks.html">Daily News reports</a> that City Council Christine Quinn held an &quot;emergency meeting&quot; to discuss the issue&#x2014;and she found one man who was at least partly responsible: Republican gubernatorial candidate Carl Paladino.  She said, &quot;Some candidates have spoken out - Mr. Paladino - in ways that are extremely offensive, extremely dangerous and it is hard to separate those statements from what is happening on the streets all throughout our city.&quot;<p></p>
+
+<p>Paladino came under fire last week for saying <a href="https://web.archive.org/web/20150509194115/http://gothamist.com/2010/10/10/paladino_homosexuality_not_an_equal.php">children shouldn&apos;t be</a> &quot;brainwashed&quot; into thinking homosexuality was an equally valid or successful lifestyle and <a href="https://web.archive.org/web/20150509194115/http://gothamist.com/2010/10/11/paladino_hates_gay_pride_parade_has.php">slamming gay pride parades</a>.  This came days after reports of a <a href="https://web.archive.org/web/20150509194115/http://gothamist.com/2010/10/04/two_si_men_accused_of_hate_crime_be.php">beating of a gay man at the Stonewall Inn</a>, attacks on a gay couple in Chelsea, and a <a href="https://web.archive.org/web/20150509194115/http://gothamist.com/2010/10/09/more_on_latin_king_goonies_alleged.php">brutal series of attacks on gay men</a> in the Bronx.  </p>
+
+<p>This week, police <a href="https://web.archive.org/web/20150509194115/http://gothamist.com/2010/10/18/bias_attack_alleged_at_nycs_oldest.php">arrested a man for attacking a bartender </a>at Julius&apos; Bar, the oldest gay bar in the city.  Victim Greg Davis said at the meeting, &quot;It was one punch in my right cheek, it was swollen for several days and I had three cuts inside my mouth... It&apos;s upsetting to think that when you got to work, you could be a victim,&quot; and <a href="https://web.archive.org/web/20150509194115/http://www.dnainfo.com/20101019/manhattan/victim-of-latest-gay-hate-crime-speaks-out">said of Paladino&apos;s remarks</a>, &quot;I do think it breeds an atmosphere where people are emboldened to come out and express their displeasure with some of us. It&apos;s not right.&quot;</p>					
+										
+									
+				

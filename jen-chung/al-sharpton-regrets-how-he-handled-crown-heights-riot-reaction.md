@@ -1,0 +1,28 @@
+---
+author: Jen Chung
+date: Aug 21, 2011 12:15 pm
+title: Al Sharpton Regrets How He Handled Crown Heights Riot Reaction
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="2011_08_chriots.jpg" src="https://web.archive.org/web/20141230185536im_/http://gothamist.com/attachments/jen/2011_08_chriots.jpg" width="640" height="433"> <br> <i>A NYPD police car damaged in the 1991 Crown Heights riots (AP)</i></div> <p></p>
+
+<p>Friday was the 20th anniversary of the divisive Crown Heights riots, three days of violence and chaos which were spurred by the death of a 7-year-old black boy&#x2014;killed by a Hasidic driver&#x2014;and then, three hours later, the death of a 29-year-old Orthodox Jewish scholar, who was <a href="https://web.archive.org/web/20141230185536/http://gothamist.com/2010/09/13/crown_heights_race_riots_killer_sta.php">stabbed by a black man</a>.  The Rev. Al Sharpton, who <a href="https://web.archive.org/web/20141230185536/http://gothamist.com/2011/08/19/sharpton_will_skip_crown_heights_pa.php">recently decided to bow out</a> of a panel about the riots, <a href="https://web.archive.org/web/20141230185536/http://www.nydailynews.com/opinions/2011/08/21/2011-08-21_what_crown_heights_taught_me_al_sharpton_reflects_on_race_rhetoric_and_rage_that.html">has an opinion piece reflecting on the tumultuous incident</a> in the Daily News, which also <a href="https://web.archive.org/web/20141230185536/http://www.nydailynews.com/ny_local/2011/08/21/2011-08-21_rev_al__i_played_to_the_extremists.html?r=ny_local&amp;utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+nydnrss%2Fny_local+%28NY+Local%29">published a 1991 photograph of Sharpton</a> in one of his colorful track suits to go with the essay.  And Sharpton <a href="https://web.archive.org/web/20141230185536/http://www.nydailynews.com/opinions/2011/08/21/2011-08-21_what_crown_heights_taught_me_al_sharpton_reflects_on_race_rhetoric_and_rage_that.html">admits he made some missteps</a>, &quot;I&apos;d like to share a few of my reflections about the choices I made, including the mistakes, with an eye toward advancing racial understanding and harmony.&quot;</p>
+
+<p>Shaprton explains how he was preparing to give a eulogy for little Gavin Cato, the son of Guyanese immigrants, who was killed by a driver in  Rabbi Menachem Mendel Schneerson&apos;s motorcade.  Sharpton says he had no idea that Australian scholar Yankel Rosenbaum was killed after being surrounded by black men, therefore he didn&apos;t mention Rosenbaum at all:</p><blockquote>In the eulogy I said we must stop blacks who commit criminal acts such as snatching bags on Eastern Parkway, and we must also deal with the likes of the Oppenheimer family -- which at the time was trading diamonds with apartheid South Africa.<p></p>
+
+<p>Extremists seized upon that to say that I was calling all Jews diamond merchants, and I spent years defending the statement rather than recognizing that in hours of tension, one must be clearer than at any other time.</p>
+
+<p>It is not enough to be right. We had our marches, and they were all peaceful. But with the wisdom of hindsight, let&apos;s be clear. Our language and tone sometimes exacerbated tensions and played to the extremists rather than raising the issue of the value of this young man whom we were so concerned about.</p>
+
+<p>The other thing that we should have expressed more clearly was the precious value of Yankel Rosenbaum, who was killed by a mob that night. The fact that I was not anywhere near Crown Heights and knew nothing about the events did not mean I shouldn&apos;t have addressed that in my eulogy -- because the real lesson of Crown Heights is that we can&apos;t keep choosing between whose life is of more value and who is a greater victim. All these years later, there are still those who would rather choose victims than help all of us as a society choose constructive problem-solving over rancor and violence.</p>
+
+<p>I later decided to forgive the man who stabbed me. I even visited him in jail. I did it because of the teachings of Dr. King and the example of Carmel Cato.</p>
+
+<p>Twenty years later, I have grown. I would still have stood up for Gavin Cato, but I would have also included in my utterances that there was no justification or excuse for violence or for the death of Yankel Rosenbaum.</p></blockquote>Sharpton&apos;s essay appears to be both a rebuttal as well as rapprochment to Rosenbaum&apos;s brother, Norman Rosenbaum, who<a href="https://web.archive.org/web/20141230185536/http://gothamist.com/2011/08/18/jews_upset_sharpton_invited_to_spea.php"> told the Post last week</a> that Sharpton&apos;s &quot;vile rhetoric incited the rioting.&quot;  <p></p>
+
+<p><a href="https://web.archive.org/web/20141230185536/http://www.ny1.com/content/top_stories/145379/victims--families-gather-for-20th-anniversary-of-crown-heights-riots">Norman Rosenbaum met with Cato&apos;s father</a>, Carmel Cato, on Friday to mark the 20th anniversary of their loved ones&apos; deaths.  Cato told NY1, &quot;It&apos;s just like yesterday to me,&quot; while Rosenbaum complained, &quot;None of the basic riot policing measures were put in place. Crowds weren&apos;t contained, crowds weren&apos;t dispersed and crowds weren&apos;t arrested.&quot; But Rosenbaum added, &#x201C;We want people to see the faces of the riots and what went on to be the Cato family and the Rosenbaum family.&quot;<br>
+</p>					
+										
+									
+				

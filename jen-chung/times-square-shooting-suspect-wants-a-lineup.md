@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: April 29, 2010 12:56 PM
+title: Times Square Shooting Suspect Wants A Lineup
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <a href="https://web.archive.org/web/20110706141903/http://gothamist.com/attachments/jen/2010_04_easnim.jpg"> <img alt="2010_04_easnim.jpg" src="https://web.archive.org/web/20110706141903im_/http://gothamist.com/assets_c/2010/04/2010_04_easnim-thumb-290x213-495467.jpg" width="120" height="88" class="image-right"> </a> </span>The man arrested for <a href="https://web.archive.org/web/20110706141903/http://gothamist.com/2010/04/07/man_arrested_for_shooting_two_durin.php">shooting two during the Easter night</a> wilding in Times Square  has pleaded not guilty. <a href="https://web.archive.org/web/20110706141903/http://www.nypost.com/p/news/local/manhattan/times_sq_shooter_wants_lineup_dkaFiJwd2C3JrhJAjZZnCP?CMP=OTC-rss&amp;FEEDNAME=">The Post reports</a> that Rayvon Guice, 20, told the cops, &quot;<strong>I hope they make me do a lineup because that bitch will never pick me out.</strong>&quot; Guice faces charges of attempted murder, assault and weapons possession charge for allegedly shooting two women&#x2014;one was shot in the elbow, the other in the thigh&#x2014;near Penn Station.  </p>

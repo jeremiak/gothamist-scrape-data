@@ -1,0 +1,11 @@
+---
+author: Jen Chung
+date: October  9, 2011  1:40 PM
+title: Mother, 7-Year-Old Son Killed In LI Car Crash, Two Other Kids In Critical Condition
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:350px; "> <img alt="2011_09_licrash.jpg" src="https://web.archive.org/web/20111011112308im_/http://gothamist.com/attachments/jen/2011_09_licrash.jpg" width="350" height="206"> <br> <i>From WABC 7</i></div> A 30-year-old woman and her 7-year-old son were <a href="https://web.archive.org/web/20111011112308/http://abclocal.go.com/wabc/story?section=news/local/long_island&amp;id=8384399">killed in a horrific car crash</a> yesterday in Manorville.  Keri Trinca was driving &quot;on Oceanview Boulevard and as she entered the intersection, she was t-boned by a vehicle heading south on County Road 111,&quot; according to WABC 7.  A nurse who happened to be driving by the scene <a href="https://web.archive.org/web/20111011112308/http://www.newsday.com/mom-son-killed-in-crash-2-kids-critical-1.3231077?cmpid=Breaking">told Newsday</a> it was &quot;the most horrible accident I have seen in my life.&quot;<p></p>
+
+<p>Trinca was killed at the scene, while son Jason was pronounced dead at a hospital; Trica&apos;s 2-year-old and 4-year-old children who were also in the care are also in critical condition. Nurse Taylor Adamo, who was driving home to Riverhead after her shift, told Newsday, &quot;There were no doors. They were busted open, so you could see in.&quot; She saw Trinca&apos;s dead body and the children were &quot;very critical.&quot;  As she helped, a man ran to the wreckage, &quot;<strong>He was screaming, &apos;Someone take me to my children!&apos;</strong>&quot; It turned out that was Trinca&apos;s husband.  Friends and neighbors of the Trincas are devastated; one said, &quot;Keri was a very loving mother. She was always there for her family.&quot;</p>
+
+<p>Charges have not be filed, but the investigation is continuing.  The van&apos;s driver and passenger were taken to a hospital for non-life-threatening injuries.</p>

@@ -1,0 +1,15 @@
+---
+author: Jen Chung
+date: Aug 18, 2010 3:27 pm
+title: Pictures From Alleged Craigslist Killer's Jail Cell
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:240px; "> <img alt="2010_08_meganpock.jpg" src="https://web.archive.org/web/20150509012337im_/http://gothamist.com/attachments/jen/2010_08_meganpock.jpg" width="240" height="172"> <br> <i>Image from inside Markoff&apos;s jail cell showing &quot;Megan&quot; and &quot;pocket&quot; written on the wall (via MyFoxBoston.com, in case you couldn&apos;t tell)</i></div> <a href="https://web.archive.org/web/20150509012337/http://www.myfoxboston.com/dpp/news/local/exclusive-photos-inside-alleged-craigslist-killer-philip-markoffs-jail-cell-20100817">MyFoxBoston has a creepy look</a> inside the <a href="https://web.archive.org/web/20150509012337/http://gothamist.com/tags/craigslistkiller">Craigslist Killer suspect</a>&apos;s jail cell and shows photos of things like the knife Philip Markoff allegedly used to kill himself and the bag he allegedly used to choke himself.  And there&apos;s also words &quot;scrawled in blood  on his jail cell wall. He wrote &apos;Megan, a nod to his ex-fiance Megan McAllister, and &apos;Pocket&apos;. Philip Markoff, accused Craigslist Killer, commits suicide in jail. FOX25 has learned that &apos;Pocket&apos; was a term that Markoff and McAllister used for each other in their relationship.&quot; <p></p>
+
+<p>Markoff was <a href="https://web.archive.org/web/20150509012337/http://gothamist.com/2010/08/15/alleged_craigslist_killer_kills_him.php">found dead in his cell on on Sunday</a>.  The one-time Boston University medical student was awaiting his trial for the murder of NYC woman Julissa Brisman.  Brisman, an aspiring model, had advertised massage services on Craigslist&apos;s erotic services section and arranged to <a href="https://web.archive.org/web/20150509012337/http://gothamist.com/2009/04/17/nyc_woman_killed_in_boston_hotel_cr.php">meet a client at a Boston hotel</a> in April 2009.  She was found shot to death in a Boston hotel and police traced <a href="https://web.archive.org/web/20150509012337/http://gothamist.com/2009/04/22/craigslist_killer_suspect_held_with.php">emails from the client to Markoff&apos;s apartment</a>, where they found a gun, plastic ties and women&apos;s underwear.</p>
+
+<p>His apparent suicide has sparked an investigation of security concerns in Boston&apos;s jails.  The <a href="https://web.archive.org/web/20150509012337/http://bostonherald.com/news/regional/view/20100818focus_on_jail_in_philip_markoff_death/srvc=home&amp;position=1">Boston Herald reports</a>, &quot;Markoff had eight undisturbed hours to mutilate and suffocate himself in his cell with a pen and plastic bags,&quot; and authorities say that Markoff fashioned a &quot;primitive scalpel&quot; to &quot;[inflict] a series of small punctures and incisions on his body, including his neck, arms, wrists and ankles,&#x201D; managing to open up veins and his carotid artery in his neck.</p>					
+										
+									
+				

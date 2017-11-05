@@ -1,0 +1,18 @@
+---
+author: Jen Chung
+date: October 15, 2011  1:50 PM
+title: NYPD: More Brooklyn Sex Attacks Fit Groping Pattern, Total Now At 20
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2011_10_gropreward1.jpg" src="https://web.archive.org/web/20111018080125im_/http://gothamist.com/attachments/nyc_arts_john/2011_10_gropreward1.jpg" width="640" height="581" class="image-none"> </span></p>
+
+<p>After issuing a $12,000 reward for information <a href="https://web.archive.org/web/20111018080125/http://gothamist.com/2011/10/14/yet_another_woman_groped_in_brookly.php">related to the series of sexual assaults on women in Brooklyn</a> and reporting that a woman was assaulted on Thursday night in Windsor Terrace, the NYPD revealed that another half dozen or so attacks would be added to the already-too-long list.  WTF.</p>
+
+<p>Suspect Adolfo Martinez, <a href="https://web.archive.org/web/20111018080125/http://gothamist.com/2011/10/12/suspected_sunset_park_groper_arrest.php">arrested for a Monday night Sunset Park attack </a>where he allegedly sneaked up behind a woman leaving the subway, grabbed her butt and then ran away, reportedly told cops that he <a href="https://web.archive.org/web/20111018080125/http://gothamist.com/2011/10/13/alleged_groper_to_cops_i_do_this_so.php">has assaulted women before</a>.  So then the NYPD took a look at some other incidents and have added seven more to <a href="https://web.archive.org/web/20111018080125/http://gothamist.com/tags/parksloperapist">the known attacks</a>, now making 20 incidents total since March of this year.  Here&apos;s a <a href="https://web.archive.org/web/20111018080125/http://www.nypost.com/p/news/local/brooklyn/more_sex_attacks_added_to_disturbing_BUeJfx1C0Yl92kpaTcoRZN?CMP=OTC-rss&amp;FEEDNAME=">list of the attacks from the Post</a>:<br>
+</p><blockquote>-- A 30-year-old woman groped in the station by a man in his 20s who squeezed her breast at 12:30 p.m. March 11.<br>
+-- A 25-year-old woman similarly attacked as she was leaving the subway station at 1:30 a.m. June 23, when a man grabbed her breasts.<br>
+--A 21-year-old woman attacked in the station March 25 by a man in his early 30s who walked up behind the victim and reached under her dress to grab her buttocks.<br>
+-- A 15-year-old girl walking down a flight of stairs at the subway station July 10, when a man came up behind her and grabbed her breast and buttocks.<br>
+-- A 26-year-old woman attacked about 9:45 p.m. Thursday in Windsor Terrace, where a man grabbed her crotch.<br>
+-- A 37-year-old woman attacked in the station about 11:55 p.m. May 7 , when the sicko snuck up behind her and grabbed her breasts.<br>
+-- A 30-year-old woman was targeted at 11:30 p.m. June 18 in the station by a man who lifted her skirt and squeezed her buttocks.</blockquote>Residents are upset, especially female ones.  One woman <a href="https://web.archive.org/web/20111018080125/http://www.nydailynews.com/news/ny_crime/2011/10/14/2011-10-14_fear_grips_brooklyn_as_number_of_sexcrimes_spikes_6_subway_attacks_linked_to_cri.html">told the Daily News</a>, &quot;Oh God. It&apos;s scary. I moved into this neighborhood six months ago thinking it was safe. It&apos;s disconcerting this is going on so close to where I live.&quot;  <a href="https://web.archive.org/web/20111018080125/http://newyork.cbslocal.com/2011/10/14/nypd-investigates-another-sexual-assault-in-windsor-terrace/">Another told WCBS 2</a>, &#x201C;I think it would have been less scary if it were one man, but since there are like six or eight or 10, it&#x2019;s very like overwhelming because you don&#x2019;t know who it is.&quot;<p></p>

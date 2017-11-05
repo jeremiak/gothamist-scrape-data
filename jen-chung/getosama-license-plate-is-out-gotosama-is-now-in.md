@@ -1,0 +1,11 @@
+---
+author: Jen Chung
+date: May  4, 2011 11:25 AM
+title: GETOSAMA License Plate Is Out, GOTOSAMA Is Now In
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:365px; "> <img alt="2011_04_getosamaguy.jpg" src="https://web.archive.org/web/20110508064801im_/http://gothamist.com/attachments/jen/2011_04_getosamaguy.jpg" width="365" height="275"> <br> <i>Arno Herwerth (<a href="https://web.archive.org/web/20110508064801/http://newyork.cbslocal.com/2011/05/03/arno-herwerth-of-hauppauge-wants-to-change-getosama-license-plate/">1010 WINS</a>)</i></div> Nearly four years after fighting to <a href="https://web.archive.org/web/20110508064801/http://gothamist.com/2007/11/21/dmv_says_no_to.php">get a GETOSAMA license plate</a>, a Long Island man <a href="https://web.archive.org/web/20110508064801/http://newyork.cbslocal.com/2011/05/03/arno-herwerth-of-hauppauge-wants-to-change-getosama-license-plate/">will be getting a new one</a>: GOTOSAMA, <em>obviously</em>.  Retired NYPD cop Arno Herwerth <a href="https://web.archive.org/web/20110508064801/http://www.nypost.com/p/news/local/taking_creative_license_2VodqebsDfKxKdFhFnwmnI">was initially worried</a> that the license plate wasn&apos;t available, based on his search on the DMV website, but the NY State DMV said there was a computer glitch and the plate is his for the taking.<p></p>
+
+<p>Back in 2007, Herwerth battled the state to have a <a href="https://web.archive.org/web/20110508064801/http://www.moonbattery.com/arno_herwerth.jpg">GETOSAMA license plate</a> and won. When speaking to 1010WINS, Herwerth said of his outdated license plate, &quot;Obviously &apos;GETOSAMA&apos; is no longer fashionable so I first thought of &apos;GOTOSAMA&apos; but I looked on the internet and that&#x2019;s already taken.&quot;  But then the Post shared the good &quot;GOTOSAMA&quot; news with him, he said, &quot;I&apos;m thrilled. It&apos;s perfect.&quot;  Oh, and his other car&apos;s license plate is &quot;AX-ALQADA.&quot;</p>
+
+<p>As you can see from the photograph, his van has the words &quot;Live Free Or Die&quot; and &quot;Get Osama.&quot;  It&apos;s unclear if he was invited to meet President Obama at Ground Zero tomorrow. </p>

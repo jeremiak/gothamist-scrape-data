@@ -1,0 +1,15 @@
+---
+author: Jen Chung
+date: Feb 27, 2012 6:21 pm
+title: Fred Wilpon Plans To Own Mets "As Long As I Can"
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2011_11_metcrying.jpg" src="https://web.archive.org/web/20150426153009im_/http://gothamist.com/attachments/jen/2011_11_metcrying.jpg" width="290" height="315" class="image-left"> </span>Fred Wilpon, the beleaguered owner of the Mets, <a href="https://web.archive.org/web/20150426153009/http://www.nydailynews.com/sports/baseball/mets/fred-wilpon-family-plans-ny-mets-a-long-time-legal-financial-woes-article-1.1029252?localLinksEnabled=false">spoke to the media in Port St. Lucie today</a> and emphatically said people should stop worrying about the pesky <a href="https://web.archive.org/web/20150426153009/http://gothamist.com/2012/02/21/mets_owners_were_hooked_on_madoffs.php">Bernard Madoff-related lawsuit</a> that demands that <a href="https://web.archive.org/web/20150426153009/http://gothamist.com/2011/02/04/trustee_suing_mets_owners_for_300m.php">he and Saul Katz pay over $300 million</a>, &quot;There shouldn&apos;t be concern about us owning the franchise&#x2026;Whether (fans) are happy about that right now or not, I don&apos;t know. As long as I can, I plan to be the owner here.&quot;</p>
+
+<p>He explained, &quot;When I said two years ago that the Mets weren&apos;t affected by the Madoff thing, I was telling the truth, because we weren&apos;t (being) sued then. This was prior to the suit. Did it affect it? Sure. It&apos;s been a motion picture.  But there was a point when the suit was almost three times what it is now, so it seems to be going hopefully in the right direction.&quot;  The case is <a href="https://web.archive.org/web/20150426153009/http://www.nytimes.com/2012/02/27/sports/baseball/a-glimpse-into-what-could-be-a-trial-for-the-mets-owners.html?_r=1&amp;utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+nyt%2Frss%2FSports+%28NYT+%3E+Sports%29&amp;seid=auto&amp;smid=tw-nytimessports">scheduled to go to trial on March 19</a>.</p>
+
+<p>In other news, the Mets hope to sell 12 minority shares, at $20 million each, <a href="https://web.archive.org/web/20150426153009/http://www.nydailynews.com/sports/baseball/mets/ny-mets-sell-minority-shares-club-family-members-shares-worh-20m-sny-article-1.1029268">of the team to raise some money</a>; two of the shares are to members of the Wilpon family and four are to SNY, the sports cable network.  Wilpon also addressed <a href="https://web.archive.org/web/20150426153009/http://www.nypost.com/p/blogs/metsblog/fred_says_wilpons_plan_time_own_R1aUKyJaxpDC0XYb5AZR0H">reducing the team&apos;s payroll to $90 million from $140 million</a>: &quot;I was tired of throwing money at something and not getting success. We cut a lot of payroll that wasn&#x2019;t producing. If you look at the payroll now, it&#x2019;s fluid. Many of the people that were not producing are not here.&#x201D;</p>					
+										
+									
+				

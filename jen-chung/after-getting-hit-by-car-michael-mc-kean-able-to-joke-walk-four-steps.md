@@ -1,0 +1,13 @@
+---
+author: Jen Chung
+date: May 24, 2012  2:59 PM
+title: After Getting Hit By Car, Michael McKean Able To Joke, Walk Four Steps
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2012_05_mmckaen.jpg" src="https://web.archive.org/web/20120528150938im_/http://gothamist.com/attachments/jen/2012_05_mmckaen.jpg" width="250" height="355" class="image-left"> </span>On Tuesday, actor Michael McKean was walking on Broadway and West 86th Street <a href="https://web.archive.org/web/20120528150938/http://gothamist.com/2012/05/22/michael_mckean_struck_by_car_on_upp.php">when a car struck him</a>, breaking one of his legs and leaving him with other injuries.  McKean had surgery this morning and his wife, actress Annettte O&apos;Toole, <a href="https://web.archive.org/web/20120528150938/http://twitter.com/#!/JimmyJindo/status/205676465172398080">just Tweeted</a>, &quot;Surgery went great. He took 4 steps just now. Sitting in chair. Very good attitude. Sends his love.&quot;</p>
+
+<p>McKean looked badly injured, <a href="https://web.archive.org/web/20120528150938/http://www.nydailynews.com/new-york/actor-michael-mckean-laverne-shirley-struck-car-upper-west-side-manhattan-article-1.1082864">based on a photograph from the scene</a> (the Daily News also had photos of a mail box that was knocked down, as well as a trash can).  However, he <a href="https://web.archive.org/web/20120528150938/http://twitter.com/mjmckean/status/205481878294245376">Tweeted yesterday</a>, &quot;Lucky man: best wife, great kids, awesome docs and nurses, priceless friends; a little overwhelmed by the sweet tweets. Love all y&apos;all.&quot;</p>
+
+<p>The 64-year-old actor is now missing his role in The Best Man on Broadway; producer <a href="star_wise_cracked_ySG88SLJsti1OHH79chewO">Jeffrey Richards told the Post</a> that McKean seemed to be in good spirits, with McKean joking,  &quot;We always tell each other to break a leg in this business. I never thought it would happen to me this way!&quot;  </p>
+
+<p>No criminality was suspected in the incident (three passengers in the car were also injured), but nearby workers and residents <a href="https://web.archive.org/web/20120528150938/http://www.dnainfo.com/new-york/20120522/upper-west-side/spinal-tap-actor-michael-mckean-struck-by-car-on-broadway">complained that the intersection was dangerous</a>, with cars ignoring traffic lights. </p>

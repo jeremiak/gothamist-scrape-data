@@ -1,0 +1,21 @@
+---
+author: Jen Chung
+date: Jul 17, 2011 10:45 am
+title: Murdoch Favorite Rebekah Brooks Arrested By British Police
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:365px; "> <img alt="2011_07_rbrooks.jpg" src="https://web.archive.org/web/20150406144315im_/http://gothamist.com/attachments/jen/2011_07_rbrooks.jpg" width="365" height="257"> <br> <i>Rupert Murdoch and News International CEO Rebekah Brooks last week (AP)</i></div> Rebekah Brooks, <a href="https://web.archive.org/web/20150406144315/http://gothamist.com/2011/07/15/news_corp_executive_and_murdoch_fav.php">who resigned leading</a> from News Corp&apos;s British newspaper division on Friday, <a href="https://web.archive.org/web/20150406144315/http://www.guardian.co.uk/media/2011/jul/17/rebekah-brooks-arrested-phone-hacking-allegations">was arrested today</a> over her role in the company&apos;s growing phone-hacking scandal.  And the British authorities arrested her &quot;by appointment&quot; at a London police station. <p></p>
+
+<p>The Metropolitan Police Service issued a statement saying &quot;this afternoon, Sunday 17 July, arrested a female in connection with allegations of corruption and phone hacking. At approximately 12.00 a 43-year-old woman was arrested by appointment at a London police station by officers from Operation Weeting [phone hacking investigation] together with officers from Operation Elveden [bribing of police officers investigation]. She is currently in custody. She was arrested on suspicion of conspiring to intercept communications, contrary to Section1(1) Criminal Law Act 1977 and on suspicion of corruption allegations contrary to Section 1 of the Prevention of Corruption Act 1906.&quot;</p>
+
+<p>Brooks, who was a favorite of Rupert Murdoch (he viewed her as another daughter) was editor of the weekly tabloid, The News of the World, when many of the hacking incidents&#x2014;from <a href="https://web.archive.org/web/20150406144315/http://gothamist.com/2011/07/12/video_daily_show_skewers_news_of_th.php">hacking celebrities and politicians to murder victims and dead soldiers</a> (possibly even 9/11 victims)&#x2014;occurred.  Scotland Yard members also allegedly received payoffs from the News of the World and only went through the motions of investigating claims of phone hacking in 2006, perhaps thanks to a cozy relationship with News Corp.&apos;s British newspaper division, News International. The <a href="https://web.archive.org/web/20150406144315/http://www.nytimes.com/2011/07/17/world/europe/17police.html?_r=1&amp;hp">NY Times reports</a>:</p><blockquote> For nearly four years they lay piled in a Scotland Yard evidence room, six overstuffed plastic bags gathering dust and little else. <p></p>
+
+<p>Inside was a treasure-trove of evidence: 11,000 pages of handwritten notes listing nearly 4,000 celebrities, politicians, sports stars, police officials and crime victims whose phones may have been hacked by The News of the World, a now defunct British tabloid newspaper.</p>
+
+<p>Yet from August 2006, when the items were seized, until the autumn of 2010, no one at the Metropolitan Police Service, commonly referred to as Scotland Yard, bothered to sort through all the material and catalog every page, said former and current senior police officials.</p></blockquote>Murdoch <a href="https://web.archive.org/web/20150406144315/http://gothamist.com/2011/07/07/as_phone_hacking_scandal_grows_rupe.php">closed the News of the World</a> last week.  The U.S. Department of Justice says it is investigating claims that 9/11 victims&apos; cell phones were hacked.  It was also <a href="https://web.archive.org/web/20150406144315/http://gothamist.com/2011/07/16/attorney_general_holder_looking_int.php">reported yesterday</a> that British Prime Minister David Cameron, who briefly employed a News of the World editor who is now arrested for his role in the hacking scandal, met with News Corp. executives, including Brooks and Murdoch, 26 times in the last year.  <p></p>
+
+<p>Murdoch, his son James, and Brooks had agreed to appear before Parliament to testify about the hacking scandal this Tuesday.</p>					
+										
+									
+				

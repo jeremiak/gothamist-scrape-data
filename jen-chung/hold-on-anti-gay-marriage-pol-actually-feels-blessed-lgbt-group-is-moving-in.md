@@ -1,0 +1,17 @@
+---
+author: Jen Chung
+date: Nov 14, 2011 11:44 am
+title: Hold On: Anti-Gay Marriage Pol Actually Feels "Blessed" LGBT Group Is Moving In
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="2011_11_rubendiaz.jpg" src="https://web.archive.org/web/20150406152314im_/http://gothamist.com/attachments/jen/2011_11_rubendiaz.jpg" width="640" height="379"> <br> <i>Image via <a href="https://web.archive.org/web/20150406152314/http://www.towleroad.com/2011/06/anti-gay-ny-senator-ruben-diaz-blames-marriage-equality-victory-on-christians-who-pray-too-much.html">Towleroad</a></i></div> <p></p>
+
+<p>Yesterday, the <a href="https://web.archive.org/web/20150406152314/http://www.nypost.com/p/news/local/bronx/gay_pride_parades_in_bx_foe_building_uwT0rBsgPrvBzLG7GpaJOI#ixzz1dagalGNc">Post reported</a> that Bronx Pride, the Bronx&apos;s biggest LGBT group, was moving into the Ruben Diaz Sr. Gardens building, a residential-commercial space funded by State Senator Diaz&apos;s non-profit and named after him. And <a href="https://web.archive.org/web/20150406152314/http://gothamist.com/2011/11/13/perfect_lgbt_group_moves_into_bronx.php">given his extremely anti-gay marriage stance</a>, the Post quoted a source who said that Diaz was &quot;furious. It&#x2019;s such a direct shot at him.&quot;  But Diaz tells us that&apos;s not true&#x2014;he actually feels &quot;honored&quot; and &quot;blessed&quot; to have the group in the building and is only furious that the Post reporter didn&apos;t include anything he told her!</p>
+
+<p>After receiving a <a href="https://web.archive.org/web/20150406152314/http://www.nysenate.gov/press-release/senator-reverend-diaz-honored-bronx-pride-coming-rev-ruben-diaz-gardens">press release from Diaz&apos;s office</a>, we called the State Senator, who told us, &quot;I&apos;m a big guy. I can take criticism... But I wish that the reporter was fair and honest.  I think she wanted me to say bad things.&quot;  Of Bronx Pride&apos;s move, Diaz, who is a Pentecostal minister, said, &quot;I&apos;m not angry.  I feel blessed... It&apos;s a testament to the work I&apos;m doing [to let everyone know that] the Bronx is open for business.&quot; </p>
+
+<p>When we asked Diaz about whether he would pursue a lawsuit against NY&apos;s same-sex marriage law&#x2014;<a href="https://web.archive.org/web/20150406152314/http://www.huffingtonpost.com/2011/07/24/new-york-gay-marriage-protest_n_908196.html">a law he called &quot;criminal&quot; back in the summer</a>&#x2014;he said, &quot;That&apos;s over.&quot;  Still, Diaz was <a href="https://web.archive.org/web/20150406152314/http://blogs.villagevoice.com/runninscared/2011/09/ruben_diaz_sr_bob_turner.php">happy that anti-gay marriage group</a>, the National Organization for Marriage had &quot;given me opportunities to robo-call and send mailings to the voters in the 9th Congressional District about my support for Bob Turner&apos;s pro-family values... I expect that the Hispanic vote in this race will be influential in determining who wins, and since the Hispanic community has traditional family values, I believe they will vote for Bob Turner because of his <a href="https://web.archive.org/web/20150406152314/http://gothamist.com/2011/08/18/could_gay_marriage_turn_weiners_old.php">position against gay marriage</a>.&quot;</p>					
+										
+									
+				

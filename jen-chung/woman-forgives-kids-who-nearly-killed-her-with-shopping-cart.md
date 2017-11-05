@@ -1,0 +1,13 @@
+---
+author: Jen Chung
+date: January  8, 2012  1:00 PM
+title: Woman Forgives Kids Who Nearly Killed Her With Shopping Cart
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="11511toss.jpg" src="https://web.archive.org/web/20130611081646im_/http://gothamist.com/attachments/byakas/11511toss.jpg" width="640" height="393"> <br> <i>The walkway between Target and Costco from which the shopping cart was pushed (AP).</i></div> <p></p>
+
+<p>Last October, there was shock and outraged after two 12-year-old boys <a href="https://web.archive.org/web/20130611081646/http://gothamist.com/2011/10/31/harlem_mom_critical_after_being_hit.php">tossed a shopping cart from a fourth story walkway and hit a woman</a>, who was left in critical condition and <a href="https://web.archive.org/web/20130611081646/http://gothamist.com/2011/11/01/alleged_shopping_cart_tossers_are_b.php">a medically-induced coma</a>. The victim,  Marion Salmon Hedges, a real estate broker and active volunteer at numerous organizations, had come to the East Harlem shopping complex to buy Halloween candy for needy children.  Now, the <a href="https://web.archive.org/web/20130611081646/http://www.nypost.com/p/news/local/manhattan/amazing_grace_cart_lady_forgives_RaLmf6InrstmZ0k7HaKQKJ?CMP=OTC-rss&amp;FEEDNAME=">Post reports</a> that Hedges &quot;bears no ill will&quot; towards the boys.</p>
+
+<p>According to the Post, &quot;The troubled Harlem kids are, after all, the very people Marion Hedges has spent her life trying to help, the source [said]... &apos;Her concerns are more about the economic conditions that created that situation &#x2014; what&#x2019;s going on with these moms?&apos; he said.&quot; The friend added that Hedges, who was brain-damaged in the incident and has short-term memory loss, hopes the incident will raise concern for underprivileged youth, &quot;The key to her is for people to give their time to those in need.&quot; </p>
+
+<p>The two boys pleaded guilty in Family Court to <a href="https://web.archive.org/web/20130611081646/http://gothamist.com/2011/11/19/shopping_cart_tosser_pleads_guilty.php">reduced felony assault charges</a>; the judge was concerned with what adults were <a href="https://web.archive.org/web/20130611081646/http://gothamist.com/2011/11/24/12-yr-old_pleads_guilty_to_tossing.php">supposedly supervising them</a>.  </p>

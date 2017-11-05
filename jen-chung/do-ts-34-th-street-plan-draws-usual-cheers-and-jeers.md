@@ -1,0 +1,19 @@
+---
+author: Jen Chung
+date: Apr 24, 2010 10:55 am
+title: DOT's 34th Street Plan Draws Usual Cheers And Jeers
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="2010_04_34thst.jpg" src="https://web.archive.org/web/20150522062947im_/http://gothamist.com/attachments/jen/2010_04_34thst.jpg" width="640" height="480"> <br> <i>Santacon would, conceivably, benefit from the DOT&apos;s plan (photograph by <a href="https://web.archive.org/web/20150522062947/http://www.flickr.com/photos/hbomb/3108970646">hbomb1947 the turnstile-jumper on Flickr</a>)</i></div> <p></p>
+
+<p>Now that the Department of Transportation has revealed its latest congestion-fighting strategy&#x2014;<a href="https://web.archive.org/web/20150522062947/http://gothamist.com/2010/04/23/34th_street_pedestrian_plaza_and_tr.php">creating another pedestrian mall in Herald Square</a> and giving buses half of 34th Street&#x2014;the reactions are coming from pedestrians and drivers.  Naturally, they have very different opinions! One driver <a href="https://web.archive.org/web/20150522062947/http://www.ny1.com/6-bronx-news-content/news_beats/transit/117448/pedestrian-plaza-planned-for-34th-street--major-traffic-changes-to-follow/">complained to NY</a>1, &quot;Bad enough they closed Broadway. We can&apos;t even turn up and down Broadway. It will make it even more worse than what it already is,&quot; but a pedestrian <a href="https://web.archive.org/web/20150522062947/http://www.nydailynews.com/ny_local/2010/04/24/2010-04-24_get_malled_on_34th_city_plans_to_make_a_busy_midtown_block_a_safe_haven_for_pede.html">said to the Daily News</a>, &quot;I wish they would do it tomorrow.&quot;</p>
+
+<p>A delivery truck driver <a href="https://web.archive.org/web/20150522062947/http://wcbstv.com/topstories/herald.square.makeover.2.1651734.html">said</a>, &quot;Worst thing they can do. I think it&apos;s a bad idea. Just back up traffic even more, make it more difficult,&quot; while a pedestrian <a href="https://web.archive.org/web/20150522062947/http://www.ny1.com/6-bronx-news-content/news_beats/transit/117448/pedestrian-plaza-planned-for-34th-street--major-traffic-changes-to-follow/">enthused</a>, &quot;I think that&apos;s a great idea. I work one block up from here and the commuter traffic here is pretty heavy. And between the tourists passing by and people going to work, it&apos;s usually pretty hectic here.&#x201D;</p>
+
+<p>Mayor Bloomberg said, &quot;Something like nine out of every 10 people that go across 34th Street either walk, or take bus or cab. It&apos;s so slow the cars can&apos;t get across, and so people go elsewhere or even if they try to do it it just takes them forever.&quot;  But business owners are worried: A clothing manufacturer on West 39th Street<a href="https://web.archive.org/web/20150522062947/http://www.crainsnewyork.com/article/20100423/REAL_ESTATE/100429906"> predicted his deliveries will take 90 minutes</a>, instead of the usual 60 minutes, &#x201C;I know they want it to look similar to places in Europe, but New York City is New York City&#x2014;we need the hustle and the bustle here. It&apos;s a good way of thinking, closing the street for pedestrians, but at the same time, business-wise, there is a lot of effect.&#x201D;</p>
+
+<p>One Brooklyn resident summed up his feelings <a href="https://web.archive.org/web/20150522062947/http://www.nydailynews.com/ny_local/2010/04/24/2010-04-24_get_malled_on_34th_city_plans_to_make_a_busy_midtown_block_a_safe_haven_for_pede.html">thusly</a>, &quot;It&apos;s not Disneyland, man. It&apos;s New York City.&quot;</p>					
+										
+									
+				

@@ -1,0 +1,17 @@
+---
+author: Jen Chung
+date: Nov 24, 2011 1:22 pm
+title: Police Commissioner Kelly To NYPD: Stop Arresting Reporters For Doing Their Job
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="111511copsows.jpg" src="https://web.archive.org/web/20150405031423im_/http://gothamist.com/attachments/nyc_arts_john/111511copsows.jpg" width="640" height="480"> <br> <i>Officers at Cortlandt at Broadway at 3:30 a.m. <a href="https://web.archive.org/web/20150405031423/http://gothamist.com/2011/11/15/nypd_evicts_occupy_wall_street_clea.php#photo-3">on November 15</a> (Christopher Robbins/Gothamist)</i></div> <p></p>
+
+<p>After the police arrested numerous journalists <a href="https://web.archive.org/web/20150405031423/http://gothamist.com/2011/11/15/nypds_zuccotti_eviction_swift_shrew.php">covering the raid on Occupy Wall Street&apos;s Zuccotti Park encampment</a> as well as <a href="https://web.archive.org/web/20150405031423/http://gothamist.com/2011/11/15/occupy_wall_street_claims_new_park.php">subsequent protester actions</a>, media outlets <a href="https://web.archive.org/web/20150405031423/http://www.nypressclub.org/newsletter/2011-11-21.html">condemned the NYPD&apos;s actions</a> which also <a href="https://web.archive.org/web/20150405031423/http://gothamist.com/2011/11/15/nypds_zuccotti_eviction_swift_shrew.php">included restricting access to witness events.</a>  Yesterday, representatives from the AP, the NY Times, the Daily News, the NY Post, and the National Press Photographers Association met with Police Commissioner Kelly and chief police spokesman Paul Browne to discuss the situation&#x2014;resulting in Kelly issuing a memo to the department saying the press should be allowed to do its job.  </p>
+
+<p><a href="https://web.archive.org/web/20150405031423/http://www.nydailynews.com/new-york/don-t-arrest-reporters-jobs-ray-kelly-tells-nypd-rank-and-file-article-1.982255?localLinksEnabled=false&amp;utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+nydnrss%2Fnews+%28News%29&amp;utm_content=Google+Reader">According to the News</a>, part of the Patrol Guide says, &#x201C;When incidents spill over or occur on private property, members of the media will not be arrested for criminal trespass, unless an owner or representative expressly indicates that the press is not to be permitted.&quot;  Kelly&apos;s message also said, &quot;Supervisors may restrict access to an incident scene only in those exceptional circumstances where it is absolutely necessary for law enforcement or public order purposes.&quot;  In other words, <a href="https://web.archive.org/web/20150405031423/http://gothamist.com/2011/11/22/video_lone_gutsy_activist_tapes_occ.php">putting press in its own pens</a> away from the action may still happen!</p>
+
+<p>The AP&apos;s senior managing editor, Michael Oreskes, said, &quot;This is a welcome step to assure that journalists can do their jobs. If followed, these instructions should prevent a recurrence of at least some of the unfortunate interference that journalists experienced as they covered the Occupy Wall Street events last week.&quot; </p>					
+										
+									
+				

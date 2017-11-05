@@ -1,0 +1,24 @@
+---
+author: Jen Chung
+date: Oct 11, 2010 5:46 pm
+title: 9th Suspect In Bronx Anti-Gay Attacks Expected To Surrender
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:280px; "> <img alt="2010_10_1910os.jpg" src="https://web.archive.org/web/20150510002919im_/http://gothamist.com/attachments/jen/2010_10_1910os.jpg" width="280" height="239"> <br> <i>1910 Osborne Place (<a href="https://web.archive.org/web/20150510002919/http://maps.google.com/maps?client=safari&amp;rls=en&amp;q=1910+osborne+place+bronx+ny&amp;oe=UTF-8&amp;um=1&amp;ie=UTF-8&amp;hq=&amp;hnear=1910+Osborne+Pl,+Bronx,+NY+10453&amp;gl=us&amp;ei=goGzTMWZEoT78Ab58aQe&amp;sa=X&amp;oi=geocode_result&amp;ct=title&amp;resnum=1&amp;ved=0CBYQ8gEwAA">Google Maps</a>)</i></div> The ninth man suspected in the alleged anti-gay torture attacks that targeted three Bronx males will supposedly turn himself in. Ruddy Vargas-Perez, the last remaining suspect still at large, is sought by the police, while the others are in jail.  One of the suspects&apos; cellmates <a href="https://web.archive.org/web/20150510002919/http://www.nydailynews.com/news/2010/10/11/2010-10-11_gang_in_gay_tortures_thinks_its_a_big_joke.html">told the Daily News</a> that the suspects seem pretty relaxed, &quot;They thought it was funny - one of them was laughing. He was saying &apos;I&apos;ll take five years.&apos; They were all joking around like it was funny,<p></p>
+
+<p>Police say that the nine suspects are part of a gang called the Latin King Goonies and that they<a href="https://web.archive.org/web/20150510002919/http://gothamist.com/2010/10/09/more_on_latin_king_goonies_alleged.php"> targeted two 17-year-olds and a 30-year-old</a> because they were gay (one 17-year-old was a gang recruit, and both of the teens apparently had relationships with the 30-year-old).   The <a href="https://web.archive.org/web/20150510002919/http://www.nytimes.com/2010/10/11/nyregion/11bias.html?ref=nyregion">NY Times described</a> how the beatings were sadistic: </p><blockquote>After he had been punched, kicked and stripped of his clothes and jewelry, the 17-year-old man was given a choice: the bat or the pipe.<p></p>
+
+<p>His attackers, part of a gang of nine young men, were in the midst of a night of savage assaults against three men they suspected of being gay, according to a criminal complaint released on Sunday.</p>
+
+<p>Before the night was out, the victims would be tortured with burning cigarettes, box cutter blades, plunger handles and more, prosecutors charged. But first, the 17-year-old had to make his selection.</p>
+
+<p>&#x201C;I guess the bat,&#x201D; he said.</p>
+
+<p>Idelfonso Mendez, 23, the accused ringleader and chief interrogator, proceeded to beat the teenager with a bat, the authorities say; the beating may have been blunted by the bat&#x2019;s composition: plastic.</p></blockquote><br>
+The eight suspects were arraigned yesterday and all except two were held without bail.  Steven Carabello and Denis Peitars, both 17, who were not charged in the attack on the 30-year-old (who was beaten, burned, sodomized with a small baseball bat, forced to drink four cans of the strong malt liquor Loko) were granted $100,000 bail.  According to the Times, &quot;Mr. Peitars will testify before a grand jury, according to his court-appointed lawyer, Fred Bittlingmeyer, who said his client had not participated in the sexual abuse and had been only tangentially involved in the attacks. &apos;This was not part of some gang scene,&apos; he said in court. He described the night as a group of people who were drinking together until &apos;one individual let it get out of hand.&apos;&quot; <p></p>
+
+<p>Carabello&apos;s father said, &quot;He&apos;s a good kid. He&apos;s not involved in this,&quot; while the mother of Nelson Falu, 17, <a href="https://web.archive.org/web/20150510002919/http://www.nydailynews.com/news/2010/10/11/2010-10-11_gang_in_gay_tortures_thinks_its_a_big_joke.html">was at the arraignment and said</a>, &quot;I know my son. He&apos;s not like that. I raised a good boy. My son wasn&apos;t there, but my condolences to the family.&quot; And <a href="https://web.archive.org/web/20150510002919/http://www.ny1.com/content/top_stories/126914/ninth-suspect-in-bronx-anti-gay-attacks-to-surrender-to-authorities">NY1 reported </a>that Police Commissioner Kelly said of Vargas-Perez, &quot;We have information from his attorney that he will turn himself in tomorrow. We had that information on Friday and it didn&apos;t happen, that he was going to turn himself in on Friday. If we come into contact with him before Tuesday, we will take him into custody.&quot;</p>					
+										
+									
+				

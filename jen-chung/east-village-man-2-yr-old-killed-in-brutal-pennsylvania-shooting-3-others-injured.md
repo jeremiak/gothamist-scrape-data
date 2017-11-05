@@ -1,0 +1,17 @@
+---
+author: Jen Chung
+date: Jul 4, 2011 12:04 pm
+title: East Village Man, 2-Yr-Old Killed In Brutal Pennsylvania Shooting, 3 Others Injured
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:365px; "> <img alt="2011_07_gilshooting.jpg" src="https://web.archive.org/web/20160405071316im_/http://gothamist.com/attachments/jen/2011_07_gilshooting.jpg" width="365" height="273"> <br> <i>After the shooting (via <a href="https://web.archive.org/web/20160405071316/http://norristown.patch.com/articles/gilbertsville-shooting-victims-identified#photo-6847022">Norristown Patch</a>)</i></div> Late on Saturday night, five people were <a href="https://web.archive.org/web/20160405071316/http://www.nydailynews.com/news/ny_crime/2011/07/03/2011-07-03_east_village_man_and_2yearold_killed_3_wounded_in_pennsylvania_bloodbath.html?r=news&amp;utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A">shot in the head at the Pennsylvania weekend home</a> of an East Village couple. Plumber Paul Shay, 64, and his wife, Pratt professor Monica Shay, 58, who live on East 10th Street, were seriously wounded&#x2014;Monica Shay is not expected to survive&#x2014;while their nephew Joseph Shay, 43, was killed in Douglass Township.  Also slain was 2-year-old Gregory Erdmann III, the son of Joseph Shay&apos;s girlfriend Kathryn Erdmann, who  was wounded.  The Daily News reports, &quot;There have been no arrests, and police have not identified a motive or suspects. The surviving victims have been unable to speak with investigators, officials said.&quot;<br>
+  <br>
+<a href="https://web.archive.org/web/20160405071316/http://abclocal.go.com/wabc/story?section=news/national_world&amp;id=8229146">WABC 7 reports</a>, &quot;Their bodies were discovered in different rooms, suggesting the gunman went from room to room, killing his or her victims execution-style.&quot;  Joseph Shay has an extensive criminal history: The Philadelphia Inquirer says it &quot;[dates] to 1992, when he was sentenced in Atlantic County to 10 years in prison for drug dealing. He was released in 1998, state records show. More recently, he was imprisoned for nearly two years in New York for grand larceny - the theft of $1,000 or more. He was released about a year ago, according to state records.&quot; <p></p>
+
+<p>Joseph Shay had recently been living with his aunt and uncle in the East Village; a neighbor <a href="https://web.archive.org/web/20160405071316/http://www.nypost.com/p/news/local/manhattan/family_bloodbath_rQ5QqDVTDvATSYsfARovSI">told the Post</a>, &quot;He was just coming out of jail, and Paul took him in. He gave him a place to work at his company, A Real Good Plumber.&quot; Another told the Daily News that he had a confrontation with a man in the Shays&apos; East 10th building last week, &quot;They weren&apos;t shouting, but it was a weird confrontation.&quot;</p>
+
+<p><b>Update</b>: There&apos;s a <a href="https://web.archive.org/web/20160405071316/http://www.philly.com/philly/news/breaking/20110704_SWAT_team_surrounds_Trainer__Pa__home.html">standoff outside a house in Trainer, Pennsylvania</a>&#x2014;&quot;Tear gas and percussion bombs were fired by a police SWAT team into a two-story townhouse.&quot; Apparently there may be a connection to the shooting.</p>					
+										
+									
+				

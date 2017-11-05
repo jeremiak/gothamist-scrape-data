@@ -1,0 +1,19 @@
+---
+author: Jen Chung
+date: Aug 17, 2011 6:41 pm
+title: Judge Dismisses Bloomberg LP Pregnancy Discrimination Lawsuit
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="2011_08_maybloom.jpg" src="https://web.archive.org/web/20150525001701im_/http://gothamist.com/attachments/jen/2011_08_maybloom.jpg" width="640" height="435"> <br> <i>Mayor Bloomberg (NYC Mayor&apos;s Office)</i></div> <p></p>
+
+<p>A federal judge has thrown out the class action lawsuit accusing Bloomberg LP of discriminating against women. The Equal Employment Opportunity Commission said that the financial and media service firm owned by Mayor Bloomberg engaged in a &quot;a pattern or practice of demoting and reducing the pay of female employees after they announced their pregnancies and after they took maternity leave,&quot; but <a href="https://web.archive.org/web/20150525001701/http://www.nydailynews.com/ny_local/2011/08/17/2011-08-17_judge_tosses_feds_claims_that_mayor_bloombergs_co_discriminated_employees_for_ma.html">Judge Loretta Preska wrote today</a> that there wasn&apos;t enough evidence, &quot;&apos;J&apos;accuse!&apos; is not enough in court. Evidence is required.&quot;</p>
+
+<p><a href="https://web.archive.org/web/20150525001701/http://www.nypost.com/p/news/local/judge_guts_feds_pregnancy_discrimination_O19lAfvfYApXxkSNi6qSfM">Preska wrote</a>, &quot;The evidence presented in this case is insufficient to demonstrate that discrimination was Bloomberg&apos;s standard operating procedure, even if there were several isolated instances of individual discrimination... Considering the evidence, not the accusations, the court cannot say that the EEOC has proferred evidence from which a factfinder could conclude that Bloomberg engaged in a systemized practice of decreasing the pay, responsibility or other terms and conditions of the employment of pregnant employees and mothers because they became pregnant or took maternity leave,&quot; and actually pointed that the company &quot;increased compensation for women returning from maternity leave more than for those who took similarly lengthy leaves.&quot;  </p>
+
+<p>The <a href="https://web.archive.org/web/20150525001701/http://www.nytimes.com/2011/08/18/nyregion/discrimination-suit-against-bloomberg-lp-is-dismissed.html?_r=1&amp;ref=nyregion">NY Times calls the dismissal of the case</a> a &quot;major victory&quot; for the billionaire&apos;s firm, which has been battling this lawsuit for years.  Former Bloomberg LP employees had claimed that now-former Bloomberg LP CEO Lex Fenwick said, &quot;I&apos;m not having any pregnant bitches work for me,&quot; while one plaintiff said that a Bloomberg News editor Matthew Winkler said women who take maternity leave and then resign after having the baby is &quot;like stealing money from Mike Bloomberg&#x2019;s wallet. It&#x2019;s theft. They should be arrested.&quot; <br>
+ <br>
+Bloomberg has insisted he didn&apos;t know anything about alleged discrimination, since he&apos;s not part of the day-to-day running of the business, but he was <a href="https://web.archive.org/web/20150525001701/http://gothamist.com/2011/04/15/mayor_bloomberg_was_sarcastic_while.php">deposed earlier this year</a> and was pretty sarcastic. The plaintiffs said that he was &quot;responsible for the creation of the systemic, top-down culture of discrimination.&quot;  Cue: <a href="https://web.archive.org/web/20150525001701/http://gothamist.com/2007/09/27/lawsuit_says_bl.php">Bloomberg&apos;s settlement with former Bloomberg LP employee Sekiko Garrison</a>, to whom he allegedly said, &quot;Kill it!&quot; when she said she was pregnant as well as &quot;Great, number 16,&quot; as in Garrison would be the 16th woman to take maternity leave.</p>					
+										
+									
+				

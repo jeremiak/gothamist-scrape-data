@@ -1,0 +1,15 @@
+---
+author: Jen Chung
+date: December  9, 2011  2:53 PM
+title: Tyler Clementi's Roommate Rejects Plea Deal
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="052311ravi.jpg" src="https://web.archive.org/web/20120118132647im_/http://gothamist.com/attachments/nyc_arts_john/052311ravi.jpg" width="640" height="466"> <br> <i>Dharun Ravi, center right, during a court appearance earlier this year (AP)</i></div> <p></p>
+
+<p>Dharun Ravi, who was charged with invasion of privacy, bias intimidation and numerous other counts after his Rutgers University roommate <a href="https://web.archive.org/web/20120118132647/http://gothamist.com/2010/09/29/rutgers_student_spy_on_dorm_room_se.php">Tyler Clementi killed himself</a>, <a href="https://web.archive.org/web/20120118132647/http://www.nj.com/news/index.ssf/2011/12/do_not_publish_--_dharun_ravi.html">refused to take a plea deal</a> today.  <a href="https://web.archive.org/web/20120118132647/http://www.nydailynews.com/news/national/dharun-ravi-suspected-spying-gay-roommate-rutgers-rejects-plea-deal-article-1.989220">Ravi&apos;s lawyer said</a>, &#x201C;Simple answer, simple principle. He&#x2019;s innocent. He&#x2019;s not guilty. That&#x2019;s why he rejected the plea.&#x201D;</p>
+
+<p>Ravi allegedly turned on his webcam and spied on Clementi kissing and embracing another man in their dorm room; he also Tweeted about seeing his roommate &quot;making out with a dude.&quot;  Ravi had <a href="https://web.archive.org/web/20120118132647/http://gothamist.com/2011/08/13/tyler_clementis_roommate_dharun_rav.php">tried to dismiss charges</a>, pointing out that Ravi apologized to Clementi via text, &quot;I&#x2019;ve known you were gay and I have no problem with it. I don&#x2019;t want your freshman year to be ruined because of a petty misunderstanding, it&#x2019;s adding to my guilt.&quot;  But Clementi <a href="https://web.archive.org/web/20120118132647/http://gothamist.com/2010/09/29/rutgers_students_appalled_over_vide.php">jumped off the George Washington Bridge to his death</a>.</p>
+
+<p>Prosecutors would have offered him probation, plus 600 hours of community service, counseling on cyber-bullying and alternative lifestyles, in exchange for pleading &quot;guilty to one count of bias intimidation and several counts of invasion of privacy&quot; as well as disposing of information about the other man.  Additionally, the state would have tried to <a href="https://web.archive.org/web/20120118132647/http://www.nydailynews.com/news/national/dharun-ravi-suspected-spying-gay-roommate-rutgers-rejects-plea-deal-article-1.989220">help him avoid deportation</a> (Ravi is an Indian citizen). Ravi&apos;s friend, Molly Wei, <a href="https://web.archive.org/web/20120118132647/http://gothamist.com/2011/05/06/tyler_clementi_case_molly_wei_accep.php">agreed to a plea deal</a> and to testify against Ravi.  </p>
+
+<p>The trial will begin on February 21.</p>

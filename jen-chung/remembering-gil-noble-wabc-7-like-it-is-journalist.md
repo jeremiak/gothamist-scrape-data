@@ -1,0 +1,29 @@
+---
+author: Jen Chung
+date: Apr 7, 2012 5:25 pm
+title: Remembering Gil Noble, WABC 7 "Like It Is" Journalist
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2012_02_gilnoble.jpg" src="https://web.archive.org/web/20160428150901im_/http://gothamist.com/attachments/jen/2012_02_gilnoble.jpg" width="365" height="281" class="image-left"> </span>Earlier this week, pioneering black journalist Gil Noble passed away at age 80 in a NJ hospital.  Harlem native Noble&#x2014;who had a stroke last year&#x2014;was as <a href="https://web.archive.org/web/20160428150901/http://www.nydailynews.com/entertainment/television/gil-noble-opened-doors-broadcasting-footsteps-article-1.1057403?localLinksEnabled=false">the Daily News puts it</a>, &quot;one of the first black reporters in the mainstream media when he went to work at Ch. 7/WABC in 1967.&quot; He is best known for his public affairs program, &quot;Like It Is.&quot;</p>
+
+<p>He started at the station as a reporter, and then became a weekend anchor in 1968.  <a href="https://web.archive.org/web/20160428150901/http://abclocal.go.com/wabc/story?section=news&amp;id=8609635">According to WABC 7&apos;s obituary</a>, &quot;Later that year he became host of &apos;Like It Is.&apos; Debuting amid the nation&apos;s racial turmoil in the 1960s, &apos;Like It Is&apos; created the largest body of programs and documentaries on African-Americans in the country. Noble dedicated long hours of research and investigation to ensure a consistently high quality for the program. He often said he learned as much doing the show as his viewers did watching it. Noble felt it was his mission to reunite African-Americans with the untold stories of their history, and he believed &apos;Like It Is&apos; offered a rare opportunity for viewers of all races to look at events through an African-American perspective.&quot;</p>
+
+<p>Ed Silverman, who used to be WABC 7&apos;s director of news and public affairs, told the News how Noble was hired, &quot;We decided it was time to get off our a&#x2014;es and hire some African-Americans. TV news was lily white then. There were no black faces,&quot; but there was skepticism. So Silverman said, &quot;When Gil came in for his interview. I said, &#x2018;This conversation doesn&#x2019;t go beyond this room. ... But my a&#x2014; is on the line here. If you f&#x2014; up, I f&#x2014; up.&#x2019; There was this idea then that &#x2018;If you hire &#x2019;em, you can&#x2019;t fire &#x2019;em,&#x201D; for fear of discrimination lawsuits. I told Gil that&#x2019;s bull, and if he didn&#x2019;t do the job, I&#x2019;d fire him. He said he understood.&quot; And it turned out, &quot;He could do anything you gave him.&quot; Noble was one of the <a href="https://web.archive.org/web/20160428150901/http://www.nypost.com/p/entertainment/tv/ch_legend_noble_dead_MN8PmHk06GFai1a03G4n1I?utm_medium=rss&amp;utm_content=TV">original members of the &quot;Eyewitness News Team&quot;</a> and WABC-TV President and General Manager Dave Davis said, &quot;Gil Noble&apos;s life and work had a profound effect on our society and culture. His contributions are a part of history and will be remembered for years to come.&quot; </p>
+
+<p>The <a href="https://web.archive.org/web/20160428150901/http://www.nytimes.com/2012/04/06/business/media/gil-noble-host-of-show-on-black-issues-dies-at-80.html">NY Times&apos; obituary notes</a>, &quot;Though broadcast only in the New York metropolitan area, &apos;Like It Is&apos; attracted guests of national and international influence. Some were controversial. His interviews with figures like Louis Farrakhan of the Nation of Islam drew complaints of one-sidedness. But for Mr. Noble, that was the point: &apos;My response to those who complained that I didn&#x2019;t present the other side of the story was that this show was the other side of the story,&apos; he said in 1982.&quot; </p>
+
+<p>But there were two controversies: Per the Times, &quot;In 1982, the Anti-Defamation League accused Mr. Noble of showing an anti-Israel bias when he broadcast a panel discussion about the Israeli invasion of Lebanon without presenting the Israeli perspective.&quot; Eventually Noble had to air a segment showing the Israel side.  Then, in 1991, City College professor Leonard Jeffries gave <a href="https://web.archive.org/web/20160428150901/http://www.nytimes.com/1991/08/15/nyregion/professor-steps-off-a-plane-into-a-furor-over-his-words.html">speech accusing Jews of racism against blacks</a> and accusing &quot;rich Jews&quot; of financing the slave trade, and Noble wanted to air the entire speech so people could understand the context: &quot;WABC-TV executives shelved the segment, saying it could aggravate racial unrest in the city. As it happened, long-simmering tensions between blacks and Jews in the Crown Heights section of Brooklyn exploded into violence the next week.&quot; </p>
+
+<p>Below are some clips of Noble; the first is an interview with Bob Marley and the second and third are Noble&apos;s thoughts on Malcolm X, whom he interviewed.</p>
+
+<p><iframe width="640" height="480" src="https://web.archive.org/web/20160428150901if_/http://www.youtube.com/embed/Qbvg48jB2RY" frameborder="0" allowfullscreen></iframe></p>
+
+<p><iframe width="640" height="480" src="https://web.archive.org/web/20160428150901if_/http://www.youtube.com/embed/C6kAeCqaAmo" frameborder="0" allowfullscreen></iframe></p>
+
+<p><iframe width="640" height="480" src="https://web.archive.org/web/20160428150901if_/http://www.youtube.com/embed/0XMMSffQyi8" frameborder="0" allowfullscreen></iframe></p>
+
+<p>Here&apos;s a link to a recent video of Noble <a href="https://web.archive.org/web/20160428150901/http://www.rbgtube.com/play.php?vid=8890">speaking with Professor Jeffries</a> about President Obama&apos;s visit to Ghana.</p>					
+										
+									
+				

@@ -1,0 +1,25 @@
+---
+author: Jen Chung
+date: Apr 23, 2012 11:55 am
+title: Supreme Court Refuses To Hear UWS $1,000/Month Rent-Stabilization Case
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="2012_02_32w76.jpg" src="https://web.archive.org/web/20161025143522im_/http://gothamist.com/attachments/jen/2012_02_32w76.jpg" width="640" height="489"> <br> <i>32. West 76th Street in the center</i></div> <p></p>
+
+<p>An Upper West Side townhouse-owning couple&apos;s attempt to <a href="https://web.archive.org/web/20161025143522/http://gothamist.com/2012/03/05/should_uws_woman_with_hamptons_week.php">get the Supreme Court to revoke NYC&apos;s rent stabilization laws</a> has failed, with the country&apos;s highest court <a href="https://web.archive.org/web/20161025143522/http://www.ny1.com/content/top_stories/159880/supreme-court-will-not-hear-nyc-rent-laws-appeal">declining to hear the case</a>.  Which means that James and Jeanne Harmon must keept their rent-stabilized tenant, who pays <a href="https://web.archive.org/web/20161025143522/http://gothamist.com/2012/03/05/should_uws_woman_with_hamptons_week.php">$1,000/month for a one-bedroom on West 76th Street</a>, even though she&apos;s paying another $1,500/month for her Southampton home.</p>
+
+<p>James Harmon inherited the brownstone and its tenants, and had argued that because Nancy Wing Lombardi, who works as a headhunter, is able to pay her mortgage on a second home, he&apos;s effectively helping her pay for that since she&apos;s getting a much cheaper Manhattan rent through the rent-stabilization laws (the market-rate apartment next to Lombardi rents for $2,650/month).  He <a href="https://web.archive.org/web/20161025143522/http://www.nydailynews.com/new-york/upper-west-side-landlord-asks-u-s-supreme-court-free-york-city-rent-stabilization-laws-article-1.988395">told the Daily News,</a> &quot;The issue is whether the Constitution allows the government to force someone to take strangers into their home and to subsidize them for the rest of their lives... My family has carried the burden of this for 40 years and enough is enough.&quot;</p>
+
+<p>The Real Rent Reform Campaign issued a statement:</p><blockquote>We welcome today&apos;s decision by the U.S. Supreme Court not to review the <a href="https://web.archive.org/web/20161025143522/http://www.scotusblog.com/case-files/harmon-v-kimmel/">Harmon v Kimmel case</a>. <br>
+ <br>
+From the beginning, this misguided case was based in a flawed legal interpretation of the Constitution, yet still represented a very real threat to New York&apos;s ability to continue to maintain viable working and middle class housing in a city often defined by wealth. <br>
+ <br>
+Millions of New Yorkers depend on rent regulation for dependable, affordable housing, and the city depends on rent regulation to maintain stable neighborhoods and strong communities.  Rent regulated New Yorkers have a median income of just $37,000, and a court-ordered elimination of rent regulations would have immediately placed their ability to stay in the homes in danger.<br>
+ <br>
+Further, the Harmon&apos;s attempt to upend rent regulations would have set a dangerous precedent for all housing regulations, such as zoning, fire codes and more.  This decision properly respects the right of elected legislators to make such decisions.</blockquote>You can read more from RRRC here (<a href="https://web.archive.org/web/20161025143522/http://library.constantcontact.com/download/get/file/1103863233215-73/Harmon+Background+Information.pdf">PDF</a>), which points out that Harmon bought out his brother&apos;s interest in the townhouse for $1.5 million (giving the whole building a value of $3 million), &quot;Mr. Harmon conveniently ignores the value brought to his property by other regulatory actions, including fire safety and building codes, landmark preservation programs, and stricter zoning regulations - all of which have created and maintained a safe and habitable city, but whose net effect has been to suppress the housing supply and thereby greatly enhance the value of existing structures. Mr. Harmon bought his property under a regulatory system he well understood, and profits handsomely from limitations created by other regulations. If anyone is receiving a windfall from government invention, it is the Harmon family.&quot;  <p></p>
+
+<p>And, according to RRRC, &quot;Contrary to real estate propaganda, rent-stabilized apartments are located throughout the five boroughs. Brooklyn, not Manhattan, has the most, with 295,631 units. Manhattan is second with 264,366. The Bronx has 229,362; Queens 189,021; and Staten Island 8,461. Rent stabilized tenants had a median annual household income of $37,000 in 2010, compared to $75,000 for homeowners.&quot;</p>					
+										
+									
+				

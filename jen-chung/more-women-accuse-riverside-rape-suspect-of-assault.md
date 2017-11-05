@@ -1,0 +1,15 @@
+---
+author: Jen Chung
+date: Aug 6, 2010 5:50 pm
+title: More Women Accuse Riverside Rape Suspect Of Assault
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:200px; "> <img alt="2010_07_akassymug.jpg" src="https://web.archive.org/web/20151224095051im_/http://gothamist.com/attachments/jen/2010_07_akassymug.jpg" width="200" height="228"> <br> <i>Hugues-Denver Akassy&apos;s mugshot</i></div> After the Manhattan DA&apos;s office asked if anyone had information about a man <a href="https://web.archive.org/web/20151224095051/http://gothamist.com/2010/07/30/woman_raped_by_date_in_riverside_pa.php">accused of raping a woman</a> in Riverside Park, at least 10 more women have come forward.  This is an addition to <a href="https://web.archive.org/web/20151224095051/http://gothamist.com/2010/08/01/riverside_rape_suspect_eyed_in_othe.php">three <em>other</em> incidents</a> of allegedly trespassing and harassing women. A source <a href="https://web.archive.org/web/20151224095051/http://www.nydailynews.com/news/ny_crime/2010/08/06/2010-08-06_more_accuse_fake_reporter_of_being_sex_predator.html">tells the Daily News</a>, &quot;Women are calling every day, saying he stalked or harassed or in several other cases, attacked them. This was his real profession - harassing women.&quot;  In fact, a Gothamist reader thanked us for posting the <a href="https://web.archive.org/web/20151224095051/http://www.manhattanda.org/whatsnew/press/2010-07-30.shtml">Manhattan DA&apos;s office contact information</a>, because she said she had a scary run-in with Akassy, too.<p></p>
+
+<p>&quot;Multiple cases&quot; were presented during a grand jury hearing, though the <a href="https://web.archive.org/web/20151224095051/http://www.nypost.com/p/news/local/multiple_women_join_in_accusing_nly1HubrOGGSwolZlDuLyM">Post says</a> it&apos;s unclear whether one of them was the assistant DA who was <a href="https://web.archive.org/web/20151224095051/http://www.nydailynews.com/news/ny_crime/2010/08/03/2010-08-03_rape_suspect_attacked_me_too_prosecutor_sez.html">reportedly one of Akassy&apos;s alleged victims</a>.  Akassy&apos;s lawyer said that his client, who claims he is a <a href="https://web.archive.org/web/20151224095051/http://www.orbitetv.org/hostbio.html">TV reporter</a> (but he&apos;s now apparently homeless&#x2014;he was caught sleeping outside one woman&apos;s window), will testify on Monday and Akassy will say that the encounters were all consensual.  </p>
+
+<p>During the hearing, a prosecutor detailed the events leading up to, during, and after the allegd Riverside Park rape&#x2014;&quot;The defendant said that he wanted to show the victim a view of the trains nearby by the Westside Highway&quot; but instead he allegedly attacked the woman&#x2014;while Akassy&apos; lawyer said, &quot;These people were out on a date, and then this woman had a change of heart.&quot;</p>					
+										
+									
+				

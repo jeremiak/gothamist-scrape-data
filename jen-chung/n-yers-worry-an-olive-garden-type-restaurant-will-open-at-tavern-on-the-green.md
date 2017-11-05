@@ -1,0 +1,20 @@
+---
+author: Jen Chung
+date: Nov 5, 2011 11:35 am
+title: NYers Worry An Olive Garden-Type Restaurant Will Open At Tavern On The Green
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="201102_crystalroom.jpg" src="https://web.archive.org/web/20170418022021im_/http://gothamist.com/attachments/garth/201102_crystalroom.jpg" width="640" height="481"> <br> <i>The Tavern on the Green&apos;s famous Crystal Room is no more.</i></div> <p></p>
+
+<p>What do you do with a problem like Tavern on the Green? The critically-reviled but beloved-to-tourist restaurant in Central Park, has been <a href="https://web.archive.org/web/20170418022021/http://gothamist.com/2009/12/30/anybody_want_to_buy_tavern_on_the_g.php">closed for over two years</a> ago, and the Parks Department <a href="https://web.archive.org/web/20170418022021/http://gothamist.com/2009/02/02/parks_calls_for_proposals_for_taver.php">tried to put a restaurant there</a>, but only managed to turn the building into a visitors center with <a href="https://web.archive.org/web/20170418022021/http://gothamist.com/2011/06/10/central_park_food_truck_now_with_bo.php">food trucks in the courtyard</a>. Now, the <a href="https://web.archive.org/web/20170418022021/http://gothamist.com/2011/09/23/food_trucks_out_at_tavern_on_the_gr.php">food trucks are out</a>, and the Parks Department says they are<a href="https://web.archive.org/web/20170418022021/http://www.dnainfo.com/20111104/upper-east-side/residents-object-casual-dining-at-tavern-on-green"> looking for a &quot;high quality casual restaurant and outdoor caf&#xE9;&quot;</a> which has community members freaked out.</p>
+
+<p><a href="https://web.archive.org/web/20170418022021/http://www.dnainfo.com/20111104/upper-east-side/residents-object-casual-dining-at-tavern-on-green">DNAinfo was at a Community Board 8 meeting</a> where the Parks Department said they were looking for &quot;high quality casual&quot; dining bids, and one member was aghast at the prospect, &quot;My family didn&#x2019;t go there for the food. They went there for the experience. Why would you want to stray from a model that was successful and go to something casual, which can find all over the park?&quot; Yeah, just give people crappy food in the old Tavern on the Green and everyone will be happy!</p>
+
+<p>Tavern was the <a href="https://web.archive.org/web/20170418022021/http://gothamist.com/2009/04/15/new_tavern_on_the_green_will_get_ne.php">#2 highest- grossing <br>
+restaurant in American in 2008</a>, but Parks Department Director of Concessions Charles Kloth explained that there was high overhead as well that ate into profitability. With a casual restaurant concept, there would be more flexibility (like having a tapas bar in one area) for culinary and financial options. Another bombshell: No Crystal Room, the gaudy (yet magical) space removed after the restaurant closed&#x2014; <a href="https://web.archive.org/web/20170418022021/http://gothamist.com/2011/02/01/trump_wants_tavern_his_way_or_not_a.php">Donald Trump had said</a> he&apos;d be interested in running a restaurant with the Crystal Room back.</p>
+
+<p>Another member suggested the Parks Department eliminate &quot;casual&quot; from any RFP, lest a &quot;casual dining&quot; operation (these <a href="https://web.archive.org/web/20170418022021/http://en.wikipedia.org/wiki/List_of_casual_dining_restaurant_chains">kinds of restaurant are &quot;casual dining&quot;</a>) get the wrong idea.  The Parks Department said it would consider that&#x2014;and the RFPs would be going out shortly.  Watchdog group NYC Parks Advocates&apos;s Geoffrey Croft<a href="https://web.archive.org/web/20170418022021/http://dinersjournal.blogs.nytimes.com/2011/11/04/city-will-take-bids-for-a-casual-replacement-for-tavern-on-the-green"> told Diners Journal</a> that the Parks Dept.&apos;s about-face seemed &quot;pretty sketchy... But the city has lost millions since Tavern has gone dark. There should have been a restaurant there.&quot;</p>					
+										
+									
+				

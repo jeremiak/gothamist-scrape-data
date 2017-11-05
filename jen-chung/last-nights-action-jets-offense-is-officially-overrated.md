@@ -1,0 +1,11 @@
+---
+author: Jen Chung
+date: November  1, 2010  8:27 AM
+title: Last Night's Action: Jets' Offense Is Officially Overrated
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="2010_10_lnajets1.jpg" src="https://web.archive.org/web/20120602130846im_/http://gothamist.com/attachments/jen/2010_10_lnajets1.jpg" width="640" height="426"> <br> <i>Mark Sanchez gets sacked by the Packers&apos; Brandon Chillar (AP)</i></div> <p></p>
+
+<p><a href="https://web.archive.org/web/20120602130846/http://www.nypost.com/p/sports/jets/gang_green_goodie_bags_empty_PJXYJBooOob5IpxGLFaGPL">Packers 9 Jets 0</a>:  It was all trick during the Jets&apos; home game against Green Bay, as Gang Green&apos;s five-game winning streak was broken during this shut-out loss.  There were three turnovers, two interceptions, and a half-dozen dropped passes.  And Jets punter Steve Weatherford faked a punt and ran on a fourth-and-18 from the Jets 20-year line and was a half yard short, allowing the Packers to take control and make a field goal. Apparently Weatherford had no idea <a href="https://web.archive.org/web/20120602130846/http://espn.go.com/blog/new-york/jets/post/_/id/2595/when-in-doubt-punt-dont-run">how many yards he needed for a first down</a>!  </p>
+
+<p><a href="https://web.archive.org/web/20120602130846/http://www.nj.com/nets/index.ssf/2010/10/in_101-78_win_over_nj_nets_mia.html">Heat 101 Nets 78</a>: It was less a match-up and more an East Coast unveiling of the Big Three. LeBron James, Dwayne Wade and Chris Bosh waltzed into the Prudential Center and grilled the Nets with a combined 55 points. Nets coach Avery Johnson said, &#x201C;I told my team, during the course of the year, you&#x2019;ve got two, or three, or four games where you&#x2019;re not very good. And this is one of them. We just weren&#x2019;t very good tonight &#x2014; from the start. We were stuck in mud; we were stuck in second gear. We just couldn&#x2019;t get anything going.&#x201D;</p>

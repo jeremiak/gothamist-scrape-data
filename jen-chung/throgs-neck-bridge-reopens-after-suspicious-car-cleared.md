@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: July 29, 2010  8:13 AM
+title: Throgs Neck Bridge Reopens After "Suspicious" Car Cleared
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <a href="https://web.archive.org/web/20120605080725/http://gothamist.com/attachments/jen/2010_07_throgsn.jpg"> <img alt="2010_07_throgsn.jpg" src="https://web.archive.org/web/20120605080725im_/http://gothamist.com/assets_c/2010/07/2010_07_throgsn-thumb-200x171-533195.jpg" width="110" height="94" class="image-right"> </a> </span>Earlier this morning, around 6 a.m., the Throgs Neck Bridge was closed due to a suspicious vehicle. <a href="https://web.archive.org/web/20120605080725/http://wcbstv.com/topstories/throgs.neck.bridge.2.1831133.html">According to WCBS 2</a>, &quot;A black Nissan was discovered underneath the bridge with its engine running and the bomb squad was notified as a precaution.&quot;  The bridge reopened after no explosives were discovered, but since traffic was diverted for about two hours, expect delays (see the <a href="https://web.archive.org/web/20120605080725/http://webcam.mta.info/mta3/throgs.jsp">webcams</a>).  It&apos;s unclear if the police have found the car&apos;s owner and/or driver.</p>

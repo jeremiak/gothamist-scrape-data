@@ -1,0 +1,19 @@
+---
+author: Jen Chung
+date: September 19, 2011  6:40 PM
+title: Extra, Extra: The Bean Is Roasted (For Now)
+---
+
+<span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <div class="image-none" style=" width:640px; "> <img alt="2011_09_xx0919.jpg" src="https://web.archive.org/web/20111014151720im_/http://gothamist.com/attachments/jen/2011_09_xx0919.jpg" width="640" height="421"> <br> <i>Photograph by <a href="https://web.archive.org/web/20111014151720/http://www.flickr.com/photos/joelzimmer/6157914092/in/pool-97886303@N00/">JoelZimmer on Flickr</a></i></div> </span><ul><li>Follow Gothamist <a href="https://web.archive.org/web/20111014151720/http://twitter.com/#!/gothamist">on Twitter</a> and <a href="https://web.archive.org/web/20111014151720/http://www.facebook.com/pages/Gothamist/13927915491">like us on Facebook</a>.  You can also get the top stories mailed to you&#x2014;<a href="https://web.archive.org/web/20111014151720/http://eepurl.com/Mu4T">sign up here</a>.</li>
+	<li>The Bean <a href="https://web.archive.org/web/20111014151720/http://www.dnainfo.com/20110919/lower-east-side-east-village/east-village-coffee-shop-bean-makes-way-for-starbucks">has officially closed today</a> to make <a href="https://web.archive.org/web/20111014151720/http://gothamist.com/2011/09/14/starbucks_displacing_east_village_c.php">way for a Starbucks</a>.</li>
+	<li>A Brooklyn woman was found dead in a Midwood apartment yesterday and now cops <a href="https://web.archive.org/web/20111014151720/http://www.nydailynews.com/news/ny_crime/2011/09/19/2011-09-19_brooklyn_woman_found_shot_dead_in_her_home_police_hunting_for_roommate.html?r=news&amp;utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+nydnrss%2Fnews+%28News%29&amp;utm_content=Google+Reader">are looking for her roommate</a>.</li>
+	<li>Governor Cuomo claims he has no idea <a href="https://web.archive.org/web/20111014151720/http://208.7.160.123/blogs/dailypolitics/2011/09/cuomo-on-bigger-senate-i-know-nothing">about plans for a bigger State Senate</a>.</li>
+	<li>A <a href="https://web.archive.org/web/20111014151720/http://newyork.cbslocal.com/2011/09/19/horse-leads-police-on-wild-chase-through-harlem-during-african-american-day-parade/">horse got loose during</a> yesterday&apos;s African American Day Parade in Harlem. Luckily, the horse was caught and seems okay.</li>
+<li>Mark Wahlberg thinks <a href="https://web.archive.org/web/20111014151720/http://www.people.com/people/article/0,,20529723,00.html">there will be an <em>Entourage</em> movie</a>.</li>
+	<li>Ratings-wise, football <a href="https://web.archive.org/web/20111014151720/http://artsbeat.blogs.nytimes.com/2011/09/19/n-f-l-beats-emmy-awards-in-ratings/">bested the Emmys</a>.</li>
+	<li>University of Pennsylvania students learned their teacher was dead <a href="https://web.archive.org/web/20111014151720/http://gawker.com/5841838/students-told-their-professor-is-dead-while-waiting-for-his-class-to-start">while they were waiting for him to appear</a>.</li>
+	<li>Finally, Billy Ray Cyrus <a href="https://web.archive.org/web/20111014151720/http://insidetv.ew.com/2011/09/19/90210-scoop-billy-ray-cyrus-will-play-exclusive/">will appear on 90210</a>.</li>
+	<li><a href="https://web.archive.org/web/20111014151720/http://blogs.villagevoice.com/runninscared/2011/09/urbanbaby_moms.php">Another reason to hate Urban Baby</a>.</li>
+	<li>Getting <a href="https://web.archive.org/web/20111014151720/http://www.theawl.com/2011/09/oh-the-gay-divorces?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+TheAwl+%28The+Awl%29&amp;utm_content=Google+Reader">ready for gay divorce stories</a>.</li>
+	<li>And you can rent Edna St. Vincent Millay&apos;s narrow house <a href="https://web.archive.org/web/20111014151720/http://ny.curbed.com/archives/2011/09/19/nycs_narrowest_house_now_renting_for_14000month.php">for $14,000/month</a>.  </li>
+</ul>

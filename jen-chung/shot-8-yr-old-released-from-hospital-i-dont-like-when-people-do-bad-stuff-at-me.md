@@ -1,0 +1,11 @@
+---
+author: Jen Chung
+date: February 28, 2012 12:25 PM
+title: Shot 8-Yr-Old Released From Hospital: "I Don’t Like When People Do Bad Stuff At Me"
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:365px; "> <img alt="2012_02_armanbigo.jpg" src="https://web.archive.org/web/20120301065855im_/http://gothamist.com/attachments/jen/2012_02_armanbigo.jpg" width="365" height="243"> <br> <i>Armando talks to WCBS 2</i></div> The 8-year-old boy <a href="https://web.archive.org/web/20120301065855/http://gothamist.com/2012/02/24/8-year-old_on_being_shot_it_felt_ba.php">who was shot at a Bronx store</a> last week was finally released from the hospital yesterday. However, Armando Bigo will have to <a href="https://web.archive.org/web/20120301065855/http://www.nydailynews.com/new-york/bronx/armando-bigo-8-year-old-bronx-boy-wounded-a-bodega-shooting-leaves-hospital-monday-article-1.1029572">live with having a bullet in his shoulder</a> for the rest of his life. The second-grader was relieved to leave the hospital, telling the Daily News, &quot;<strong>It&apos;s boring.</strong>&quot;<p></p>
+
+<p>Police arrested 15-year-old Eduardo Rodriguez for the bike-by shooting; he is <a href="https://web.archive.org/web/20120301065855/http://gothamist.com/2012/02/27/15-year-old_accused_of_shooting_8-y.php">being held on $250,000 bail</a>. It&apos;s suspected that Rodriguez was <a href="https://web.archive.org/web/20120301065855/http://gothamist.com/2012/02/25/police_arrest_15-year-old_for_shoot.php">trying to hit a member of a rival gang</a>.</p>
+
+<p>The little boy <a href="https://web.archive.org/web/20120301065855/http://newyork.cbslocal.com/2012/02/27/8-year-old-bodega-shooting-victim-finally-out-of-the-hospital/">also spoke to WCBS 2</a>, &quot;I don&#x2019;t like when people [are] trying to do bad stuff at me,&#x201D; and reiterated his happiness to out of the hospital, &quot;I thought I was going to stay there forever.&quot;  He added to the News, &quot;I&#x2019;m not really nervous to go home. I&apos;m upset with (the shooter) because he shot me. It was stupid.&quot;</p>

@@ -1,0 +1,24 @@
+---
+author: Jen Chung
+date: Feb 24, 2012 3:45 PM
+title: "Malicious" Or "Stupid": Trial Of Tyler Clementi's Roommate Begins
+---
+
+
+                            
+                            
+                            
+                            <p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="2012_02_dravi.jpg" src="https://web.archive.org/web/20131214073125im_/http://gothamist.com/attachments/jen/2012_02_dravi.jpg" width="640" height="426"> <br> <i>Dharun Ravi and his family arrive at court (AP)</i></div> <p></p>
+
+<p>Today, the trial of the former Rutgers college student accused of spying on his gay roommate&apos;s intimate encounter via a webcam began in New Brunswick. <a href="https://web.archive.org/web/20131214073125/http://www.nj.com/news/index.ssf/2012/02/sides_paint_different_pictures.html">A prosecutor said of Dharun Ravi</a>, &quot;These acts were purposeful, they were intentional and they were planned. They were mean-spirited, they were malicious, and they were criminal,&quot; but his lawyer said, &quot;He&apos;s an 18-year-old boy... You gotta put that in perspective... I can&apos;t stand here and tell you Dharun didn&apos;t act like a boy...  We all do stupid things in our lives and we all make mistakes. It doesn&apos;t mean we&apos;re hateful and we&apos;re bigoted or we&apos;re a criminal. Dharun never intimidated anyone.&quot;</p>
+
+<p>Dharun Ravi and Tyler Clementi were freshman year roommates in fall of 2010.  Clementi found out that Ravi had been <a href="https://web.archive.org/web/20131214073125/http://gothamist.com/2010/09/29/rutgers_student_spy_on_dorm_room_se.php">streaming his private moments in their room</a>&#x2014;Ravi was in a friend&apos;s room&#x2014;and <a href="https://web.archive.org/web/20131214073125/http://gothamist.com/2010/09/29/rutgers_students_appalled_over_vide.php">later jumped off the George Washington Bridge</a>.  Clementi&apos;s death <a href="https://web.archive.org/web/20131214073125/http://gothamist.com/2010/10/02/tyler_clementis_death_galvanizes_lg.php">galvanized LGBT activists</a> and <a href="https://web.archive.org/web/20131214073125/http://gothamist.com/2010/10/07/lautenberg_proposes_anti-bullying_l.php">raised questions about bullying</a>.  </p>
+
+<p>Ravi, now 19, <a href="https://web.archive.org/web/20131214073125/http://www.nj.com/newsflash/index.ssf/story/opening-statements-due-in-nj-webcam-spying/8bf439ad47fa49ae92a73ad999ffc2db">faces charges including</a> &quot;invasion of privacy and bias intimidation, a hate crime punishable by up to 10 years in state prison.&quot;  Charges against his friend, Molly Wei, who watched Clementi and his unnamed companion from her room with Ravi, <a href="https://web.archive.org/web/20131214073125/http://gothamist.com/2011/05/06/tyler_clementi_case_molly_wei_accep.php">were dropped</a> and she will testify for the prosecution. A jury of fifteen people&#x2014;eight women, seven men (one man was dismissed before the trial this morning for unknown reasons)&#x2014;will hear the case and then jurors deciding the case will be randomly selected.</p>
+
+<p><a href="https://web.archive.org/web/20131214073125/http://www.nj.com/news/index.ssf/2012/02/sides_paint_different_pictures.html">Assistant Prosecutor Julia McClure said the webcam spying</a> &quot;was like opening the blinds of the window of that room. He left the blinds open and he opened and encouraged other people to look through those blinds.&quot; She added, &quot;These counts of invasion of privacy on [September] 19th and the attempted count of invasion of privacy on the 21st were motivated by the fact that Tyler and his guest, who was a male, were homosexual.&quot; But Ravi&apos;s lawyer Steve Altman said that Ravi is &quot;not a homophobic, not anti-gay. He never harassed his roommate. There was no bullying.&quot;</p>
+
+<p>The New Yorker had a <a href="https://web.archive.org/web/20131214073125/http://www.newyorker.com/reporting/2012/02/06/120206fa_fact_parker?currentPage=all">long feature that described</a> Clementi&apos;s and Ravi&apos;s apparent relationship as roommates and the events surrounding the various broadcasts of Clementi&apos;s dates:  Clementi said online before the final instance where his private encounter was filmed, &quot;I feel like the only thing the school might do is find me another roommate, probably with me moving out ... and i&#x2019;d probably just end up with somebody worse than him... I mean aside from being an asshole from time to time, he&#x2019;s a pretty decent roommate.&quot;  </p>
+                            
+                            
+                            

@@ -1,0 +1,16 @@
+---
+author: Jen Chung
+date: October 29, 2011  2:13 PM
+title: After 4 Months In Egyptian Prison, Queens Man Wants His IHOP Pancakes
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="2011_10_grapel.jpg" src="https://web.archive.org/web/20111101203626im_/http://gothamist.com/attachments/jen/2011_10_grapel.jpg" width="640" height="431"> <br> <i>Ilan Grapel today at JFK Airport, with Rep. Gary Ackerman (AP)</i></div> <p></p>
+
+<p>A few days ago, Queens resident and Emory Law student Ilan Grapel was <a href="https://web.archive.org/web/20111101203626/http://gothamist.com/2011/10/27/queens_student_accused_of_spying_fo.php">released from Egypt</a>, after Egyptian authorities claimed he was actually an Israeli spy and arrested him in June. While his friends and family have denied the spying allegations, Israel agreed to release 25 Egyptian prisoners in exchange for the 27-year-old. Today, Grapel landed back home in New York and <a href="https://web.archive.org/web/20111101203626/http://www.nydailynews.com/new-york/queens/israeli-american-queens-law-student-ilan-grapel-arrives-home-nyc-ordeal-egyptian-custody-article-1.968855?localLinksEnabled=false">had one thing on his mind</a>: &quot;What I have not had are chocolate chip pancakes from IHOP.&quot;</p>
+
+<p>At an earlier press conference in Israel, Grapel, who has dual U.S.-Israeli citizenship, expressed his gratitude to the Israeli people, adding, &#x201C;There&#x2019;s so many people to thank, and after being cut off for the past five months ...&#x201D; only for <a href="https://web.archive.org/web/20111101203626/http://www.nypost.com/p/news/international/amazin_prank_on_ilan_ZcanvzsYqnzDM3KwJMwptM?CMP=OTC-rss&amp;FEEDNAME=">Rep. Gary Ackerman to play a terrible trick on him</a>:</p><blockquote>Ackerman quickly interjected, &#x201C;We told him the Mets won the World Series.&#x201D;<br>
+Grapel, a sports fan, shot Ackerman a big smile -- only to quickly feel the let-down most Mets fans are all too familiar with when he quickly figured out that the team had tanked -- again.<p></p>
+
+<p>When Grapel was arrested in Egypt on dubious spying charges on June 12, the Mets&#x2019; won-lost record was 32-33 and the Amazin&#x2019;s still had dreams of playing in October.</p></blockquote>Of course, we know the Mets&apos; season ended in the usual ignominy while the Cardinals went from a wild card playoff spot to <a href="https://web.archive.org/web/20111101203626/http://www.stltoday.com/sports/baseball/professional/article_2ef54a68-47af-5cb8-9d90-ae82889e4ecd.html">winning their 11th title</a>.  Ackerman also scoffed at insinuation that Grapel was an Israeli spy, saying he&apos;s more &quot;<a href="https://web.archive.org/web/20111101203626/http://www.ajc.com/news/nation-world/us-israeli-man-accused-1212601.html">the kind of kid who might have been at Zuccotti Park</a>.&quot; <p></p>
+
+<p>Grapel also said of his experience, &quot;All of a sudden, the Bill of Rights is not something for the history books.&quot;  As for his other culinary demands, his parents <a href="https://web.archive.org/web/20111101203626/http://www.nypost.com/p/news/local/queens/freedom_pizza_for_qns_kid_AJB5sBN0XcTHGeftLSSDNI">might take him to Nick&apos;s in Forest Hills for pizza</a>.</p>

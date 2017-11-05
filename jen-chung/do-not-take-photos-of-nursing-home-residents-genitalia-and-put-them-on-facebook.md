@@ -1,0 +1,11 @@
+---
+author: Jen Chung
+date: March 15, 2012  6:35 PM
+title: Do Not Take Photos Of Nursing Home Resident's Genitalia And Put Them On Facebook
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:365px; "> <img alt="2012_02_facebook.jpg" src="https://web.archive.org/web/20120316023828im_/http://gothamist.com/attachments/jen/2012_02_facebook.jpg" width="365" height="274"> <br> <i><a href="https://web.archive.org/web/20120316023828/http://www.shutterstock.com/gallery-401914p1.html?cr=00&amp;pl=edit-00">1000 Words</a> / <a href="https://web.archive.org/web/20120316023828/http://www.shutterstock.com/?cr=00&amp;pl=edit-00">Shutterstock.com</a></i></div> The NJ Attorney General&apos;s office announced that a certified nursing assistant and her friend were charged with third-degree invasion of privacy and third-degree conspiracy in a scheme that involved the nursing assistant taking a photograph of a nursing home patient&apos;s genitalia...and then sending it to her friend who then put it on Facebook.<p></p>
+
+<p>Helien Williams, 26, worked at CareOne in Livingston, NJ.  <a href="https://web.archive.org/web/20120316023828/http://www.nj.gov/oag/newsreleases12/pr20120315b.html">According to the NJ AG&apos;s office</a>, Williams allegedly &quot;took a photograph with her cell phone of an elderly resident&#x2019;s genitalia and sent the photo to&quot; Michele Walker, 21. &quot;Walker allegedly then posted the photograph on her Facebook page. Williams was terminated from her position at CareOne at Livingston as a result of the alleged incident.&quot;</p>
+
+<p>Acting Insurance Fraud Prosecutor Ronald Chillemi said, &quot;The Medicaid Fraud Control Unit is not only committed to investigating and prosecuting Medicaid fraud but also to protecting the dignity of the beneficiaries which the program serves, who are often the most vulnerable members of our population. No one should be made to suffer humiliation, particularly at the hands of someone responsible for his or her care.&quot;  </p>

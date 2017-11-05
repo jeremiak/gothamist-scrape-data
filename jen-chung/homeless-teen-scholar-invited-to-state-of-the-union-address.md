@@ -1,0 +1,12 @@
+---
+author: Jen Chung
+date: January 17, 2012  2:48 PM
+title: Homeless Teen Scholar Invited To State Of The Union Address
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <a href="https://web.archive.org/web/20120131151021/http://gothamist.com/attachments/jen/2012_01_sgarvey.jpg"> <img alt="2012_01_sgarvey.jpg" src="https://web.archive.org/web/20120131151021im_/http://gothamist.com/assets_c/2012/01/2012_01_sgarvey-thumb-365x291-687142.jpg" width="300" height="239" class="image-left"> </a> </span>Awww: Samantha Garvey, the Long Island teen whose <a href="https://web.archive.org/web/20120131151021/http://gothamist.com/2012/01/12/inspiring_homeless_li_student_named.php">story of academic success amid family difficulty inspired many</a>, may be headed to Washington D.C. for the State of the Union Address.  Rep. Steve Israel invited Garvey to be his guest; he <a href="https://web.archive.org/web/20120131151021/http://www.newsday.com/long-island/suffolk/intel-semifinalist-samantha-garvey-invited-to-washington-1.3456949?qr=1">told Newsday</a>, &quot;The State of the Union attracts the most powerful people on Earth, but I really think Samantha can teach them all a lesson in perseverance.&quot;</p>
+
+<p>Garvey is one of 300 semi-finalists in the prestigious Intel Science Talent Search.  Newsday featured her on its front cover, noting that her family is currently living in a homeless shelter ever since they were kicked out of their home at the start of the year (her parents were in a car accident last year, causing work issues).  Her plight, and determination, prompted Suffolk County officials <a href="https://web.archive.org/web/20120131151021/http://gothamist.com/2012/01/13/homeless_teen_scholar_inspires_outp.php">to find a home for them</a>.   </p>
+
+<p>Her father implied his daughter was heading there, &quot;She can&apos;t wait. She deserves it. She needs to meet people like that.&quot;  Israel isn&apos;t sure if President Obama will note her in the speech but he said, &quot;She is the epitome of the American dream. She worked hard and she is a story that I want to share with my colleagues and even with the president of the United States.&quot;<br>
+</p>

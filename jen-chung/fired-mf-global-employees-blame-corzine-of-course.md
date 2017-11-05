@@ -1,0 +1,28 @@
+---
+author: Jen Chung
+date: Nov 12, 2011 2:55 PM
+title: Fired MF Global Employees Blame Corzine (Of Course)
+---
+
+
+                            
+                            
+                            
+                            <p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <a href="https://web.archive.org/web/20131214114100/http://gothamist.com/attachments/jen/2011_11_jonmfglnyp.jpg"> <img alt="2011_11_jonmfglnyp.jpg" src="https://web.archive.org/web/20131214114100im_/http://gothamist.com/assets_c/2011/11/2011_11_jonmfglnyp-thumb-600x617-674661.jpg" width="350" height="359" class="image-left"> </a> </span>Yesterday, troubled brokerage <a href="https://web.archive.org/web/20131214114100/http://gothamist.com/tags/mfglobal">MF Global</a> fired its <a href="https://web.archive.org/web/20131214114100/http://dealbook.nytimes.com/2011/11/11/mf-global-lays-off-vast-majority-of-broker-dealer-employees/">1,066 employees in the broker-dealer operations</a> as the bankrupt firm tries to find $600 million in investor funds that have essentially disappeared.  And apparently some employees found out they were canned from the media.</p>
+
+<p>While the trustee in charge had issued a press release about the firings, <a href="https://web.archive.org/web/20131214114100/http://www.bloomberg.com/news/2011-11-11/some-mf-global-workers-said-to-learn-of-firing-from-news-reports.html">Bloomberg News reports</a>, &quot;The ex-employee said he learned he was being fired from Google News. His colleague, who was on the same floor, said he found out he was being fired when his father called him after seeing reports on news wires. With the trustee&#x2019;s news release distributed at 11:43 a.m. New York time, not all employees had been told personally they had lost their jobs, the first employee said.&quot;</p>
+
+<p>The NY Post, which put the collapse of the firm once headed by former NJ governor and former Goldman Sachs head Jon Corzine on its front page, <a href="https://web.archive.org/web/20131214114100/http://www.nypost.com/p/news/local/laid_off_staff_to_corzine_mf_you_5LWACF3wYHhc33a5SuvU5H?CMP=OTC-rss&amp;FEEDNAME=">was outside MF Global&apos;s NY offices</a> yesterday and got some thoughts from the newly unemployed. One man said, &quot;I have two little kids, it&#x2019;s almost Christmas, the economy stinks -- how am I gonna find a job?&quot; while another said, &quot;<strong>Corzine went to the blackjack table and took a 100 percent bet... He placed bets with people&#x2019;s lives</strong>... Anybody coming out of grad school could have told him not to make those bets... Corzine screwed up really well, and put a lot of people in uncomfortable positions. The lives of so many people have been disrupted.&quot;</p>
+
+<p>The Post adds, &quot;The 1,066 employees will be paid through next Tuesday, and health benefits will run out at the end of November. Bonuses and other financial perks won&#x2019;t be paid, workers said.&quot; <a href="https://web.archive.org/web/20131214114100/http://www.ft.com/cms/s/0/3a6b837a-0c86-11e1-8ac6-00144feabdc0.html#axzz1dalmiEGN">According to the Financial Times</a>, &quot;The redundancies account for about a third of MF Global&#x2019;s 2,800 staff. Many of the remaining employees are based in London.&quot;</p>
+
+<p>Here&apos;s video of one employee Anthony DiMatteo <a href="https://web.archive.org/web/20131214114100/http://www.bloomberg.com/video/80069408/">telling Bloomberg News what he&apos;d do if he saw Corzine</a>. Hint: It involves a fist and a face!</p>
+
+<p>On the other side, investors are anxious.  <a href="https://web.archive.org/web/20131214114100/http://online.wsj.com/article/SB10001424052970204224604577032093166683040.html?mod=WSJ_hp_LEFTWhatsNewsCollection">According to the Wall Street Journal</a>, &quot;Regulators have said MF Global&apos;s messy records have made it hard to tell whether the funds were illicitly moved, held up in transfers, or simply misplaced. Customer assets held on deposit with MF Global were required to be kept separate from the firm&apos;s own funds in segregated accounts.&quot;</p>
+
+<p>Anyway, back to the bashing Corzine, enjoy Jon Stewart&apos;s Daily Show riff from earlier this week&#x2014;keep in mind that Corzine <a href="https://web.archive.org/web/20131214114100/http://gothamist.com/2011/11/04/corzines_collapse_ex-nj_gov_resigns.php">asked regulators not to regulate MF Global&apos;s risky trades</a>.</p>
+
+<center><div style="background-color:#000000;width:520px;"><div style="padding:4px;"><embed src="https://web.archive.org/web/20131214114100oe_/http://media.mtvnservices.com/mgid:cms:video:thedailyshow.com:401773" width="512" height="288" type="application/x-shockwave-flash" allowfullscreen="true" allowscriptaccess="always" base="." flashvars=""><p style="text-align:left;background-color:#FFFFFF;padding:4px;margin-top:4px;margin-bottom:0px;font-family:Arial, Helvetica, sans-serif;font-size:12px;"><b><a href="https://web.archive.org/web/20131214114100/http://www.thedailyshow.com/watch/tue-november-8-2011/the-walking-debt">The Daily Show</a></b><br>Get More: <a href="https://web.archive.org/web/20131214114100/http://www.thedailyshow.com/full-episodes/">Daily Show Full Episodes</a>,<a href="https://web.archive.org/web/20131214114100/http://www.indecisionforever.com/">Political Humor &amp; Satire Blog</a>,<a href="https://web.archive.org/web/20131214114100/http://www.facebook.com/thedailyshow">The Daily Show on Facebook</a></p></div></div></center>
+                            
+                            
+                            

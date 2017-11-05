@@ -1,0 +1,13 @@
+---
+author: Jen Chung
+date: May 23, 2012  3:24 PM
+title: Bridezilla Who Faked Leukemia For Free Wedding Sentenced To Time Served
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <a href="https://web.archive.org/web/20120525154537/http://gothamist.com/attachments/jen/2012_02_jveganostick.jpg"> <img alt="2012_02_jveganostick.jpg" src="https://web.archive.org/web/20120525154537im_/http://gothamist.com/assets_c/2012/04/2012_02_jveganostick-thumb-450x317-706262.jpg" width="350" height="246" class="image-left"> </a> </span>Remember Jessica Vega, the upstate woman who admitted to faking having terminal leukemia so <a href="https://web.archive.org/web/20120525154537/http://gothamist.com/2012/04/10/worst_bridezilla_ever_woman_indicte.php">she could get a free wedding, honeymoon and even cash</a>?  Well, today was her sentencing day and a judge decided that time served, plus five years probation, would be enough.</p>
+
+<p>After the public rallied to help Vega throw a dream wedding with Michael O&apos;Connell on May 2nd, 2010, O&apos;Connell later became suspicious because she didn&apos;t seem to get sick. When he called her doctor&apos;s office, they said she was never a patient there!  Vega and O&apos;Connell had a child but then eventually divorced (they accused each other of abuse) but then they got back to together and had a second child. In spite of her lying, he also supported a lenient sentence for her, &quot;She&apos;s a good mom, and that&apos;s all that counts at the end of the day. I want my kids to have their mother back.&quot;</p>
+
+<p><a href="https://web.archive.org/web/20120525154537/http://www.recordonline.com/apps/pbcs.dll/article?AID=/20120523/NEWS/120529887">In court today, Vega said</a>, &quot;I just want to take the time to apologize to anyone in this courtroom who was offended by the crimes I committed.&quot;  The 25-year-old has already spent eight weeks in jail and was sentenced to five years probation and 300 hours of community service.  Plus, she&apos;ll have to repay all the people who gave her money or goods&#x2014;over $13,000. Attorney General Eric Schneiderman said, &quot;To prey on people&apos;s emotions by pretending to have a terminal illness is unconscionable. I am pleased that the community members, who felt so compelled to generously help a neighbor in need, will be given back their hard earned money.&quot;</p>
+
+<p>The judge said to Vega, &quot;I&apos;m very skeptical of the fact that you, Jessica, were the sole perpetrator,&quot; implying it might have been a wider scheme, but O&apos;Connell said he claimed he didn&apos;t know anything about the fraud. Vega will be living with O&apos;Connell now.</p>

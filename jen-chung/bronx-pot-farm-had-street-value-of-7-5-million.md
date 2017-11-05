@@ -1,0 +1,13 @@
+---
+author: Jen Chung
+date: February  1, 2012  1:50 PM
+title: Bronx Pot Farm Had Street Value Of $7.5 Million
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="potbounty.jpg" src="https://web.archive.org/web/20120201231243im_/http://gothamist.com/attachments/jen/potbounty.jpg" width="640" height="482"> <br> <i>Via 1010 WINS</i></div> <p></p>
+
+<p>Yesterday, police raided a Bronx building which <a href="https://web.archive.org/web/20120201231243/http://gothamist.com/2012/01/31/huge_pot_bust_cops_seize_800_mariju.php">happened to house a five-story marijuana growing operation</a>.  Around 800 plants were seized, the equivalent of over 1500 pounds, including <a href="https://web.archive.org/web/20120201231243/http://origin.ny1.com/content/top_stories/155192/three-charged-with-massive-marijuana-ring-in-the-bronx">75 pounds of dried marijuana</a>. And the street value?  Oh, <a href="https://web.archive.org/web/20120201231243/http://www.nypost.com/p/news/local/bronx/cops_find_bronx_pot_farm_G6LJGC7hQQS0PxQuys367K?CMP=OTC-rss&amp;FEEDNAME=">around $7.5 million</a>.</p>
+
+<p>One shocked neighbor <a href="https://web.archive.org/web/20120201231243/http://newyork.cbslocal.com/2012/01/31/nearly-800-marijuana-plants-found-in-police-raid-of-bronx-building/">told WCBS 2</a>, &quot;That&#x2019;s crazy&#x2026;because I used to walk past this every single day. I live down the block on Garfield. Never even smelled nothing come out from this place,&quot; while another was glad the mystery was solved, <a href="https://web.archive.org/web/20120201231243/http://www.nydailynews.com/new-york/bronx/bronx-building-big-marijuana-greenhouse-cops-busted-article-1.1014902">explaining to the Daily News</a> that eau de grass has been wafting through the air for the past two years, &quot;Cops come on the block and smell weed and pull us over and harass us and no one is smoking.&quot;</p>
+
+<p>Cops say that Brian Munoz, 24, Diego E. Reyes, 25, and Victor Reyes, 23, designed an intricate grow house, complete with &quot;watering system, electrical system, carbon dioxide system and a ventilation system to help the high-grade marijuana grow.&quot;   A source told the Post, &quot;They were using enough electricity, grow lights and such to power an entire city block.&quot; The trio were charged with criminal possession of marijuana and criminal use of drug paraphernalia; it&apos;s believed they made $3 million last year.</p>

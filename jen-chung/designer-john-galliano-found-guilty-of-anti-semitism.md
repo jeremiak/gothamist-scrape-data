@@ -1,0 +1,16 @@
+---
+author: Jen Chung
+date: September  8, 2011  2:57 PM
+title: Designer John Galliano Found Guilty Of Anti-Semitism
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="2011_02_galliano.jpg" src="https://web.archive.org/web/20130517181200im_/http://gothamist.com/attachments/jen/2011_02_galliano.jpg" width="640" height="471"> <br> <i>John Galliano at a Dior show in January 2010 (AP)</i></div> <p></p>
+
+<p>Six months after being <a href="https://web.archive.org/web/20130517181200/http://gothamist.com/2011/03/01/john_galliano_fired_from_dior_after.php">fired from from Christian Dior</a> over anti-Semitic remarks he made to fellow Parisian cafe patrons, John Galliano was<a href="https://web.archive.org/web/20130517181200/http://www.guardian.co.uk/world/2011/sep/08/john-galliano-guilty-racism-antisemitism"> found guilty of &quot;&apos;public insults&apos;</a> based on origin, religion, race or ethnicity after two incidents in February 2011 and last year.&quot;</p>
+
+<p>Earlier this year, at the La Perle cafe, patrons claimed Galliano made anti-Semitic remarks; one said he called her a &quot;dirty Jew face.&quot; However, <a href="https://web.archive.org/web/20130517181200/http://gothamist.com/2011/03/02/galliano_denies_anti-semitic_remark.php">Galliano said in a statement</a>, &quot;I was subjected to verbal harassment and an unprovoked assault when an individual tried to hit me with a chair having taken violent exception to my look and my clothing. For these reasons I have commenced proceedings for defamation and the threats made against me.&quot; But he added, &quot;I fully accept that the accusations made against me have greatly shocked and upset people.&quot; However, after the accusations, Christian Dior suspended Galliano and then a video from last year showing Galliano discussing how he loves Hitler <a href="https://web.archive.org/web/20130517181200/http://www.thesun.co.uk/sol/homepage/news/3436757/Film-of-John-Gallianos-racist-rant-in-bar.html">surfaced on British tabloid The Sun&apos;s website</a>. </p>
+
+<p>In France, it&apos;s a crime to incite racial hatred. Galliano was sentenced to a suspended fine of $8,400, which means, <a href="https://web.archive.org/web/20130517181200/http://www.cbsnews.com/8301-504083_162-20103282-504083.html">says the AP</a>, &quot;he won&apos;t have to pay but the fine will go on his record.&quot; The designer did not appear in court for the sentence, but when he appeared before the three-judge panel previously, the <a href="https://web.archive.org/web/20130517181200/http://www.nytimes.com/2011/09/09/world/europe/09galliano.html">NY Times reports</a>, &quot;Mr. Galliano... had told the French court that he remembered nothing about the incidents, and at the time was debilitated by job stress and addiction to Valium and alcohol.&quot;</p>
+
+<p><a href="https://web.archive.org/web/20130517181200/http://www.latimes.com/news/nationworld/world/la-fg-france-galliano-20110909,0,158782.story">Galliano&apos;s lawyer said his client</a> is &quot;looking forward to the future&quot; and &quot;will continue to care for himself.&quot;<br>
+</p>

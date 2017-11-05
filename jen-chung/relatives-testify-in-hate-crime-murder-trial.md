@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: April 22, 2010  5:02 PM
+title: Relatives Testify In Hate Crime Murder Trial
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2010_04_kpehon2.jpg" src="https://web.archive.org/web/20110706142509im_/http://gothamist.com/attachments/jen/2010_04_kpehon2.jpg" width="120" height="118" class="image-right"> </span>Yesterday and today, relatives took the stand in the <a href="https://web.archive.org/web/20110706142509/http://gothamist.com/2008/12/14/brooklyn_hate_crime_victim.php">Brooklyn hate crime</a> murder trial of defendants Hakim Scott and Keith Phoenix. Phoenix&apos;s cousin Demetrius Nathaniel <a href="https://web.archive.org/web/20110706142509/http://www.nydailynews.com/news/ny_crime/2010/04/21/2010-04-21_bklyn_hatecrime_murder_dramatic_uturn_as_teen_testifies_against_his_cousin_keith.html">said</a>, &quot;We saw two men walking toward the car and my cousin said &apos;f----t a-- n-----s&apos; to the two men.&quot; He also said that Phoenix (pictured) hit Jose Sucuzhanay three times with a baseball bat and when Sucuzhanay tried to get up, he hit him again. The prosecutor asked what he heard and Nathaniel replied, &quot;<strong>Breaking bones.</strong>&quot; Sucuzhanay&apos;s <a href="https://web.archive.org/web/20110706142509/http://www.ny1.com/1-all-boroughs-news-content/top_stories/117391/brother-of-alleged-bias-victim-recalls-fatal-attack">brother Romel testified</a> that he saw the pair hit his brother with a bottle and try to slash his throat.  </p>

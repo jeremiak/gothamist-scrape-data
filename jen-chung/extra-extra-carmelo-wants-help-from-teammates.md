@@ -1,0 +1,20 @@
+---
+author: Jen Chung
+date: April 22, 2011  6:51 PM
+title: Extra, Extra: Carmelo Wants Help From Teammates
+---
+
+<span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <div class="image-none" style=" width:640px; "> <img alt="2011_04_xx0422.jpg" src="https://web.archive.org/web/20110515213411im_/http://gothamist.com/attachments/jen/2011_04_xx0422.jpg" width="640" height="480"> <br> <i>Photograph by <a href="https://web.archive.org/web/20110515213411/http://www.flickr.com/photos/vufinder/5642622702/in/pool-97886303@N00/">bdwac on Flickr</a></i></div> </span>
+
+<ul>
+	<li>Follow Gothamist <a href="https://web.archive.org/web/20110515213411/http://twitter.com/#!/gothamist">on Twitter</a> and <a href="https://web.archive.org/web/20110515213411/http://www.facebook.com/pages/Gothamist/13927915491">like us on Facebook</a>.</li>
+	<li>The Knicks play game 3 against the Celtics tonight and Carmelo Anthony <a href="https://web.archive.org/web/20110515213411/http://www.nypost.com/p/sports/knicks/with_or_without_co_stars_anthony_gNQoBHol6p5qlVQmu46PrJ">wants his teammates to step up</a>.</li>
+	<li>The NY Post&apos;s in-your-face Albany bureau chief Fred Dicker <a href="https://web.archive.org/web/20110515213411/http://www.nytimes.com/2011/04/22/nyregion/new-york-posts-fredric-dicker-keeps-slugging-away.html?partner=rss&amp;emc=rss">gets a front page NY Times feature</a>. His thoughts on the past governors: <em>&quot;Eliot Spitzer: &#x201C;A consummate hypocrite.&#x201D; David A. Paterson: &#x201C;Liar, liar, pants on fire!&#x201D; George E. Pataki: &#x201C;A selfish cynic.&#x201D;</em></li>
+	<li>A food delivery bicyclist <a href="https://web.archive.org/web/20110515213411/http://www.dnainfo.com/20110421/upper-west-side/food-delivery-man-struck-by-car-on-amsterdam-avenue">was struck by a car</a> on the Upper West Side yesterday; the bicyclist was apparently going against traffic.</li>
+	<li>The Chinese government is<a href="https://web.archive.org/web/20110515213411/http://www.nytimes.com/2011/04/23/world/asia/23tombs.html?hp"> worried how its rich citizens are planning really ostentatious funerals</a> and gravestones that upset the poor.</li>
+	<li>At the Vinny Gorgeous trial, it was revealed another mob boss <a href="https://web.archive.org/web/20110515213411/http://www.nydailynews.com/news/ny_crime/the_mob/2011/04/22/2011-04-22_tape_in_vinny_gorgeous_trial_reveals_mob_king_dominick_quiet_dom_cirillo_oked_hi.html">ordered the death of his son</a>.  </li>
+	<li>Central Park Boathouse workers say they were <a href="https://web.archive.org/web/20110515213411/http://www.nydailynews.com/blogs/dailypolitics/2011/04/potential-2013-mayoral-candidates-unite-vs-central-park-boathouses-worker-trea">intimidated into not forming a union</a>, and the <a href="https://web.archive.org/web/20110515213411/http://www.nydailynews.com/blogs/dailypolitics/2011/04/boathouse-pushes-back-against-union-pressure">Boathouse responded</a>.</li>
+	<li>NY State <a href="https://web.archive.org/web/20110515213411/http://www.nypost.com/p/news/national/state_may_pay_for_rapist_heart_transplant_IZscfvsY0OPyo7bXhUu2mL?CMP=OTC-rss&amp;FEEDNAME=">may end up paying</a> for an imprisoned rapist&apos;s heart transplant.</li>
+	<li>So, Donald Trump apparently reads blog posts, prints them out and writes all over them, leaving his assistants to either mail or<a href="https://web.archive.org/web/20110515213411/http://www.salon.com/news/politics/war_room/2011/04/22/donald_trump_writes_to_salon"> scan/email them to the bloggers</a>.</li>
+	<li>There&apos;s a <a href="https://web.archive.org/web/20110515213411/http://www.veganbakesale.org/veganbakesale/vbs-where.html">Vegan Bake Sale</a> outside of Natural Vitamins New York in Greenpoint (671 Manhattan Ave) tomorrow.  Proceeds will <a href="https://web.archive.org/web/20110515213411/http://www.flickr.com/photos/lisacat/5638386300/">benefit adorable animals</a>.</li>
+</ul>

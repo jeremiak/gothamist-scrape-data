@@ -1,0 +1,15 @@
+---
+author: Jen Chung
+date: Nov 8, 2011 11:55 am
+title: Poor NJ Transit Commuters: Downed Wire Causes 30-60 Minute Delays
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:365px; "> <img alt="2011_11_njtransitwire.jpg" src="https://web.archive.org/web/20150505164633im_/http://gothamist.com/attachments/jen/2011_11_njtransitwire.jpg" width="365" height="274"> <br> <i>Photograph of a NJ Transit station (and wires!) by <a href="https://web.archive.org/web/20150505164633/http://www.shutterstock.com/gallery-71279p1.html">Lawrence Beck</a>/Shutterstock</i></div> Earlier this year, NJ Transit riders <a href="https://web.archive.org/web/20150505164633/http://gothamist.com/2010/04/14/nj_transit_approves_10-25_fare_hike.php">had a fare hike</a>. Of course, since then, there have been <a href="https://web.archive.org/web/20150505164633/http://gothamist.com/tags/njtransit">numerous problems</a> plaguing the system, from power issues that leave passengers <a href="https://web.archive.org/web/20150505164633/http://gothamist.com/2011/09/22/power_outage_leaves_four_trains_stu.php">stranded in the tunnel</a> near Penn Station to <a href="https://web.archive.org/web/20150505164633/http://gothamist.com/2011/08/09/nj_transit_train_derails_between_pe.php">derailments</a>. Today, a wire fell near Metuchen around 7:40 a.m., <a href="https://web.archive.org/web/20150505164633/http://www.njtransit.com/sa/sa_servlet.srv?hdnPageAction=TravelAlertsTo&amp;rel=Rail&amp;selLine=NEC">causing 30-60 minute delays</a>.<p></p>
+
+<p><a href="https://web.archive.org/web/20150505164633/http://abclocal.go.com/wabc/story?section=resources/traffic&amp;id=8423018">According to WABC 7</a>, &quot;Approximately 700 passengers were evacuated from one commuter train. New Jersey Transit spokesman John Durso Jr. says the 11-car train came to a stop in Metuchen on its way to New York City around 7:40 a.m... The downed wire is causing delays of up to 60 minutes on the busy Northeast Corridor line between Trenton and Princeton Junction.&quot;</p>
+
+<p>Riders have been taking to Twitter: &quot;Funny how #njtransit changes express trains into local trains at their whim. Wait, it&apos;s not funny. Did I mention I pay $414/month to ride?&quot; (<a href="https://web.archive.org/web/20150505164633/http://twitter.com/#!/chris_ackermann/status/133903617404055552">chris_ackermann</a>) and &quot;Nothing like rolling into the office at the crack of 10 am. Thanks #NJTransit. #IPayForThis?&quot; (<a href="https://web.archive.org/web/20150505164633/http://twitter.com/#!/NHLAdamK/status/133924254877102082">NHLAdamK</a>).  Also, &quot;My landlord came back from China &amp; Korea. I asked him about how the trains compare to NJTransit. He laughed. More than casually&quot; (<a href="https://web.archive.org/web/20150505164633/http://twitter.com/#!/nsjersey/status/133920246196215808">nsjersey</a>). </p>					
+										
+									
+				

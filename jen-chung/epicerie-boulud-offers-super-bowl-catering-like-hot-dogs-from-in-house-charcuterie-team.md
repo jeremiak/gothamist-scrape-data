@@ -1,0 +1,13 @@
+---
+author: Jen Chung
+date: February  3, 2012 11:48 AM
+title: Épicerie Boulud Offers Super Bowl Catering, Like Hot Dogs From "In-House Charcuterie Team"
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="2012_01_dangiel.jpg" src="https://web.archive.org/web/20120207084120im_/http://gothamist.com/attachments/jen/2012_01_dangiel.jpg" width="640" height="411"> <br> <i>We&apos;re actually not sure if Daniel Boulud has an Eli Manning jersey</i></div> <p></p>
+
+<p>Finally, what watching the Super Bowl from your living room needed: FANCY FOOD.  Daniel Boulud&apos;s <a href="https://web.archive.org/web/20120207084120/http://www.danielnyc.com/epicerie.html">&#xC9;picerie Boulud</a> is accepting orders until tomorrow (Saturday, 2/4) at 7 p.m. for items like Amish Chicken Wings (Traditional Buffalo with Blue Cheese or Thai Style with Peanut Sauce), Pulled BBQ Short Ribs (with Brussels Sprout Slaw &amp; Peppered Buns) and House Made Hotdogs... there&apos;s even White Cheddar &amp; Smoked Bacon Popcorn.  </p>
+
+<p>When we asked what inspired Boulud to go after the football-watching crowd, a representative told us, &quot;Daniel confesses when it comes to sports, his first love is Formula One racing, but he&#x2019;s been here in the US for 30 years now and has caught the football bug from his right hand man, Brett Traussi. Brett is Director of Daniel Boulud&#x2019;s restaurant group, and together the two have done some very impressive tailgating!&quot;  When the menu was announced on Wednesday, the first orders were for the hot dogs, which are made by Daniel&apos;s &quot;in-house charcuterie team. Same goes for the buns, made by our own in-house bread baker.&quot;  </p>
+
+<p>You can see the menu, which also has two-foot subs, chili, and 5-layer dip, here (<a href="https://web.archive.org/web/20120207084120/http://files.e2ma.net/12450/assets/docs/epicierie_boulud_superbowl_menu.pdf">PDF</a>)&#x2014;clearly, it&apos;s an upscale option, because the wings for $36 for two dozen (at Blondie&apos;s, you can <a href="https://web.archive.org/web/20120207084120/http://www.menupages.com/restaurants/blondies-2/menu">get a bucket of 50 for $38.95</a>). We also have <a href="https://web.archive.org/web/20120207084120/http://gothamist.com/2012/01/24/bring_the_super_bowl_to_your_apartm.php">other great Super Bowl catering options</a>, from BBQ to sushi.</p>

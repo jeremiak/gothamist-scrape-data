@@ -1,0 +1,13 @@
+---
+author: Jen Chung
+date: Jun 30, 2011 5:43 pm
+title: $100 Million-In-Bank Account Holder Still At Large
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:365px; "> <img alt="2011_06_atmreceipt.jpg" src="https://web.archive.org/web/20150123041807im_/http://gothamist.com/attachments/jen/2011_06_atmreceipt.jpg" width="365" height="261"> <br> <i>Via <a href="https://web.archive.org/web/20150123041807/http://dealbreaker.com/2011/06/blind-item-which-east-hampton-resident-likes-to-keep-100-million-or-so-in-his-checking-account/">Dealbreaker</a></i></div> Yesterday, <a href="https://web.archive.org/web/20150123041807/http://dealbreaker.com/2011/06/blind-item-which-east-hampton-resident-likes-to-keep-100-million-or-so-in-his-checking-account/">Dealbreaker posted an image of an ATM receipt</a> found at an East Hampton Capitol One bank, revealing a shocking $99,864, 731.94 savings account balance ($2.75 poorer after ATM fee).  Speculation was that the fat cat was hedge fund manager <a href="https://web.archive.org/web/20150123041807/http://dealbreaker.com/2009/12/david-teppers-lucky-charms/">David Tepper</a>, but <a href="https://web.archive.org/web/20150123041807/http://www.nypost.com/p/news/local/slip_up_reveals_mil_balance_0eFxDLfXlz1xkKiB6NnHkL">he told the Post</a> that he &quot;wasn&apos;t in the Hamptons in June at all,&quot; plus, <strong>&quot;I would never do something as irresponsible as leaving $100 million in a savings account</strong>.&quot;  Yeah, when you&apos;ve got the coin to pay $43.5 million cash on a house (<a href="https://web.archive.org/web/20150123041807/http://www.dailymail.co.uk/news/article-1380803/Billionaire-David-Tepper-buys-Hamptons-mansion-43-5m-tears-down.html">just to tear it down</a>), you keep your money in a vault <a href="https://web.archive.org/web/20150123041807/http://www.google.com/search?q=scrooge+mcduck+vault&amp;um=1&amp;ie=UTF-8&amp;tbm=isch&amp;source=og&amp;sa=N&amp;hl=en&amp;tab=wi&amp;biw=1075&amp;bih=635">so you can swim in it</a>.  <p></p>
+
+<p><a href="https://web.archive.org/web/20150123041807/http://dealbook.nytimes.com/2011/06/30/who-is-the-mystery-hamptons-moneybags/">Deal Book wonders</a> if the account holder is &quot;[Former Treasury Secretary and Goldman head Hank] Paulson? [Blackstone&apos;s Stephen] Schwarzman? Mayor Bloomberg?&quot;  But as a Dealbreaker commenter puts it, &quot;Earning .04 percent on $100MM and not giving a sh*t is the <a href="https://web.archive.org/web/20150123041807/http://www.urbandictionary.com/define.php?term=NKI">nki</a>&quot; </p>					
+										
+									
+				

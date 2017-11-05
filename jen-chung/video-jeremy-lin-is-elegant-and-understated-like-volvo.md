@@ -1,0 +1,17 @@
+---
+author: Jen Chung
+date: March 20, 2012  3:43 PM
+title: Video: Jeremy Lin Is "Elegant And Understated" (Like Volvo)
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2012_02_jlinvolvo.jpg" src="https://web.archive.org/web/20120322063429im_/http://gothamist.com/attachments/jen/2012_02_jlinvolvo.jpg" width="640" height="429" class="image-none"> </span></p>
+
+<p>Yesterday, automaker <a href="https://web.archive.org/web/20120322063429/http://gothamist.com/2012/03/19/linsanity_abroad_jeremy_lin_will_en.php">Volvo announced</a> that Knicks sensation Jeremy Lin would become its new brand ambassador, calling his endorsement deal a &quot;significant moment in Volvo&apos;s history.&quot; Marketing efforts around Lin, the 23-year-old undrafted Harvard graduate whose elevation to Knicks starter has become an <a href="https://web.archive.org/web/20120322063429/http://gothamist.com/tags/linsanity">international phenomenon</a>, will focus on China, U.S. and Chinese-language markets.  Volvo executives noted, &quot;The Volvo brand designed around with sportsmanship and intelligence,&quot; and they are &quot;more youthful, active and dynamic&quot; and the &quot;most progressive luxury car&quot;... &quot;Jeremy Lin embodies a lot of shared values,&quot; like being &quot;smart and nimble, driven and focused... elegant and understated.&quot;</p>
+
+<p>Here&apos;s the press conference, where executives praise Lin for being &quot;well-educated&quot; with &quot;great judgment and personal characteristics&quot; and called him an &quot;icon.&quot;</p>
+
+<p><iframe width="640" height="360" src="https://web.archive.org/web/20120322063429if_/http://www.youtube.com/embed/fv5G-pJMaDA" frameborder="0" allowfullscreen></iframe></p>
+
+<p>Lin himself appeared at the press conference looking like any other 23-year-old in a plaid shirt (the <a href="https://web.archive.org/web/20120322063429/https://twitter.com/#!/NewYorkPost/status/182099003385708544">Post Tweeted</a>, &quot;At Volvo endorsement announcement, Knicks&apos; Jeremy Lin looks like the same player who slept on brother&apos;s couch&quot;).  &quot;A lot of you guys might be wondering why we decided to partner with Volvo,&quot; Lin said and then explained, &quot;What the company stands for is very in line with&quot; the values he grew up with. &quot;They have high quality with their cars, and at the same time, it&apos;s a very affordable car. I never had the super luxurious cars or watches... For me to be able to find a high-quality affordable and relatable is very important for me.&quot; He also cited Volvo&apos;s &quot;power and toughness,&quot; &quot;strong material and safety systems,&quot; and their &quot;continued progress, continuing to improve every day, every year,&quot; which is something he aims to do.  </p>
+
+<p>Lin also told reporters, &quot;I don&#x2019;t really have a car in the city right now. If you want to know, I&#x2019;m leaning toward the <a href="https://web.archive.org/web/20120322063429/http://www.volvocars.com/intl/all-cars/volvo-s60/Pages/default.aspx">S60</a> and <a href="https://web.archive.org/web/20120322063429/http://www.volvocars.com/intl/all-cars/volvo-s80/Pages/default.aspx">S80</a>.&quot;</p>

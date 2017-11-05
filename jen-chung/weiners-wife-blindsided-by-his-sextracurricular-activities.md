@@ -1,0 +1,19 @@
+---
+author: Jen Chung
+date: Jun 8, 2011 11:24 am
+title: Weiner's Wife "Blindsided" By His Sextracurricular Activities
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="2011_06_anthonyhuma.jpg" src="https://web.archive.org/web/20160901040737im_/http://gothamist.com/attachments/jen/2011_06_anthonyhuma.jpg" width="640" height="466"> <br> <i>Huma Abedin and Anthony Weiner in January (AP)</i></div> <p></p>
+
+<p>As various women detail their relationships with Rep. Anthony Weiner to the press, one woman has been absent from the public eye: Weiner&apos;s <a href="https://web.archive.org/web/20160901040737/http://gothamist.com/2010/07/11/anthony_weiner_marries_huma_abedin.php">wife of 11 months</a>, Huma Abedin.  <a href="https://web.archive.org/web/20160901040737/http://www.nypost.com/p/news/local/perv_pol_on_wife_support_JYp14o1Sy5bqb4WIxzbW9H?CMP=OTC-rss&amp;FEEDNAME=">According to the Post</a>, she &quot;won&apos;t ditch her lecherous husband, and is actually working overtime to help salvage his gravely wounded political career, a close friend told The Post...even hunker[ing] down with disgraced Rep. Anthony Weiner in a New York hotel Monday night.&quot; The friend adds, &quot;She loves her husband very much. She is committed to her husband and her marriage.&quot;  But guess who is really unhappy:  Abedin&apos;s boss, Secretary of State Hillary Clinton, and former President Bill Clinton, who officiated the couple&apos;s wedding.</p>
+
+<p>After denying that a <a href="https://web.archive.org/web/20160901040737/http://gothamist.com/2011/05/29/weinergate_did_anthony_weiner_tweet.php">Tweeted crotch shot was his</a>, Weiner <a href="https://web.archive.org/web/20160901040737/http://gothamist.com/2011/06/06/crying_weiner_admits_to_sending_exp.php">admitted on Monday that he was in fact sending that photograph</a> of his underwear-clad genitals to a young women in Washington state&#x2014;as a &quot;joke&quot;&#x2014;and when it was sent publicly instead of privately, he &quot;panicked&quot; and claimed he was hacked.  Then Weiner admitted to numerous online relationships with women he befriended on Twitter and Facebook, which included graphic sexts and photographs.  </p>
+
+<p>The <a href="https://web.archive.org/web/20160901040737/http://www.nytimes.com/2011/06/08/us/politics/08weiner.html?partner=rss&amp;emc=rss">NY Times reports</a>, &quot;One of Mr. Weiner&#x2019;s most emotional apologies was delivered to former President Bill Clinton, who officiated at his wedding in July and is extremely close with the congressman&#x2019;s wife, Huma Abedin, an aide to Secretary of State Hillary Rodham Clinton. The Clintons are deeply unhappy about the situation and with Mr. Weiner, people who had been told of their thinking said. Mr. Clinton declined to comment.&quot;</p>
+
+<p>Weiner has decided not to resign and Abedin reportedly believes he can still keep his political career on track (she just didn&apos;t want to <a href="https://web.archive.org/web/20160901040737/http://gothamist.com/2008/03/11/silda_spitzer_a_1.php">pull a Silda at the press conference</a>).  A friend told the Post that Abedin had believed Weiner&apos;s claims that he was hacked and was &quot;blindsided&quot; by his admissions, but noted that the 35-year-old&apos;s experience&#x2014;she interned for Hillary Clinton in the White House during the Monica Lewinsky incident&#x2014;was helpful, &quot;She has been in politics for 15 years. She&apos;s seen all sorts of insanity. She has seen it all before, the rabid tabloid coverage. This is just the first time that it involves her personally.&quot; </p>					
+										
+									
+				

@@ -1,0 +1,19 @@
+---
+author: Jen Chung
+date: Jan 16, 2012 9:44 am
+title: Transit Union Contract Expires, But MTA, TWU Keep Talking
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="2012_01_transitstrike2.jpg" src="https://web.archive.org/web/20150424122720im_/http://gothamist.com/attachments/jen/2012_01_transitstrike2.jpg" width="640" height="472"> <br> <i>Photograph from the 2005 Transit Strike by <a href="https://web.archive.org/web/20150424122720/http://www.flickr.com/photos/mrsid/75780708/">kerfuffle &amp; zeitgeist on Flickr</a></i></div> <p></p>
+
+<p>The MTA&apos;s financial problems <a href="https://web.archive.org/web/20150424122720/http://gothamist.com/2011/12/22/mta_budget_no_2012_fare_hikes_or_se.php">are well-known</a>, so naturally it would want to take a tough line with the transit union, TWU Local 100.  And naturally the union isn&apos;t happy with no raises for its 34,000 members, so its contract expired at midnight on Sunday without any resolution.  However, the two sides are kindly continuing negotiations so we won&apos;t have to deal with a transit strike.  </p>
+
+<p><a href="https://web.archive.org/web/20150424122720/http://www.nypost.com/p/news/local/mta_twu_talk_past_midnight_deadline_qoZ6Y5VqUpZBCzQAChv1AN?CMP=OTC-rss&amp;FEEDNAME=">According to the Post</a>, &quot;Both sides were holed up at a Midtown hotel... In addition to no raises, transit officials are asking the union to agree to a host of cost-cutting measures, like a retooling of overtime rules and cutting vacation time.&quot; (See the demands here&#x2014;<a href="https://web.archive.org/web/20150424122720/http://www.twulocal100.org/sites/twulocal100.org/files/mta_giveback_demands_120109_rotated.pdf">PDF</a>.)  </p>
+
+<p>TWU President John Samuelson <a href="https://web.archive.org/web/20150424122720/http://www.politickerny.com/2012/01/16/twu-president-tells-cuomo-to-shove-it-at-contract-rally/">said of the demands</a>, &#x201C;I&#x2019;ve been bargaining for the better part of the last 48 hours. I&#x2019;m going to go back into that hotel and I&#x2019;m going to tell the chairman of the MTA, I&#x2019;m going to tell the governor to take their petty demands and shove it,&quot; adding, &quot;We&#x2019;ll fight for a month, we&#x2019;ll fight for two months, we&#x2019;ll fight them until they relent and give us a fair contract.&quot;  But Governor Cuomo has gotten really good at <a href="https://web.archive.org/web/20150424122720/http://gothamist.com/2011/08/16/cuomo_state_workers_union_agree_on.php">not budging with unions</a>!</p>
+
+<p>The MTA issued a statement, &quot;Even though the MTA and TWU Local 100 have negotiated through the weekend, we have been unable to reach a settlement prior to the expiration of the contract.  While we remain far apart, the MTA will continue to negotiate in good faith in the hope of reaching a settlement.&quot; And the <a href="https://web.archive.org/web/20150424122720/http://www.nydailynews.com/news/union-big-offers-fiery-words-transit-contract-set-expire-midnight-article-1.1006657?localLinksEnabled=false">Daily News details some upside</a>, per a source: &quot;The MTA has agreed to improve the bathroom facilities for female workers in the subway and identify suitable locations for female bus drivers to make pitstops along their routes. The authority also is willing to commit to installing 400 bus partitions a year, a safety upgrade sought after the stabbing death of bus driver Edwin Thomas in December 2008.&quot;</p>					
+										
+									
+				

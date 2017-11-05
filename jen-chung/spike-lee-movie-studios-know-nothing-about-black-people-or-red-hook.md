@@ -1,0 +1,17 @@
+---
+author: Jen Chung
+date: Jan 23, 2012 3:13 pm
+title: Spike Lee: Movie Studios Know Nothing About Black People Or Red Hook
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="2012_01_spikeleesun.jpg" src="https://web.archive.org/web/20140312065037im_/http://gothamist.com/attachments/jen/2012_01_spikeleesun.jpg" width="640" height="440"> <br> <i>Spike Lee, with wife Tonya, at the Sundance premiere of Red Hook Summer (AP)</i></div> <p></p>
+
+<p>Spike Lee, <a href="https://web.archive.org/web/20140312065037/http://gothamist.com/2011/10/29/nba_cancels_more_games_forces_spike.php">New York sports fan</a>, premiered his new feature film, <em>Red Hook Summer</em> (his <a href="https://web.archive.org/web/20140312065037/http://gothamist.com/2011/09/22/spike_lee_isnt_working_on_a_sequel.php">not-a-sequel to <em>Do the Right Thing</em></a>), at Sundance last night and he was his usual, straight-talking self during a Q&amp;A.;  So much so that he apologized to the audience, &quot;Sorry for that mother----ing tirade.&quot;</p>
+
+<p>Chris Rock was the one posing questions to Lee, and he asked Lee about self-financing <em>Red Hook Summer</em>.  <a href="https://web.archive.org/web/20140312065037/http://blogs.indiewire.com/theplaylist/this-is-not-a-motherf-king-sequel-to-do-the-right-thing-and-more-from-the-fiery-post-screening-q-a-of-spike-lees-red-hook-summer">According to Indiewire</a>, that set him off:</p><blockquote>We never went to the studios with this film...I bought a camera and said we&apos;re gonna do this motherfucking ourselves. We&apos;re gonna ignore the studios. The plan was to make the film, bring it to Sundance... So this whole thing was planned out. Do the film independently! I didn&apos;t need a motherfucking studio telling me about Red Hook! They know nothing about black people!  Nothing! And they&apos;re gonna give me notes about what a 13-year-old black boy and girl do in Red Hook? Fuck no! So we&apos;ve been able to do it ourselves. We didn&apos;t have any notes. What else can you do? We had to do it ourselves! We shot motherfucking &apos;She&apos;s Gotta Have It&apos; for 12 days back in 1986. And I&apos;m now waiting for Universal to do the sequel to &apos;Inside Man,&apos; my biggest hit ever! I can&apos;t wait anymore! We had to do it ourselves!</blockquote> Also, <a href="https://web.archive.org/web/20140312065037/http://blogs.indiewire.com/theplaylist/sundance-review-spike-lee-reconnects-with-his-artistic-voice-with-the-emotionally-devastating-red-hook-summer">Indiewire liked the film, calling it</a> &quot;not just Spike Lee&#x2019;s most authentically &apos;Spike Lee&apos; film in more than a decade, but a remarkable display of a filmmaker reconnecting with his artistic voice.&quot;<p></p>
+
+<p>In spite of his frustration last night, <a href="https://web.archive.org/web/20140312065037/https://twitter.com/#!/SpikeLee/status/161303820989763584">Lee was pretty happy</a>, &quot;GREAT NIGHT.RED HOOK SUMMER PREMIERE IS MAGNIFICO AND NY FOOTBALL GIANTS ARE GOING TO SUPER BOWL.YA-DIG?SHO-NUFF.BOSTON SUCKS YO.GO BIG BLUE&quot;</p>					
+										
+									
+				

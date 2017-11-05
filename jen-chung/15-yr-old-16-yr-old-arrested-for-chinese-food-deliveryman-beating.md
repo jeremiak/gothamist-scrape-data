@@ -1,0 +1,11 @@
+---
+author: Jen Chung
+date: April 28, 2011  8:52 AM
+title: 15-Yr-Old, 16-Yr-Old Arrested For Chinese Food Deliveryman Beating
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <a href="https://web.archive.org/web/20120605062038/http://gothamist.com/attachments/jen/2011_04_chinesedelivery.jpg"> <img alt="2011_04_chinesedelivery.jpg" src="https://web.archive.org/web/20120605062038im_/http://gothamist.com/assets_c/2011/04/2011_04_chinesedelivery-thumb-365x275-619306.jpg" width="260" height="195" class="image-left"> </a> </span>Two teens involved in the <a href="https://web.archive.org/web/20120605062038/http://gothamist.com/2011/04/27/chinese_food_deliveryman_beaten_in.php">beating of a Chinese food deliveryman</a>&#x2014;caught on video&#x2014; <a href="https://web.archive.org/web/20120605062038/http://www.nypost.com/p/news/local/nypd_blotter/nypd_daily_blotter_3t96wra6yLAu3dcXEnGw4O?CMP=OTC-rss&amp;FEEDNAME=">turned themselves in</a> to police yesterday. Bronx resident Charles Codrington, 16, and a 15-year-old <a href="https://web.archive.org/web/20120605062038/http://cityroom.blogs.nytimes.com/2011/04/27/two-arrested-in-attack-on-deliveryman-caught-on-tape/">were charged with burglary</a>.</p>
+
+<p>An order was placed to a Chinese restaurant for a delivery to 40 Morningside Heights.  The video shows three suspects beating the deliveryman, with a fourth acting as a lookout.  The suspects appear to attempt to rob the deliveryman, but flee before taking anything.  The deliveryman suffered facial injuries.</p>
+
+<p>In 2005, a Chinese food deliveryman <a href="https://web.archive.org/web/20120605062038/http://gothamist.com/2005/10/11/chinese_food_delivery_man_shot_in_the_eye.php">was shot in the eye after being robbed</a> in the Bronx.  He <a href="https://web.archive.org/web/20120605062038/http://gothamist.com/2005/10/13/chinese_food_delivery_man_dies_shooters_still_on_the_loose.php">later died of his injuries</a> and it was noted that the robbers didn&apos;t take his $9. Then-City Councilman (now Comptroller) John Liu said, &quot;There&apos;s an undercurrent to these brutal attacks on immigrant workers, because they are sometimes not considered to be real people by the perpetrators.&quot;</p>

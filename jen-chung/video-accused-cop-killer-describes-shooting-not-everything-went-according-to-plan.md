@@ -1,0 +1,17 @@
+---
+author: Jen Chung
+date: February  9, 2012  5:44 PM
+title: Video: Accused Cop Killer Describes Shooting, "Not Everything Went According To Plan"
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="2012_01_lamontp.jpg" src="https://web.archive.org/web/20120210061749im_/http://gothamist.com/attachments/jen/2012_01_lamontp.jpg" width="640" height="406"> <br> <i>Lamont Pride speaks to police</i></div> <p></p>
+
+<p><a href="https://web.archive.org/web/20120210061749/http://www.nbcnewyork.com/news/local/Lamont-Pride-Confession-Video-Peter-Figoski-East-New-York-Brooklyn-138981884.html">NBC New York aired an interview</a> that alleged cop killer Lamont Pride gave to police about the <a href="https://web.archive.org/web/20120210061749/http://gothamist.com/2011/12/12/nypd_officer_fatally_shot_in_face_d.php">fatal shooting of police officer Peter Figoski</a>.  Pride says, &quot;The reason I decided to come forward with everything is I need to help myself out of this situation. I&#x2019;m not gonna get out of it. I know I&#x2019;m gonna do some type of crime. I&#x2019;m not trying to do the max.&quot;</p>
+
+<p>Pride and four other men are <a href="https://web.archive.org/web/20120210061749/http://gothamist.com/2011/12/14/cops_cheer_as_alleged_cop_killer_an.php#photo-1">accused in the home invasion gone wrong</a>: While some of the men were trying to rob a pot dealer, the police interrupted.  In the interviews, Pride&apos;s story did change, but he ultimately admitted to bringing a gun to the East New York apartment, &quot;We went over there &#x2026; but not everything went according to plan.&quot; Pride said, &quot;I look up to clutch my hands to run &#x2026; he is coming and I&#x2019;m going &#x2026; so it was like &apos;Boom.&apos;&quot;... The gun goes off as I clutch my hands to run &#x2026; I&#x2019;m like this running. As I&#x2019;m running, I&#x2019;m clutching my hands. I never took my hand off the trigger. That was my mistake. I was so nervous and I panicked. I didn&apos;t even think.&quot;</p>
+
+<center><embed width="576" height="324" src="https://web.archive.org/web/20120210061749oe_/http://media.nbcnewyork.com/assets/dev-thep-pdk/web/pdk/swf/flvPlayer.swf?pid=kaXSUpBjN_dhEQXnw44oGRNZVa6afd27" flashvars="v=http%3A%2F%2Fwww.nbcnewyork.com%2Fi%2Fembed_new%2F%3Fcid%3D139002634&amp;path=%2Fhttp://www.nbcnewyork.com/news/local/Lamont-Pride-Confession-Video-Peter-Figoski-East-New-York-Brooklyn-138981884.html" allowfullscreen="true" allowscriptaccess="always"> <p style="font-size:small">View more videos at: <a href="https://web.archive.org/web/20120210061749/http://nbcnewyork.com/?__source=embedCode">http://nbcnewyork.com</a>.</p></center>
+
+<p>However, police say that Pride, who had been <a href="https://web.archive.org/web/20120210061749/http://gothamist.com/2011/12/13/nypd_arrested_alleged_cop_killer_tw.php">wanted by NC authorities and was twice arrested by the NYPD</a>,  shot him on purpose from point-blank range. </p>
+
+<p>Figoski <a href="https://web.archive.org/web/20120210061749/http://gothamist.com/2011/12/19/10000_cops_come_out_to_mourn_slain.php#photo-1">was a 22-year NYPD veteran.</a>  He was a single father with four daughters.</p>

@@ -1,0 +1,15 @@
+---
+author: Jen Chung
+date: October 18, 2011  1:38 PM
+title: Brooklyn Subway Groping Suspect Arrested While Watching Porn On Cellphone
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="2011_10_gropesuspect.jpg" src="https://web.archive.org/web/20111018221404im_/http://gothamist.com/attachments/jen/2011_10_gropesuspect.jpg" width="640" height="436"> <br> <i>Suspect Joshua Flecha apparently resembles one of these sketches</i></div> <p></p>
+
+<p>Police announced they arrested a second suspect in the <a href="https://web.archive.org/web/20111018221404/http://gothamist.com/tags/parksloperapist">series of Brooklyn sex attacks</a> that have distressed residents.  Joshua Flecha, 32, was arrested yesterday morning&#x2014;the <a href="https://web.archive.org/web/20111018221404/http://www.nydailynews.com/news/ny_crime/2011/10/18/2011-10-18_brooklyn_groping_suspect_caught_with_his_pants_down_watching_porn_on_his_cell_ph.html">Daily News reports</a> that he &quot;was spotted early Monday skulking along a dark Windsor Terrace street. Cops thought he was trying to break into cars and nabbed him. They found his pants were unzipped and a porn video was playing on his cell phone, police said.&quot;</p>
+
+<p>First, he was seen at Greenwood Avenue near East 4th Street at 2:30 a.m., but the <a href="https://web.archive.org/web/20111018221404/http://www.nypost.com/p/news/local/brooklyn/cops_quiz_man_in_connection_with_uYhYa8zMxcnzTDvoqCnYRK">Post says that cops found him</a> at 17th Street between 10th and 11th Avenues 45 minutes later: &quot;The cops got out of their car, approached Flecha and ordered him to put his hands on one of the parked cars...That&apos;s when the cops also noticed that Flecha bore a resemblance to the suspect sketch in a forcible touching incident in May.&quot; </p>
+
+<p>Police think that Flecha may be the suspect involved with <a href="https://web.archive.org/web/20111018221404/http://gothamist.com/2011/10/15/nypd_more_brooklyn_sex_attacks_fit.php">six attacks at the 7th Avenue subway station</a> in Park Slope.  Apparently one of the victims, who was assaulted on May 7, picked him out of a line-up.  The Post says the May 7 incident was &quot;when a male matching Flecha&#x2019;s description approached a 37-year-old woman as she swiped her MetroCard at the 8th Avenue entrance to the F train at the 7th Avenue subway station. That&apos;s when he grabbed the woman&apos;s breasts, exposed himself and masturbated, police said.&quot; </p>
+
+<p>Another suspect, Adolfo Martinez, was<a href="https://web.archive.org/web/20111018221404/http://gothamist.com/2011/10/13/alleged_groper_to_cops_i_do_this_so.php"> arrested last week</a> for allegedly groping a woman in Sunset Park recently.</p>

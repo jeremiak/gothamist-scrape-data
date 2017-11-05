@@ -1,0 +1,13 @@
+---
+author: Jen Chung
+date: September 16, 2011  4:00 PM
+title: Willow The Cat's Family To NYC "Owner": Thank You
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="2011_09_willowcat2.jpg" src="https://web.archive.org/web/20110929112058im_/http://gothamist.com/attachments/jen/2011_09_willowcat2.jpg" width="640" height="426"> <br> <i>Willow at Animal Care and Control (AP)</i></div> <p></p>
+
+<p>After telling us that <a href="https://web.archive.org/web/20110929112058/http://gothamist.com/2011/09/16/the_mystery_of_willow_the_cat_solve.php">Willow the Colorado cat had been living in Brooklyn</a>, our tipster added, &quot;If either of my cats disappeared for years I would just want to know what happened and that he or she was loved... Please contact her Colorado family!&quot;  So we did:  We got in touch with Jamie Squires who said she was &quot;grateful&quot; to Willow&apos;s New York owner for taking care of her.  And how does Squires know Willow was taken care of?  &quot;<strong>She&apos;s fat!</strong>&quot; Squires joked, referring to how Willow, a small calico, was five-and-a-half pounds when she ran off and is now clocking in a healthy seven pounds. </p>
+
+<p>Squires said that Willow, who is almost seven years old, lived with them for two-and-a-half years before<a href="https://web.archive.org/web/20110929112058/http://gothamist.com/2011/09/15/wow_missing_colorado_cat_found_in_n.php"> escaping during a home renovation project</a> (a door was left open) and turning up five years later <a href="https://web.archive.org/web/20110929112058/http://gothamist.com/2011/09/16/willow_the_cat_continues_to_charm_b.php">in the Big Apple</a>.  She&apos;s also amazed at the worldwide interest in Willow&apos;s story&#x2014;a woman from New Zealand called her to say her cat must be Willow&apos;s sibling&#x2014;and says, &quot;<strong>We&apos;re just a family who is lucky to be getting their cat back thanks to technology.</strong>&quot; The Squireses are also looking at starting a foundation to educate people about <a href="https://web.archive.org/web/20110929112058/http://www.animalalliancenyc.org/yourpet/microchip.htm">microchipping their pets</a>, because it&apos;s clearly very effective.  </p>
+
+<p>While there are many questions about what happened to Willow over these past five years, Squires is simply happy that Willow is coming back (she thought the cat was eaten by coyote) and adds, &quot;<strong>Her [New York] owner deserves a thank you.</strong>&quot; The Squires family, which includes three children, is excited at the prospect of a reunion with Willow&#x2014;they are hoping to fly to New York next week.</p>

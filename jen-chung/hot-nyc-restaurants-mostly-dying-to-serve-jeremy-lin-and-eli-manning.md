@@ -1,0 +1,15 @@
+---
+author: Jen Chung
+date: Feb 16, 2012 4:12 pm
+title: Hot NYC Restaurants Mostly Dying To Serve Jeremy Lin And Eli Manning
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:365px; "> <img alt="2012_01_kobefinn.jpg" src="https://web.archive.org/web/20160523023501im_/http://gothamist.com/attachments/jen/2012_01_kobefinn.jpg" width="365" height="288"> <br> <i>Kobe, anyone? (GET IT?)</i></div> <a href="https://web.archive.org/web/20160523023501/http://deadspin.com/5885495/who-are-new-yorks-most-exclusive-restaurants-more-eager-to-seat-jeremy-lin-or-eli-manning-deadspin-investigates">Deadspin has a fun post</a> at how many hot New York City restaurants are falling over themselves to serve linternational Knicks star <a href="https://web.archive.org/web/20160523023501/http://gothamist.com/tags/jeremylin">Jeremy Lin</a> and <a href="https://web.archive.org/web/20160523023501/http://gothamist.com/tags/elimanning">Super Bowl MVP Eli Manning</a>: They called nine restaurants, posing as the athletes&apos; assistants, asking for reservations for six at the coveted 8:00 p.m. time.  While super high-end restaurants like Per Se and Masa wouldn&apos;t budge, The Lion and Nobu were happy to accommodate them.  <p></p>
+
+<p>Babbo could only do 8:30 p.m. for Eli Manning (&quot;We can do 8:30. We don&apos;t seat parties at 8 o&apos;clock. I know when Mr. Manning&apos;s been in the restaurant before, we&apos;ve had to inform him of the policy. I wish I could say yes&#x2014;we love having him&#x2014;but if I said yes for eight, we&apos;d be letting everyone down&quot;) and 8:45 p.m. while L&apos;Atelier de Jo&#xEB;l Robuchon could do 8:00 p.m. for Lin but 8:30 p.m. for Manning (which is insane, since Manning has a <a href="https://web.archive.org/web/20160523023501/http://gothamist.com/2008/04/02/10table_super_b.php">&quot;10-table&quot; ring</a>).  And the host/hostess at the Lion said of Lin, &quot;Yes, oh my God, my boyfriend won&apos;t stop talking about him.&quot;</p>
+
+<p>Of course, for some old fogies, this an update of the classic 1992 SPY magazine story, <a href="https://web.archive.org/web/20160523023501/http://books.google.com/books?id=UkhW08U-qOUC&amp;pg=PA41&amp;lpg=PA41&amp;dq=spy+magazine+lorne+michaels+reservations&amp;source=bl&amp;ots=61uXefa0lp&amp;sig=C2_Vejcltogi83arAhuS7kKZanc&amp;hl=en&amp;sa=X&amp;ei=HFo9T5LTBqPW0QGi-53sBw&amp;ved=0CCoQ6AEwAQ#v=onepage&amp;q=spy%20magazine%20lorne%20michaels%20reservations&amp;f=false">&quot;Big Shots Never Wait,&quot;</a> where SPY writers pretended to be assistants for people like Macauley Culkin, Lorne Michaels, Dan Rather, and Tom Arnold and demanded to know whether hot restaurants could accommodate them&#x2014;back then, Pat Riley couldn&apos;t get better than a 9:45 p.m. reservation at <a href="https://web.archive.org/web/20160523023501/http://nymag.com/listings/restaurant/coco-pazzo/">Coco Pazzo</a>. </p>					
+										
+									
+				

@@ -1,0 +1,22 @@
+---
+author: Jen Chung
+date: Sep 28, 2011 10:26 pm
+title: Man Arrested For Plotting To Attack Capitol, Pentagon With Explosives-Filled Remote Controlled Planes
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2011_08_remocontr.jpg" src="https://web.archive.org/web/20150408141656im_/http://gothamist.com/attachments/jen/2011_08_remocontr.jpg" width="640" height="478" class="image-none"> </span></p>
+
+<p><br>
+A Massachusetts resident is <a href="https://web.archive.org/web/20150408141656/http://boston.cbslocal.com/2011/09/28/ashland-man-charged-in-plot-to-attack-pentagon-u-s-capitol/">accused of plotting to damage</a> the Capitol building and Pentagon in Washington D.C. remote controlled planes filled with C-4 explosives. <a href="https://web.archive.org/web/20150408141656/http://www.washingtonpost.com/national/national-security/mass-man-accused-of-plotting-to-hit-pentagon-and-capitol-with-drone-aircraft/2011/09/28/gIQAWdpk5K_story.html?hpid=z2">According to the Washington Post</a>, &quot;Rezwan Ferdaus, a U.S.-born citizen of South Asian background, traveled to Washington last May to conduct surveillance and intended to launch three small GPS-guided aircraft from East Potomac Park &#x2014; two against the Pentagon and one against the Capitol, according to a detailed plan he gave to the FBI.&quot;</p>
+
+<p>Ferdaus, a 26-year-old graduate of Northeastern University, was also charged with  attempting to provide support and resources to al Qaeda to carry out attacks on U.S. soldiers overseas.  The FBI says he had already purchased one model airplane (pictured above), a &quot;replica of a Navy F-4 Phantom jet with a Playboy logo on its tail, using the name of former Yankee great Dave Winfield,&quot; and <a href="https://web.archive.org/web/20150408141656/http://www.nydailynews.com/news/national/2011/09/28/2011-09-28_rezwan_ferdaus_arrested_accused_of_plotting_attack_on_pentagon_capitol_using_exp.html">was arrested when he bought the C-4 as well as three grenades and six AK-47s</a> from &quot;FBI agents posing as Al Qaeda operatives.&quot;  </p>
+
+<p>The complaint against Ferdaus, who lived in his parents&apos; basement, says that he began plotting violent &quot;jihad&quot; last year, after viewing videos and extremist websites.  The WaPo also reports, &quot;In a series of recorded conversations with a former felon who was cooperating with the FBI and two undercover agents, Ferdaus described Americans as the &apos;enemies of Allah&apos; and said he wanted to &apos;decapitate&apos; the U.S. government&#x2019;s &apos;military center,&apos; according to the affidavit.&quot;</p>
+
+<p><a title="View U.S. Attorney&apos;s Complaint Against Rezwan Ferdaus on Scribd" href="https://web.archive.org/web/20150408141656/http://www.scribd.com/doc/66756652/U-S-Attorney-s-Complaint-Against-Rezwan-Ferdaus" style="margin: 12px auto 6px auto; font-family: Helvetica,Arial,Sans-serif; font-style: normal; font-variant: normal; font-weight: normal; font-size: 14px; line-height: normal; font-size-adjust: none; font-stretch: normal; -x-system-font: none; display: block; text-decoration: underline;">U.S. Attorney&apos;s Complaint Against Rezwan Ferdaus</a><iframe class="scribd_iframe_embed" src="https://web.archive.org/web/20150408141656if_/http://www.scribd.com/embeds/66756652/content?start_page=1&amp;view_mode=list&amp;access_key=key-1850xwswz2z2lv6obsab" data-auto-height="true" data-aspect-ratio="" scrolling="no" id="doc_54448" width="100%" height="600" frameborder="0"></iframe></p>
+
+<p><a href="https://web.archive.org/web/20150408141656/http://www.boston.com/Boston/metrodesk/2011/09/feds-agents-charge-ashland-man-with-targeting-pentagon-capitol-with-aerial-explosives/ECftBKY6IX6HQif2DlDiNN/index.html?p1=News_links">U.S. Attorney Carmen Ortiz said</a>, &#x201C;The conduct alleged today shows that Mr. Ferdaus had long planned to commit violent acts against our country. Thanks to the diligence of the FBI and our many other law enforcement partners, that plan was thwarted,&quot; adding, &quot;I want the public to understand that Mr. Ferdaus&#x2019; conduct, as alleged in the complaint, is not reflective of a particular culture, community or religion. In addition to protecting our citizens from the threats and violence alleged today, we also have an obligation to protect members of every community, race, and religion against violence and other unlawful conduct.&quot;</p>					
+										
+									
+				

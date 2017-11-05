@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: October  7, 2010  9:24 AM
+title: Parker Spitzer's 2nd Night Ratings Improve
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2010_09_parkersi.jpg" src="https://web.archive.org/web/20130303055503im_/http://gothamist.com/attachments/jen/2010_09_parkersi.jpg" width="110" height="96" class="image-right"> </span>After a <a href="https://web.archive.org/web/20130303055503/http://gothamist.com/2010/10/06/parker_spitzers_first_ratings_are_b.php">flaccid premiere</a>, the second night ratings for the new Eliot Spitzer-Kathleen Parker CNN talk show, <em>Parker Spitzer</em>, did better. According to Media Decoder, the show &quot;had nowhere to go but up &#x2014; and up it went. The program, which also had a rough first outing at the hands of critics, showed noticeable ratings improvement on its second night: it averaged 513,000 viewers, up from 454,000 the night before, which is a respectable improvement of 13 percent.&quot;  Maybe the viewers were there for the <a href="https://web.archive.org/web/20130303055503/http://gothamist.com/2010/10/05/adjectives_for_parker_spitzer_queas.php">sulfurous chemistry</a> or the <a href="https://web.archive.org/web/20130303055503/http://gothamist.com/2010/10/06/parker_spitzers_first_ratings_are_b.php">car crash</a>.</p>

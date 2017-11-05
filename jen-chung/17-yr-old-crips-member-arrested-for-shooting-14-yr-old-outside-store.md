@@ -1,0 +1,11 @@
+---
+author: Jen Chung
+date: February 23, 2012  2:05 PM
+title: 17-Yr-Old Crips Member Arrested For Shooting 14-Yr-Old Outside Store
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-right" style=" width:365px; "> <img alt="2011_10_handcuffs2.jpg" src="https://web.archive.org/web/20120503050916im_/http://gothamist.com/attachments/jen/2011_10_handcuffs2.jpg" width="365" height="256"> <br> <i>Phtoograph by <a href="https://web.archive.org/web/20120503050916/http://www.shutterstock.com/gallery-87133p1.html">Al Mueller</a> / Shutterstock.com</i></div> A 17-year-old member of the Crips was arrested after allegedly firing into a crowd outside a Rockaway Beach store, hitting a 14-year-old boy.  The NYPD says two plainclothes police officers, part of the Queens Gang Unit, were driving by when they saw Christopher Chinloy fire. <p></p>
+
+<p>The <a href="https://web.archive.org/web/20120503050916/http://www.nypost.com/p/news/local/queens/cops_teen_gang_member_who_fired_2AWP1BRaqSj3HLxrsNWLQI?CMP=OTC-rss&amp;FEEDNAME=">Post reports</a>, &quot;The veteran cops, Sergeant Craig Bier and Officer Donnell Myers, were on their way back to their command... when they heard the gun fire on Beach Channel Drive, cops said. The quick thinking officer swung the unmarked car around and Chinloy, a known Crips member, started charging at the vehicle with the gun still in his hand, police said. Chinloy dropped the weapon and surrendered after the officers identified themselves, authorities said.&quot;</p>
+
+<p>The boy was taken to Jamaica Hospital and was in stable condition.  <a href="https://web.archive.org/web/20120503050916/http://www.nydailynews.com/news/crips-gang-member-17-busted-teen-shooting-police-article-1.1027226?localLinksEnabled=false">According to the Daily News</a>, Chinloy, who has four prior arrests for gun possession, &quot;was charged with attempted murder, criminal possession of a weapon, reckless endangerment and unlawful possession of marijuana.&quot; </p>

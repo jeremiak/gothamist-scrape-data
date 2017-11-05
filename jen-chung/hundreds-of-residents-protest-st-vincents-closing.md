@@ -1,0 +1,13 @@
+---
+author: Jen Chung
+date: April 25, 2010  9:29 AM
+title: Hundreds Of Residents Protest St. Vincent's Closing
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2010_04_stvins.jpg" src="https://web.archive.org/web/20130723171126im_/http://gothamist.com/attachments/jen/2010_04_stvins.jpg" width="223" height="200" class="image-left"> </span>Yesterday, hundreds of people protested the<a href="https://web.archive.org/web/20130723171126/http://gothamist.com/2010/04/07/greenwich_villages_st_vincents_hosp.php"> closing of St. Vincent&apos;s</a>, the Greenwich Village hospital whose financial troubles have caused its downfall.  They <a href="https://web.archive.org/web/20130723171126/http://www.nydailynews.com/ny_local/2010/04/25/2010-04-25_protest_rally_for_st_vincents.html">carried a coffin</a> that said &quot;No ER = DOA&quot;  from 25th Street and 9th Avenue to the hospital at 7th Avenue and 12th Street while demonstrators <a href="https://web.archive.org/web/20130723171126/http://origin.ny1.com/1-all-boroughs-news-content/top_stories/117539/lower-manhattan-residents-rally-for-st--vincent-s-sake">said,</a> &quot;Many people are going to die because of this,&quot; and &quot;Save our hospital!&quot; while recounting how the hospital saved their lives.</p>
+
+<p>While the state plans to open an urgent care center, residents say it will not be able to replace the level one trauma center that St. Vincent&apos;s operated.  Many were bitter at the hospital&apos;s administrators and state and local officials. One person said, &quot;It&apos;s so sad it makes me cry, that they would even think of letting this hospital close. So get off their butts and do something,&quot; while others called City Council Speaker Christine Quinn a &quot;sell-out&quot;; the Daily News reports that Quinn said, &quot;No one sold anybody out. We&apos;re all angry.&quot;  Other hospitals are <a href="https://web.archive.org/web/20130723171126/http://gothamist.com/2010/04/19/beth_israel_busy_with_ex-st_vincent.php">dealing with an increase of patients</a> due to St. Vincent&apos;s closing.</p>
+
+<p>Here&apos;s video of the demonstration: One woman describes how she was run over by a garbage truck and St. Vincent&apos;s helped rehabilitate her.</p>
+
+<p><object width="640" height="385"><param name="movie" value="http://www.youtube.com/v/AvZngTcIb98&amp;hl=en_US&amp;fs=1&amp;"><param name="allowFullScreen" value="true"><param name="allowscriptaccess" value="always"><embed src="https://web.archive.org/web/20130723171126oe_/http://www.youtube.com/v/AvZngTcIb98&amp;hl=en_US&amp;fs=1&amp;" type="application/x-shockwave-flash" allowscriptaccess="always" allowfullscreen="true" width="640" height="385"></object></p>

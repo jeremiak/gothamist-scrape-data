@@ -1,0 +1,13 @@
+---
+author: Jen Chung
+date: April 10, 2012  2:04 PM
+title: Ray Kelly Wants Patrol Cars To Say "NYPD Police," Not Just "Police"
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="2012-02_copbike.jpg" src="https://web.archive.org/web/20120411214526im_/http://gothamist.com/attachments/jen/2012-02_copbike.jpg" width="640" height="512"> <br> <i>Detail from photograph by <a href="https://web.archive.org/web/20120411214526/http://www.flickr.com/photos/lpq/5215795617">elkue on Flickr</a></i></div> <p></p>
+
+<p>FYI: Not all police cars in the city are the NYPD&apos;s!  At least, that&apos;s Police Commissioner Kelly&apos;s concern, so he&apos;s ordering that any police cruiser that goes in for regular maintenance <a href="https://web.archive.org/web/20120411214526/http://www.nypost.com/p/news/local/cruisers_getting_nypd_clues_kdzeJutSWjrD3HcLcC2AoL?utm_medium=rss&amp;utm_content=%20%20%20%20%20%20%20%20Local">get a new decal that says &quot;NYPD Police,&quot; versus plain ol&apos; &quot;Police,&quot;</a> which is what it says on the front and back of marked police cruisers now.  </p>
+
+<p>The Post reports, &quot;Kelly ordered the change after he saw a car marked &apos;Police&apos; driving erratically in December and thought it was from his department, sources told The Post. According to one source, this happened on the day that police vehicles from several law-enforcement agencies were headed to the funeral of slain cop Peter Figoski on Long Island. Kelly had the erratic car checked out and found that it was from another department. But if he could be confused by the marking, the public could be, too, he concluded.&quot; Yeah&#x2014;if a police officer is <a href="https://web.archive.org/web/20120411214526/http://gothamist.com/2012/02/28/on-duty_nypd_officer_crashes_car_in.php">allegedly drunk driving a cruiser</a> or is <a href="https://web.archive.org/web/20120411214526/http://gothamist.com/2010/10/27/cop_blocks_bike_lane_to_ticket_cycl.php">blocking the bike lane</a>, we need to know whether it&apos;s NYPD or not.</p>
+
+<p><a href="https://web.archive.org/web/20120411214526/https://twitter.com/#!/azipaybarah/status/189708317243883521">Radio host John Gambling said of the plan</a>, &quot;Can you imagine what that costs?&quot; Well, there are no hard numbers, but there are 3,300 cruisers&#x2014;one source complained to the Post, &quot;It&#x2019;s definitely going to tie up cars and manpower&quot;&#x2014;so someone with some auto body experience give us an estimate!</p>

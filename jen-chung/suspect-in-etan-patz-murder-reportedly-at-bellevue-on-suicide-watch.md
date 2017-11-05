@@ -1,0 +1,21 @@
+---
+author: Jen Chung
+date: May 25, 2012 11:37 am
+title: Suspect In Etan Patz Murder Reportedly At Bellevue, On Suicide Watch
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2012_05_etancovers.jpg" src="https://web.archive.org/web/20150509233746im_/http://gothamist.com/attachments/jen/2012_05_etancovers.jpg" width="640" height="459" class="image-none"> </span></p>
+
+<p>Last night, the NYPD revealed that NJ resident <a href="https://web.archive.org/web/20150509233746/http://gothamist.com/2012/05/24/nypd_commissioner_pedro_hernandez_a.php">Pedro Hernandez was arrested and charged for the 1979 murder</a> of 6-year-old Etan Patz. Now, it&apos;s reported that he has been taken to Bellevue Hospital. <a href="https://web.archive.org/web/20150509233746/http://www.nypost.com/p/news/local/suspect_suicide_source_patz_murder_JaSVUoyl0e3h4la6u4mfDO?utm_medium=rss&amp;utm_content=%20%20%20%20%20%20%20%20Local"> A source told the Post</a>, &quot;He has been talking about killing himself.&quot;  <a href="https://web.archive.org/web/20150509233746/http://www.nydailynews.com/news/crime/etan-patz-suspect-takes-detour-bellevue-hospital-court-appearance-article-1.1084474">The Daily News reports</a>, &quot;Hernandez, a disabled former construction worker, was in need of medication, the sources said,&quot; while the NY Times says he was <a href="https://web.archive.org/web/20150509233746/http://www.nytimes.com/2012/05/26/nyregion/pedro-hernandez-suspect-in-patz-case-taken-to-bellevue.html?_r=2&amp;partner=rss&amp;emc=rss&amp;pagewanted=all">placed on suicide watch</a>.</p>
+
+<p>Today is the <a href="https://web.archive.org/web/20150509233746/http://gothamist.com/2012/04/19/etan_patzs_1979_disappearance_in_so.php">33rd anniversary of Etan&apos;s disappearance</a> from a Soho street, and yesterday&apos;s news that a <a href="https://web.archive.org/web/20150509233746/http://gothamist.com/2012/05/24/nypd_man_implicated_himself_in_etan.php">man had implicated himself in the boy&apos;s death</a> marked the beginning of a surprising chapter in the sad saga.  Hernandez&apos;s arrest is also the first time anyone has been arrested in connection with the boy&apos;s disappearance.  According to police, Hernandez had confessed to relatives that he had killed a child in New York City over the past decades, but a tipster only called the NYPD after the <a href="https://web.archive.org/web/20150509233746/http://gothamist.com/2012/04/19/spotted_fbi_on_prince_and_wooster.php">FBI and NYPD went back to a Soho basement</a> to look for possible remains (none were found) last month. </p>
+
+<p>Hernandez was scheduled to be arraigned later today.  <a href="https://web.archive.org/web/20150509233746/http://www.nbcnewyork.com/news/local/Bodega-Clerk-Pedro-Hernandez-Etan-Patz-1979-Disappearance-Arrest-Murder-154007265.html">According to NBC New York</a>, &quot;He is [currently] in isolation and receiving a medical evaluation at the hospital. Another source told NBC 4 New York that this evaluation is precautionary and that such extra steps in a case like this are often routine.&quot;  </p>
+
+<p>No motive has been declared and it seems unlikely that Etan&apos;s remains will be found.  Hernandez allegedly said that he lured the little boy, who was walking a few blocks along Prince Street from his parents&apos; loft to the bus stop, with the promise of a soda and then strangled him the basement of a bodega. Hernandez, then 18, had only worked at the bodega for a month; while he had been questioned during the initial investigation, he was apparently never considered a suspect.  He moved to NJ shortly after Etan&apos;s disappearance.</p>
+
+<p>A source told the Daily News, &quot;He was repeatedly asked why he did it, and he couldn&#x2019;t give us an answer. He said he had no idea why he did this.&quot;  Police Commissioner Ray Kelly, though, said that when Hernandez confessed to police&#x2014;his confession in NJ was videotaped and he also wrote a confession&#x2014;he seemed relieved.  It&apos;s also been reported than Hernandez, who is married and has a 20-year-old daughter, has cancer.  </p>					
+										
+									
+				

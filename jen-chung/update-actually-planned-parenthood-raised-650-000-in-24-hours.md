@@ -1,0 +1,24 @@
+---
+author: Jen Chung
+date: Feb 2, 2012 2:55 pm
+title: UPDATE: Actually, Planned Parenthood Raised $650,000 In 24 Hours
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2012_01-komenf.jpg" src="https://web.archive.org/web/20150321203413im_/http://gothamist.com/attachments/jen/2012_01-komenf.jpg" width="640" height="432" class="image-none"> </span><br>
+<span class="photo_caption">Susan G. Komen Foundation founder Nancy Brinker</span></p>
+
+<p>After news that leading breast cancer charity, The Susan G. Komen Foundation, was <a href="https://web.archive.org/web/20150321203413/http://gothamist.com/2012/01/31/susan_g_komen_foundation_ends_plann.php">stopping its funding to Planned Parenthood&apos;</a>s breast screening and health initiatives, Planned Parenthood supporters <a href="https://web.archive.org/web/20150321203413/http://gothamist.com/2012/02/01/will_women_drop_support_of_susan_g.php">donated over $400,000 in 24 hours</a>.  And a grant from a Texas couple will raise the total to $650,000. <b>UPDATE</b>: Now, <a href="https://web.archive.org/web/20150321203413/https://twitter.com/#!/NYTMetro/status/165163009684160512">according to NYTMetro</a>, Mayor Bloomberg says he&apos;ll <a href="https://web.archive.org/web/20150321203413/http://gothamist.com/2012/02/02/bloomberg_to_donate_250000_to_plann.php">donate up to $250,000 to Planned Parenthood</a>, which would raise the total to $900,000.  </p>
+
+<p>Last year, the Susan G. Komen Foundation gave $680,000&#x2014;and about $580,000 in 2010&#x2014;in grants to Planned Parenthood affiliates, which went towards breast screenings and education.  However, Planned Parenthood believes that anti-abortion figures inside (like <a href="https://web.archive.org/web/20150321203413/https://twitter.com/#!/girlmeetsgeek/status/165145431326720000">VP Karen Handel</a>) and close with the Komen foundation pushed Komen to stop the funding (Komen has claimed that a House investigation&#x2014;launched by a pro-life Republican&#x2014;into Planned Parenthood&apos;s practices are why it cannot offer grants).  </p>
+
+<p>Amy and Lee Fikes&apos; foundation is giving $250,000 to the organization; the couple <a href="https://web.archive.org/web/20150321203413/http://www.plannedparenthood.org/about-us/newsroom/press-releases/alarmed-saddened-komen-foundation-succumbing-political-pressure-planned-parenthood-launches-fun-38629.htm">released a statement saying</a>, &quot;Our family is saddened that the far right has relentlessly and successfully pressured the Susan G. Komen for the Cure Foundation to cut funding for breast screening, referral, and education support to low-income women who, until now, have been able to depend on the partnership between Komen and Planned Parenthood for their health.&quot; The money will go towards &quot;establish[ing] a Breast Health Fund at Planned Parenthood, so that their health centers across the country can continue to put the real needs of women ahead of right wing ideology. We encourage others to join us in replacing the funds lost, so that no woman&#x2019;s health is imperiled by Komen&#x2019;s unfortunate decision.&quot;</p>
+
+<p><a href="https://web.archive.org/web/20150321203413/http://www.reuters.com/article/2012/02/02/us-usa-healthcare-komen-idUSTRE8111WA20120202">Komen is on the defensive</a>, with founder Nancy Brinker issuing a YouTube video explaining its decision, &quot;We will never bow to political pressure... The scurrilous accusations being hurled at this organization are profoundly hurtful to so many of us. But more importantly, they are a dangerous distraction from the work that still remains to be done in ridding the world of breast cancer.&quot; Brinker named the foundation, which has raised nearly $2 billion towards breast cancer researched, after her sister.  </p>
+
+<p><iframe width="640" height="360" src="https://web.archive.org/web/20150321203413if_/http://www.youtube.com/embed/I4oOh6JhayA?rel=0" frameborder="0" allowfullscreen></iframe></p>
+
+<p>Planned Parenthood says, &quot;In 5 years, support from Susan G. Komen allowed PP health centers to provide nearly 170,000 breast exams &amp; 6,400 mammogram referrals.&quot;  In the furor, it&apos;s believed that one of the Komen Foundation&apos;s top officials resigned, because she <a href="https://web.archive.org/web/20150321203413/http://www.theatlantic.com/health/archive/2012/02/top-susan-g-komen-official-resigned-over-planned-parenthood-cave-in/252405/">objected to the decision to defund Planned Parenthood</a>.  </p>					
+										
+									
+				

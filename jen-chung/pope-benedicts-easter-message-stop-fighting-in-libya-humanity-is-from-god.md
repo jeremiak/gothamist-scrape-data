@@ -1,0 +1,21 @@
+---
+author: Jen Chung
+date: April 24, 2011 10:47 AM
+title: Pope Benedict's Easter Message: Stop Fighting In Libya, Humanity Is From God
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="2011_04_popeben.jpg" src="https://web.archive.org/web/20110629185538im_/http://gothamist.com/attachments/jen/2011_04_popeben.jpg" width="640" height="440"> <br> <i>Pope Benedict in the Vatican City today (AP)</i></div> <p></p>
+
+<p>Today, Pope Benedict <a href="https://web.archive.org/web/20110629185538/http://www.google.com/hostednews/afp/article/ALeqM5jY5PP4BBALyOLHrdqBB0oWweNJsw?docId=CNG.311ff618d7ac4d442e5627247e763672.561">gave his Easter message to the Catholic masses</a> from the Vatican, and urged that the fighting in Libya end, &quot;In the current conflict in Libya, may diplomacy and dialogue replace arms, and may those who suffer as a result of the conflict be given access to humanitarian aid,&quot; and held hope for peaceful resolutions in North Africa and the Middle East, &quot;May all citizens, especially young people, work to promote the common good.&quot;</p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="2011_04_popeben2.jpg" src="https://web.archive.org/web/20110629185538im_/http://gothamist.com/attachments/jen/2011_04_popeben2.jpg" width="640" height="426"> <br> <i>Pope Benedict addressing people in St. Peter&apos;s Square today (Vatican)</i></div> <p></p>
+
+<p>The pontiff, the holy leader of over 1 billion Catholics worldwide, also raised a touchy subject in West Europe, by urging people to &quot;open their hearts (to) those fleeing conflict and to refugees from various African countries ... so that the pressing needs of so many brothers and sisters will be met with a concerted response in a spirit of solidarity&quot; (Italy and France are <a href="https://web.archive.org/web/20110629185538/http://www.reuters.com/article/2011/04/24/us-italy-france-idUSTRE73N0Y520110424">trying to stop migration</a>).</p>
+
+<p>The AP noted that Pope Benedict <a href="https://web.archive.org/web/20110629185538/http://www.google.com/hostednews/ap/article/ALeqM5j81wZ55SLfAhCAWsdFb82uEpYCsQ?docId=8bfc6386ad6d43ae9003371ff2960027">brought up that humanity isn&apos;t a random product of evolution</a>:</p><blockquote>Benedict emphasized the Biblical account of creation in his Easter Vigil homily Saturday, saying it was wrong to think at some point &quot;in some tiny corner of the cosmos there evolved randomly some species of living being capable of reasoning and of trying to find rationality within creation, or to bring rationality into it.&quot;<p></p>
+
+<p>&quot;If man were merely a random product of evolution in some place on the margins of the universe, then his life would make no sense or might even be a chance of nature,&quot; he said. &quot;But no, reason is there at the beginning: creative, divine reason.&quot;</p>
+
+<p>Church teaching holds that Roman Catholicism and evolutionary theory are not necessarily at odds: A Christian can, for example, accept the theory of evolution to help explain developments, but is taught to believe that God, not random chance, is the origin of the world. The Vatican, however, warns against creationism, or the overly literal interpretation of the Bibilical account of creation.</p></blockquote>The pontiff also offered this wish for Japan, &quot;May Japan find consolation and hope as it faces the dramatic consequences of the recent earthquake, along with other countries that in recent months have been tested by natural disasters which have sown pain and anguish.&quot;<p></p>
+
+<p>The Vatican is readying for the <a href="https://web.archive.org/web/20110629185538/http://www.vatican.va/special/anniversario_gpii/documents/index_en.htm">beatification of late Pope John Paul II</a>&#x2014;300,000 more visitors <a href="https://web.archive.org/web/20110629185538/http://www.reuters.com/article/2011/04/23/us-pope-easter-idUSTRE73M2CV20110423">are expected in Rome</a> for the three-week program of events that starts this week.</p>

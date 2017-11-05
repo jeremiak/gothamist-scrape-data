@@ -1,0 +1,13 @@
+---
+author: Jen Chung
+date: October 30, 2011  5:13 PM
+title: Conan O'Brien Is In NYC, And His Hat Is A Hit With The Dudes
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:600px; "> <img alt="twitpic_nyc_0.jpg" src="https://web.archive.org/web/20111101203647im_/http://gothamist.com/attachments/jen/twitpic_nyc_0.jpg" width="600" height="450"> <br> <i>&quot;Bought this hat because I thought it would make me look cool in New York. So far, six men have asked me out.&quot;</i></div> <p></p>
+
+<p>Conan O&apos;Brien will be filming his <a href="https://web.archive.org/web/20111101203647/http://teamcoco.com/conannyc">late-night talk show</a> from the Beacon Theatre this week, and he bought a new chapeau!  He just Tweeted, &quot;Bought this hat because i thought it would make me look cool in New York. So far, six men have asked me out.&quot; So it was TOTALLY worth the money!  Also awesome about his shows: O&apos;Brien will be <a href="https://web.archive.org/web/20111101203647/http://newsfeed.time.com/2011/10/30/conan-obrien-to-officiate-same-sex-wedding-on-upcoming-show/">officiating a same-sex marriage for one of his staffers</a>!</p>
+
+<p>The NYC shows are to celebrate his one-year anniversary on TBS.  It&apos;s also a homecoming of sorts for him: O&apos;Brien left NYC for greener, Tonight Show pastures <a href="https://web.archive.org/web/20111101203647/http://gothamist.com/2009/02/21/conan_says_farewell_as_he_late_shif.php">back in 2009</a>, only for NBC to changes its mind and push Jay Leno <a href="https://web.archive.org/web/20111101203647/http://gothamist.com/2010/01/07/conan.php">back into the 11:30 p.m. timeslot</a>, resulting in <a href="https://web.archive.org/web/20111101203647/http://gothamist.com/2010/01/21/conan_and_nbc_sign_departure_deal.php">tons of drama</a>, a <a href="https://web.archive.org/web/20111101203647/http://gothamist.com/2010/03/11/go_go_coco_conan_obrien_tour_ticket.php">comedy tour</a> and a <a href="https://web.archive.org/web/20111101203647/http://gothamist.com/2010/04/12/conan_makes_move_to_tbs.php">new home at TBS</a> for the flame-haired talk show host.</p>
+
+<p>At the Time Warner Center, the <a href="https://web.archive.org/web/20111101203647/http://gothamist.com/2011/10/20/conan_museum_coming_to_manhattan_te.php">second floor features the Conan Museum</a> (COCO MOCA) with artworks inspired by O&apos;Brien, plus the Conan Loveseat &quot;interactive robotic couch sculpture that talks to fans, hugs them and takes a picture for them.&quot;</p>

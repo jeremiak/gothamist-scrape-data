@@ -1,0 +1,19 @@
+---
+author: Jen Chung
+date: Sep 28, 2011 10:34 am
+title: Seven Arrested In Long Island SAT-For-Hire Scam 
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:365px; "> <img alt="2011_09_satexam.jpg" src="https://web.archive.org/web/20160608175831im_/http://gothamist.com/attachments/jen/2011_09_satexam.jpg" width="365" height="245"> <br> <i>Image courtesy of <a href="https://web.archive.org/web/20160608175831/http://www.shutterstock.com/gallery-88579p1.html">David Gallaher</a> / Shutterstock</i></div> How much are people willing to pay for SAT scores between 2170 and 2220?  According to the Nassau County DA&apos;s office, 19-year-old Samuel Eshagoff, a Great Neck High graduate, accepted payments of $1,500-2,500 from six students to take their SATs for them.  Eshagoff, who went to University Michigan and then transferred to Emory University, was arrested and charged with &quot;Scheme to Defraud in the First Degree, six counts of Falsifying Business Records in the Second Degree, and six counts of Criminal Impersonation in the Second Degree,&quot; while the six kids who hired him were charged with misdemeanors. <p></p>
+
+<p><a href="https://web.archive.org/web/20160608175831/http://www.nassaucountyny.gov/agencies/DA/NewsReleases/2011/092711eshaghoff.htm">DA Kathleen Rice revealed</a> that earlier this year, Great Neck High School faculty &quot;heard rumors that students had paid a third party to take the SAT for them. Administrators at the top-ranked high school identified the six students by reviewing records of students who had taken the test at a different school and had large discrepancies between their academic performance records and their SAT scores.&quot;  The students were five boys and one girl who had a gender neutral name.  </p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-right" style=" width:300px; "> <img alt="2011_09_esgahoff.jpg" src="https://web.archive.org/web/20160608175831im_/http://gothamist.com/attachments/jen/2011_09_esgahoff.jpg" width="300" height="301"> <br> <i>Samuel Eshaghoff</i></div> <a href="https://web.archive.org/web/20160608175831/http://www.nypost.com/p/news/local/hire_ed_cheating_scandal_AKV8MHxSP8orQgoJn7TnaL">The Post reports,</a> &quot;All of the students paid Eshaghoff his fee -- except for the girl, who did not make a cash payment. It was unclear if another form of compensation was involved in her case. The teens all signed up to take the tests away from their own school so their faces wouldn&#x2019;t be recognized by proctors.&quot; Eshagoff then used fake ID cards at the exam sites.<p></p>
+
+<p>Eshagoff allegedly took the tests between 2009 and 2011, even flying back from college one weekend.  He apparently used his ill-gotten gains to &quot;<a href="https://web.archive.org/web/20160608175831/http://www.newsday.com/long-island/nassau/cops-7-arrested-in-sat-test-taking-scheme-1.3204408">pay for his gym membership and other items</a>.&quot; Eshagoff now faces up to four years in prison if convicted and DA Kathleen Rice said, &quot;Colleges look for the best and brightest students, yet these six defendants tried to cheat the system and may have kept honest and qualified students from getting into their dream school.&quot;</p>
+
+<p>However, <a href="https://web.archive.org/web/20160608175831/http://www.newsday.com/long-island/nassau/cops-7-arrested-in-sat-test-taking-scheme-1.3204408">Eshagoff&apos;s lawyer think the matter is overblown</a> and should have been handled by the school while one of the lawyers for one of the alleged SAT fakers said,  &quot;No one condones cheating, but what&apos;s next? A taxpayer-funded arrest of the freckle-faced kid who looks over his schoolmate&apos;s shoulder?&quot; But don&apos;t these attorneys know not to screw around with ETS?!</p>					
+										
+									
+				

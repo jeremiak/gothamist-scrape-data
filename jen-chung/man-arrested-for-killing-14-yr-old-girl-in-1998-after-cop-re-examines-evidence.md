@@ -1,0 +1,13 @@
+---
+author: Jen Chung
+date: May 10, 2012 10:02 AM
+title: Man Arrested For Killing 14-Yr-Old Girl In 1998 After Cop Re-Examines Evidence
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left"> <img alt="2012_04_coldcase.jpg" src="https://web.archive.org/web/20120511113653im_/http://gothamist.com/attachments/jen/2012_04_coldcase.jpg" width="350" height="240"> <br> <i style=" width:350px; ;display:block"> Suspect James Martin, victim Marleny Cruz</i></div> In February 1998, a 14-year-old Bronx girl was killed and strangled in a Bronx park, and it wasn&apos;t until October 1998 that the <a href="https://web.archive.org/web/20120511113653/http://www.nytimes.com/1998/10/30/nyregion/metro-news-briefs-new-york-body-found-in-february-identified-as-a-runaway.html">girl was identified as Marleny Cruz</a>, a runaway from a foster home.  Now, the police have finally made an arrest in her murder, all because a Bronx homicide detective decided to go back to evidence storage.<p></p>
+
+<p><a href="https://web.archive.org/web/20120511113653/http://www.nbcnewyork.com/news/local/Cold-Case-Bronx-1998-Murder-Rape-14-Year-Old-Marleny-Cruz-Solved-Arrest-James-Martin-DNA-Pennsylvania-150872535.html">James Martin was arrested</a> and extradited from Pennsylvania where he&apos;s currently serving a prison sentence for killing his wife. <a href="https://web.archive.org/web/20120511113653/http://www.nypost.com/p/news/local/nailed_from_grave_TezV6quVg0EpSg2D3NnjSP?utm_medium=rss&amp;utm_content=Local">According to the Post</a>, the cop &quot;retrieved her nail scrapings from evidence storage, allowing the tragic girl to essentially finger her killer from beyond the grave... It was Detective Malcolm Reiman of the Bronx Homicide Task Force who cracked the girl&#x2019;s long-cold case, requesting the DNA profile in September 2011 and &#x2014; once he got his hit &#x2014; personally driving Martin from the Somerset Correctional Facility to the 41st Precinct station house.&quot;</p>
+
+<p>Cruz&apos;s foster mother Alice McLeod told the Post, &quot;God made her do that &#x2014; swipe at him. She nailed him, so that later they could nail him, too.&quot;  She praised the detectives, &quot;They are my angels.&quot;</p>
+
+<p>Martin achieved infamy when he was 17: In 1989, he <a href="https://web.archive.org/web/20120511113653/http://sportsillustrated.cnn.com/vault/article/magazine/MAG1136895/index.htm">strangled a 15-year-old friend for his Air Jordans</a>.</p>

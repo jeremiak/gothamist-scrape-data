@@ -1,0 +1,17 @@
+---
+author: Jen Chung
+date: Aug 4, 2010 9:40 am
+title: It Only Took Over Four Months: Albany Passes A Budget!
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2010_07_statesenate2.jpg" src="https://web.archive.org/web/20150429171629im_/http://gothamist.com/attachments/jen/2010_07_statesenate2.jpg" width="270" height="211" class="image-left"> </span>It&apos;s hard to figure out if Albany&apos;s passage of the state budget&#x2014;originally due on April 1&#x2014;is a good thing or a bad thing.  Here&apos;s the AP&apos;s lede: &quot;It&apos;s four months late and critics say it&apos;s so out of balance that it won&apos;t hold together, but New York state finally has a budget passed by the Senate,&quot; plus, &quot;The fight over the new budget went down to the wire. Senators denounced each other, the governor and even the sloppy wording of the budget bill.&quot; Yay, more fighting!</p>
+
+<p>The Assembly had already passed the budget, so it was up to the Senate to stop dragging its feet and it eventually passed the bill, 32-28. The <a href="https://web.archive.org/web/20150429171629/http://www.nydailynews.com/ny_local/2010/08/03/2010-08-03_budget_for_state_finally_gets_nod.html?r=ny_local&amp;utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+nydnrss%2Fny_local+%28NY+Local%29&amp;utm_content=Google+Reader">Daily News reports</a>, &quot;At 125 days late, the budget is tied for the third-latest ever and fell just eight days short of the all-time record. Among the new taxes and fees, which passed the Assembly weeks ago, is the restoration of the 4% state sales tax on clothing and shoe purchases under $110. The renewed tax won&apos;t begin until October, giving parents one more shot at shopping tax-free for back-to-school clothes.&quot; </p>
+
+<p>The State Legislature also <a href="https://web.archive.org/web/20150429171629/http://www.ny1.com/content/top_stories/123190/albany-lawmakers-reach-deal--pass-125-day-late-budget">removed a controversial tax on out-of-state hedge fund managers</a> (sorry, <a href="https://web.archive.org/web/20150429171629/http://www.nypost.com/p/news/local/living_on_the_hedge_Nv8mbQtT1owRYGkYaSsELP">Connecticut Governor Rell</a>) but failed on a measure to let the SUNY and CUNY system <a href="https://web.archive.org/web/20150429171629/http://www.nypost.com/p/news/local/eureka_budget_finally_passes_K5bbFnf5fcLKciD93stUFK">set its own tuition</a>.  All told, the state budget is $134.4 billion.</p>
+
+<p>While the Senate Democrats <a href="https://web.archive.org/web/20150429171629/http://www.nytimes.com/2010/08/04/nyregion/04albany.html?_r=1&amp;ref=nyregion">called the budget</a> &quot;fair and responsible,&quot; Senate Minority Leader Dean Skelos (R-Long Island) said, &#x201C;Today, Senate Democrats finished voting on a budget that raises taxes by nearly $4 billion. Today&#x2019;s action also completes one of the latest budgets in state history. What did taxpayers get as a result? They got higher spending and more taxes, but not a single initiative to create any new jobs or improve New York&#x2019;s economy.&#x201D; Even State Senator Ruben Diaz (D-Bronx) said, &quot;Don&apos;t come here to vote for this bill and tell me you are not selling out your community. If you vote for this bill, you are selling out your community.&quot;</p>					
+										
+									
+				

@@ -1,0 +1,13 @@
+---
+author: Jen Chung
+date: September 15, 2010 11:02 AM
+title: Video: Christine O'Donnell Is Master Of Her Domain
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2010_09_christodon.jpg" src="https://web.archive.org/web/20110629173258im_/http://gothamist.com/attachments/jen/2010_09_christodon.jpg" width="640" height="365" class="image-none"> </span></p>
+
+<p>Last night in Delaware, Tea Party upstate Christine O&apos;Donnell defeated mainstream Republican candidate Mike Castle to win the Republican Senate primary.  The victory for O&apos;Donnell, a marketing consultant who got a boost from former Alaska governor Sarah Palin, is being called a <a href="https://web.archive.org/web/20110629173258/http://www.delawareonline.com/article/20100915/NEWS02/9150356/O+DONNELL+IN+SHOCKER">&quot;shocker&quot;</a> and <a href="https://web.archive.org/web/20110629173258/http://www.foxnews.com/politics/2010/09/14/hours-polls-close-gloves-come-delaware/">&quot;stunning&quot;</a> as well as a <a href="https://web.archive.org/web/20110629173258/http://www.politico.com/news/stories/0910/42172.html">&quot;GOP nightmare.&quot;</a> But the most interesting thing that came out last night was when MSNBC&apos;s Rachel Maddow showed a clip of O&apos;Donnell in a 1996 MTV &quot;Sex in the &apos;90s&quot; segment:  O&apos;Donnell, looking like a dead ringer for Elaine Benes, explaining why even masturbation is a sin, &quot;<strong>The Bible says that lust in your heart is committing adultery. You can&apos;t masturbate without lust! </strong>&quot;</p>
+
+<p><object width="640" height="505"><param name="movie" value="http://www.youtube.com/v/RzHcqcXo_NA?fs=1&amp;hl=en_US"><param name="allowFullScreen" value="true"><param name="allowscriptaccess" value="always"><embed src="https://web.archive.org/web/20110629173258oe_/http://www.youtube.com/v/RzHcqcXo_NA?fs=1&amp;hl=en_US" type="application/x-shockwave-flash" allowscriptaccess="always" allowfullscreen="true" width="640" height="505"></object></p>
+
+<p>What&apos;s the over-under on a reporter asking if she&apos;s master of her domain (or <a href="https://web.archive.org/web/20110629173258/http://www.seinfeldscripts.com/TheContest.htm">queen of her castle</a>)? Maybe <a href="https://web.archive.org/web/20110629173258/http://www.mtv.com/news/correspondents/sway/bio.jhtml">Sway</a> should inquire, since he&apos;s MTV and all.  As for her chances in November...Hell, even Karl Rove <a href="https://web.archive.org/web/20110629173258/http://www.foxnews.com/on-air/hannity/transcript/karl-rove-questions-christine-o039donnell039s-039serious-character-problems039">thinks she says a lot of nutty things</a>! </p>

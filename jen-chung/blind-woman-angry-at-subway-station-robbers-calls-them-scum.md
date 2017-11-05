@@ -1,0 +1,13 @@
+---
+author: Jen Chung
+date: May 25, 2012  1:20 PM
+title: Blind Woman Angry At Subway Station Robbers, Calls Them "Scum"
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left"> <img alt="2012_05_75thave.jpg" src="https://web.archive.org/web/20120527034333im_/http://gothamist.com/attachments/jen/2012_05_75thave.jpg" width="300" height="225"> <br> <i style=" width:300px; ;display:block"> Via <a href="https://web.archive.org/web/20120527034333/http://en.wikipedia.org/wiki/File:75th_Avenue_IND_Queens_Mosaics.JPG">Wikipedia</a></i></div> The 69-year-old blind woman who was <a href="https://web.archive.org/web/20120527034333/http://gothamist.com/2012/05/23/nypd_these_two_people_robbed_blind.php">robbed at a Queens subway station</a> last month is speaking out. Karen Eisenstadt <a href="https://web.archive.org/web/20120527034333/http://www.nydailynews.com/new-york/queens/put-thugs-a-long-time-blind-victim-forest-hills-subway-mugging-article-1.1084377">told the Daily News</a>, &quot;Scum like that should not be out there stealing from anybody &#x2014; not just from a handicapped person &#x2014; but anybody. People should be able to walk around and not have this happen to them.&quot;<p></p>
+
+<p>According to police, when Eisenstadt was walking with her guide dog through the train station at Queens Boulevard and 75 Avenue, three suspects approached her. One &quot;reached into the victim&apos;s right dress pocket and removed her wallet.&quot; Eisenstadt said, &quot;When I was walking down the second flight of steps, I felt something &#x2014; a touch. But I had a dog in one hand and a whole bunch of bags in another hand; I wasn&#x2019;t sure what happened.&quot;</p>
+
+<p>It turned out that her change purse, which held &quot;her ID, MetroCard and her debit and two credit cards,&quot; was gone.  Some people helped her look for the purse, while another person flagged down cops for her.  Then when she was canceling her credit cards, it turned out the robbers had already been using them, &quot;It was a pain in the neck to replace everything, but it&#x2019;s a pain in the neck when it happens to anyone &#x2014; blind or not.&quot;</p>
+
+<p>The police have arrested two of the suspects&#x2014;Latisha Richardson, 39, and Michael Peoples, 45&#x2014;and <a href="https://web.archive.org/web/20120527034333/http://www.nypost.com/p/news/local/queens/second_suspect_nabbed_in_blind_woman_vs0xJminMHH1rEMoegaYQK">charged them with</a> grand larceny, possession of stolen property and jostling; cops are still looking for the third suspect.</p>

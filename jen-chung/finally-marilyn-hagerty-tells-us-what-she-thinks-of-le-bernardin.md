@@ -1,0 +1,19 @@
+---
+author: Jen Chung
+date: Mar 21, 2012 5:52 pm
+title: Finally, Marilyn Hagerty Tells Us What She Thinks Of Le Bernardin
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="2012_02_marilynleber.jpg" src="https://web.archive.org/web/20141230203220im_/http://gothamist.com/attachments/jen/2012_02_marilynleber.jpg" width="640" height="359"> <br> <i>Charred Octopus &quot;a la plancha&quot;; Green Olive and Black Garlic Emulsion, Sundried Tomato Sauce Vierge (via <a href="https://web.archive.org/web/20141230203220/http://marilynhagerty.areavoices.com/">Marilyn Hagerty&apos;s blog</a>)</i></div> <p></p>
+
+<p>After her <a href="https://web.archive.org/web/20141230203220/http://gothamist.com/2012/03/14/grand_forkss_food_critic_takes_culi.php#photo-1">whirlwind culinary tour of NYC</a>, North Dakota restaurant critic and Internet viral sensation Marilyn Hagerty has finally filed her review of one of the city&apos;s best restaurants, <a href="https://web.archive.org/web/20141230203220/http://www.le-bernardin.com/">Le Bernardin</a>.  And guess what&#x2014;it seems better than the new <a href="https://web.archive.org/web/20141230203220/http://www.grandforksherald.com/event/article/id/231419/">Olive Garden in Grand Forks</a>!  </p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-right" style=" width:320px; "> <img alt="2012_02_mareric.jpg" src="https://web.archive.org/web/20141230203220im_/http://gothamist.com/attachments/jen/2012_02_mareric.jpg" width="320" height="240"> <br> <i>Via <a href="https://web.archive.org/web/20141230203220/https://twitter.com/#!/lostincentralia">Lost in Centralia</a></i></div> <a href="https://web.archive.org/web/20141230203220/http://www.grandforksherald.com/event/article/id/232570/">She writes</a>, &quot;It was an unforgettable experience because of the elegant food and impeccable service. We came away marveling at the highly professional serving staff, the sommelier who described the wines he paired with each course and the chefs in the kitchen.&quot;  She and her dining companion Ryan Babb of Forum Communications had the chef&apos;s tasting menu&#x2014;<a href="https://web.archive.org/web/20141230203220/http://marilynhagerty.areavoices.com/2012/03/20/dinner-photos-le-bernardin/">see photos here</a>&#x2014;&quot;First course: caviar-waygu. Second course: octopus. Ryan said he had never eaten it before. I nodded and said, &apos;Neither have I. Dig in.&apos; Servings were light and inviting.&quot; <p></p>
+
+<p>They also met chef Eric Ripert, who took them on a tour of the kitchen.  Obviously, her experience as a &quot;critic&quot; is very different from one who wears disguises or tries to go incognito <a href="https://web.archive.org/web/20141230203220/http://www.nytimes.com/2005/03/16/dining/reviews/16rest.html">for the review</a>, since Hagerty reveals &quot;the staff was aware of our mission of testing, tasting and writing. We received special attention, but I think the experience would be as good for all customers.&quot;</p>
+
+<p>Hagerty also appeared on Anderson Cooper&apos;s talk show&#x2014;<a href="https://web.archive.org/web/20141230203220/http://www.andersoncooper.com/2012/03/19/marilyn-hagerty-reviews-crown-restaurant-nyc/">she reviewed Crown for him</a>&#x2014;and in turn, he <a href="https://web.archive.org/web/20141230203220/http://www.grandforksherald.com/event/article/id/232547/">gave her a cruise holiday trip to Italy</a>. And did you realize you can get Marilyn t-shirts: <a href="https://web.archive.org/web/20141230203220/http://www.grandforksherald.com/pages/marilyn_hagerty_tshirts"> &quot;I&apos;ve been a lot of other things, but never viral!&quot;</a></p>					
+										
+									
+				

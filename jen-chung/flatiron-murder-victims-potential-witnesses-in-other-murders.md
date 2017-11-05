@@ -1,0 +1,17 @@
+---
+author: Jen Chung
+date: Oct 5, 2010 11:10 am
+title: Flatiron Murder Victims: Potential Witnesses In Other Murders
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="2010_09_murderve.jpg" src="https://web.archive.org/web/20160711140044im_/http://gothamist.com/attachments/jen/2010_09_murderve.jpg" width="640" height="429"> <br> <i>Photograph of an investigator at the crime scene on East 19th, just east of Broadway, by <a href="https://web.archive.org/web/20160711140044/http://www.flickr.com/photos/sglobus/5050480779/">Global Voyager on Flickr</a></i></div> <p></p>
+
+<p>The police are still investigating the <a href="https://web.archive.org/web/20160711140044/http://gothamist.com/2010/10/04/two_men_fatally_shot_at_19th_st_bro.php">killings of two men</a> on East 19th Street near Broadway in Manhattan&apos;s Flatiron District, but now it turns out the victims may have been witnesses in other murders.  Terrance Serrano, 22, and Rashawn Washington, 26, were shot in the head, execution-style, at 4 a.m. on Monday while sitting in a Mercury SUV.  A witness <a href="https://web.archive.org/web/20160711140044/http://www.ny1.com/content/top_stories/126484/nypd--pair-found-shot-in-suv-may-have-been-murder-witnesses">told NY1</a>, &quot;I distinctly heard two and then a pause and then a continuation, then I heard about 10 seconds later a car pulling out with the wheel&apos;s screeching.&quot;</p>
+
+<p>The <a href="https://web.archive.org/web/20160711140044/http://www.nypost.com/p/news/local/manhattan/two_men_shot_dead_near_union_square_9Lm4uJjKQmpvaAgG6IvNxJ">Post says</a> that &quot;two armed thugs...were caught on video surveillance following the victims, who had just left the Roam Lounge, to their silver-colored Mercury SUV at Broadway and 19th Street. The assassins, who pulled up behind them in a dark sedan, jumped out of their vehicle.&quot;  While the Post adds that the police are looking into the possibility Serrano and Washington had a dispute at the nightclub, the <a href="https://web.archive.org/web/20160711140044/http://www.nydailynews.com/news/ny_crime/2010/10/04/2010-10-04_flatiron_murders_two_men_shot_to_death_in_parked_suv_near_manhattan_nightclub.html">Daily News speaks to a source</a> that says the pair had criminal records and many enemies, &quot;<strong>Both are known gang-bangers who are involved in many things, and their business is likely behind their execution - not the fact that they were potential witnesses in other homicide.</strong>&quot;</p>
+
+<p>A friend of the victims told the News, &quot;They were two people that always looked out for everyone in the hood, and they always were a positive crowd to be around.&quot;  But the News noticed that Serrano &quot;posted on Twitter about the possibility of dying young&quot; hours before he was killed,&quot; and he quoted Fabolous&apos; &quot;<a href="https://web.archive.org/web/20160711140044/http://www.killerhiphop.com/fabolous-body-count-lyrics/">Body Count</a>,&quot; &quot;And @ my Funeral it&apos;s only one wish: I ask give da haters a chance 2 see me cause it&apos;s dey last [chance] - and 1 by 1 turn me over let em kiss my a--.&quot;</p>					
+										
+									
+				

@@ -1,0 +1,15 @@
+---
+author: Jen Chung
+date: Apr 22, 2010 10:04 am
+title: Mayor Offers Progress Report On Green Initiatives
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2010_04_planyc.jpg" src="https://web.archive.org/web/20150424164755im_/http://gothamist.com/attachments/jen/2010_04_planyc.jpg" width="230" height="270" class="image-left"> </span>Mayor Bloomberg will be in Times Square today, to celebrate Earth Day (<a href="https://web.archive.org/web/20150424164755/http://www.nytimes.com/2010/04/22/business/energy-environment/22earth.html?src=busln">which is 40 years old</a>) with U.N. Secretary General Ban Ki-Moon, City Council Quinn, and others, including a <em>virtual</em> Vice President Al Gore.  Which makes it perfect timing to look back at Earth Day 2007, when the <a href="https://web.archive.org/web/20150424164755/http://gothamist.com/2007/04/23/yes_there_is_co.php">mayor announced PlaNYC 2030</a>, his list of 127 initiatives for the city to achieve sustainability by the year 2030. (Hey, the Mayor&apos;s Office <a href="https://web.archive.org/web/20150424164755/http://twitter.com/NYCMayorsOffice/status/12637593476">Tweeted this morning,</a> &quot;Welcome to NYC, where every day is Earth Day.&quot;) And, for what it&apos;s worth, that 2007 speech is also the one where he broached the topic of...congestion pricing.  </p>
+
+<p>According to a 2010 progress report (<a href="https://web.archive.org/web/20150424164755/http://www.nyc.gov/html/planyc2030/downloads/pdf/planyc_progress_report_2010.pdf">PDF</a>), 56% of the 2009 interim milestones have been achieved or mostly achieved. The Environment News Services <a href="https://web.archive.org/web/20150424164755/http://www.ens-newswire.com/ens/apr2010/2010-04-21-092.html">notes examples like</a>, &quot;While the city did not meet its goal of constructing 240 Greenstreets by December 2009, only 224 were completed.&quot;  The <a href="https://web.archive.org/web/20150424164755/http://www.nydailynews.com/ny_local/2010/04/21/2010-04-21_bloomys_green_dream_fails_as_just_51_of_his_127_environmental_milestones_are_com.html">Daily News looks </a>at it another way: Only 51 of the 127 projects were completed, with 21 &quot;nearly achieved,&quot; and the remaining 55 &quot;suffered budget shortfalls or haven&apos;t yet gotten needed support from state or federal governments.&quot;  </p>
+
+<p>Mayor Bloomberg said, &quot;For three years, PlaNYC has changed the way New Yorkers think about their city and the future. We must continue to tackle the challenges we face and dream big. Our City and future generations are depending on it.&quot; More details at <a href="https://web.archive.org/web/20150424164755/http://nyc.gov/planyc">PlaNYC 2030</a> and, after the jump, some achievements cited by the Mayor&apos;s office: </p>					
+										
+									
+				

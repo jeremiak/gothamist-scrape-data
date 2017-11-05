@@ -1,0 +1,17 @@
+---
+author: Jen Chung
+date: Nov 24, 2011 11:15 am
+title: Man Stands For 7-Hour Flight Because Of Obese Passenger
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-right" style=" width:350px; "> <img alt="2011_11_obpasse.jpg" src="https://web.archive.org/web/20160315054719im_/http://gothamist.com/attachments/jen/2011_11_obpasse.jpg" width="350" height="338"> <br> <i>An obese passenger on an <a href="https://web.archive.org/web/20160315054719/http://gothamist.com/2009/12/03/new_photo_brings_flying_overweight.php">American Airlines flight in 2009</a></i></div> With <a href="https://web.archive.org/web/20160315054719/http://gothamist.com/2011/11/23/thanksgiving_eve_travelers_face_usu.php">crowded flights</a> on the mind of many travelers this week, as well as gluttony, one airline passenger&apos;s seven-hour flight on US Airways has struck a chord: Arthur Berkowitz says he had to stand for the flight from Alaska to Philadelphia because a morbidly obese passenger <a href="https://web.archive.org/web/20160315054719/http://www.elliott.org/blog/forced-to-stand-for-a-seven-hour-flight/">made nearly impossible for him to sit in his own seat</a>.<p></p>
+
+<p>Berkowitz&apos;s flight was on July 29, and he <a href="https://web.archive.org/web/20160315054719/http://www.elliott.org/blog/forced-to-stand-for-a-seven-hour-flight/">went to consumer advocate Christopher Elliott</a> after what he felt was an inadequate response from US Airways.  Berkowitz says <a href="https://web.archive.org/web/20160315054719/http://abcnews.go.com/US/passenger-forced-stand-obese-flyer-takes-seat/story?id=15017545#.Ts5fEHOleEw">the obese passenger was apologetic</a> upon taking the middle seat, &quot;I&apos;m your worst nightmare&quot; as the armrests had to be kept up and his body covered half of Berkowitz&apos;s seat.  The flight attendants were sorry but not helpful: &quot;No other seats existed on plane. They would not permit me to sit in their jump seats, and fully acknowledged the mistake by their gate agent, in allowing this individual on plane without requiring him to purchase and occupy two seats.&quot;</p>
+
+<p>Berkowitz says the situation &quot;did not allow me to use my seatbelt during takeoff and landing&quot;&#x2014;he wedged in during those times&#x2014;&quot;as well as required me to stand in the aisle and galley area for most of the seven-hour plus flight.&quot;  US Airways apologized and gave Berkowitz a $200 voucher, but he told Elliott, &quot;The $200 is inappropriate. I paid in excess of $800 for the ticket,&quot; and thinks the airline should have required the man to buy another seat.</p>
+
+<p>Many airlines are starting to <a href="https://web.archive.org/web/20160315054719/http://gothamist.com/2009/04/15/great_big_fat_persons_might_have_to.php">charge obese passengers for a second seat</a> if they can&apos;t buckle the seatbelt using a single seatbelt extender or are <a href="https://web.archive.org/web/20160315054719/http://newyork.cbslocal.com/2011/05/18/another-too-fat-to-fly-controversy-hits-southwest-airlines/">unable to put the seat&apos;s armrests down</a>.</p>					
+										
+									
+				

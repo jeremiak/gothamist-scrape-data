@@ -1,0 +1,53 @@
+---
+author: Jen Chung
+date: May 26, 2011 4:33 am
+title: Dominique Strauss-Kahn Moves To Swank TriBeCa Townhouse
+---
+
+	
+					<div class="galleryEase" id="gallery-471051">
+<!-- gallery js -->
+<script type="text/javascript" src="https://web.archive.org/web/20140521025942js_/http://assets.gothamistllc.com/v5/js/gallery.js"></script>
+<!-- end gallery js -->
+
+<style type="text/css">
+#imgContainer {
+min-height: 300px;
+min-width: 300px;
+background: url('https://web.archive.org/web/20140521025942im_/http://assets.gothamistllc.com/v5/images/progress.gif') center center no-repeat;
+}
+</style>
+
+<!--start of gallery code-->
+<a name="gallery"></a>
+<div class="galleryEaseDisplayed">
+<div id="imgContainer">
+    <img id="galleryImg">
+</div>
+<div class="galleyEaseInfo"></div>
+<div class="galleryEaseNext"></div>
+<div class="galleryEasePrev"></div>
+</div>
+<div class="galleryEaseThumbs">
+		<img src="https://web.archive.org/web/20140521025942im_/http://gothamist.com/assets_c/2011/05/2011_05_dskemer-thumb-60x60-627835.jpg" title="" id="photo_1" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":1, "image": "https://web.archive.org/web/20140521025942/http://gothamist.com/upload/2011/05/2011_05_dskemer.jpg", "caption": "Dominique Straus-Kahn emerges from 71 Broadway", "credit":"AP"};galleryObj['photo_1'] = photo;</script>
+		<img src="https://web.archive.org/web/20140521025942im_/http://gothamist.com/assets_c/2011/05/2011_05_dsknypd2-thumb-60x60-627834.jpg" title="" id="photo_2" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":2, "image": "https://web.archive.org/web/20140521025942/http://gothamist.com/upload/2011/05/2011_05_dsknypd2.jpg", "caption": "Outside 153 Franklin Street", "credit":"AP"};galleryObj['photo_2'] = photo;</script>
+		<img src="https://web.archive.org/web/20140521025942im_/http://gothamist.com/assets_c/2011/05/2011_05_1538-thumb-60x60-627826.jpg" title="" id="photo_3" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":3, "image": "https://web.archive.org/web/20140521025942/http://gothamist.com/upload/2011/05/2011_05_1538.jpg", "caption": "From the real estate listing for the buildingâpretty roof deck", "credit":""};galleryObj['photo_3'] = photo;</script>
+		<img src="https://web.archive.org/web/20140521025942im_/http://gothamist.com/assets_c/2011/05/2011_05_1537-thumb-60x60-627827.jpg" title="" id="photo_4" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":4, "image": "https://web.archive.org/web/20140521025942/http://gothamist.com/upload/2011/05/2011_05_1537.jpg", "caption": "One of the home\'s bedrooms", "credit":""};galleryObj['photo_4'] = photo;</script>
+		<img src="https://web.archive.org/web/20140521025942im_/http://gothamist.com/assets_c/2011/05/2011_05_1535-thumb-60x60-627828.jpg" title="" id="photo_5" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":5, "image": "https://web.archive.org/web/20140521025942/http://gothamist.com/upload/2011/05/2011_05_1535.jpg", "caption": "An exercise room", "credit":""};galleryObj['photo_5'] = photo;</script>
+		<img src="https://web.archive.org/web/20140521025942im_/http://gothamist.com/assets_c/2011/05/2011_05_1533-thumb-60x60-627829.jpg" title="" id="photo_6" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":6, "image": "https://web.archive.org/web/20140521025942/http://gothamist.com/upload/2011/05/2011_05_1533.jpg", "caption": "A home theater", "credit":""};galleryObj['photo_6'] = photo;</script>
+		<img src="https://web.archive.org/web/20140521025942im_/http://gothamist.com/assets_c/2011/05/2011_05_1534-thumb-60x60-627830.jpg" title="" id="photo_7" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":7, "image": "https://web.archive.org/web/20140521025942/http://gothamist.com/upload/2011/05/2011_05_1534.jpg", "caption": "The living room", "credit":""};galleryObj['photo_7'] = photo;</script>
+<br>		<img src="https://web.archive.org/web/20140521025942im_/http://gothamist.com/assets_c/2011/05/2011_05_1532-thumb-60x60-627831.jpg" title="" id="photo_8" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":8, "image": "https://web.archive.org/web/20140521025942/http://gothamist.com/upload/2011/05/2011_05_1532.jpg", "caption": "A floor plan of 153 Franklinâwe\'re sure DSK\'s security has considered what to block off", "credit":""};galleryObj['photo_8'] = photo;</script>
+		<img src="https://web.archive.org/web/20140521025942im_/http://gothamist.com/assets_c/2011/05/2011_05_1531-thumb-60x60-627832.jpg" title="" id="photo_9" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":9, "image": "https://web.archive.org/web/20140521025942/http://gothamist.com/upload/2011/05/2011_05_1531.jpg", "caption": "A bathroom", "credit":""};galleryObj['photo_9'] = photo;</script>
+		<img src="https://web.archive.org/web/20140521025942im_/http://gothamist.com/assets_c/2011/05/2011_05_dskinside-thumb-60x60-627833.jpg" title="" id="photo_10" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":10, "image": "https://web.archive.org/web/20140521025942/http://gothamist.com/upload/2011/05/2011_05_dskinside.jpg", "caption": "Outside 153 Franklin last night.", "credit":""};galleryObj['photo_10'] = photo;</script>
+		<img src="https://web.archive.org/web/20140521025942im_/http://gothamist.com/assets_c/2011/05/2011_05_imfguy-thumb-60x60-627839.jpg" title="" id="photo_11" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":11, "image": "https://web.archive.org/web/20140521025942/http://gothamist.com/attachments/jen/2011_05_imfguy.jpg", "caption": "Outside of 71 Broadwayâobviously this sign needs to move to 153 Franklin", "credit":"Paul Ker"};galleryObj['photo_11'] = photo;</script>
+									
+</div></div>					<p>Sorry, tourists: If, after shopping at Century 21 and seeing Ground Zero, you were hoping to visit <a href="https://web.archive.org/web/20140521025942/http://gothamist.com/2011/05/22/nycs_hot_new_tourist_attraction_71.php">71 Broadway</a> to tell your friends, &quot;Hey, I saw the building where <a href="https://web.archive.org/web/20140521025942/http://gothamist.com/tags/dominiquestrausskahn">Dominique Strauss-Kahn</a> has house arrest,&quot; you&apos;re out of luck.  The former head of the International Monetary Fund moved to a multi-million dollar townhouse at 153 Franklin Street yesterday.  However, this new location is very close to Chinatown and those <a href="https://web.archive.org/web/20140521025942/http://gothamist.com/2011/04/26/buying_a_counterfeit_bag_could_soon.php">counterfeit bags tourists seem to adore</a>.  </p>
+
+<p><a href="https://web.archive.org/web/20140521025942/http://www.nypost.com/p/news/local/sides_agree_kahn_new_location_for_2LivNFoPUdd57uRWPlwpVK?CMP=OTC-rss&amp;FEEDNAME=">According to the Post</a>, &quot;The silver-haired Lothario, who only a week ago was rotting away on suicide watch in a tiny isolation cell at Rikers, will move into a three-story, 6,800 square-foot townhouse at 153 Franklin St., at $50,000 a month the most expensive rental in Tribeca, sources said yesterday.&quot; And there&apos;s &quot;a bar, home theater, gym and steam bath and spa&quot;&#x2014;not bad for a guy accused of trying to rape and forcing a hotel maid to perform oral sex on him. The Post says the luxurious property also attracted Alex Rodriguez&apos;s and Cameron Diaz&apos;s attention but &quot;Now, an accused sex monster will call it home, and with four bedrooms and five full baths there will be plenty of living space for the disgraced ex-IMF hotshot, his millionaire heiress wife - and the armed security guards on hand to prevent his escape.&quot;  </p>
+
+<p><a href="https://web.archive.org/web/20140521025942/http://www.trulia.com/property/3017017208-153-Franklin-St-New-York-NY-10013">Here&apos;s the Trulia description</a>:</p><blockquote>PRIVATE GARAGE POSSIBLE! One of a kind 27 ft wide townhouse on a beautiful cobblestone street in the heart of Tribeca. Exquisite top to bottom renovation by famed Architect/Designer Leopoldo Rosati just completed with only the finest materials and craftsmanship. Lower level: State of the Art dBox Motion Controlled Theater, Gym, Spa Steam Bath, Bar. First floor: Nanny/Guest Suite w/bath &amp; separate entrance, Boffi Kitchen with Miele &amp; Gaggenau appliances, limestone radiant heat floors, great room with large skylight and fireplace. Second floor: Antique French wide plank oak floors, two bedrooms with custom closets, Italian limestone bath&#x2026; with Duravit jet tub and waterfall shower. Large planted terrace with Japanese paper glass wall and Wolf natural gas grill. Third Floor: Master suite w/wide plank floors, wet bar, his/her walk-in closets/dressing rooms, Limestone bath w/Duravit jetted tub &amp; dual rainfall steam shower. Entire home features Italian cabinetry, new windows, custom steel staircases, Control 4 automation system with custom lighting &amp; speakers throughout.</blockquote><p></p>
+
+<p>The building had been on the market for <a href="https://web.archive.org/web/20140521025942/http://ny.curbed.com/archives/2009/10/06/on_the_market_renovation_markup_on_tribeca_townhouse.php">just under $15 million</a> in 2009 but is now <a href="https://web.archive.org/web/20140521025942/http://ny.curbed.com/archives/2010/12/01/tribeca_townhouse_renovation_still_waiting_for_its_perfect_match.php">priced at $13,995,000</a>. Well, since there&apos;s a home theater, maybe <a href="https://web.archive.org/web/20140521025942/http://www.nydailynews.com/news/ny_crime/2011/05/25/2011-05-25_dominique_strausskahn_accused_of_sexual_assault_bored_of_house_arrest_moving_to_.html">DSK will be less bored</a>&#x2014;there are so many seasons of Law &amp; Order: Special Victims on <a href="https://web.archive.org/web/20140521025942/http://movies.netflix.com/WiMovie/Law-Order-Special-Victims-Unit-The-Tenth-Year/70117358#height1251">Netflix</a> and <a href="https://web.archive.org/web/20140521025942/http://www.hulu.com/law-and-order-special-victims-unit">Hulu</a>.</p>					
+										
+									
+				

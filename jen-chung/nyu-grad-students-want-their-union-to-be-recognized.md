@@ -1,0 +1,11 @@
+---
+author: Jen Chung
+date: April 28, 2010  1:19 PM
+title: NYU Grad Students Want Their Union To Be Recognized
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2010_04_unionnyu.jpg" src="https://web.archive.org/web/20110913170621im_/http://gothamist.com/attachments/jen/2010_04_unionnyu.jpg" width="240" height="288" class="image-left"> </span>NYU&apos;s graduate students who work as teaching assistants are attempting to bring back their union. The Graduate Student Organizing Committee/UAW Local 2110, along with Rep. Jerrold Nadler and City Council Speaker Christine Quinn, presented NYU officials with a American Arbitration Association certificate indicating that majority of NYU&apos;s graduate students want to be in a union and represented by GSOC/UAW.  <a href="https://web.archive.org/web/20110913170621/http://www.2110uaw.org/gsoc/gsoc_demands_recognition.htm">According to GSOC/UAW</a>, &quot;We are demanding voluntary recognition from NYU in order to correct an injustice that has gone on for too many years. Over the past decade, the majority of NYU graduate employees have consistently chosen GSOC/UAW for union representation. But time and again, the university has blatantly ignored our preferences and denied our rights.&quot;</p>
+
+<p><a href="https://web.archive.org/web/20110913170621/http://www.nytimes.com/2010/04/28/nyregion/28grad.html?ref=nyregion">The NY Times gives more history</a>: Grad students signed union contact with NYU in 2002 (&quot;stipends [were raised] by nearly 40 percent, improved health benefits and paid the assistants extra if their work took more than 20 hours a week&quot;).  But then &quot;the labor board&#x2019;s 2004 ruling took away their right to unionize and bargain for a contract, the assistants were unable to persuade N.Y.U. to sign a new contract.&quot; </p>
+
+<p>A Ph.D. student said, &quot;We want a union because we perform essential services to the university and we want to have a democratic say in wages and benefits and conditions. This would give us more security and stability in the workplace so that things don&#x2019;t change at the university&#x2019;s whim.&quot; Here&apos;s video of the rally: </p>

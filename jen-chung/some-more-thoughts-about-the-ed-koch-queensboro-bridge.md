@@ -1,0 +1,15 @@
+---
+author: Jen Chung
+date: March 24, 2011  6:47 PM
+title: Some More Thoughts About The Ed Koch Queensboro Bridge
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="2011_03_qnsboro.jpg" src="https://web.archive.org/web/20130722170615im_/http://gothamist.com/attachments/jen/2011_03_qnsboro.jpg" width="640" height="416"> <br> <i>Photograph by <a href="https://web.archive.org/web/20130722170615/http://www.flickr.com/photos/irishnyc/2271858235/">Irish NYC on Flickr</a></i></div> <p></p>
+
+<p>The <a href="https://web.archive.org/web/20130722170615/http://gothamist.com/2011/03/23/queensboro_bridge_could_be_koch_bri.php">controversial renaming of the Queensboro Bridge to the Ed Koch Queensboro Bridge</a> has made former mayor Ed Koch very grateful. <a href="https://web.archive.org/web/20130722170615/http://www.amny.com/urbanite-1.812039/honor-for-hizzoner-queensboro-bridge-renamed-for-ed-koch-1.2778918">He told amNY</a>, &quot;I&#x2019;m elated! It&#x2019;s the best gift from anyone.&quot; And he was happily surprised with the 38-12 City Council vote, &quot;That&#x2019;s better than what I thought would happen.&quot;  But let&apos;s review some of the dissenting remarks from Council members like Peter Vallone (D-Queens) and Charles Barron (D-Brooklyn), who actually suggested Rikers Island be named after Koch.</p>
+
+<p>Vallone, who wanted to keep the bridge as &quot;Queensboro&quot; for Queens pride, said, &quot;No one would ever think of renaming or co-naming the Brooklyn Bridge.&quot;  But James Gennaro (D-Queens) said, &quot;The whole notion that the status of Queens, the fortune of Queens, the good name of Queens is going to rise and fall on the fortunes of this bridge sells Queens short.&quot;  </p>
+
+<p><a href="https://web.archive.org/web/20130722170615/http://online.wsj.com/article/SB10001424052748704050204576219011651216054.html?mod=googlenews_wsj">Barron brought up Koch&apos;s record with African Americans</a>, &quot;Ya&#x2019;ll got to be kidding, a bridge named after Ed Koch. This is not the Ed Koch that black people know.&quot; The <a href="https://web.archive.org/web/20130722170615/http://blogs.wsj.com/metropolis/2011/03/23/take-the-ed-koch-queensboro-bridge-please/">Wall Street Journal reports</a>, &quot;Barron suggested that the council rename Riker&#x2019;s Island after the former mayor instead, because his policies resulted in so many young blacks being sent there.&quot; To which James Oddo (R-Staten Island) said, &quot;Save your material for Rudy Giuliani Turnpike when I introduce it.&quot;</p>
+
+<p>Koch told the WSJ he&apos;d be good for the bridge, &quot;So long as I&#x2019;m alive, if anybody suggests fares at that bridge, I will stand there like Horatio and stop it. No tolls on the Ed Koch Queensboro Bridge because you&#x2019;ll find me standing there with my sword.&quot;</p>

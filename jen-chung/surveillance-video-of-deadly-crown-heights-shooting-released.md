@@ -1,0 +1,19 @@
+---
+author: Jen Chung
+date: Sep 9, 2011 1:36 pm
+title: Surveillance Video Of Deadly Crown Heights Shooting Released
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:365px; "> <img alt="2011_09_gunshoot.jpg" src="https://web.archive.org/web/20160713000635im_/http://gothamist.com/attachments/jen/2011_09_gunshoot.jpg" width="365" height="268"> <br> <i>On the right side, you can see the suspect holding a gun from a doorway</i></div> A day after the <a href="https://web.archive.org/web/20160713000635/http://www.nydailynews.com/news/ny_crime/2011/09/08/2011-09-08_chilling_surveillance_videos_suggest_denise_gay_may_have_been_killed_by_stray_bu.html">Daily News columnist Michael Daly</a> (and a <a href="https://web.archive.org/web/20160713000635/http://www.nydailynews.com/opinions/2011/09/08/2011-09-08_let_new_york_see.html">News editorial</a>) demanded that the NYPD release video of the shooting between a murder suspect and police that left an <a href="https://web.archive.org/web/20160713000635/http://gothamist.com/2011/09/08/nypd_its_possible_a_police_bullet_k.php">innocent bystander dead</a>, the NYPD has made the video public. It shows suspect Leroy Webster exiting a building on Park Place, shooting and killing Eusi Johnson, and then how police fire at Webster as he tries to reenter the building.  However, it <a href="https://web.archive.org/web/20160713000635/http://blogs.villagevoice.com/runninscared/2011/09/video_of_the_cr.php">does not show</a> slain neighbor Denise Gay, who<a href="https://web.archive.org/web/20160713000635/http://gothamist.com/2011/09/08/nypd_its_possible_a_police_bullet_k.php"> may have been killed by a police bullet</a>.<p></p>
+
+<p>Initially police believed that Gay was killed by Webster, who was using a 9mm, but ballistics testing showed that the bullet is actually more similar to a bullet used in a Glock&#x2014;which is <a href="https://web.archive.org/web/20160713000635/http://www.nypost.com/p/news/local/brooklyn/police_release_shocking_footage_6LdcNz6TKriN9rK3WplIkM?CMP=OTC-rss&amp;FEEDNAME=">what some of the police officers used</a> (and the police fired 73 shots at Webster). Police spokesman Paul Browne said that witnesses saw Webster&apos;s victim, Johnson, with a gun, though a gun has not been found. &quot;Was it one of the officers&#x2019; Glocks?&quot; Browne rhetorically asked. &quot;Possibly. Was it from the gun witnesses said Mr. Johnson had, but has not been recovered? Possibly.&quot;</p>
+
+<p><iframe width="640" height="510" src="https://web.archive.org/web/20160713000635if_/http://www.youtube.com/embed/xSwCJdNPwrY" frameborder="0" allowfullscreen></iframe></p>
+
+<p>The <a href="https://web.archive.org/web/20160713000635/http://www.nytimes.com/2011/09/09/nyregion/killer-of-denise-gay-an-innocent-bystander-is-still-a-mystery.html?partner=rss&amp;emc=rss">NY Times spoke to a witness</a>, Lars Johnson, who &quot;thought it was quite likely that officers on Franklin Avenue fired the shot that killed Ms. Gay. He said that while some officers stood across from Mr. Webster&#x2019;s stoop, others stood at the end of the block, at Franklin Avenue. Between Ms. Gay&#x2019;s stoop and Mr. Webster&#x2019;s stoop is a tree that might have kept Ms. Gay out of view of the officers on Franklin, Mr. Russell said.&quot;  </p>
+
+<p>A former police firearms instructor told the Times &quot;the number of shots fired &#x2014; 73 &#x2014; and the number that missed their mark &#x2014; all but 2 &#x2014; was not unusual. He said that the fact that two police officers were shot made &apos;for more frayed nerves,&apos; which he said decreased accuracy. He added that the shooting also occurred at close range, and that the closer officers were to a threat, the more bullets they were likely to fire.&quot;</p>					
+										
+									
+				

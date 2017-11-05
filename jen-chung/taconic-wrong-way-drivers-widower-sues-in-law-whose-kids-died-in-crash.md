@@ -1,0 +1,15 @@
+---
+author: Jen Chung
+date: Jul 26, 2011 5:52 pm
+title: Taconic Wrong-Way Driver's Widower Sues In-Law Whose Kids Died In Crash
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:365px; "> <img alt="2011_07_schuler2.jpg" src="https://web.archive.org/web/20150131124756im_/http://gothamist.com/attachments/jen/2011_07_schuler2.jpg" width="365" height="261"> <br> <i>Photograph of Diane Schuler with her husband Danny, son Bryan and daughter Erin</i></div> Warren and Jackie Hance&apos;s three daughters were <a href="https://web.archive.org/web/20150131124756/http://gothamist.com/2009/07/26/head-on_crash_in_westchester_leaves.php">killed in 2009 </a> when Warren&apos;s sister, <a href="https://web.archive.org/web/20150131124756/http://gothamist.com/tags/dianeschuler">Diane Schuler</a>, drove a minivan for miles on the wrong side of the Taconic  Parkway and slammed into another SUV.  Besides the Hance girls, ages 5-8, Schuler and her 2-year-old daughter died, as well as the SUV&apos;s occupants, Michael Bastardi Sr., his son, Guy, and their family friend Daniel Longo. Only Schuler&apos;s son Bryan survived.  Reports <a href="https://web.archive.org/web/20150131124756/http://gothamist.com/2009/08/04/witnesses_taconic_crash_driver_was.php">found that Schuler was drunk and high</a>, but her husband has claimed she was not an alcoholic and <a href="https://web.archive.org/web/20150131124756/http://www.newsday.com/long-island/wrong-way-driver-s-in-law-speaks-out-1.3049529">thinks she had a stroke</a>.  Now Danny Schuler decided to sue Warren Hance, because it was Hance&apos;s car in the fatal crash.<p></p>
+
+<p>Danny Schuler&apos;s lawsuit says that Hance, who received a call from his daughter during the ride saying &quot;There&apos;s something wrong with Aunt Diane,&quot; is  &quot;vicariously liable.&quot;  <a href="https://web.archive.org/web/20150131124756/http://www.nypost.com/p/news/local/wrong_way_family_feud_4KzIwXB8nOCFJSwCgYhpFP?CMP=OTC-rss&amp;FEEDNAME=">Schuler&apos;s lawyer told the Post</a>, &quot;As the attorney representing Bryan and Erin Schuler, I&apos;m doing what needs to be done to protect their legal interests at this time.&quot;  But even a private investigator previously hired by Schuler to delve into details of the incident, Thomas Ruskin, was aghast, &quot;It&apos;s a terrible tragedy. His wife was drunk and high at the time of the accident that killed seven innocent people. You don&apos;t keep suing people.&quot;  Schuler has also sued NY State, claiming the roads weren&apos;t kept properly.</p>
+
+<p>Warren and Jackie Hance are expecting another child.  Jackie Hance<a href="https://web.archive.org/web/20150131124756/http://www.lhj.com/relationships/family/raising-kids/life-after-the-death-of-my-children/?page=2"> wrote in Ladies&apos; Home Journal</a> that the Bastardis have sued them for the crash, &quot;By some horrible irony, Warren could be taken to court. While everything that mattered was already gone, everything that remained could still be taken.&quot;</p>					
+										
+									
+				

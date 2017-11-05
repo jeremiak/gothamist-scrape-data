@@ -1,0 +1,11 @@
+---
+author: Jen Chung
+date: July 28, 2010 10:44 AM
+title: Is Jay-Z Annoyed With LeBron? Maybe
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <a href="https://web.archive.org/web/20110623151912/http://gothamist.com/attachments/jen/2010_06_proky.jpg"> <img alt="2010_06_proky.jpg" src="https://web.archive.org/web/20110623151912im_/http://gothamist.com/assets_c/2010/07/2010_06_proky-thumb-640x427-524186.jpg" width="280" height="186" class="image-left"> </a> </span>Looks like Jay-Z really wanted to impress Mikhail Prokhorov!  MediaTakeOut <a href="https://web.archive.org/web/20110623151912/http://mediatakeout.com/42443/falling_out_jay_z_upset_with_the_way_lebron_handled_free_agency____feels_like_bron_dissed_him_details.html">reported</a>, per an &quot;extremely credible insider,&quot; that the rap mogul feels dissed by <a href="https://web.archive.org/web/20110623151912/http://gothamist.com/tags/lebronjames">LeBron James</a> during James&apos; free agency sweepstakes, &quot;Jay Z was supposed to be able to bring stars to [the New Jersey] Nets - or at least have access to them. [During the time that LeBron was making his decision] he didn&apos;t even take [Jay Z&apos;s] calls. It made [Jay Z] look like he couldn&apos;t deliver to the Nets management... If [Jay Z] would have landed a star player, he could have been seen as a legitimate asset to the team. Now they see him as just dead weight.&quot;  </p>
+
+<p>Gatecrasher gets this take <a href="https://web.archive.org/web/20110623151912/http://www.nydailynews.com/gossip/2010/07/28/2010-07-28_untitled__28lede2.html">from another &quot;insider&quot;</a>: &quot;Jay never expected LeBron to sign with the Nets. He knew that no 25-year-old kid with James&apos; profile was going to spend years in Newark. But he&apos;s pissed, or at least disappointed, that LeBron didn&apos;t consult with him.&quot;  </p>
+
+<p>Jay-Z is an investor with the Nets, but he does play a public role by discussing the team when he&apos;s on <a href="https://web.archive.org/web/20110623151912/http://gothamist.com/2010/06/26/new_york_city_has_a_bad_case_of_leb.php">talk shows like the Late Show with David Letterman</a>.</p>

@@ -1,0 +1,11 @@
+---
+author: Jen Chung
+date: February 15, 2012  9:55 AM
+title: 71-Yr-Old, Walking To Valentine's Date, Killed By Hit-And-Run Driver On Flatbush Ave
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:300px; "> <img alt="2012-02_hrflatbush.jpg" src="https://web.archive.org/web/20120216055932im_/http://gothamist.com/attachments/jen/2012-02_hrflatbush.jpg" width="300" height="176"> <br> <i>Via NBC New York</i></div> A 71-year-old man who was walking to a Valentine&apos;s Day date was killed when he was <a href="https://web.archive.org/web/20120216055932/http://www.nypost.com/p/news/local/brooklyn/hit_run_kills_klyn_man_FoiqFjEjFDuLSvRJ5VVPPL">hit by one car and dragged by another</a> last night in Brooklyn&apos;s Flatbush section. Jean Jenniot had been crossing Flatbush  Avenue and East 26th Street around 6:10 p.m. when he was struck.  <a href="https://web.archive.org/web/20120216055932/http://www.nypost.com/p/news/local/brooklyn/hit_run_kills_klyn_man_FoiqFjEjFDuLSvRJ5VVPPL">A worker nearby said</a>, &quot;Someone hit him one way, then another guy drove over him and he was dragged out. It&#x2019;s a horrible intersection, it&#x2019;s very dangerous.&quot;<p></p>
+
+<p>A friend told the Daily News that Jeanniot, who came to Brooklyn from Haiti 34 years ago, &quot;was talking to his girlfriend on his cell phone and getting ready to meet her when he was hit,&quot; saying, &quot;He was dressed up. He knew it was Valentine&#x2019;s Day, he wanted to do something [nice].&quot; Another friend said, &quot;He was like a father to me - he treated me like a real daughter. He was always there to help me and help everyone in the block.&#x201D;</p>
+
+<p>Jeanniot was pronounced dead at Kings County Hospital.  The first driver fled the scene while the second driver remained and was not charged.  Cops are hoping to <a href="https://web.archive.org/web/20120216055932/http://abclocal.go.com/wabc/story?section=news/local/new_york&amp;id=8544319">get a description of the first car</a>.</p>

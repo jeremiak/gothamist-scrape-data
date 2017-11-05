@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: August 31, 2010 12:00 PM
+title: Dead Man's Memento: Bag Of Ground Zero Dust
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <a href="https://web.archive.org/web/20130404155548/http://gothamist.com/attachments/jen/2009_02_wtcdust2.jpg"> <img alt="2009_02_wtcdust2.jpg" src="https://web.archive.org/web/20130404155548im_/http://gothamist.com/assets_c/2009/02/2009_02_wtcdust2-thumb-138x125-61346.jpg" width="110" height="99" class="image-right"> </a> </span>While looking through her dead ex-boyfriend&apos;s van, a Brooklyn woman found some odd items.  <a href="https://web.archive.org/web/20130404155548/http://www.nydailynews.com/ny_local/brooklyn/2010/08/31/2010-08-31_creepy_surprise_bone_fragments_ground_zero_dust_found_in_dead_bklyn_mans_van.html">According to the Daily News</a>, &quot;Gary Louisa, who died last year of cancer at age 51, had hidden Ground Zero dust, a piece of a steel beam and bone fragments under the ragged driver&apos;s seat of his 1989 Ford Econoline van, cops said. The city medical examiner determined Monday that the bone chips were not human, but more tests were being done on a ziplock bag full of dust.&quot;  Rosa Cerrato, who was cleaning out the van so it could be donated, was relieved the bones were not human, &quot;Thank God it&apos;s not somebody&apos;s relative.&quot;</p>
