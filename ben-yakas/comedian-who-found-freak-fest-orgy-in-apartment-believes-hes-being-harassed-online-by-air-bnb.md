@@ -1,0 +1,33 @@
+---
+author: Ben Yakas
+date: Mar 29, 2014 3:55 pm
+title: Comedian Who Found "Freak Fest" Orgy In Apartment Believes He's Being Harassed Online By AirBNB
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="31614airbnb.jpg" src="https://web.archive.org/web/20150502194237im_/http://gothamist.com/attachments/byakas/31614airbnb.jpg" width="640" height="449"> <br> <i> Tenan&apos;s backyard (via AirBNB); insert of Tenan</i></div> <p></p>
+
+<p>A few weeks ago, comedian Ari Teman decided to rent out his luxury studio apartment in Chelsea for the weekend to &quot;David,&quot; a &quot;Verified&quot; AirBNB member who said he needed to stay in the city for a wedding. Teman then discovered that &quot;David&quot; was actually <a href="https://web.archive.org/web/20150502194237/http://gothamist.com/2014/03/16/comedian_claims_airbnb_rented_his_a.php">hosting an &quot;XXX Freak Fest&quot; orgy in his home</a>. In the weeks since, Teman has had a tentative truce with AirBNB, whom he blamed for the incident because they vouched for &quot;David&quot; as a customer. But now, he tells us he believes he is being harassed online by AirBNB: &quot;It&apos;s not a random guy, very specifically it&apos;s the guy in charge of customer advocacy for AirBNB,&quot; he told us. &quot;And instead of advocating for the customer he&apos;s harassing them, and what he&apos;s doing is just causing me emotional distress.&quot;</p>
+
+<p>Since the incident on March 16th, Teman says AirBNB has been &quot;responsive, and responded well, and then this happened.&quot; He says he&apos;s not legally allowed to talk about all the details, but <a href="https://web.archive.org/web/20150502194237/http://gawker.com/man-unwittingly-rents-out-apartment-on-airbnb-for-xxx-1544961941?utm_campaign=socialflow_gawker_twitter&amp;utm_source=gawker_twitter&amp;utm_medium=socialflow">Gawker initially reported</a> that AirBNB wired him $23K (of which AirBNB is insured), sent someone to change his locks, and put him up in a hotel for a few days. But this week, he noticed that AirBNB &quot;customer advocate team leader&quot; Simon McGarth was responding to his tweets from Ireland. You can see a screenshot below of a tweet that has since been deleted.</p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="32914teman2.jpg" src="https://web.archive.org/web/20150502194237im_/http://gothamist.com/attachments/byakas/32914teman2.jpg" width="640" height="293"> <br> <i> Screenshot <a href="https://web.archive.org/web/20150502194237/http://dearairbnb.tumblr.com/post/80872294388/airbnb-staff-please-stop-heckling-your-customer">via Teman</a></i></div> <p></p>
+
+<p>In addition, Teman says he&apos;s received &quot;a bunch of random, anonymous tweets from accounts that don&apos;t make any sense,&quot; which he seems to believe could also be AirBNB related. He says he hasn&apos;t had any contact with AirBNB since then: &quot;I tweeted them and they haven&apos;t tweeted back, we&apos;ve been very unsatisfied with their response on this matter and we&apos;re going to prepare legal action.&quot;</p>
+
+<p>Teman believes this kind of behavior is par for the course for AirBNB, <a href="https://web.archive.org/web/20150502194237/http://travel.usatoday.com/destinations/dispatches/post/2011/07/plot-thickens-airbnb-renter-horror-story/179250/1">citing the case of EJ</a>, who back in 2011 was &quot;hit with various insinuations from company supporters&#x2014;<a href="https://web.archive.org/web/20150502194237/http://gawker.com/5827913/airbnb-backer-rebuked-by-victims-sister/all">that she&apos;s a liar, that she&apos;s crazy, or worse.&quot;</a></p>
+
+<p>We asked Teman how he would respond to people who perhaps weren&apos;t sympathetic to the latest twist in the story, who might shrug their shoulders over a few mean tweets.</p>
+
+<blockquote>I don&#x2019;t know the legal definition versus the feeling definition, but having a company who just sent an orgy into your apartment, destroying your stuff, now having their staff attack you, is at best idiotic and at worst malicious. And it has to be intentional. You don&#x2019;t accidentally follow a guy in New York from Ireland and disparage his appearance on a TV show in Australia. There&#x2019;s no accident there. You don&#x2019;t accidentally type &#x201C;boring&#x201D;, you don&#x2019;t accidentally select the tweets. You wanna call it monitoring, you wanna call it watching, you wanna call it stalking, it&#x2019;s creepy, this is just creepy behavior. You wanna watch me and see what I&#x2019;m up to cause I&#x2019;m getting press, and then just start disparaging me, this is bullying. This is creepy behavior.</blockquote>
+
+<p>As for the current state of his apartment: two companies have pitched in to help clean up the remaining mess from the orgy, including The Junkluggers (who removed the broken/soiled furniture) and MyClean (who will be providing the maid service to clean the apartment). &quot;They came with a truck and carried the furniture out which was all discolored and one of the MyClean guys after said, <strong>&apos;You know I didn&apos;t wanna say this when your friend was here but your floor was sticky.&apos;</strong>&quot;</p>
+
+<p>He said that he is still worried about being kicked out of the building, though not immediately: &quot;Things with co-op boards and landlords don&apos;t move that fast and I can&apos;t find an apartment overnight.&quot; He acknowledges that he has tried to make the best of a bad situation <a href="https://web.archive.org/web/20150502194237/http://www.inc.com/will-yakowicz/how-to-make-the-most-out-of-an-orgy.html">by ultra-promoting the story</a>; he&apos;s still &quot;creeped out&quot; being at his apartment, but he&apos;s also been a guest on dozens of radio and TV shows (including news programs in Australia and Israel). </p>
+
+<p>And on top of that, &quot;several movie and production companies&quot; have reached out to him about his story. &quot;I was hoping to put the nightmare part of this behind me,&quot; he reasoned, &quot;but now I&apos;m afraid I&apos;m going to get a notice on my phone about an orchestrated attack against me from the AirBNB staff.&quot;<br>
+ <br>
+&quot;I don&apos;t think I&apos;ve slept for more than three hours straight a night,&quot; he added. &quot;It&apos;s been both incredibly exciting and also incredibly taxing. I&apos;m looking forward to a nap, I&apos;m hoping soon to get a nap.&quot;</p>					
+										
+									
+				

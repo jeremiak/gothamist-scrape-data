@@ -1,0 +1,51 @@
+---
+author: Ben Yakas
+date: Feb 28, 2014 5:15 pm
+title: [Update] Humans Of NY Post Reignites Debate Over New York Public Library Renovation
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="22814humans.jpeg" src="https://web.archive.org/web/20141113072254im_/http://gothamist.com/attachments/byakas/22814humans.jpeg" width="640" height="427"> <br> <i> <a href="https://web.archive.org/web/20141113072254/https://www.facebook.com/humansofnewyork/photos/a.102107073196735.4429.102099916530784/614413028632801/?type=1&amp;relevant_count=1">Humans Of New York</a></i></div> <p></p>
+
+<p>We don&apos;t think we have to sell you too hard on why the <a href="https://web.archive.org/web/20141113072254/http://gothamist.com/tags/nypl">New York Public Library</a> is such an important and beloved NYC institution&#x2014;if you read physical books and/or are interested in <a href="https://web.archive.org/web/20141113072254/http://www.youtube.com/watch?v=MYjFKsJjCP0">ectoplasmic anomalies</a>, you know how indispensable it is. But there has been a heated <a href="https://web.archive.org/web/20141113072254/http://gothamist.com/2011/12/01/who_needs_books_nypl_main_branch_re.php">debate</a> over the NYPL&apos;s <a href="https://web.archive.org/web/20141113072254/http://gothamist.com/2012/12/19/heres_what_the_new_york_public_libr.php#photo-1">$300 million renovation</a>, which will drastically alter the beloved main branch of the library. Opponents to the plan have been <a href="https://web.archive.org/web/20141113072254/http://www.nytimes.com/2014/02/27/arts/design/library-renovation-plan-awaits-word-from-de-blasio.html?_r=0">sending thousand of letters</a> to Mayor de Blasio urging him to reconsider the plan and the city&apos;s financial involvement with it&#x2014;and those opponents got a big publicity boost from a Humans of New York post this week.</p>
+
+<p>Brandon Stanton, who runs the wildly popular <a href="https://web.archive.org/web/20141113072254/http://www.humansofnewyork.com/about">Humans of New York</a>, ran into computer programmer Matthew Zadrozny in front of the main branch on Fifth Avenue and 42nd Street last weekend. Zadrozny wasn&apos;t at the library that day by chance: he was recruiting participants for the &quot;work-in&quot; protests he&apos;s started organizing on behalf of <a href="https://web.archive.org/web/20141113072254/http://www.savenypl.org/email-the-mayor/">The Committee to Save the New York Public Library.</a> And he gave a very specific request to Stanton to allow him to photograph him, as you can see in their exchange below:</p>
+
+<blockquote>&quot;You want to photograph me eating chicken?&quot;
+&quot;Yep.&quot;
+&quot;Well, if I let you, I need you to help me deliver a message.&quot;
+&quot;What&apos;s that?&quot;
+&quot;I work at this library. And before that, I was coming here for twenty years. It&apos;s my favorite place in the world. As many people know, the main reading room of this library is supported by seven floors of books, which contain one of the greatest research collections in the world. Recently, the library administration has decided to rip out this collection, send the books to New Jersey, and use the space for a lending library. As part of the consolidation, they are going to close down the Mid-Manhattan Library Branch as well as the Science, Industry, and Business Library. When everything is finished, one of the greatest research libraries in the world will become a glorified internet cafe. Now read that back to me.&quot;</blockquote>
+
+<p>The photo and text were shared <a href="https://web.archive.org/web/20141113072254/https://www.facebook.com/humansofnewyork/photos/a.102107073196735.4429.102099916530784/614413028632801/?type=1&amp;relevant_count=1">over 50,000 times on Facebook</a>, and Zadrozny was profiled by The Atlantic. Stanton was inundated with reactions and responses to the post, to the point that he felt compelled to add in <a href="https://web.archive.org/web/20141113072254/http://www.humansofnewyork.com/post/77831310647/because-of-all-the-attention-of-this-mornings">a response from the NYPL</a>:</p>
+
+<blockquote>Because of all the attention of this morning&#x2019;s library post, I thought it&#x2019;d only be fair to post the NYPL&#x2019;s response. I&#x2019;m quoting four points that they&#x2019;ve asked me to clarify:
+
+<p>*The man says &#x201C;I work at this Library.&#x201D; Ends up, he doesn&#x2019;t &#x201C;work&#x201D; for the library in the sense of being an employee. He is probably doing his work at the library (millions do each year!). We fear the confusion might make people think he is offering his opinion as an employee.</p>
+
+<p>*The vast majority of research books will remain on the site (in far superior storage conditions)</p>
+
+<p>*None of the public spaces he and others enjoy will change, and we&#x2019;ll be returning a circulating collection to this main library (it had one for its first 70 years).</p>
+
+<p>*This plan will be greatly expanding access to the library. The renovation will allow all New Yorkers-scholars, students, educators, immigrants, job-seekers- to take advantage of this beautiful building and its world-class collections.</p></blockquote><p></p>
+
+<p>In case you haven&apos;t been following along with the planned renovations, <a href="https://web.archive.org/web/20141113072254/http://www.theatlantic.com/national/archive/2014/02/this-human-of-new-york-takes-his-libraries-seriously/284080/">The Atlantic has</a> a succinct summary of all the changes in store for the NYPL if everything goes as planned:</p>
+
+<blockquote>What the NYPL is planning to do, and what has patrons like Zadrozny so upset, is tear down seven floors of the main research stacks at the flagship building on Fifth Avenue and 42nd Street, relocate the contents of these stacks to storage (NYPL says many of these books will remain &quot;on site,&quot; in an underground space called the Bryant Park Stack Extension.), and consolidate the collections from the Mid-Manhattan Library and the Science, Industry, and Business Library into a single circulating collection at 42nd Street in place of the research stacks. The sale of the Mid-Manhattan and SIBL buildings would partly defray the estimated $300 million cost of renovations at the main building. The main building would go from housing a non-circulating research collection to being the largest circulating library in the United States, one that stays open until 11 p.m. on weeknights.</blockquote>
+
+<p>There is a <a href="https://web.archive.org/web/20141113072254/http://manhattanusersguide.com/article/nypl-the-dark-ages-flickr-pool-picks">wealth</a> of <a href="https://web.archive.org/web/20141113072254/http://www.mhpbooks.com/on-the-central-library-plan-humans-of-new-york-interviewee-matthew-zadrozny-kills-it/">opinions</a> both positive and negative about <a href="https://web.archive.org/web/20141113072254/http://www.steamthing.com/2012/06/trying-to-analyze-the-alternative.html">the plan</a> <a href="https://web.archive.org/web/20141113072254/http://www.publishersweekly.com/pw/by-topic/industry-news/libraries/article/59824-beyond-42nd-street.html">online</a> <a href="https://web.archive.org/web/20141113072254/http://www.vanityfair.com/culture/2012/12/new-york-public-library-re-model-controversy">worth reading</a>. </p>
+
+<p><iframe width="640" height="360" src="//web.archive.org/web/20141113072254if_/http://www.youtube.com/embed/069BmopRbQg" frameborder="0" allowfullscreen></iframe></p>
+
+<p>Right now, anti-renovation activists are focused on putting pressure on Mayor de Blasio, <a href="https://web.archive.org/web/20141113072254/http://www.thenation.com/article/177946/time-running-out-mayor-bill-de-blasio-halt-new-york-public-librarys-disastrous-renova">who previously said</a> while campaigning for mayor that NYC shouldn&apos;t finance the renovations (Bloomberg pledged $150 million toward the project). Since the fall, <a href="https://web.archive.org/web/20141113072254/http://www.nytimes.com/2014/02/27/arts/design/library-renovation-plan-awaits-word-from-de-blasio.html?_r=0">the Times reports</a> that the library has hired an outside lobbying firm, the Parkside Group, to help promote its plan&#x2014;that includes convincing de Blasio that the library and its 88 branches will (somehow) help him get universal pre-K off the ground. </p>
+
+<p>For the time being de Blasio hasn&apos;t made any promises or changes either way. Opponents will continue their protests at a &quot;work-in&quot; at the NYPL <a href="https://web.archive.org/web/20141113072254/http://www.meetup.com/saveNYPL/">this Saturday.</a> </p>
+
+<p><strong>Update</strong>: We spoke to Zadrozny, who wanted to comment on the NYPL&apos;s response to the Humans Of NY post: &quot;&apos;Renovation&apos; is a weasel-word adopted by the library,&quot; he wrote us. &quot;This is not a renovation. Ask them: &apos;How do you intend to renovate two (permanently) closed libraries (Mid-Manhattan and SIBL)?&apos; Please don&apos;t fall for the misleading &apos;re-branding.&apos;&quot; He added that he never said he worked &quot;for&quot; the library, but he does work AT it: &quot;Leading with this is a cheap shot by the library&apos;s PR firm. The intent is obvious.&quot; </p>
+
+<p>He said that the NYPL&apos;s claim that there will be expanded access to the library &quot;is bogus, and phony populism at that. The sell-off means that total publicly accessible space will be substantially reduced, and of course &apos;scholars, students, educators, immigrants, job-seekers...[already do]...take advantage of this beautiful building and its world-class collections.&apos; Case in point: me and thousands of others.&quot;</p>
+
+<p>He also gave extra credit to Stanton for publishing his quote in full: &quot;Not only is Brandon Stanton&apos;s book being sold out of the NYPL gift shop&#x2014;his pictures are showcased there. For this reason, I did not think he&apos;d print my quote. It was a courageous act of free speech. And he deserves credit.&quot;</p>					
+										
+									
+				

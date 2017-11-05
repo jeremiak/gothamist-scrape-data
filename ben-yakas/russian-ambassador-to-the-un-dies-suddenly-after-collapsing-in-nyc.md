@@ -1,0 +1,36 @@
+---
+author: Ben Yakas
+date: Feb 20, 2017 1:50 pm
+title: Russian Ambassador To The UN Dies Suddenly After Collapsing In NYC
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="022017russianamb.jpg" src="https://web.archive.org/web/20170223082723im_/http://gothamist.com/attachments/byakas/022017russianamb.jpg" width="640" height="429"> <br> <i> <a href="https://web.archive.org/web/20170223082723/https://twitter.com/NBCNightlyNews/status/833727581203623937">via NBC</a></i></div> <p></p>
+
+<p>Vitaly Ivanovich Churkin, the Russian ambassador to the United Nations since 2006, <a href="https://web.archive.org/web/20170223082723/http://www.cnn.com/2017/02/20/europe/russia-un-ambassador-vitaly-churkin-dead/index.html">died today</a> after passing out in the Russian Mission on East 67th Street. He died one day before his 65th birthday. </p>
+
+<center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">We offer sincere condolences to the family of Vitaly Ivanovich Churkin.<a href="https://web.archive.org/web/20170223082723/https://twitter.com/hashtag/Churkin?src=hash">#Churkin</a> <a href="https://web.archive.org/web/20170223082723/https://twitter.com/hashtag/UN?src=hash">#UN</a> <a href="https://web.archive.org/web/20170223082723/https://twitter.com/hashtag/Russia?src=hash">#Russia</a> <a href="https://web.archive.org/web/20170223082723/https://twitter.com/hashtag/condolences?src=hash">#condolences</a> <a href="https://web.archive.org/web/20170223082723/https://t.co/XB37QP34nn">pic.twitter.com/XB37QP34nn</a></p>&#x2014; MFA Russia &#x1F1F7;&#x1F1FA; (@mfa_russia) <a href="https://web.archive.org/web/20170223082723/https://twitter.com/mfa_russia/status/833736604397211648">February 20, 2017</a></blockquote>
+<script async src="//web.archive.org/web/20170223082723js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<p>Sources tell <a href="https://web.archive.org/web/20170223082723/http://nypost.com/2017/02/20/russian-ambassador-to-un-rushed-to-hospital/">the NY Post that</a> Churkin was at the Russian Mission around 9:30 a.m. this morning when he became sick with a &quot;cardiac condition.&quot; He was rushed to New York Presbyterian Hospital; his death was then announced on the floor of the UN a short while later.</p>
+
+<center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">Shocking news to hear the passing away of Amb Vitaly Churkin. A brilliant ambassador who served his country &amp; people. May he rest in peace. <a href="https://web.archive.org/web/20170223082723/https://t.co/pFodXqs5Qm">pic.twitter.com/pFodXqs5Qm</a></p>&#x2014; @kamaNY (@kamapradipta) <a href="https://web.archive.org/web/20170223082723/https://twitter.com/kamapradipta/status/833724036383440896">February 20, 2017</a></blockquote>
+<script async src="//web.archive.org/web/20170223082723js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<p>Before becoming the Russian ambassador to the UN in May 2006, <a href="https://web.archive.org/web/20170223082723/https://www.rt.com/news/377988-russian-ambassador-churkin-un-dies/">he served as</a> ambassador to Belgium, ambassador to Canada, and liaison ambassador to NATO and the Western European Union. As the <a href="https://web.archive.org/web/20170223082723/http://www.thedailybeast.com/cheats/2017/02/20/russian-u-n-ambassador-vitaly-churkin-dies.html?via=desktop&amp;source=copyurl">Daily Beast noted</a>, he &quot;often sparred with the United States at Security Council meetings, particularly over the issue of Russia&#x2019;s involvement in the Syrian civil war.&quot; Despite that, he was reportedly very well liked by his colleagues.</p>
+
+<center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">Devastated by passing of Russian UN Amb Vitaly Churkin.Diplomatic maestro &amp;deeply caring man who did all he cld to bridge US-RUS differences</p>&#x2014; Samantha Power (@SamanthaJPower) <a href="https://web.archive.org/web/20170223082723/https://twitter.com/SamanthaJPower/status/833734190101327872">February 20, 2017</a></blockquote>
+<script async src="//web.archive.org/web/20170223082723js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">I&apos;m shocked and deeply saddened by this news. Vitaly was a huge force at the UN. Smart, committed, highly effective and very funny. <a href="https://web.archive.org/web/20170223082723/https://t.co/VTKJmolhY2">https://t.co/VTKJmolhY2</a></p>&#x2014; Susan Rice (@AmbassadorRice) <a href="https://web.archive.org/web/20170223082723/https://twitter.com/AmbassadorRice/status/833738648084430851">February 20, 2017</a></blockquote>
+<script async src="//web.archive.org/web/20170223082723js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<p><a href="https://web.archive.org/web/20170223082723/https://www.nytimes.com/2016/10/18/world/vitaly-churkin-russia-united-states.html">The NY Times interviewed him</a> in October on the state of Russian/US relations: &quot;The general situation is pretty bad: I think the tensions are probably the worst since 1973,&quot; he told them. </p>
+
+<center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">Interviewed Churkin just 2 weeks ago. He looked in good health and was very energetic during the interview. Shocked<a href="https://web.archive.org/web/20170223082723/https://t.co/SAcWVZ1wEJ">https://t.co/SAcWVZ1wEJ</a></p>&#x2014; Alexey Yaroshevsky (@Yaro_RT) <a href="https://web.archive.org/web/20170223082723/https://twitter.com/Yaro_RT/status/833727829854584832">February 20, 2017</a></blockquote>
+<script async src="//web.archive.org/web/20170223082723js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<p>In that interview with the Times, Churkin dismissed accusations that Russia had committed war crimes and hacked the DNC as Americans being fascinated by &quot;conspiracy theories.&quot; But coming on the heels of other recent deaths of Russian officials&#x2014;including <a href="https://web.archive.org/web/20170223082723/https://www.nytimes.com/2016/10/29/us/mikhail-lesin-washington.html">a prominent Russian businessman and former government minister</a> who was exiled in America after a falling out with Putin, and <a href="https://web.archive.org/web/20170223082723/https://www.buzzfeed.com/alimwatkins/the-strange-case-of-the-russian-diplomat-who-got-his-head-sm?utm_term=.ryDPalQRKp#.cvBZ9205BJ">a consular duty commander</a> whose death in NYC was swept under the rug by officials&#x2014;the news of Churkin&apos;s demise immediately sparked <a href="https://web.archive.org/web/20170223082723/https://twitter.com/netw3rk/status/833728963314855937?ref_src=twsrc%5Etfw">wild speculation</a> in some corners.</p>					
+										
+									
+				

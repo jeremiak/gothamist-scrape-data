@@ -1,0 +1,23 @@
+---
+author: Ben Yakas
+date: Dec 15, 2013 3:10 pm
+title: Upper West Siders Upset Over Motor Homes Invading Neighborhood
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="121513rv.jpg" src="https://web.archive.org/web/20141023021018im_/http://gothamist.com/attachments/byakas/121513rv.jpg" width="640" height="427"> <br> <i> This is not either of the RVs currently parked on the UWS, but this is what they might look like one day when the revolution starts (<a href="https://web.archive.org/web/20141023021018/http://www.flickr.com/photos/tomvu/5655425614/">Barry Yanowitz&apos;s flickr</a>)</i></div> <p></p>
+
+<p>The <a href="https://web.archive.org/web/20141023021018/http://gothamist.com/tags/upperwestside">Upper West Side</a> is a refined community where luxury condos have <a href="https://web.archive.org/web/20141023021018/http://gothamist.com/2013/08/18/locals_outraged_that_uws_luxury_con.php">separate entrances for poor people</a>, movie theaters <a href="https://web.archive.org/web/20141023021018/http://gothamist.com/2013/09/04/nycs_worst_movie_theater_was_renova.php#photo-1">have motorized recliners</a>, and celebrities feel comfortable enough <a href="https://web.archive.org/web/20141023021018/http://gothamist.com/2013/11/22/photo_christopher_walken_hitchhikin.php">to occasionally hitch.</a> So you can understand why some locals are clutching their pearls over some RVs that have been spotted in the neighborhood recently. </p>
+
+<p>&#x201C;Why is this ugly piece of junk here?&#x201D; Gretchen Berger <a href="https://web.archive.org/web/20141023021018/http://nypost.com/2013/12/15/upper-west-siders-in-an-uproar-over-rv-invasion/">told the Post</a>, referring to an RV parked at Riverside Drive and 74th Street. &quot;It just sort of creeps me out that somebody is living in a parking space, and this may give rise to other people thinking that it&#x2019;s a cheap way to live on the Upper West Side, where the rents are high. Is Manhattan going to become a trailer park?&quot;</p>
+
+<p>Berger, who is identified by the Post as an &quot;area activist,&quot; apparently lives around the corner from the spot where the RV is parked&#x2014;<a href="https://web.archive.org/web/20141023021018/http://www.westsiderag.com/2013/12/05/neighbors-concerned-about-scruffy-rv-owner">West Side Rag first reported</a> on her complaints last week: &quot;For several years, it was parked on West End Ave. between 73rd &amp; 74th St., but about 6 months ago, it turned up on Riverside Dr., where it still resides,&quot; she explained. &quot;Many of us in the area have complained about it&#x2019;s presence to the 20th Precinct, but apparently it&#x2019;s legal, as long as it obeys alternate side parking regs.&quot;</p>
+
+<p>The person who owns the RV is 62-year-old Queens-born Rabbi Steve Blumberg, has been living on and off inside the &apos;84 Chevy Pathfinder since 2007. &quot;If you want a gated community, you should live in Creedmoor [Psychiatric Center],&#x201D; he told the Post in response to the complaints. &quot;Otherwise-liberal West Siders have very serious middle-class scruples about what should or should not be in their neighborhood.&quot;</p>
+
+<p>Blumberg has been living in the RV ever since he lost his apartment in Riverdale, and realized he could shop around for a new place while living in a &quot;mobile studio apartment.&quot; Even though he&apos;s now staying in a rent-free pad on 74th Street, he realized he liked living in the RV part-time, and lets friends stay there as well: &quot;I&#x2019;m in way better shape than the people who are renting closets.&quot;</p>
+
+<p>Blumberg&apos;s RV isn&apos;t the only one in the neighborhood, lest you think this is just a petty neighborhood beef: there&apos;s also a 19-foot, 1975 Dodge Sportsman with gold rims and two cameras affixed to its exterior parked on Central Park West. &#x201C;It looks like it would fit more in the mountains of West Virginia than on the Upper West Side,&#x201D; said local Ron Hoffman. Mostly, it sounds like people are annoyed that the RVs are taking up precious parking spaces on the street:  &#x201C;We&#x2019;re all waiting to park,&quot; said 86-year-old Mario Parisi. &quot;Sitting there all the time is not a good idea &#x2014; it&#x2019;s a monster.&#x201D; I think we all know who <a href="https://web.archive.org/web/20141023021018/http://gothamist.com/tags/billdeblasio">is really to blame for this.</a></p>					
+										
+									
+				

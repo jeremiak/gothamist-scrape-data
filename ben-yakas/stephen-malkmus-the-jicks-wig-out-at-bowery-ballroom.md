@@ -1,0 +1,32 @@
+---
+author: Ben Yakas
+date: Feb 27, 2014 1:44 pm
+title: Stephen Malkmus & The Jicks Wig Out At Bowery Ballroom
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="22714malk.jpeg" src="https://web.archive.org/web/20150502140003im_/http://gothamist.com/attachments/byakas/22714malk.jpeg" width="640" height="480"> <br> <i> Ben Yakas/Gothamist</i></div> <p></p>
+
+<p>There&apos;s a lazy cliche that&apos;s clung to <a href="https://web.archive.org/web/20150502140003/http://gothamist.com/tags/stephenmalkmus">Stephen Malkmus</a> even since the gum-smacked days of the mid-90s, crystallized in that moment when Beavis &amp; Butthead yelled at his former band Pavement to &quot;TRY HARDER&quot; during the video for &quot;Rattled By The Rush.&quot; Nearly 20 years later, some writers <a href="https://web.archive.org/web/20150502140003/http://thequietus.com/articles/14532-stephen-malkmus-the-jicks-wigout-at-jagbags-review">still trot it out</a> as they dip in and out of Malkmus&apos;s now-extensive catalogue, even as his music has completely evolved from mysterious lo-fi sketches to sunshine-drenched West Coast vibes to blue incandescent guitar heroics and back around to focused pop craftsmanship. Just because Malkmus makes it look so very easy doesn&apos;t mean he hasn&apos;t been trying&#x2014;and anyone who was at Bowery Ballroom last night to see Malkmus and The Jicks blaze through a goofy, ecstatic 18 song set knows it as well.</p>
+
+<p>Malkmus and The Jicks played the first of two NYC-area shows last night (the second is tonight at Music Hall Of Williamsburg&#x2014;it&apos;s sold out, but you might luck out at the door). This was probably one of the most exuberant Malkmus shows I&apos;ve attended in several years&#x2014;based on other fan notes and concert reviews, this tour behind new record <em>Wig Out At Jagbags</em> has been one of his best received with The Jicks in years, and has been filled with setlist surprises, including lots of Pavement covers (&quot;Father To A Sister Of Thought&quot;!) and classic rock covers (ranging from &quot;War Pigs&quot; to &quot;All Apologies&quot; to &quot;Debra&quot;).</p>
+
+<p>In reference to revisiting Pavement songs on this tour, Malkmus <a href="https://web.archive.org/web/20150502140003/http://www.washingtonpost.com/express/wp/2014/02/27/stephen-malkmus-jicks-pavement-black-cat-jagbags-redskins/">mentioned to the Washington Post</a> that after pointedly ignoring the Pavement discography during his first decade with The Jicks, he now &quot;feels like those songs are kind of old and classic in a certain way. We play them in the encore. We kind of ridiculously mix them into other really famous songs &#x2014; like they belong there. We&#x2019;ll do a Steve Miller song into a Pavement song and then into a Black Sabbath song, as if it just naturally belongs with those other songs.&quot;</p>
+
+<p><iframe width="640" height="360" src="//web.archive.org/web/20150502140003if_/http://www.youtube.com/embed/irwHS0RQKV8" frameborder="0" allowfullscreen></iframe></p>
+
+<p>The Jicks are <a href="https://web.archive.org/web/20150502140003/http://www.youtube.com/watch?v=nM07pm32sV0&amp;feature=kp">riding on an arc</a> now, and some of that should be credited to their lineup stability: after losing Janet Weiss prior to the <em>Mirror Traffic</em> tour, Joggers drummer <a href="https://web.archive.org/web/20150502140003/http://gothamist.com/2007/11/05/jake_morris_dru.php">Jake Morris</a> has stepped in, and quickly become the best Malkmus foil since Bob Nastanovich. Morris resembles nothing less than Animal from The Muppets, all exuberance and hair and moving parts; he&apos;s rearranged some of the drum parts that predate him (&quot;Out Of Reaches,&quot; &quot;Tigers&quot;) ever so slightly to his style, and it works like a charm. One of the best moments of the night came during main set closer &quot;Surreal Teenager,&quot; as Morris pulled out as many Who-inspired drums tricks are he could for the jubilant climax. </p>
+
+<p>Malkmus seemed a little less aloof than he sometimes comes across, whether he was bantering about horndog French politicians, referencing the demise of Max Fish (he dedicated &quot;Rumble At The Rainbo&quot; to it), or playing perfect lead lines with his guitar behind his head (a trick he likes to pull out more often than you&apos;d imagine). There really are very few contemporary guitar players who imbue their lead lines with as much jagged personality as Malkmus, whether it&apos;s the cacophony of &quot;Shibboleth,&quot; the silky improvisations in &quot;No One Is,&quot; or the gorgeous &quot;J Smoov.&quot;</p>
+
+<p><iframe width="640" height="480" src="//web.archive.org/web/20150502140003if_/http://www.youtube.com/embed/dcHM2ku4XH0" frameborder="0" allowfullscreen></iframe></p>
+
+<p>And on highlight &quot;Cinnamon and Lesbians,&quot; you can hear what Malkmus is going for in 2014: &quot;Cinnamon&quot; is the Grateful Dead frozen in time circa 1971, teetering on the edge of jamming it out, but holding back. The song feels like a culmination of Malkmus&apos;s jam band-period (see: <em>Real Emotional Trash</em>), condensed into three minutes of lyrical guitar breaks.</p>
+
+<p>That tension between sprawling guitar epics and a re-found appreciation for concise pop tunes is maturation in the best sense&#x2014;but that wouldn&apos;t necessarily make for a great live show if The Jicks weren&apos;t so much FUN as well. Malkmus has always been that ex-magician in <a href="https://web.archive.org/web/20150502140003/http://www.youtube.com/watch?v=c7Rl65sH8bA&amp;feature=kp">&quot;Trigger Cut&quot;</a> who still knows the tricks. Those tricks, affectations and writerly cliches are just misdirection: Malkmus has been trying this whole time, whether you noticed or not.</p>
+
+<center><div style="text-align: center;" class="setlistImage"><a href="https://web.archive.org/web/20150502140003/http://www.setlist.fm/setlist/stephen-malkmus-and-the-jicks/2014/bowery-ballroom-new-york-ny-23c2ace3.html" title="Stephen Malkmus and the Jicks Setlist Bowery Ballroom, New York, NY, USA 2014" target="_blank"><img src="https://web.archive.org/web/20150502140003im_/http://www.setlist.fm/widgets/setlist-image-v1?id=23c2ace3" alt="Stephen Malkmus and the Jicks Setlist Bowery Ballroom, New York, NY, USA 2014" style="border: 0;"></a>
+</div></center>					
+										
+									
+				

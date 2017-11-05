@@ -1,0 +1,19 @@
+---
+author: Ben Yakas
+date: Aug 17, 2014 3:35 pm
+title: Squeegee King Gets Back To Work A Week After Retiring
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="81714squee1.jpg" src="https://web.archive.org/web/20140819192113im_/http://gothamist.com/attachments/byakas/81714squee1.jpg" width="640" height="427"> <br> <i> Rich Docherty/<a href="https://web.archive.org/web/20140819192113/http://nycsnapped.blogspot.com/">NYC Snapped</a></i></div> <p></p>
+
+<p>Two weeks ago, the NY Post focused its attention on the very important scourge of squeegee men, plastering the face of squeegee king Gregg Washington <a href="https://web.archive.org/web/20140819192113/http://gothamist.com/2014/08/08/squeegee_men.php">on their cover</a> with the completely hysterical headline, <a href="https://web.archive.org/web/20140819192113/http://nypost.com/2014/08/07/squeegee-men-are-back-and-terrorizing-city-streets/">&quot;Squeegee men are back terrorizing NYC streets,&quot;</a> because nothing strikes terror into the hearts of NYers more than men carrying Windex. The Post <a href="https://web.archive.org/web/20140819192113/http://nypost.com/2014/08/10/homeless-man-racks-up-178th-squeegee-bust/">did their darndest</a> to strong-arm cops into arresting the squeegee poster boy (for the 178th time), prompting Washington to declare that he was giving up his trade once and for all. But like the old saying goes: you can take the girl out of Jersey, but you can&apos;t take the squeegee out of Midtown.</p>
+
+<p>Washington was spotted back at his old stomping grounds near the entrance of the Lincoln Tunnel around 1 p.m. today. &quot;Yep, despite his proclamation that he was giving up his &apos;gig&apos;...Washington has brazenly returned to his old haunt on 42nd Street near the corner of 9th Avenue to once again ply his trade,&quot; photographer <a href="https://web.archive.org/web/20140819192113/http://nycsnapped.blogspot.com/">Rich Docherty</a> told us. &quot;Apparently getting busted 178 times for windshield washing and a few nights on Rikers Island weren&apos;t much of a deterrent.&quot; </p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="81714squee2.jpg" src="https://web.archive.org/web/20140819192113im_/http://gothamist.com/attachments/byakas/81714squee2.jpg" width="640" height="427"> <br> <i> Rich Docherty/<a href="https://web.archive.org/web/20140819192113/http://nycsnapped.blogspot.com/">NYC Snapped</a></i></div> <p></p>
+
+<p>After being released from jail earlier this week, Washington <a href="https://web.archive.org/web/20140819192113/http://animalnewyork.com/2014/just-released-jail-squeegee-man-says-new-york-post-put-business/">told AnimalNY</a> he was done with squeegeeing: &quot;No, I can&#x2019;t,&quot; he said, &quot;I just went to jail.&quot; <a href="https://web.archive.org/web/20140819192113/http://nypost.com/2014/08/12/front-page-squeegee-man-quits-his-gig/">The Post delighted</a> in vanquishing Washington, who they referred to as a symbol of the &quot;bad old days&quot; of New York, because squeegeeing is evil but police states and <a href="https://web.archive.org/web/20140819192113/http://gothamist.com/2013/12/12/hot-and-bothered_ny_post_slutshames.php">slut-shaming</a> are A-OK. Anyway, as the <a href="https://web.archive.org/web/20140819192113/https://www.youtube.com/watch?v=6bOy3RNyWME">Sacred Scrolls said</a>, all this <a href="https://web.archive.org/web/20140819192113/http://gothamist.com/2011/10/12/squeegee_king_busted_for_186th_time.php">has happened before</a> and all this will happen again. </p>					
+										
+									
+				

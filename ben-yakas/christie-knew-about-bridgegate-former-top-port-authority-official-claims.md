@@ -1,0 +1,21 @@
+---
+author: Ben Yakas
+date: Jan 31, 2014 4:21 pm
+title: Christie Knew About Bridgegate, Former Top Port Authority Official Claims
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="012014christie.jpg" src="https://web.archive.org/web/20150508154940im_/http://gothamist.com/attachments/nyc_arts_john/012014christie.jpg" width="640" height="426"> <br> <i> Chris Christie on his way to apologize to the mayor and residents of Fort Lee for days of politically-motivated traffic jams at the George Washington Bridge entrance. (Getty)</i></div> <p></p>
+
+<p>A former Port Authority official claims that <a href="https://web.archive.org/web/20150508154940/http://gothamist.com/tags/chrischristie">Gov. Chris Christie</a> <a href="https://web.archive.org/web/20150508154940/http://www.nytimes.com/2014/02/01/nyregion/christie-bridge.html">knew about the lane closings</a> on the George Washington Bridge which led to five days of gridlock, and alleges that the governor lied about his involvement after the scandal broke this year. David Wildstein, the high school friend of Christie whom <a href="https://web.archive.org/web/20150508154940/http://gothamist.com/2014/01/09/christies_schoolmate_pleads_5th_dur.php">Christie says he barely knows</a>, made the allegations in a letter <a href="https://web.archive.org/web/20150508154940/http://www.nytimes.com/2014/02/01/nyregion/christie-bridge.html">released by his lawyer to the NY Times today</a>. </p>
+
+<p>Wildstein, who resigned from the PA in December as the scandal began to come to light, says the order to close the lanes came from the &quot;Christie administration&apos;s order&quot; and &quot;evidence exists as well tying Mr. Christie to having knowledge of the lane closures, during the period when the lanes were closed, contrary to what the Governor stated publicly in a two-hour press conference&quot; <a href="https://web.archive.org/web/20150508154940/http://gothamist.com/2014/01/09/watch_chris_christie_talk_about_bri.php">earlier this month</a>. That of course refers to the painfully long press conference in which Christie denied any knowledge of the lane closures in the months prior, and blamed the scandal on his aides lying to him, calling out Wildstein and <a href="https://web.archive.org/web/20150508154940/http://gothamist.com/2014/01/08/chris_christie_i_had_no_idea_my_top.php">Bridget Anne Kelly</a> <a href="https://web.archive.org/web/20150508154940/http://gothamist.com/2014/01/10/bridget_anne_kelly_who_betrayed_chr.php">in particular.</a></p>
+
+<p>Wildstein is <a href="https://web.archive.org/web/20150508154940/http://gothamist.com/2013/12/10/chris_christies_buddy_closed_down_g.php">widely-believed</a> to have been appointed by Christie to act as the &quot;eyes and ears&quot; for the administration in the PA. <a href="https://web.archive.org/web/20150508154940/http://www.cnn.com/2014/01/16/politics/christie-wildstein-port-authority/index.html?hpt=hp_t1">As CNN reported:</a></p>
+
+<blockquote>A former Port Authority employee told CNN that agency officials were told in 2010 they had to find a place for WIldstein at the executive level and the directive was coming from Christie&apos;s office. Soon after, the position was created specifically for Wildstein. When Wildstein started, Deputy Executive Director Bill Baroni, Christie&apos;s top appointee at the agency, introduced him to people as a good friend of the governor.</blockquote>
+
+<p>&quot;Mr. Wildstein contests the accuracy of various statements that the Governor made about him and he can prove the inaccuracy of some,&quot; Wildstein&apos;s letter added. <a href="https://web.archive.org/web/20150508154940/http://online.wsj.com/news/articles/SB10001424052702303973704579353031394888694?mod=WSJ_hps_sections_newyork">The WSJ reported earlier today</a> that Wildstein had retained attorney Alan Zegas, &quot;who legal experts say is known for a willingness to cut deals that turn his clients to cooperating witnesses.&quot; The Journal speculated that Wildstein was seeking immunity for any deal with prosecutors.</p>					
+										
+									
+				

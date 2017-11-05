@@ -1,0 +1,33 @@
+---
+author: Ben Yakas
+date: Mar 23, 2017 4:11 pm
+title: Dirty Projectors, Miguel & More To Play Northside Festival 2017
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="032317northsidd1.jpg" src="https://web.archive.org/web/20170326081417im_/http://gothamist.com/attachments/byakas/032317northsidd1.jpg" width="640" height="426"> <br> <i> Northside Festival 2016 (Scott Lynch / Gothamist)</i></div> <p></p>
+
+<p>It&apos;s still freezing outside, but summer is right around the corner if you squint hard enough. And nothing screams summertime like summer music festival season: <a href="https://web.archive.org/web/20170326081417/http://gothamist.com/tags/northsidefestival">Northside Festival</a> has announced their initial lineup for this year&apos;s festivities, which includes headlining performances from the likes of Dirty Projectors, Miguel, Kamasi Washington, and Thursday.</p>
+
+<p>This year&apos;s event will take place from June 7th to 11th at various venues around Brooklyn, with the headliners taking the stage at McCarren Park. This is only one of two shows the newly pared-down Dirty Projectors (whom we spoke to <a href="https://web.archive.org/web/20170326081417/http://gothamist.com/2012/07/09/david_longstreth.php">in 2012</a>) have on the books so far; there will also be performances by the likes of PUP, Craig Leon &amp; Martin Rev, Downtown Boys, Elvis Depressedly, Elysia Crampton, The Explosion, Foodman, Girlpool, Happyness, Hoops, The Hotelier, Jay Som, L&#xE6;titia Sadier, Lower Dens (performing songs from ABBA&apos;s <em>Gold: Greatest Hits</em>), Mary Timony (performing Helium material), Mirah, The Pains of Being Pure at Heart and more. </p>
+
+<p>As <a href="https://web.archive.org/web/20170326081417/http://www.brooklynvegan.com/northside-fest-announces-initial-2017-lineup/">Brooklyn Vegan noted</a>, no headliner has been announced for Friday night&apos;s show yet, so there may be more bands to be announced.</p>
+
+<p>You can see the announcements below. In addition to the musical performers, there will also be a series of lectures and talks as part of The Northside Innovation portion of the event: &quot;The initial speaker lineup this year includes one of SNL&#x2019;s brightest stars, Sasheer Zamata; cutting-edge President &amp; Publisher of The FADER Andy Cohn; bridge between nonprofits and reporters, Vice Impact Publisher Katherine Keating; founder of internet community SuicideGirls redefining beauty, Missy Suicide; and explorer of current affairs and contemporary life through opinionated documentaries, NY Times Op-Docs Producer/Curator Kathleen Lingo. Many more innovators will be added to the event&#x2019;s extensive lineup in the coming months.&quot;</p>
+
+<center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">Hey, internet. We hope you like our 2017 music lineup so far. We sure do. Badges on sale now: <a href="https://web.archive.org/web/20170326081417/https://t.co/pWh3gYNcX8">https://t.co/pWh3gYNcX8</a>  <a href="https://web.archive.org/web/20170326081417/https://twitter.com/hashtag/nside?src=hash">#nside</a> <a href="https://web.archive.org/web/20170326081417/https://t.co/4eo8kRk2u1">pic.twitter.com/4eo8kRk2u1</a></p>&#x2014; Northside Festival (@NorthsideFest) <a href="https://web.archive.org/web/20170326081417/https://twitter.com/NorthsideFest/status/844930825644847104">March 23, 2017</a></blockquote>
+<script async src="//web.archive.org/web/20170326081417js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">Proud to present our innovation speakers lineup, with many more to be announced! Badges on sale now: <a href="https://web.archive.org/web/20170326081417/https://t.co/dAvQqNeKGI">https://t.co/dAvQqNeKGI</a> <a href="https://web.archive.org/web/20170326081417/https://twitter.com/hashtag/nside?src=hash">#nside</a> <a href="https://web.archive.org/web/20170326081417/https://t.co/7Tks6aoWaE">pic.twitter.com/7Tks6aoWaE</a></p>&#x2014; Northside Festival (@NorthsideFest) <a href="https://web.archive.org/web/20170326081417/https://twitter.com/NorthsideFest/status/844961682313097216">March 23, 2017</a></blockquote>
+<script async src="//web.archive.org/web/20170326081417js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<p>Here&apos;s the ticket information:</p>
+
+<blockquote>Premium and Innovation Badges will be available for 20 percent off until Friday (March 24th) at 5 p.m. Early Bird badges are on sale now with Music passes starting at $75, featuring all access to over 300 bands; Innovation badges ($499) offer access to 150+ speakers; Premium badges ($549) provide access to all events at the festival. For a complete list of performers and presenters <a href="https://web.archive.org/web/20170326081417/http://northsidefestival.com/">click here</a>. </blockquote>
+
+<p>Past Northside Festival performers have included Brian Wilson, <a href="https://web.archive.org/web/20170326081417/http://gothamist.com/2016/06/11/hip_hop_pioneer_grandmaster_flash_b.php#photo-1">Grandmaster Flash</a>, <a href="https://web.archive.org/web/20170326081417/http://gothamist.com/2015/06/14/the_music_component_of_brooklyns.php#photo-1">Against Me!</a>, Built To Spill, Neko Case, <a href="https://web.archive.org/web/20170326081417/http://gothamist.com/2011/06/19/guided_by_voices_bring_the_fist_pum.php">Guided By Voices</a>, <a href="https://web.archive.org/web/20170326081417/http://gothamist.com/2010/06/28/northside_festival.php#photo-1">Liars,</a> <a href="https://web.archive.org/web/20170326081417/http://gothamist.com/2013/06/11/northside_preview.php#photo-2">The Walkmen, Solange</a> and <a href="https://web.archive.org/web/20170326081417/http://gothamist.com/2014/06/15/photos_videos_hipsters_flock_to_wil.php#photo-1">Thee Oh Seas.</a></p>
+
+<p>In addition to Northside Festival, <a href="https://web.archive.org/web/20170326081417/http://gothamist.com/2017/01/04/governors_ball_2017_lineup.php">Governors Ball will take place</a> on Randall&apos;s Island June 2nd through 4th, with acts like Tool, Chance the Rapper, Phoenix, Childish Gambino, Lorde, Flume, Wu-Tang Clan, Wiz Khalifa, Beach House, and more. <a href="https://web.archive.org/web/20170326081417/http://gothamist.com/2017/01/09/panorama_lineup_2017.php">Panorama Festival will also</a> take place on Randall&apos;s Island from July 28th-30th, with performances by Nine Inch Nails, Frank Ocean, Tame Impala, A Tribe Called Quest, Alt-J, Solange, Justice, Nick Murphy (aka Chet Faker), MGMT, and Spoon. </p>					
+										
+									
+				

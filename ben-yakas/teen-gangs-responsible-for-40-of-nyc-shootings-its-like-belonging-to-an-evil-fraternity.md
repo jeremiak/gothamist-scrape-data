@@ -1,0 +1,17 @@
+---
+author: Ben Yakas
+date: May 1, 2014 1:02 pm
+title: Teen Gangs Responsible For 40% Of NYC Shootings: "It's Like Belonging To An Evil Fraternity"
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="010814rap.jpg" src="https://web.archive.org/web/20150428203335im_/http://gothamist.com/attachments/nyc_arts_john/010814rap.jpg" width="640" height="436"> <br> <i> A still from a Dub Gang Money music video that the NYPD said was helpful in bringing gang indictments against 11 members</i></div> <p></p>
+
+<p><a href="https://web.archive.org/web/20150428203335/http://www.gothamist.com/tags/teenagers">Teenagers</a>: when they&apos;re not <a href="https://web.archive.org/web/20150428203335/http://gothamist.com/2013/11/16/teen_scams_upper_east_side_surgeon.php">scamming surgeons out of free boob jobs</a> or proposing <a href="https://web.archive.org/web/20150428203335/http://gothamist.com/2014/04/13/if_you_really_love_her_youll_get_he.php">with KFC chicken corsages</a>, they&apos;re probably shooting each other over nothing. At least that&apos;s what the NYPD has determined: <a href="https://web.archive.org/web/20150428203335/http://www.washingtonpost.com/national/teen-crews-linked-to-40-percent-of-nyc-shootings/2014/05/01/d0e79734-d0f2-11e3-a714-be7e7f142085_story.html">Police tell AP</a> that teen gangs are responsible for about 40 percent of all city shootings. &quot;It&#x2019;s like belonging to an evil fraternity,&quot; said Inspector Kevin Catalina, commander of the NYPD gang division. &quot;A lot of it is driven by nothing: A dispute over a girl or a wrong look or a perceived slight.&quot;</p>
+
+<p>Even as the <a href="https://web.archive.org/web/20150428203335/http://gothamist.com/tags/murderrate">murder rate</a> has plummeted in NYC over the last decade, the number of killings associated with teen gangs has increased in recent years. Police stepped up their pursuit of these criminals by launching <a href="https://web.archive.org/web/20150428203335/http://gothamist.com/tags/operationcrewcut">Operation Crew Cut</a> in 2012, which involves cops trolling Facebook and other social media for signs of gang activity. As has been demonstrated ad nauseum, teens are not shy about their online presence: social media <a href="https://web.archive.org/web/20150428203335/http://gothamist.com/2014/03/03/10_280_gang_members_arrested_in_the.php#photo-1">bragging about misdeeds</a>, especially <a href="https://web.archive.org/web/20150428203335/http://gothamist.com/2012/12/06/viral_violence_police_arrest_10_all.php">via Facebook</a>, has netted <a href="https://web.archive.org/web/20150428203335/http://gothamist.com/2013/04/04/63_busted_in_social_media_gang_bust.php">dozens of arrests</a>. And as a result, gang arrests are up citywide nearly 14 percent from 2013, and more than 28 percent from 2012. </p>
+
+<p>But for some teens, it&apos;s much worse than an &quot;evil fraternity&quot;&#x2014;being a member of the Very Crispy Gangsters, Sutter Garden Crips or <a href="https://web.archive.org/web/20150428203335/http://gothamist.com/2014/01/08/the_nypd_is_listening_closely_to_ra.php">Dub Gang Money</a> is an automatic membership in a makeshift family. &quot;A crew to me is a family,&quot; said Jamal Williams, 18, who has been associated with various gangs since he was 9. &quot;They are going to be there for me like my parents was never there for me.&quot;</p>					
+										
+									
+				

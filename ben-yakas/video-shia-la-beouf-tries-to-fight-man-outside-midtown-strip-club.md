@@ -1,0 +1,17 @@
+---
+author: Ben Yakas
+date: Jun 29, 2014 3:10 pm
+title: Video: Shia LaBeouf Tries To Fight Man Outside Midtown Strip Club
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="62914labeouf.jpg" src="https://web.archive.org/web/20150509222839im_/http://gothamist.com/attachments/byakas/62914labeouf.jpg" width="640" height="441" class="image-none"> </span></p>
+
+<p>Strawberry margarita aficionado Shia LaBeouf <a href="https://web.archive.org/web/20150509222839/http://gothamist.com/2014/06/28/then_10_weirdest_parts_of_shia_labe.php">had a very busy week</a> chasing a homeless man around Times Square, smoking and groping his way through a performance of <em>Cabaret</em>, and <a href="https://web.archive.org/web/20150509222839/http://gothamist.com/2014/06/27/shia_labeouf_allegedly_called_cop_a.php">spitting at cops</a> as he was hauled off to jail. It feels like this came out of nowhere, but there have been recent warning signs: <a href="https://web.archive.org/web/20150509222839/http://www.tmz.com/2014/06/29/shia-labeouf-fight-strip-club-nyc/">TMZ has released</a> a bizarre short video of LaBeouf in Midtown a week before his arrest trying to fight a bearded man outside a strip club.</p>
+
+<center><script src="https://web.archive.org/web/20150509222839js_/http://cdnapi.kaltura.com/p/591531/sp/59153100/embedIframeJs/uiconf_id/6740162/partner_id/591531"></script> <object id="kaltura_player_1403914306" name="kaltura_player_1403914306" type="application/x-shockwave-flash" allowfullscreen="true" allownetworking="all" allowscriptaccess="always" height="330" width="500" bgcolor="#000000" style="width: 500px; height: 330px;" xmlns:dc="http://purl.org/dc/terms/" xmlns:media="http://search.yahoo.com/searchmonkey/media/" rel="media:video" resource="http://cdnapi.kaltura.com/index.php/kwidget/cache_st/1403914306/wid/_591531/uiconf_id/6740162/entry_id/0_7j2sfeq6" data="https://web.archive.org/web/20150509222839im_/http://cdnapi.kaltura.com/index.php/kwidget/cache_st/1403914306/wid/_591531/uiconf_id/6740162/entry_id/0_7j2sfeq6"> <param name="allowFullScreen" value="true"> <param name="allowNetworking" value="all"> <param name="allowScriptAccess" value="always"> <param name="bgcolor" value="#000000"> <param name="flashVars" value=""> <param name="movie" value="http://cdnapi.kaltura.com/index.php/kwidget/cache_st/1403914306/wid/_591531/uiconf_id/6740162/entry_id/0_7j2sfeq6"> <a rel="media:thumbnail" href="https://web.archive.org/web/20150509222839/http://cdnbakmi.kaltura.com/p/591531/sp/59153100/thumbnail/entry_id/0_7j2sfeq6/version/100012/acv/192"></a> <span property="dc:description" content="Shia LaBeouf"></span> <span property="media:title" content="Shia LaBeouf"></span> <span property="media:width" content="500"></span> <span property="media:height" content="330"></span> <span property="media:type" content="application/x-shockwave-flash"></span>	 </object> </center>
+
+<p>The paparazzi have no idea why the fight was sparked: &quot;LaBeouf is taunting the guy ... trying to convince him to throw a punch,&quot; TMZ write. &quot;The photog says it&apos;s unclear why they were beefing ... moments later LaBeouf peaced out.&quot; He might be a spoiled, grandiose brat on an extended public breakdown who has shown serious signs of mental problems and alcohol dependency, but hey! At least he seems pretty good at shadowboxing!</p>					
+										
+									
+				

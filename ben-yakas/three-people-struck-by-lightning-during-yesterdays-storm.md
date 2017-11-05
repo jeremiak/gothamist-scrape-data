@@ -1,0 +1,29 @@
+---
+author: Ben Yakas
+date: Sep 1, 2014 9:50 am
+title: Three People Struck By Lightning During Yesterday's Storm
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="9114lightn.jpg" src="https://web.archive.org/web/20150409161617im_/http://gothamist.com/attachments/byakas/9114lightn.jpg" width="640" height="400"> <br> <i> The victims&apos; clothing, which was partially shredded by the lightning (<a href="https://web.archive.org/web/20150409161617/http://www.nbcnewyork.com/news/local/New-York-New-Jersey-Thunderstorm-Flash-Flood-Warning-Tri-State-273392951.html">via NBC</a>)</i></div> <p></p>
+
+<p>Yesterday&apos;s intense lightning storm didn&apos;t last quite as long as was expected, but it was plenty serious nonetheless: the rest of this weekend&apos;s Electric Zoo festival <a href="https://web.archive.org/web/20150409161617/http://www.rollingstone.com/music/news/electric-zoo-festival-canceled-due-to-severe-weather-20140831">was cancelled</a> due to extreme weather conditions, the US Open was halted, and there were significant delays at all three major area airports. And at least three people were struck by lightning during the storm.</p>
+
+<center><blockquote class="twitter-tweet" lang="en"><p>Lightning strikes as <a href="https://web.archive.org/web/20150409161617/https://twitter.com/hashtag/storm?src=hash">#storm</a> roars through <a href="https://web.archive.org/web/20150409161617/https://twitter.com/hashtag/NYC?src=hash">#NYC</a> this afternoon. <a href="https://web.archive.org/web/20150409161617/http://t.co/ggp5IvYCq6">pic.twitter.com/ggp5IvYCq6</a></p>&#x2014; Inga Sarda-Sorensen (@isardasorensen) <a href="https://web.archive.org/web/20150409161617/https://twitter.com/isardasorensen/statuses/506186173740777472">August 31, 2014</a></blockquote>
+<script async src="//web.archive.org/web/20150409161617js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<center><blockquote class="twitter-tweet" lang="en"><p>Lightning above the Hoboken Terminal from <a href="https://web.archive.org/web/20150409161617/https://twitter.com/hashtag/NYC?src=hash">#NYC</a> <a href="https://web.archive.org/web/20150409161617/https://twitter.com/NBCNewYork">@NBCNewYork</a> <a href="https://web.archive.org/web/20150409161617/https://twitter.com/EverythingNYC">@EverythingNYC</a> <a href="https://web.archive.org/web/20150409161617/https://twitter.com/weatherchannel">@weatherchannel</a> <a href="https://web.archive.org/web/20150409161617/http://t.co/u7VtMh2Zdy">pic.twitter.com/u7VtMh2Zdy</a></p>&#x2014; Max Guliani (@maximusupinNYc) <a href="https://web.archive.org/web/20150409161617/https://twitter.com/maximusupinNYc/statuses/506223375510167552">August 31, 2014</a></blockquote>
+<script async src="//web.archive.org/web/20150409161617js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<center><blockquote class="twitter-tweet" lang="en"><p>At <a href="https://web.archive.org/web/20150409161617/http://t.co/AirVV1r0QC">http://t.co/AirVV1r0QC</a> -- Finally <a href="https://web.archive.org/web/20150409161617/https://twitter.com/hashtag/lightning?src=hash">#lightning</a> <a href="https://web.archive.org/web/20150409161617/https://twitter.com/hashtag/brooklynbridge?src=hash">#brooklynbridge</a> <a href="https://web.archive.org/web/20150409161617/https://twitter.com/hashtag/nyc?src=hash">#nyc</a> <a href="https://web.archive.org/web/20150409161617/https://twitter.com/hashtag/justaccomplishedmylifegoal?src=hash">#justaccomplishedmylifegoal</a> <a href="https://web.archive.org/web/20150409161617/http://t.co/3A2Tk8Uj0Y">pic.twitter.com/3A2Tk8Uj0Y</a></p>&#x2014; scenesfromnyc (@postcardsfromny) <a href="https://web.archive.org/web/20150409161617/https://twitter.com/postcardsfromny/statuses/506206558460846082">August 31, 2014</a></blockquote>
+<script async src="//web.archive.org/web/20150409161617js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<center><blockquote class="twitter-tweet" lang="en"><p>Check out this lightning shot caught on <a href="https://web.archive.org/web/20150409161617/https://twitter.com/Eurosport">@eurosport</a>&apos;s broadcast of the US Open. <a href="https://web.archive.org/web/20150409161617/https://twitter.com/hashtag/NYC?src=hash">#NYC</a> h/t <a href="https://web.archive.org/web/20150409161617/https://twitter.com/reedtimmerTVN">@reedtimmerTVN</a> <a href="https://web.archive.org/web/20150409161617/http://t.co/u2Vga8sLe1">pic.twitter.com/u2Vga8sLe1</a></p>&#x2014; Anthony Quintano (@AnthonyQuintano) <a href="https://web.archive.org/web/20150409161617/https://twitter.com/AnthonyQuintano/statuses/506189387596840960">August 31, 2014</a></blockquote>
+<script async src="//web.archive.org/web/20150409161617js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<p>The three men were at Orchard Beach on Pelham Bay in the Bronx around 5 p.m. when they were struck. The FDNY says they were transported to Jacobi Medical Center, where they were said to be alert and conscious, and in stable condition. </p>
+
+<p><a href="https://web.archive.org/web/20150409161617/http://www.nbcnewyork.com/news/local/New-York-New-Jersey-Thunderstorm-Flash-Flood-Warning-Tri-State-273392951.html">According to NBC</a>, two of the victims were identified as a 49-year-old father and his 19-year-old son; they reportedly sought shelter under a tree during the storm. A friend of the family told Telemundo that the lightning hit the tree, sending the men flying at least 10 feet, and shredding their clothes (as you can see in the photo at the top).</p>					
+										
+									
+				

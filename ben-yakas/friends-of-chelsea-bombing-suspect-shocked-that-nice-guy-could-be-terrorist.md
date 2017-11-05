@@ -1,0 +1,33 @@
+---
+author: Ben Yakas
+date: Sep 19, 2016 5:25 pm
+title: Friends Of Chelsea Bombing Suspect Shocked That 'Nice Guy' Could Be Terrorist
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="91916rahami1.jpg" src="https://web.archive.org/web/20161021111010im_/http://gothamist.com/attachments/byakas/91916rahami1.jpg" width="640" height="427"> <br> <i> AP</i></div> <p></p>
+
+<p>Friends and acquaintances of Ahmad Khan Rahami, the 28-year-old NJ resident <a href="https://web.archive.org/web/20161021111010/http://gothamist.com/2016/09/19/ahmad_khan_rahami.php#photo-1">who was arrested this morning</a> for allegedly setting off bombs <a href="https://web.archive.org/web/20161021111010/http://gothamist.com/tags/chelseaexplosion">in Chelsea and Seaside Park, NJ</a> this weekend, can&apos;t believe the &quot;nice guy&quot; who gave them free food at his family&apos;s NJ restaurant could have done something so horrible. &quot;He was my friend&#x2026;I wouldn&#x2019;t think he would do something like that,&#x201D; 17-year-old Brayant Ocampo <a href="https://web.archive.org/web/20161021111010/https://www.theguardian.com/us-news/2016/sep/19/fried-chicken-store-new-jersey-new-york-rahami-bomb-suspect?utm_term=Autofeed&amp;CMP=twt_b-gdnnews#link_time=1474310217">told the Guardian.</a></p>
+
+<p>Ocampo is a high school senior who regularly eats at First American Fried Chicken, the Elizabeth, NJ fast food place run by Rahami and his family. He said that Rahami, known as &quot;Mad&quot; to some friends (&quot;an abridgment of his name rather than a suggestion of his manner&quot;), would give friends free food when they were short on money. </p>
+
+<p>He also loved cars, and owned an Acura TL before he crashed it: &quot;He actually came up to me because he wanted to look for some parts he needed for the car and I helped him out. I was looking for some parts in the junkyard and he got the headlight, the bumper,&quot; he said. Acquaintances from high school called him a &quot;class clown, very funny, nice guy.&quot;</p>
+
+<center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">when asked if anyone from high school remembers anything about Ahmad: <a href="https://web.archive.org/web/20161021111010/https://t.co/hHaJ00LXrY">pic.twitter.com/hHaJ00LXrY</a></p>&#x2014; Jack Smith IV (@JackSmithIV) <a href="https://web.archive.org/web/20161021111010/https://twitter.com/JackSmithIV/status/777949461888790528">September 19, 2016</a></blockquote>
+<script async src="//web.archive.org/web/20161021111010js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<p>The family, including Rahami, lived upstairs from the fried chicken place. The restaurant, which had been opened 24 hours a day, was the focus of complaints by the local community over the all-hours schedule. <a href="https://web.archive.org/web/20161021111010/http://www.nytimes.com/live/new-york-explosion/a-family-business-that-aggravated-neighbors/">The NY Times reports</a>, &quot;Neighbors, including Dean McDermott, who lives on the corner of Linden and Elmora Avenues and works as a news videographer, said the restaurant drew rowdy crowds past midnight. Often Mr. McDermott found patrons loitering in his yard and urinating in his driveway, and he called the police. Others did, too.&quot; The family <a href="https://web.archive.org/web/20161021111010/http://www.reuters.com/article/us-usa-attacks-rahami-idUSKCN11P1ZI?utm_campaign=trueAnthem:+Trending+Content&amp;utm_content=57e036df04d3010afd3005c4&amp;utm_medium=trueAnthem&amp;utm_source=twitter">filed a lawsuit</a> against the city around 2010, claiming they were being discriminated against.</p>
+
+<center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">FBI investigators take items from terror suspect&apos;s home and family restaurant in Elizabeth. The latest on <a href="https://web.archive.org/web/20161021111010/https://twitter.com/hashtag/1010WINS?src=hash">#1010WINS</a> <a href="https://web.archive.org/web/20161021111010/https://t.co/iePpP9t2KB">pic.twitter.com/iePpP9t2KB</a></p>&#x2014; hollihaerr (@hhaerrwork) <a href="https://web.archive.org/web/20161021111010/https://twitter.com/hhaerrwork/status/777979842201608192">September 19, 2016</a></blockquote>
+<script async src="//web.archive.org/web/20161021111010js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<p><a href="https://web.archive.org/web/20161021111010/http://www.nytimes.com/2016/09/20/nyregion/ahmad-khan-rahami-bombing-suspect.html?smid=tw-share">According to the Times</a>, friends noticed a marked change in Rahami&apos;s personality and increase in religious devotion after <a href="https://web.archive.org/web/20161021111010/http://www.cnn.com/2016/09/19/us/ny-nj-bombings-rahami-afghanistan-trips/index.html">several visits to Afghanistan</a>, where he was born (Rahami was a naturalized U.S. citizen). Flee Jones, 27, a childhood friend of his, told them the Rahamis would let him and his friends host rap battles in the back of the restaurant. But after he went to Afghanistan around four years ago, the Times writes &quot;he grew a beard and exchanged his typical wardrobe of T-shirts and sweatpants for traditional Muslim robes. He began to pray in the back of the store. His previous genial bearing turned more stern.&quot;</p>
+
+<p>&quot;It&#x2019;s like he was a completely different person,&quot; Jones added. &quot;He got serious and completely closed off.&quot;</p>
+
+<p>Ocampo <a href="https://web.archive.org/web/20161021111010/https://www.theguardian.com/us-news/2016/sep/19/fried-chicken-store-new-jersey-new-york-rahami-bomb-suspect?utm_term=Autofeed&amp;CMP=twt_b-gdnnews#link_time=1474310217">told the Guardian</a> he never heard any extremist views from Rahami, nor any discussion of politics or terrorism, but he did see him reading religious texts: &quot;He would always be there, and usually when there was no customers he would be there reading it. He said it was like a Bible but runs in his religion.&quot;</p>
+
+<p>&quot;I don&#x2019;t understand why he would do something like that - obviously he would get caught eventually. He had a good business going on. He just fucked up his life,&quot; added Melani Ragghinti, Ocampo&#x2019;s girlfriend and another local resident.</p>					
+										
+									
+				

@@ -1,0 +1,21 @@
+---
+author: Ben Yakas
+date: Sep 8, 2016 5:15 pm
+title: Florida Walmart Criticized For 9/11 Sales Display Made Out Of Coca Cola Boxes 
+---
+
+	
+										<p>It&apos;s that time of year again, when corporations, small businesses and well-intentioned ninnies start breaking out their tasteless 9/11 tributes. The ball already got rolling last weekend when a couple <a href="https://web.archive.org/web/20161113152826/http://www.nydailynews.com/news/national/offensive-dragon-festival-costume-depicts-twin-towers-9-11-article-1.2781738">dressed up as the burning Twin Towers</a> for the fantasy/sci-fi Dragon Con 2016, and now a Florida Walmart has thrown its hat into the ring with a sale display featuring cases of soda shaped like the World Trade Center, with a &quot;Never Forget&quot; banner hanging above it. As you can see, they didn&apos;t forget to brand the banner with their corporate logos.</p>
+
+<center><blockquote class="twitter-tweet" data-lang="en"><p lang="ht" dir="ltr">Florida c&apos;mon man <a href="https://web.archive.org/web/20161113152826/https://t.co/HU4y2rxgFG">pic.twitter.com/HU4y2rxgFG</a></p>&#x2014; Shawn (@online_shawn) <a href="https://web.archive.org/web/20161113152826/https://twitter.com/online_shawn/status/773218388516667392">September 6, 2016</a></blockquote>
+<script async src="//web.archive.org/web/20161113152826js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<p>Charles Crowson, a spokesman for Walmart, <a href="https://web.archive.org/web/20161113152826/http://www.orlandoweekly.com/Blogs/archives/2016/09/07/a-florida-walmart-wants-you-to-never-forget-a-great-deal-on-coke-products">told Orlando Weekly</a> that the 9/11 display, which was located inside a Panama City Walmart, was taken down after the photo was snapped and shared online this week. As for who was responsible for the idea, Crowson added that &quot;Coke typically approaches Walmart with display ideas, and they either approve or deny it. In this case, Walmart approved the 9/11 display. &quot;</p>
+
+<center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">Today, we are no longer a Post 9/11 society. Today, we are a Post Wal-Mart Depicting 9/11 With Coke Cans Society. <a href="https://web.archive.org/web/20161113152826/https://t.co/kwCQntWebU">pic.twitter.com/kwCQntWebU</a></p>&#x2014; Gabriel Gundacker (@gabegundacker) <a href="https://web.archive.org/web/20161113152826/https://twitter.com/gabegundacker/status/773970845194719232">September 8, 2016</a></blockquote>
+<script async src="//web.archive.org/web/20161113152826js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<p>Walmart now joins the illustrious list of cringeworthy and ill-conceived 9/11 tributes, including <a href="https://web.archive.org/web/20161113152826/http://gothamist.com/2013/09/11/att_apologized_for_this_911_twitter.php">AT&amp;T;</a>, <a href="https://web.archive.org/web/20161113152826/http://gothamist.com/2014/09/11/911_brand_remember.php">Fleshlight, CVS,</a> Devo co-founder <a href="https://web.archive.org/web/20161113152826/http://gothamist.com/tags/JerryCasale">Jerry Casale</a>, <a href="https://web.archive.org/web/20161113152826/http://gothamist.com/2015/05/01/iraq_war_pretext_cake.php">this Austrian baker</a> who constructed a cake depicting the attacks, <a href="https://web.archive.org/web/20161113152826/http://gothamist.com/2013/11/06/british_teens_dress_as_burning_twin.php">these British teens</a> who won a Halloween contest dressed as the Towers, these <a href="https://web.archive.org/web/20161113152826/http://gothamist.com/2015/09/13/video_texas_cheerleaders_perform_ta.php">earnest Texas cheerleaders</a>, this <a href="https://web.archive.org/web/20161113152826/http://gothamist.com/2015/09/11/ues_boutique_911_sale.php">UES boutique</a>, the creators of this <a href="https://web.archive.org/web/20161113152826/http://gothamist.com/2015/10/29/virtual_reality_911.php">Oculus Rift 9/11 simulator,</a> and of course, the continuing career of <a href="https://web.archive.org/web/20161113152826/http://gothamist.com/tags/rudygiuliani">Rudy Giuliani.</a></p>					
+										
+									
+				

@@ -1,0 +1,17 @@
+---
+author: Ben Yakas
+date: Dec 13, 2013 4:22 pm
+title: NYPD Doesn't Want Bars Serving Anyone Wearing Fake Santa Beards During SantaCon
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="121612santacon11.jpg" src="https://web.archive.org/web/20141230210023im_/http://gothamist.com/attachments/byakas/121612santacon11.jpg" width="640" height="427"> <br> <i> <a href="https://web.archive.org/web/20141230210023/http://www.flickr.com/photos/ennuipoet/8274509677/in/set-72157632250462207">Dave Bledsoe</a></i></div> <p></p>
+
+<p>If you smell something rotten in the air today, don&apos;t be alarmed: it&apos;s just the first whiff of the noxious mass of slowly-moving drunken frat bros that is <a href="https://web.archive.org/web/20141230210023/http://gothamist.com/tags/santacon">SantaCon</a>, which returns to NYC tomorrow. Despite the event&apos;s sterling reputation as a certifiable shitshow, The Man has been particularly unfriendly to the beloved projectile vomit contest this year. To add insult to red-nosed injury, the NYPD is reportedly demanding that Lower East Side bars don&apos;t serve alcohol to any participants who are wearing a Santa beard.</p>
+
+<p>&#x201C;It&#x2019;s for the cameras,&#x201D; a police source <a href="https://web.archive.org/web/20141230210023/http://www.nydailynews.com/new-york/santacon-pub-crawlers-remove-beards-bars-cops-article-1.1546440">told The News</a>. &#x201C;If a fight breaks out in a bar and we have video, we want to see them without their beards.&#x201D; Cops also told the bars not to let any Santas inside if they already seem too drunk. The News adds that a special NYPD detail will be assigned to follow the pub crawl and respond accordingly.</p>
+
+<p>In addition to the bar beard ban, The Man has also made <a href="https://web.archive.org/web/20141230210023/http://gothamist.com/2013/12/13/metro-north_also_banning_booze_for.php">all Metro-North</a> and <a href="https://web.archive.org/web/20141230210023/http://gothamist.com/2013/12/12/lirr_banning_booze_on_santacon_satu.php">LIRR trains</a> booze-free during the festivities. Politicians have <a href="https://web.archive.org/web/20141230210023/http://gothamist.com/2013/11/26/elected_officials_to_santacon_youre.php">called for decorum</a>, organizers have <a href="https://web.archive.org/web/20141230210023/http://gothamist.com/2013/12/10/santacon_reminds_participants_that.php">called for no sexual assaults</a>, and the founders have called for <a href="https://web.archive.org/web/20141230210023/http://gothamist.com/2013/12/12/heres_what_santacons_founder_thinks.php">everyone to find something better to do.</a> Even the NY Times has <a href="https://web.archive.org/web/20141230210023/http://www.nytimes.com/2013/12/13/opinion/ban-santacon.html?=_r=6&amp;">gotten in on the hate.</a> It&apos;s a sad day when New York City starts to feel like the kind of place where one can&apos;t don a full-body Christmas outfit and <a href="https://web.archive.org/web/20141230210023/http://gothamist.com/2012/12/17/you_wanna_suck_my_nuts_and_other_sa.php#photo-1">ask a stranger to suck his nuts anymore.</a></p>					
+										
+									
+				

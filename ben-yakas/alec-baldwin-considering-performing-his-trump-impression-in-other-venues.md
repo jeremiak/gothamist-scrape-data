@@ -1,0 +1,32 @@
+---
+author: Ben Yakas
+date: Jan 11, 2017 4:40 pm
+title: Alec Baldwin Considering Performing His Trump Impression In 'Other Venues'
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2016_12_snlco_dt.jpg" src="https://web.archive.org/web/20170621091022im_/http://gothamist.com/attachments/jen/2016_12_snlco_dt.jpg" width="640" height="436" class="image-none"> </span></p>
+
+<p><a href="https://web.archive.org/web/20170621091022/http://gothamist.com/tags/alecbaldwin">Alec Baldwin</a> has been <a href="https://web.archive.org/web/20170621091022/http://gothamist.com/2016/11/18/alec_baldwin_returns_snl_trump.php">famously non-committal</a> about whether or not he would continue doing his Donald Trump impression on <a href="https://web.archive.org/web/20170621091022/http://gothamist.com/tags/snl"><em>Saturday Night Live</em></a> after the election. And even though he ended up doing a few of the post-election episodes (much to the <a href="https://web.archive.org/web/20170621091022/http://gothamist.com/2016/12/04/again_snl_mocks_donald_trumps_tweet.php">chagrin of Trump</a>), nothing was certain about how long he would continue inhabiting the essence of our President-elect. But in separate interviews today, Baldwin made it clear that he&apos;s going to keep popping up on SNL for the foreseeable future&#x2014;and may even perform his impression elsewhere.</p>
+
+<p>&quot;I&apos;m gonna do [<em>Saturday Night Live</em>] as much as I can,&quot; Baldwin <a href="https://web.archive.org/web/20170621091022/http://abcnews.go.com/Entertainment/alec-baldwin-discussions-venues-play-donald-trump/story?id=44690623">told ABC</a>. &quot;And there&apos;s discussions about other venues we might pursue to further express our gratitude and admiration for the Trump administration.&quot; Baldwin, who can also be seen on TV as the host of ABC&apos;s new <em>Match Game</em> reboot, seemed game to portray Trump on SNL throughout his presidency, and credited Trump as being &quot;the head writer of all the material we do.&quot;</p>
+
+<p>&quot;We just sit back and we look at Twitter, we read the news and we go, &apos;There it is!&apos; And we probably should be, according to the WGA [Writers Guild of America], be giving Trump some writing credits for what he&apos;s done for us,&quot; he said. &quot;We&apos;re just gonna sit back and just let the good times roll.&quot; </p>
+
+<center><blockquote class="instagram-media" data-instgrm-version="7" style=" background:#FFF; border:0; border-radius:3px; box-shadow:0 0 1px 0 rgba(0,0,0,0.5),0 1px 10px 0 rgba(0,0,0,0.15); margin: 1px; max-width:658px; padding:0; width:99.375%; width:-webkit-calc(100% - 2px); width:calc(100% - 2px);"><div style="padding:8px;"> <div style=" background:#F8F8F8; line-height:0; margin-top:40px; padding:50.0% 0; text-align:center; width:100%;"> <div style=" background:url(data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAACwAAAAsCAMAAAApWqozAAAABGdBTUEAALGPC/xhBQAAAAFzUkdCAK7OHOkAAAAMUExURczMzPf399fX1+bm5mzY9AMAAADiSURBVDjLvZXbEsMgCES5/P8/t9FuRVCRmU73JWlzosgSIIZURCjo/ad+EQJJB4Hv8BFt+IDpQoCx1wjOSBFhh2XssxEIYn3ulI/6MNReE07UIWJEv8UEOWDS88LY97kqyTliJKKtuYBbruAyVh5wOHiXmpi5we58Ek028czwyuQdLKPG1Bkb4NnM+VeAnfHqn1k4+GPT6uGQcvu2h2OVuIf/gWUFyy8OWEpdyZSa3aVCqpVoVvzZZ2VTnn2wU8qzVjDDetO90GSy9mVLqtgYSy231MxrY6I2gGqjrTY0L8fxCxfCBbhWrsYYAAAAAElFTkSuQmCC); display:block; height:44px; margin:0 auto -44px; position:relative; top:-22px; width:44px;"></div></div><p style=" color:#c9c8cd; font-family:Arial,sans-serif; font-size:14px; line-height:17px; margin-bottom:0; margin-top:8px; overflow:hidden; padding:8px 0 7px; text-align:center; text-overflow:ellipsis; white-space:nowrap;"><a href="https://web.archive.org/web/20170621091022/https://www.instagram.com/p/BO7fk7XlC-5/" style=" color:#c9c8cd; font-family:Arial,sans-serif; font-size:14px; font-style:normal; font-weight:normal; line-height:17px; text-decoration:none;" target="_blank">A photo posted by Alec Baldwin (@iamabfalecbaldwin)</a> on <time style=" font-family:Arial,sans-serif; font-size:14px; line-height:17px;" datetime="2017-01-06T16:26:53+00:00">Jan 6, 2017 at 8:26am PST</time></p></div></blockquote>
+<script async defer src="//web.archive.org/web/20170621091022js_/http://platform.instagram.com/en_US/embeds.js"></script></center>
+
+<p>He echoed that sentiment <a href="https://web.archive.org/web/20170621091022/http://blogs.wsj.com/speakeasy/2017/01/11/alec-baldwin-on-snl-trump-himself-is-the-head-writer/">to the Wall Street Journal</a>: &quot;Trump himself is the head writer. By the end of the week you have a basket of things you can choose from,&#x201D; Baldwin said.</p>
+
+<p>But he noted that he doesn&apos;t want to overuse the impression in every episode (&quot;I think they realize we need to slow it down, you can&#x2019;t have it every weekend&quot;). He also told the WSJ that he wasn&apos;t concerned about younger people associating him with Trump in the future: &quot;Better they know me for that rather than killing my wife,&quot; he joked, referring to OJ Simpson. </p>
+
+<p>In the meantime, Baldwin has had a lot of fun &quot;interacting&quot; with Trump on social media, whether through photos with Russian-emblazoned red hats or his various tweets on the latest political news.</p>
+
+<center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">If Trump believes that criticism of, opposition to, distaste for his election will eventually subside, he is mistaken.<br>It&apos;s just starting.</p>&#x2014; ABFoundation (@ABFalecbaldwin) <a href="https://web.archive.org/web/20170621091022/https://twitter.com/ABFalecbaldwin/status/818411424351395840">January 9, 2017</a></blockquote>
+<script async src="//web.archive.org/web/20170621091022js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">I wonder if Trump&apos;s appointees will pee in a cup during conformation.</p>&#x2014; ABFoundation (@ABFalecbaldwin) <a href="https://web.archive.org/web/20170621091022/https://twitter.com/ABFalecbaldwin/status/819049350013788164">January 11, 2017</a></blockquote>
+<script async src="//web.archive.org/web/20170621091022js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>					
+										
+									
+				

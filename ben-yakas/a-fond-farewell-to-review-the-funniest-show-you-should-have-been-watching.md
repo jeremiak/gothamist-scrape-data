@@ -1,0 +1,37 @@
+---
+author: Ben Yakas
+date: Mar 31, 2017 3:15 pm
+title: A Fond Farewell To 'Review,' The Funniest Show You Should Have Been Watching
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="033117review1.jpg" src="https://web.archive.org/web/20170403210728im_/http://gothamist.com/attachments/byakas/033117review1.jpg" width="640" height="410" class="image-none"> </span></p>
+
+<p>After three short seasons, consisting of just 23 half-hour episodes, the world bid adieu (for now?) to Comedy Central&apos;s brilliant, one-of-a-kind <a href="https://web.archive.org/web/20170403210728/http://gothamist.com/2014/04/27/videos_do_yourself_a_favor_watch_th.php"><em>Review</em></a>. It was a show about a man who reviewed life for a TV show, except the TV show ended up controlling his life. It was the <a href="https://web.archive.org/web/20170403210728/http://www.vulture.com/2017/03/review-andy-daly-on-final-season.html">story of Job</a> as told through the milquetoast prism of Andy Daly&apos;s particular brand of comedy. And most importantly, it was the show that made me laugh out loud more than any other television show in recent years (for some context, I&apos;d wager <em>Veep</em> is probably the next on that list). </p>
+
+<p><iframe width="640" height="360" src="https://web.archive.org/web/20170403210728if_/https://www.youtube.com/embed/kEXMOSq8qSw" frameborder="0" allowfullscreen></iframe></p>
+
+<p><em>Review</em> was a starring vehicle for longtime &quot;Oh hey, that guy!&quot; Daly (whom you may recall from <em>Silicon Valley, Eastbound and Down, MADtv, Semi-Pro, Delocated</em>, or countless comedy podcasts). Daly, a New York native, played Forrest MacNeil, a critic whose job is to review real life experiences on his program, &quot;Review With Forrest MacNeil.&quot; He&apos;s sent questions on the show-within-a-show asking what a divorce&#x2014;or an orgy, or road rage, or eating an insane amount of pancakes&#x2014;is like, and he sincerely (and profoundly) tries to review each experience on a scale of one-half to five stars (there is no such thing as zero stars, although there is such a thing as six stars).</p>
+
+<p><iframe width="640" height="360" src="https://web.archive.org/web/20170403210728if_/https://www.youtube.com/embed/zkUqbkN8cPg" frameborder="0" allowfullscreen></iframe></p>
+
+<p>That premise alone could have been enough to make it a funny show&#x2014;but <em>Review</em> got even better, and much darker, as it went along and embraced its continuity, and you began to see how MacNeil&apos;s devotion to his job (it could be referred to as <em>extreme criticism</em>) encroached upon his &quot;real&quot; life... until it eventually consumed his entire life, destroyed his marriage, landed him in jail, and regularly put him at the brink of death. And I can&apos;t even begin to get into the deep depression I fell into at the death of Clovers, Forrest&apos;s invisible friend. Some things are too personal. </p>
+
+<p>I would call season one a perfect season of television, in which an existential crisis culminates in a glorious, painful, pancake binge; an important meeting with a lawyer is hampered by a Batman costume; and the phrase &quot;there all is aching&quot; leads to an unexpected ending. Season two somehow upped the stakes (and the ridiculous laughs) considerably, as Forrest started his own cult, tries to become a little person, ruins his father&apos;s life, is buried alive, and goes on trial for murder. The shortened final season, delayed by over a year, dove into some of the mythology of the show (what does co-host AJ do outside work?), came up with some of the funniest bits of the entire series (&quot;Helen Keller&quot;), and also put a devastating ellipses on Forrest MacNeil&apos;s reviewing career (and life&apos;s purpose). </p>
+
+<p><iframe width="640" height="360" src="https://web.archive.org/web/20170403210728if_/https://www.youtube.com/embed/vbIltmwqXzI" frameborder="0" allowfullscreen></iframe></p>
+
+<p>The show veered into the cringe-comedy lane over and over again, to the point that several friends who I begged to watch the show couldn&apos;t quite make it in season two (when you see Forrest&apos;s attempts at achieving the &quot;perfect body,&quot; you&apos;ll understand). But the secret ingredient which always made the show hum along for me was Daly, who turned Forrest into the human equivalent of a puppy dog in khakis (albeit, a very deluded one). He was able to take his natural enthusiasm and twist it ever so slightly until the show became a recurring dark night of the soul (albeit, a gut-busting one), all without losing his affable demeanor. </p>
+
+<p>I don&apos;t want to say too much more about the details for anyone who hasn&apos;t gotten to discover it yet, but I feel confident in predicting that it will go on to become a cult classic. It&apos;s not available on any of the streaming services right now, but you can sign up to <a href="https://web.archive.org/web/20170403210728/http://www.cc.com/shows/review">watch it at Comedy Central</a> (and really, it&apos;s just a matter of time before Netflix or Amazon or whoever gets wise and picks it up). </p>
+
+<p><iframe width="640" height="360" src="https://web.archive.org/web/20170403210728if_/https://www.youtube.com/embed/7fcNnfeWzP8" frameborder="0" allowfullscreen></iframe></p>
+
+<p>There is also a chance that <em>Review</em>&#x2014;or at least the character of Forrest MacNeil&#x2014;may come back again (it&apos;s not a huge spoiler to say that the conclusion of <em>Review</em> leaves him in a hilarious existential k-hole that is more psychologically devastating than it is physically&#x2014;the show already inflicted all the physical damage on MacNeil that it could!). Daly <a href="https://web.archive.org/web/20170403210728/http://uproxx.com/sepinwall/review-andy-daly-series-finale-interview/3/">told Alan Sepinwall</a> that there was plenty of reviews left on the table (though we are grateful they never got to &quot;Bestiality&quot;), and he gave this hopeful quote <a href="https://web.archive.org/web/20170403210728/http://www.avclub.com/article/yes-was-final-episode-review-252918">to AV Club</a>:</p>
+
+<blockquote>&#x201C;I was just thinking about this the other day: One of the coolest things that&#x2019;s ever happened in television comedy was when the character of Alan Partridge made the jump from <em>Knowing Me Knowing You</em> to the behind-the-scenes <em>I&#x2019;m Alan Partridge</em>,&#x201D; Daly said. &#x201C;So there is a part of me that wonders if there&#x2019;s a reverse-Alan Partridge to be done with Forrest MacNeil, that we see him in his next job as the host of a show or something like that. Or, is there the opportunity to do more of the dead-on Alan Partridge, to leave the construct of Forrest doing a television show and follow this man and the rest of his life?&#x201D;</blockquote>
+
+<p>&quot;I wouldn&#x2019;t rule out meeting him again in some other context,&quot; Daly added. &quot;Because I like him, even though he&#x2019;s an idiot.&quot; We couldn&apos;t agree more. Reviewing the best comedy on TV that flew under the radar for far too long? Six stars.</p>					
+										
+									
+				

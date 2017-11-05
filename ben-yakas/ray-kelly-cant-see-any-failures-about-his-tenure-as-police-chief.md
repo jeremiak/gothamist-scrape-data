@@ -1,0 +1,26 @@
+---
+author: Ben Yakas
+date: Dec 21, 2013 12:30 PM
+title: Ray Kelly "Can't See Any Failures" About His Tenure As Police Chief
+---
+
+
+                            
+                            
+                            
+                            <p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="111513kelly_bongos.jpg" src="https://web.archive.org/web/20140210113032im_/http://gothamist.com/attachments/byakas/111513kelly_bongos.jpg" width="640" height="480"> <br> <i> Ray Kelly at the Apollo in 2011 (courtesy Shahar Azran Photography / Apollo Theater)</i></div> <p></p>
+
+<p>Somebody relatively intelligent once noted that the unexamined life is not worth living. Most non-sociopathic people we know spend an inordinate amount of time obsessing over this concept. And we know there&apos;s an inordinate amount of pressure on public officials, especially those who oversee the biggest police force in the country. But it&apos;s still pretty disturbing that outgoing NYPD chief Ray Kelly can&apos;t find any faults during his tenure as Police Commissioner: &quot;I can&apos;t see any failures. This is a job where you have to respond, by definition, to crises,&quot; Kelly <a href="https://web.archive.org/web/20140210113032/http://nypost.com/2013/12/21/ray-kelly-reflects-on-his-term-i-cant-see-any-failures/">told the Post</a>. &quot;I don&apos;t see any major errors that I would say we needed to do over.&quot; It&apos;s not reflection if you refuse to reflect.</p>
+
+<p>Even the Post, who have been known to be <em>somewhat</em> sympathetic to the NYPD <a href="https://web.archive.org/web/20140210113032/http://gothamist.com/2013/11/18/ny_post_stop_frisk.php">no matter</a> <a href="https://web.archive.org/web/20140210113032/http://gothamist.com/2013/08/24/cops_bitch_to_ny_post_that_stop-and.php">what the situation</a>, had to push him on that statement. First they brought up the botched arrest of <a href="https://web.archive.org/web/20140210113032/http://gothamist.com/tags/dsk">Dominique Strauss-Kahn</a>: &#x201C;Disappointed? No, because we did what we had to do here. We arrested an individual. He was brought to justice. We got him off the plane,&#x201D; Kelly said of the May 2011 arrest of DSK, who was accused of assaulting Nafissatou Diallo in a midtown hotel. &#x201C;Obviously, the District Attorney&#x2019;s Office probably is the right place to ask their opinion.&#x201D;</p>
+
+<p>When it came to the Etan Patz case, Kelly also passed the buck to the DA&apos;s office:  when asked how the civil case against Jos&#xE9; Ramos complicates the criminal case against schizophrenic suspect Pedro Hernandez, Kelly retorted, &#x201C;That&#x2019;s really as far as the prosecution is concerned. That&#x2019;s really in the purview of the district attorney.&#x201D;</p>
+
+<p>Even if you think the DSK and Patz debacles are more to blame on the DA, there is no mention whatsoever of <a href="https://web.archive.org/web/20140210113032/http://gothamist.com/tags/stopandfrisk">stop-and-frisk abuses</a>, the NYPD&apos;s reliance on <a href="https://web.archive.org/web/20140210113032/http://gothamist.com/tags/muslimspying">surveillance</a> (and <a href="https://web.archive.org/web/20140210113032/http://gothamist.com/2013/09/03/ap_reporters_nypd_cia_muslim_spying.php">blatantly spying on Muslims</a>), <a href="https://web.archive.org/web/20140210113032/http://gothamist.com/2013/05/21/nypds_operation_lucky_bag_target_of.php">Operation Lucky Bag</a>, or his handling of <a href="https://web.archive.org/web/20140210113032/http://gothamist.com/tags/occupywallstreet">Occupy Wall Street.</a> </p>
+
+<p>Based on this and <a href="https://web.archive.org/web/20140210113032/http://gothamist.com/2013/11/15/ray_kelly_insulted_by_mayoral_candi.php">other exit interviews</a> <a href="https://web.archive.org/web/20140210113032/http://gothamist.com/2013/09/23/ray_kelly_youre_all_gonna_be_real_s.php">he&apos;s given</a> in recent months, Kelly seems to be under the impression that even <em>acknowledging</em> a single misstep&#x2014;and let&apos;s give him the benefit of the doubt, and assume Kelly has had the city&apos;s best interests at heart this whole time, even if many disenfranchised New Yorkers VERY MUCH don&apos;t feel that way&#x2014;would completely undermine, or destroy, his legacy. </p>
+
+<p>No public officials are above close examination&#x2014;especially not someone who decided somewhere along the line that a <a href="https://web.archive.org/web/20140210113032/http://gothamist.com/2013/08/12/federal_judge_stop_frisk_violates_u.php">controversial tactic</a> like stop-and-frisk wasn&apos;t just one police tool, but rather an unimpeachable catch-all tool that solves all of NYC&apos;s problems. Even <a href="https://web.archive.org/web/20140210113032/http://gothamist.com/tags/bloomberg">Bloomberg</a> doesn&apos;t seem this stubborn.</p>
+                            
+                            
+                            

@@ -1,0 +1,21 @@
+---
+author: Ben Yakas
+date: May 9, 2014 11:30 am
+title: [Update] Broker Will Get 15K From Williamsburg Real Estate Firm After Lawsuit Over Her Uploading Nude Pics At Work
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="5914broker.jpeg" src="https://web.archive.org/web/20140511210459im_/http://gothamist.com/attachments/byakas/5914broker.jpeg" width="640" height="427"> <br> <i> via Facebook</i></div> <p></p>
+
+<p><strong>[Somewhat Confusing But Important Update Below]</strong> Generally speaking, it&apos;s a bad idea to mix work and flesh photos&#x2014;maybe your coworkers <a href="https://web.archive.org/web/20140511210459/http://gothamist.com/2013/06/01/former_naked_playgirl_lumberjack_su.php">will mock you</a>, or <a href="https://web.archive.org/web/20140511210459/http://gothamist.com/2011/11/07/anthony_bourdain_lets_it_all_hang_o.php">mock you AND share your photos online</a>. Last year a Manhattan real estate broker <a href="https://web.archive.org/web/20140511210459/http://gothamist.com/2013/06/14/photos_advertising_uws_studio_boast.php">slipped a penis photo</a> into a listing for an Upper West Side apartment, and now another real estate broker <a href="https://web.archive.org/web/20140511210459/http://nypost.com/2014/05/08/broker-to-pay-15k-for-uploading-nude-pictures-at-work/">has agreed to pay</a> her former Williamsburg firm $15K for uploading nude photos of herself to the company&#x2019;s accounts (and allegedly stealing Brooklyn real estate listings). We knew the real estate market in NYC was obscene, but this is getting <em>rim shot!</em></p>
+
+<p>Long Island native Stephanie Gribbin had been hired by real estate firm Nooklyn in August 2012, but soon began &quot;uploading nude and seminude photographs of herself to Nooklyn&apos;s Dropbox account,&quot; according to the firm&apos;s lawsuit against her, which they filed last winter. In addition, <a href="https://web.archive.org/web/20140511210459/http://nypost.com/2013/12/02/broker-was-fired-for-uploading-nudie-pics-lawsuit/">the firm claims</a> Gribbin contacted landlords and clients she had known through the company and &quot;tried to convince them to work with her new firm, Stephanie Rose Consulting.&quot;</p>
+
+<p>The company claimed her actions hurt a business that is trying to get off the ground, while Gribbin countered that the company fired her for being pregnant, and made up the accusations as an excuse. However, Gribbin ultimately decided to settle with the company, admitting she did upload the photos, which she said were &quot;tasteful art shots that she transmitted on company computers but never intended for public consumption.&quot; </p>
+
+<p>Let Gribbin&apos;s misfortune be a reminder to keep your nude selfie transmitting (to your phone) out of the workplace, or else you&apos;ll end up owing the company that fired you money AND will have to deal with <a href="https://web.archive.org/web/20140511210459/http://www.everyjoe.com/2014/05/09/work/stephanie-gribbin-photos-nude-selfies-real-estate-broker/?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+b5media%2Feveryjoe+(EveryJoe)#8">creepy people on the internet.</a></p>
+
+<p><strong>UPDATE</strong>: The Post initially reported that Gribbin would have to pay Nooklyn $15K for uploading her nude pics using their servers, but they have now quietly updated their post to switch everything around&#x2014;it seems Nooklyn agreed to pay Gribbin $15K for discrimination (perhaps related to her accusation that they fired her after getting pregnant). The Post did not note that they changed the article in any way, but you can see their initial error still in the URL (http://nypost.com/2014/05/08/broker-to-pay-15k-for-uploading-nude-pictures-at-work/). You can see the <a href="https://web.archive.org/web/20140511210459/http://www.dailymail.co.uk/news/article-2624085/Shamed-broker-pay-15K-uploading-nude-selfies-company-servers-trendy-New-York-real-estate-firm.html">Daily Mail also reported</a> that Gribbin paid the company.</p>					
+										
+									
+				

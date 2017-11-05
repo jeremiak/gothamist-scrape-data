@@ -1,0 +1,99 @@
+---
+author: Ben Yakas
+date: Oct 2, 2016 11:30 am
+title: Report: Donald Trump May Not Have Paid Taxes For 18 Years After $900M In Losses
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="100216trump1.jpg" src="https://web.archive.org/web/20161110104153im_/http://gothamist.com/attachments/byakas/100216trump1.jpg" width="640" height="427"> <br> <i> Getty Images</i></div> <p></p>
+
+<p>According to a new report <a href="https://web.archive.org/web/20161110104153/http://mobile.nytimes.com/2016/10/02/us/politics/donald-trump-taxes.html">in the New York Times today</a>, <a href="https://web.archive.org/web/20161110104153/http://gothamist.com/tags/donaldtrump">Donald Trump</a> may have avoided paying federal income taxes for the last 18 years after he declared nearly a billion dollars in losses on his 1995 income tax returns.</p>
+
+<center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">check out sex tape <a href="https://web.archive.org/web/20161110104153/https://t.co/dtUDTtyPK4">pic.twitter.com/dtUDTtyPK4</a></p>&#x2014; Dave Itzkoff (@ditzkoff) <a href="https://web.archive.org/web/20161110104153/https://twitter.com/ditzkoff/status/782406468377149440">October 2, 2016</a></blockquote>
+<script async src="//web.archive.org/web/20161110104153js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<p>The tax returns, which were verified by tax experts, reveal that Trump was able to take advantage of a loophole in the tax laws benefitting the most wealthy, using his $916 million loss to cancel out an equivalent amount of taxable income over the last two decades. To rub salt in the wounds, the Times writes that these extraordinary tax benefits were &quot;derived from the financial wreckage he left behind in the early 1990s through mismanagement of three Atlantic City casinos, his ill-fated foray into the airline business and his ill-timed purchase of the Plaza Hotel in Manhattan.&quot;</p>
+
+<p>The report, which can be <a href="https://web.archive.org/web/20161110104153/http://mobile.nytimes.com/2016/10/02/us/politics/donald-trump-taxes.html">read in full here</a>, comes on the heels of last Monday night&apos;s debates, in which Hillary Clinton attacked Trump for not paying any federal income taxes (Trump interjected at the time, &quot;That makes me smart&quot;). Clinton&apos;s team said in a statement that the tax returns show the &#x201C;colossal nature of Donald Trump&#x2019;s past business failures. He stiffed small businesses, laid off workers, and walked away from hardworking communities. And how did it work out for him? He apparently got to avoid paying taxes for nearly two decades.&quot;</p>
+
+<p><a href="https://web.archive.org/web/20161110104153/http://www.nytimes.com/interactive/2016/us/politics/donald-trump-taxes-explained.html?smid=tw-nytimes&amp;smtyp=cur">The NY Times</a> and <a href="https://web.archive.org/web/20161110104153/https://www.washingtonpost.com/news/the-fix/wp/2016/10/01/what-we-know-about-donald-trumps-income-tax-history-by-year/">Washington Post</a> both have extensive pieces on what we do (and don&apos;t know) about Trump&apos;s taxes so far. <a href="https://web.archive.org/web/20161110104153/https://thinkprogress.org/7-tweets-by-trump-about-taxes-that-are-very-awkward-now-75b500ea4f45#.vmlkob7k2">ThinkProgress has also compiled</a> seven now-awkward Trump tweets about taxes in light of this release.</p>
+
+<center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">Signing my tax return.... <a href="https://web.archive.org/web/20161110104153/http://t.co/XJfXeaORbU">pic.twitter.com/XJfXeaORbU</a></p>&#x2014; Donald J. Trump (@realDonaldTrump) <a href="https://web.archive.org/web/20161110104153/https://twitter.com/realDonaldTrump/status/654706635663773696">October 15, 2015</a></blockquote>
+<script async src="//web.archive.org/web/20161110104153js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<p><a href="https://web.archive.org/web/20161110104153/http://www.realclearpolitics.com/video/2015/08/03/trump_i_pay_as_little_as_possible_in_taxes_thats_the_way_youre_supposed_to_do_it.html">Back in 2015</a>, Trump bragged about not paying taxes: &quot;I fight like hell to pay as little as possible for two reasons. Number one, I&apos;m a businessman. And that&apos;s the way you&apos;re supposed to do it. The other reason is that I hate the way our government spends our taxes. I hate the way they waste our money. Trillions and trillions of dollars of waste and abuse. And I hate it.&quot;</p>
+
+<p>Trump acknowledged the report with two Tweets last night:</p>
+
+<center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">I know our complex tax laws better than anyone who has ever run for president and am the only one who can fix them. <a href="https://web.archive.org/web/20161110104153/https://twitter.com/hashtag/failing?src=hash">#failing</a>@nytimes</p>&#x2014; Donald J. Trump (@realDonaldTrump) <a href="https://web.archive.org/web/20161110104153/https://twitter.com/realDonaldTrump/status/782541307168391168">October 2, 2016</a></blockquote>
+<script async src="//web.archive.org/web/20161110104153js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">I have created tens of thousands of jobs and will bring back great American prosperity. Hillary has only created jobs at the FBI and DOJ!</p>&#x2014; Donald J. Trump (@realDonaldTrump) <a href="https://web.archive.org/web/20161110104153/https://twitter.com/realDonaldTrump/status/782544407593619457">October 2, 2016</a></blockquote>
+<script async src="//web.archive.org/web/20161110104153js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<p>At a really in Pennsylvania last night, Trump didn&apos;t directly discuss his taxes, but he did apparently blow a fuse, taking 25 minutes to deliver a nine-sentence critique of Hillary Clinton due to frequent ramblings and rantings about everything from the state of movie culture to media bias. </p>
+
+<p><a href="https://web.archive.org/web/20161110104153/https://www.washingtonpost.com/news/post-politics/wp/2016/10/02/as-news-of-trumps-taxes-broke-he-goes-off-script-at-a-rally-in-pennsylvania/">The Washington Post reports</a> that Trump &quot;kept going off on one angry tangent after another &#x2014; ignoring his teleprompters and accusing Clinton of not being &apos;loyal&apos; to her husband, imitating her buckling at a memorial service last month, suggesting that she is &apos;crazy&apos; and saying she should be in prison. He urged his mostly white crowd of supporters to go to polling places in &apos;certain areas&apos; on Election Day to &apos;watch&apos; the voters there. He also repeatedly complained about having a &quot;bum mic&quot; at the first presidential debate and wondered if he should have done another season of <em>The Apprentice.</em>&quot;</p>
+
+<p>A few other lowlights from his rant, via the Post:</p>
+
+<ul>
+	<li>Although he seemingly meant to woo Bernie Sanders voters, Trump instead went off-script and mocked &quot;Crazy Bernie&quot; (saying that he has &#x201C;a much bigger movement than Bernie Sanders ever had&#x201D; and that he has &#x201C;much bigger crowds than Bernie Sanders ever had&#x201D;). </li>
+	<li>He railed at the &#x201C;dopes at CNN&#x201D; and &#x201C;phony pundits&#x201D; for denying how well he was doing during the primaries: &quot;Then we started getting 52 percent, 58 percent, 66 percent, 78 percent, 82 percent,&quot; Trump said, not making clear what those numbers mean. &quot;And they just didn&#x2019;t understand what was going on.&quot;</li>
+	<li>He claimed that he has a &#x201C;winning temperament&#x201D; while Clinton has &#x201C;bad temperament.&#x201D; Trump continued: &#x201C;She could be crazy. She could actually be crazy.&#x201D;</li>
+	<li>&#x201C;How many people have acid-washed or bleached a tweet?&#x201D; Trump asked the crowd. &#x201C;How many? That you deleted? So you deleted it but that&#x2019;s not good enough. No, this is getting crazy. Our country is becoming a third-world country.&#x201D;</li>
+	<li>&#x201C;You&#x2019;re unsuspecting,&#x201D; Trump said. &#x201C;Right now, you say to your wife: &#x2018;Let&#x2019;s go to a movie after Trump.&#x2019; But you won&#x2019;t do that because you&#x2019;ll be so high and so excited that no movie is going to satisfy you. Okay? No movie. You know why? Honestly? Because they don&#x2019;t make movies like they used to &#x2014; is that right?&#x201D;</li>
+	<li>&#x201C;Oh, I could be doing the &#x2018;Apprentice&#x2019; right now,&#x201D; Trump said at one point, seeming to harken back to a happier time in his life. &#x201C;I loved it &#x2014; 14 seasons. How good was that? Tremendous success. They wanted to extend &#x2014; I could be doing the &#x2018;Apprentice&#x2019; now. Somehow I think this is a little bit more important. Do we agree? Just a little bit?&#x201D;</li>
+</ul>
+
+<p>Trump&apos;s team hasn&apos;t officially responded to the tax report, but they did release a statement praising him as &quot;highly skilled&quot; in <em>making the business:</em> &quot;Mr. Trump is a highly skilled businessman who has a fiduciary responsibility to his business, his family and his employees to pay no more tax than legally required,&#x201D; the statement said. &quot;That being said, Mr. Trump has paid hundreds of millions of dollars in property taxes, sales and excise taxes, real-estate taxes, city taxes, state taxes, employee taxes and federal taxes. Mr. Trump knows the tax code far better than anyone who has ever run for president and he is the only one that knows how to fix it.&#x201D;</p>
+
+<p>Trump&apos;s most debased surrogates made like spinning tops this morning and tried to slant the damning report in their candidate&apos;s favor:</p>
+
+<center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">Christie on the NYT bombshell: &quot;This is actually a very, very good story for Donald Trump.&quot;</p>&#x2014; Sam Stein (@samsteinhp) <a href="https://web.archive.org/web/20161110104153/https://twitter.com/samsteinhp/status/782566904489619456">October 2, 2016</a></blockquote>
+<script async src="//web.archive.org/web/20161110104153js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">Giuliani&apos;s judgement questionable already now he calls Trump &quot;genius&quot; for losing $916million <a href="https://web.archive.org/web/20161110104153/https://t.co/MJJhrRqfIy">https://t.co/MJJhrRqfIy</a> <a href="https://web.archive.org/web/20161110104153/https://twitter.com/hashtag/LastTimeTrumpPaidTaxes?src=hash">#LastTimeTrumpPaidTaxes</a></p>&#x2014; American Bridge (@American_Bridge) <a href="https://web.archive.org/web/20161110104153/https://twitter.com/American_Bridge/status/782572570436636673">October 2, 2016</a></blockquote>
+<script async src="//web.archive.org/web/20161110104153js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">Not denied, either by Trump or by surrogates like Giuliani &amp; Christie: the notion that for many years Trump paid $0 in federal income taxes</p>&#x2014; Alex Burns (@alexburnsNYT) <a href="https://web.archive.org/web/20161110104153/https://twitter.com/alexburnsNYT/status/782573734553128960">October 2, 2016</a></blockquote>
+<script async src="//web.archive.org/web/20161110104153js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<p>Here&apos;s NY Times Deputy Executive Director Matt Purdy on how the Trump sausage was made:</p>
+
+<center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">1/ NYT reporters had scoured the country for months for info on Trump&apos;s taxes when the 1995 records showed up in <a href="https://web.archive.org/web/20161110104153/https://twitter.com/susannecraig">@susannecraig</a>&apos;s mailbox</p>&#x2014; Matt Purdy (@mattbpurdy) <a href="https://web.archive.org/web/20161110104153/https://twitter.com/mattbpurdy/status/782565383844823040">October 2, 2016</a></blockquote>
+<script async src="//web.archive.org/web/20161110104153js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">2/ The reporters knew what to look for in the &apos;95 taxes because of this earlier story by <a href="https://web.archive.org/web/20161110104153/https://twitter.com/russbuettner">@russbuettner</a> and C. Bagli <a href="https://web.archive.org/web/20161110104153/https://t.co/49ChfKbAbI">https://t.co/49ChfKbAbI</a></p>&#x2014; Matt Purdy (@mattbpurdy) <a href="https://web.archive.org/web/20161110104153/https://twitter.com/mattbpurdy/status/782566615078559744">October 2, 2016</a></blockquote>
+<script async src="//web.archive.org/web/20161110104153js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">3/ The key was understanding an obscure tax provision called net operating loss - a way to use biz losses to offset personal taxable income</p>&#x2014; Matt Purdy (@mattbpurdy) <a href="https://web.archive.org/web/20161110104153/https://twitter.com/mattbpurdy/status/782568720925351936">October 2, 2016</a></blockquote>
+<script async src="//web.archive.org/web/20161110104153js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">4/ Since the &apos;95 tax docs were sent anonymously (the return address was the Trump Organization) reporters worked meticulously to verify them</p>&#x2014; Matt Purdy (@mattbpurdy) <a href="https://web.archive.org/web/20161110104153/https://twitter.com/mattbpurdy/status/782571711170568192">October 2, 2016</a></blockquote>
+<script async src="//web.archive.org/web/20161110104153js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">5/ The NYT hired tax experts. The breakthrough was tracking down the now-retired CPA who prepared DJT&apos;s &apos;95 returns and signed them.</p>&#x2014; Matt Purdy (@mattbpurdy) <a href="https://web.archive.org/web/20161110104153/https://twitter.com/mattbpurdy/status/782572736774373376">October 2, 2016</a></blockquote>
+<script async src="//web.archive.org/web/20161110104153js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">6/ The CPA confirmed the Dix&apos;s authenticity and the importance of the big net operating loss. More reporting gave the team confidence.</p>&#x2014; Matt Purdy (@mattbpurdy) <a href="https://web.archive.org/web/20161110104153/https://twitter.com/mattbpurdy/status/782573681277100032">October 2, 2016</a></blockquote>
+<script async src="//web.archive.org/web/20161110104153js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">7/ The story is a tribute to <a href="https://web.archive.org/web/20161110104153/https://twitter.com/susannecraig">@susannecraig</a> <a href="https://web.archive.org/web/20161110104153/https://twitter.com/DavidBarstow">@DavidBarstow</a> <a href="https://web.archive.org/web/20161110104153/https://twitter.com/mega2e">@mega2e</a> &amp; <a href="https://web.archive.org/web/20161110104153/https://twitter.com/russbuettner">@russbuettner</a> and to dogged, tough and fair investigative reporting.</p>&#x2014; Matt Purdy (@mattbpurdy) <a href="https://web.archive.org/web/20161110104153/https://twitter.com/mattbpurdy/status/782574642724732928">October 2, 2016</a></blockquote>
+<script async src="//web.archive.org/web/20161110104153js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">6/ The CPA confirmed the docs&apos; authenticity and the importance of the big net operating loss. More reporting gave the team confidence.</p>&#x2014; Matt Purdy (@mattbpurdy) <a href="https://web.archive.org/web/20161110104153/https://twitter.com/mattbpurdy/status/782577648925024256">October 2, 2016</a></blockquote>
+<script async src="//web.archive.org/web/20161110104153js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<p>Writer Susanne Craig <a href="https://web.archive.org/web/20161110104153/http://mobile.nytimes.com/2016/10/03/insider/the-time-i-found-donald-trumps-tax-records-in-my-mailbox.html?smid=tw-nytimes&amp;smtyp=cur&amp;_r=0&amp;referer=">also gave readers an insight</a> into how the story came together via snail mail: &quot;In Metro, we get a lot of junk mail, and are regularly flooded with correspondence from prisoners in New York&#x2019;s penitentiaries. But Friday, Sept. 23, was different. I walked to my mailbox and spotted a manila envelope, postmarked New York, NY, with a return address of The Trump Organization. My heart skipped a beat.&quot;</p>
+
+<p>The Trump campaign <a href="https://web.archive.org/web/20161110104153/http://www.nbcnews.com/politics/2016-election/times-publishes-trump-95-tax-return-documents-show-nearly-1b-n658051">has threatened</a> legal action against the newspaper if the records were published, saying that the documents were &quot;illegally obtained.&quot; Times publisher Dean Baquet previously stated that he <a href="https://web.archive.org/web/20161110104153/https://www.washingtonpost.com/news/the-fix/wp/2016/10/02/the-new-york-times-risked-legal-trouble-to-publish-donald-trumps-tax-return/?postshare=3271475410207073&amp;tid=ss_tw">was willing to risk jail</a> to publish Trump&apos;s tax returns. Trump has <a href="https://web.archive.org/web/20161110104153/http://www.cnn.com/2016/10/01/politics/donald-trump-taxes-report-hillary-clinton/">repeatedly refused</a> to follow recent precedent and release his tax returns during his presidential campaign.</p>
+
+<center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">As the Trump team bores down into this &quot;obtained illegally&quot; point re the taxes, remember how gleefully they&apos;ve pushed all the hacked emails</p>&#x2014; Edward-Isaac Dovere (@IsaacDovere) <a href="https://web.archive.org/web/20161110104153/https://twitter.com/IsaacDovere/status/782432582621208576">October 2, 2016</a></blockquote>
+<script async src="//web.archive.org/web/20161110104153js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">Absolutely true, but leak was very predictable event. Will Team Trump also complain Hillary Wikileaks material also obtained illegally? <a href="https://web.archive.org/web/20161110104153/https://t.co/rmZUoSTHXt">https://t.co/rmZUoSTHXt</a></p>&#x2014; John Fund (@johnfund) <a href="https://web.archive.org/web/20161110104153/https://twitter.com/johnfund/status/782572790322978816">October 2, 2016</a></blockquote>
+<script async src="//web.archive.org/web/20161110104153js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>					
+										
+									
+				

@@ -1,0 +1,41 @@
+---
+author: Ben Yakas
+date: Feb 1, 2017 3:22 pm
+title: Connecticut White Privilege Essay Contest Sparks Outrage Among Privileged White People
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="020117westport1.jpg" src="https://web.archive.org/web/20170919105017im_/http://gothamist.com/attachments/byakas/020117westport1.jpg" width="640" height="404"> <br> <i> Westport, CT (AP)</i></div> <p></p>
+
+<p>The subject of <a href="https://web.archive.org/web/20170919105017/http://gothamist.com/tags/whiteprivilege">white privilege</a> could not be avoided during the 2016 election; it was Toni Morrison who wrote <a href="https://web.archive.org/web/20170919105017/http://www.newyorker.com/magazine/2016/11/21/making-america-white-again">an essay for the New Yorker</a> about how the fear of losing white privilege directly (if subconsciously) led to the ascent of Trump. It is a prickly topic for many, but nevertheless an important one to confront and discuss as Trump and his cronies empower the racially-insensitive among us to voice their basest thoughts and fears. </p>
+
+<p>So it is admirable that members of TEAM Westport, a diversity council for the wealthy and liberal Connecticut suburb, recently launched <a href="https://web.archive.org/web/20170919105017/http://westport.dailyvoice.com/schools/westport-teen-essay-contest-focuses-on-white-privilege/696706/">a student essay contest</a> on the topic of white privilege, in the hopes of provoking discussion about how privilege shapes our world views. Unfortunately, their (predominantly) white parents have taken grave offense at the mere mention of the subject.</p>
+
+<p>&quot;It&apos;s an open town,&quot; Bari Reiner, 72, <a href="https://web.archive.org/web/20170919105017/http://staging.hosted.ap.org/dynamic/stories/U/US_WHITE_PRIVILEGE_ESSAY_CONTEST?SITE=AP&amp;SECTION=HOME&amp;TEMPLATE=DEFAULT&amp;CTIME=2017-01-31-00-41-59">told the AP</a>, arguing that the question is offensive because the town welcomes anybody who can afford to live here. &quot;There are no barricades here. Nobody says if you&#x2019;re black or whatever, you can&#x2019;t move here.&quot; </p>
+
+<p><a href="https://web.archive.org/web/20170919105017/http://www.westportct.gov/index.aspx?page=903">Here is the question</a> posed by TEAM Westport, and directed toward high schoolers who live in or around Westport (the contest runs through Feb. 27th):</p>
+
+<blockquote>The focus of this fourth essay contest is the issue of &apos;white privilege,&#x2019; which surfaced as a topic during the recent presidential election. This year&#x2019;s invitation states, &#x201C;In 1,000 words or less, describe how you understand the term &#x2018;white privilege&#x2019;. To what extent do you think this privilege exists? What impact do you think it has had in your life&#x2014;whatever your racial or ethnic identity&#x2014;and in our society more broadly?&quot;</blockquote>
+
+<p>&quot;This is the fourth year we&apos;ve held the contest, and each year we&apos;ve asked students for their thoughts on race, religion or ethnicity,&quot; Harold Bailey Jr., the chairman of the diversity council, <a href="https://web.archive.org/web/20170919105017/http://patch.com/connecticut/westport/essay-contest-white-privilege-sparks-controversy-affluent-ct-town">told Patch.</a> &quot;We&apos;ve had discussion upon discussion about the contest and the topics, but we never expected this.&quot;</p>
+
+<p>Bailey, who is black, told the AP, &quot;Just the fact it says &apos;white&apos; and &apos;privilege,&apos; for some people that&apos;s all they need to see, and all of a sudden we&apos;re race-baiting or trying to get people to feel guilty. That&apos;s not at all what it&apos;s about.&quot;</p>
+
+<p>Westport is one of the wealthiest suburbs in America: its median family income is over $150,000, it&apos;s home to the world&#x2019;s largest hedge fund, and its 26,000 residents were also 93 percent white (as of the 2010 census).</p>
+
+<p>For the best snapshot of how people there are reacting to the contest, all you need to do <a href="https://web.archive.org/web/20170919105017/https://06880danwoog.com/2017/01/18/teens-what-do-you-think-of-white-privilege/#comments">is peruse the comments section of 06880</a>, a popular local blog run by teacher and columnist Dan Woog. Here is one such response:</p>
+
+<blockquote>I find this contest offensive. There is absolutely nothing in or about this town that prevents anyone other than a white person from moving, living or thriving here. Why in the world would this become a contest - as if to encourage kids in this community to think this issue exists here? Why not make it about ethnicity or religion or something else while you are at it? What creates privilege in this community is money. Why not ask kids to write about that? I have never heard any of my kids or their friends say or do anything that was remotely discriminatory. If someone has the money to live and thrive in Westport, good for them. They probably worked hard for it. Don&#x2019;t make this about race. Privilege in Westport is not necessarily about the color of your skin. It&#x2019;s about education, strong values, working hard, and trying to get ahead. That&#x2019;s what we should be teaching our kids - not that the color of their skin in Westport has made them have less privilege or less access. I have always found Westport to be inclusive and rewarding for people that work hard. To give kids money to write about this makes them, de facto, think that white privilege exists. If you reward me, I could write about just anything you want.</blockquote>
+
+<p>There is certainly a diverse range of reactions to the contest&#x2014;and plenty of people defending the essay topic&#x2014;but it is most striking at how many ostensibly white people immediately become defensive when faced with the specter of racial inequality. Like this person, who seems to be taking a page <a href="https://web.archive.org/web/20170919105017/http://gothamist.com/2014/10/16/jon_stewart_bill_oreilly.php">out of Bill O&apos;Reilly&apos;s handbook.</a></p>
+
+<blockquote>You need to come up with something besides white privilege. It is only offensive and divisive when used. You could apply the word privilege in your terms to any race or culture to a certain degree. This country happens to be a Caucasian majority we did not ask it be, it just is, so to a certain degree we must live within that. Each community tends to delivery services and products that benefit the majority of people living there. I would not expect a predominantly African - American community to carry products that would fulfil my needs and that is ok. What is your goal? What is the end game? Will every town be a cookie cutter standard with equal amounts of races living together, Every store caters equally to all, no person has more than the next guy, We all have equal space?</blockquote>
+
+<p>But plenty of people chimed in with different responses:</p>
+
+<blockquote>As a 40-something yr old degree holding Black woman, (born and raised in CT) in 2014, unable to find my preferred choice of work, I accepted a role at an expensive furniture retailer in Westport which has since shut down and moved-(so I make ends meet). Privilege is being treated like the help, shooed away, spoken down to. Privilege is customers assuming the world is theirs to have-and you better get it for them at a discount! Privilege is time and time again being asked if they could touch my hair. And these are ADULTS!! When you know how many times you&#x2019;ve actually seen a person of color walk into the store during your entire time there?? Come on&#x2026;</blockquote>
+
+<p>Bailey was quick to add that they&apos;ve had plenty of positive feedback from the community as well: &quot;Westport is an incredibly welcoming and open town. This was not meant to spur guilt in anyone or cast aspersions,&quot; he said. &quot;This was meant as a healthy exercise for students, to get a discussion going,&quot; said Bailey. &quot;We&apos;re trying to drive understanding, not divisiveness.&quot;</p>					
+										
+									
+				

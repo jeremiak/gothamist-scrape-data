@@ -1,0 +1,27 @@
+---
+author: Ben Yakas
+date: Jan 2, 2014 10:39 am
+title: [Updates] Welcome To 2014, Here's A Blizzard
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="10214snowstorm.jpg" src="https://web.archive.org/web/20140321063540im_/http://gothamist.com/attachments/byakas/10214snowstorm.jpg" width="640" height="418"> <br> <i> <a href="https://web.archive.org/web/20140321063540/http://www.flickr.com/photos/laor/130752134/">destroy100&apos;s flickr</a></i></div> <p></p>
+
+<p>After a prelude of light dusting last night, NYC is <a href="https://web.archive.org/web/20140321063540/http://gothamist.com/2014/01/01/blizzard_conditions_possible_as_the.php">about to get hit</a> with a major snowstorm to start 2014. Find out all the gory details below!</p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="10213snow1.jpg" src="https://web.archive.org/web/20140321063540im_/http://gothamist.com/attachments/byakas/10213snow1.jpg" width="640" height="480"> <br> <i> <a href="https://web.archive.org/web/20140321063540/https://twitter.com/NWSNewYorkNY">via NWS</a></i></div> <p></p>
+
+<p><a href="https://web.archive.org/web/20140321063540/http://abclocal.go.com/wabc/story?section=weather&amp;id=9378105">Various forecasters</a> predict anywhere from 8-11 inches of snow falling between Thursday night and Friday morning (though as you can see above, NYC might get a bit less, <a href="https://web.archive.org/web/20140321063540/http://www.nbcnewyork.com/news/local/Noreaster-Tri-State-Forecast-Snow-Storm-New-York-New-Jersey-Connecticut-Inches-Foot-Weather-238427051.html">closer to 6-8 inches</a>, <a href="https://web.archive.org/web/20140321063540/http://www.nydailynews.com/new-york/near-blizzard-conditions-9-inches-snow-expected-nyc-article-1.1564039">maybe 9</a> if everything goes to hell). All the reports agree however that NYC will see blizzard-like conditions, which means reduced visibility, freezing temperatures (it&apos;ll be in the teens on Friday, possibly in the single digits tonight), chilly wind gusts (up to 40 MPH!), and general snow-induced sleepiness. </p>
+
+<p>The city Sanitation Department <a href="https://web.archive.org/web/20140321063540/http://newyork.cbslocal.com/2014/01/01/tri-state-area-braces-for-1st-snowstorm-of-2014/">issued a snow alert</a> at 1 a.m. Thursday with the loading of its fleet of 364 street plows and salt spreaders&#x2014;if you want to know when your street will be plowed, don&apos;t forget about <a href="https://web.archive.org/web/20140321063540/http://www.nyc.gov/html/oem/html/nycsevereweather/weather_plowtracker.shtml">PlowNYC</a>. The MTA is also prepping its fleet of deicers, snowblowers, and snow throwers. The city <a href="https://web.archive.org/web/20140321063540/http://nypost.com/2014/01/01/major-highways-may-close-ahead-of-winter-storm-hercules/">will suspend</a> alternate-side parking, and the state plans to close some major highways, including the Long Island Expressway. &#x201C;We&#x2019;re telling people to prepare for road closings,&quot; Gov. Cuomo said. &quot;The roadways may be closed on your way home. Mass transit is a prudent option.&quot;</p>
+
+<p>But hey, it could be worse&#x2014;it&apos;s <a href="https://web.archive.org/web/20140321063540/http://www.dailymail.co.uk/news/article-2532566/Freezing-cold-blizzards-grip-Northeast-Canada-records-temperatures-cold-Mars.html">as cold as Mars in Canada</a>! So bundle up, be careful on the roadways, don&apos;t eat the yellow snow, and make sure to send all your snowflake selfies to tips@gothamist.com or tag it as Gothamist on Flickr. And make sure you get the bread and milk.</p>
+
+<p><iframe width="640" height="480" src="//web.archive.org/web/20140321063540if_/http://www.youtube.com/embed/i6zaVYWLTkU" frameborder="0" allowfullscreen></iframe></p>
+
+<p><strong>Update</strong>: At least 1,400 flights have been cancelled today in anticipation of &quot;Winter Storm Hercules,&quot; so if you&apos;re supposed to fly anywhere today and tomorrow, check <a href="https://web.archive.org/web/20140321063540/http://flightaware.com/">FlightAware.com.</a> The National Weather Service adds that the heaviest snowfall begins late afternoon &amp; early evening&#x2014;so expect snow to start falling between 5-7 p.m., then get heavier around 9 p.m., and continue throughout the night and into Friday morning.</p>
+
+<p><strong>Update</strong>: The Long Island Expressway, I-84, and 87-S will all shut down from midnight until 5 a.m., <a href="https://web.archive.org/web/20140321063540/https://twitter.com/NYGovCuomo/status/418845694729134080">according to Gov. Cuomo.</a> Over 500 NYC-area flights <a href="https://web.archive.org/web/20140321063540/http://www.nydailynews.com/new-york/nyc-scrambles-food-supplies-snowstorm-threatens-article-1.1564519">have been cancelled today</a> so far, with more expected. Mayor de Blasio implored people to stay indoors tonight <a href="https://web.archive.org/web/20140321063540/http://gothamist.com/2014/01/02/de_blasio_gives_blizzard_update_ple.php">in his first blizzard press conference</a>&#x2014;he is expected to give another update sometime in the next few hours.</p>					
+										
+									
+				

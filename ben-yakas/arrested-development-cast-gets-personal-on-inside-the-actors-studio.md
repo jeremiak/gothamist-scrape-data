@@ -1,0 +1,21 @@
+---
+author: Ben Yakas
+date: Nov 9, 2013 5:20 pm
+title: Arrested Development Cast Gets Personal On "Inside The Actors Studio"
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="11913arrestdev.jpg" src="https://web.archive.org/web/20160306090311im_/http://gothamist.com/attachments/byakas/11913arrestdev.jpg" width="640" height="427"> <br> <i> Bravo</i></div> <p></p>
+
+<p>The long-awaited fourth season of <em>Arrested Development</em> inspired quite a few mixed emotions from longtime fan&#x2014;we know the fragmented season was ingenious, but we&apos;re still not sure whether it was <em>funny</em>. Regardless, the cast and crew are hoping to put together a new season for Netflix (and yes, a movie) within the next two years. In that spirit, most of the cast showed up at &quot;Inside The Actors Studio&quot; to visit <a href="https://web.archive.org/web/20160306090311/http://arresteddevelopment.wikia.com/wiki/Stefan_Gentles">Warden Stefan Gentles</a> at his other day job. </p>
+
+<p>The whole cast&#x2014;minus Michael Cera, Tony Hale, and David Cross&#x2014;<a href="https://web.archive.org/web/20160306090311/http://blog.zap2it.com/pop2it/2013/11/arrested-development-casts-best-inside-the-actors-studio-moments.html">were there</a> for the taping on Thursday. Unsurprisingly, seven people is a lot for one episode, so the episode had lots of quick edits to try to cram as much in as possible. <a href="https://web.archive.org/web/20160306090311/http://popwatch.ew.com/2013/11/08/arrested-development-inside-actors-studio/">As EW recaps</a>, it was revealed that Portia de Rossi was born Amanda Lee Rogers; creator Mitch Hurwitz claimed he had so many characters with similar names (George Michael, Michael Bluth, George Bluth, George Oscar/GOB, Oscar, etc) because he thought it would &#x201C;compel you to pay attention&#x201D;; Lipton got to speak with GOB directly; and Hurwitz told the story of how he (essentially) tricked Ben Stiller into appearing on the show.</p>
+
+<p>Jason Bateman also said about the Bluths: &quot;Mitch said early on, &apos;Our job as writers is to make these characters as despicable as possible, your job as actors is to make them as likable as possible.&apos;&quot; You can watch <a href="https://web.archive.org/web/20160306090311/http://www.bravotv.com/blogs/the-dish/watch-arrested-development-outtakes-on-actors-studio">a bunch of clips here</a>. And below, <a href="https://web.archive.org/web/20160306090311/http://www.vulture.com/2013/11/hear-arrested-developments-favorite-swear-words.html">watch the cast</a> take the Bernard Pivot Questionnaire, and talk about favorite and least favorite words, sounds, and swears, and what they want to hear if they meet God.</p>
+
+<center><iframe src="https://web.archive.org/web/20160306090311if_/http://video.vulture.com/video/Arrested-Development-on-Inside/player?layout=compact&amp;read_more=1" width="616" height="434" frameborder="0" scrolling="no"></iframe></center>
+
+<p>And in case you were worried about the future of AD after season four, Hurwitz <a href="https://web.archive.org/web/20160306090311/http://www.huffingtonpost.com/2013/10/22/mitch-hurwitz-arrested-development-season-5-movie_n_4143569.html">admitted recently that</a> he made some mistakes in how he presented the new episodes: &quot;I felt in many ways, I did not prepare the audience for this,&#x201D; he said. &#x201C;Right before the show came out, I thought, I&apos;ve really not said what this is, and what it had become was a novel. I had this unique opportunity here&#x2014;people are going to get to watch eight hours of this, they&#x2019;re not gonna spend the next six months of having it doled out to them&#x2026;so the storytelling changed. That first episode became much more like chapter one of a novel than episode one of a series. And I didn&apos;t prep you guys&#x2014;I&apos;m really sorry about that.&quot;</p>					
+										
+									
+				

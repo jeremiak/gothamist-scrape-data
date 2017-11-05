@@ -1,0 +1,31 @@
+---
+author: Ben Yakas
+date: Feb 6, 2017 12:30 pm
+title: Sean Spicer Has A Few Notes For Melissa McCarthy & SNL
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2017_02_seanspicersnl.jpg" src="https://web.archive.org/web/20170402150540im_/http://gothamist.com/attachments/jen/2017_02_seanspicersnl.jpg" width="640" height="407" class="image-none"> </span></p>
+
+<p>Alec Baldwin appeared in the cold open of <a href="https://web.archive.org/web/20170402150540/http://gothamist.com/tags/snl"><em>Saturday Night Live</em></a> this weekend to once again needle and mock Donald Trump&apos;s White House buffoonery, but the biggest highlight of the night&#x2014;and the sketch <a href="https://web.archive.org/web/20170402150540/http://gothamist.com/2017/02/05/melissa_mccarthy_plays_sean_spicer.php">everyone was talking about the next day</a>&#x2014;came midway through the episode, when Melissa McCarthy made an unexpected appearance as White House spokesperson <a href="https://web.archive.org/web/20170402150540/http://gothamist.com/tags/seanspicer">Sean Spicer.</a> Almost unrecognizable in drag, McCarthy brilliantly inhabited Spicer as a furious toad rage-eating gum by the dozens, hell-bent on making the press submit to his alternative facts. </p>
+
+<p>&quot;Now I&apos;d like to begin today by apologizing on behalf of you to me for how you have treated me these last two weeks, and that apology is not accepted,&quot; McCarthy-as-Spicer said. &quot;Because I&apos;m not here to be your buddy. I&apos;m here to swallow gum and I&apos;m here to take names.&quot; The sketch, which you can watch below, reportedly came together late on Friday, according <a href="https://web.archive.org/web/20170402150540/http://money.cnn.com/2017/02/06/media/sean-spicer-melissa-mccarthy-snl-reaction/">to media analyst Bill Carter</a> (it&apos;s not clear whether McCarthy pitched the impression herself or if, like Baldwin-as-Trump, a third party <a href="https://web.archive.org/web/20170402150540/http://www.usatoday.com/story/life/tv/2016/09/29/alec-baldwin-saturday-night-live-donald-trump-lorne-michaels/91294676/">brought up the idea</a>).</p>
+
+<p><iframe width="640" height="360" src="https://web.archive.org/web/20170402150540if_/https://www.youtube.com/embed/UWuc18xISwI" frameborder="0" allowfullscreen></iframe></p>
+
+<p>The real Spicer <a href="https://web.archive.org/web/20170402150540/http://extratv.com/2017/02/05/white-house-press-secretary-sean-spicer-reacts-to-melissa-mccarthys-snl-skit/">told Extra</a> he first learned about the sketch while leaving church Sunday morning, when &apos;his texts had been blowing up so much he thought there must be a national emergency.&apos; He told them his initial reaction was that though it was a &quot;funny&quot; show, McCarthy&apos;s impression was a little exaggerated and she &quot;could dial back&quot; a bit. He added that she &quot;needs to slow down on the gum chewing; way too many pieces in there.&quot; </p>
+
+<p>Asked about Baldwin&apos;s portrayal of Dear Leader, Spicer was more critical: &quot;Alec has gone from funny to mean, and that&apos;s unfortunate. SNL used to be really funny. There&apos;s a streak of meanness now that they&apos;ve crossed over to mean.&quot;</p>
+
+<p>He was a little more generous in his assessment when he spoke to Fox &amp; Friends: &quot;It was cute, it was funny. I&apos;d rather us be talking about the issues the President is so committed to helping Americans on, but you know, it&apos;s part of American culture.&quot; If he just wants to take his cues from Trump, then he probably should be ranting about <a href="https://web.archive.org/web/20170402150540/https://twitter.com/search?l=&amp;q=from%3Arealdonaldtrump%20%40nytimes&amp;src=typd">NY Times coverage 24/7.</a></p>
+
+<center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">&quot;It was cute. It&apos;s funny.&quot; -Sean Spicer reacts to SNL&apos;s portrayal of him <a href="https://web.archive.org/web/20170402150540/https://t.co/VkaSggpdIb">pic.twitter.com/VkaSggpdIb</a></p>&#x2014; FOX &amp; friends (@foxandfriends) <a href="https://web.archive.org/web/20170402150540/https://twitter.com/foxandfriends/status/828567672849735680">February 6, 2017</a></blockquote>
+<script async src="//web.archive.org/web/20170402150540js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<p>The sketch succeeded on so many levels: it was the ultimate distillation of Spicer&apos;s aggressive and infuriating handling of the press (check out the tweet below to see just how long Spicer has been perfecting this routine), a perfect melding of performer and impression that fell right into McCarthy&apos;s wheelhouse of character, a subversive take <a href="https://web.archive.org/web/20170402150540/https://www.nytimes.com/2017/02/06/opinion/why-melissa-mccarthy-had-to-play-sean-spicer.html">on drag performance</a>, and also downright hilarious (even if it came close to <a href="https://web.archive.org/web/20170402150540/http://www.slate.com/blogs/browbeat/2017/02/05/watch_melissa_mccarthy_s_killer_sean_spicer_impersonation.html">being TOO real</a>). Now let&apos;s just hope McCarthy keeps coming back to play him (at least until he is fired/quits). </p>
+
+<center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">A friend who went to college with Sean Spicer shared this biting article about his behavior in student government.  <a href="https://web.archive.org/web/20170402150540/https://twitter.com/BoingBoing">@BoingBoing</a> <a href="https://web.archive.org/web/20170402150540/https://twitter.com/dailykos">@dailykos</a> <a href="https://web.archive.org/web/20170402150540/https://t.co/RlkYULK8AQ">pic.twitter.com/RlkYULK8AQ</a></p>&#x2014; Nils d&apos;Aulaire (@nilsd) <a href="https://web.archive.org/web/20170402150540/https://twitter.com/nilsd/status/828617228119580672">February 6, 2017</a></blockquote>
+<script async src="//web.archive.org/web/20170402150540js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>					
+										
+									
+				

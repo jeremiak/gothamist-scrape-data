@@ -1,0 +1,17 @@
+---
+author: Ben Yakas
+date: May 11, 2014 11:10 am
+title: Video: Get A Taste Of The Upcoming Tupac Broadway Musical
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="51114tupac.jpg" src="https://web.archive.org/web/20150408100927im_/http://gothamist.com/attachments/byakas/51114tupac.jpg" width="640" height="426" class="image-none"> </span></p>
+
+<p>Two years ago, <a href="https://web.archive.org/web/20150408100927/http://gothamist.com/2012/03/01/tupac_the_musical_is_real_casting.php">it was announced</a> that a musical about <a href="https://web.archive.org/web/20150408100927/http://gothamist.com/tags/tupac">Tupac Shakur</a>, <em>Holler If Ya Hear Me</em>, was in the works. It took a little longer to put it together than producers expected, but come June, the show will finally make its Broadway debut. And below, <a href="https://web.archive.org/web/20150408100927/http://popwatch.ew.com/2014/05/09/holler-if-ya-hear-me-broadway-video-california-love/">via EW</a>, you can get the first sneak peek of what it&apos;ll sound like, with clips of  &quot;California Love,&quot; &quot;Unconditional Love,&quot; and the title track.</p>
+
+<center><object id="flashObj" width="486" height="450" classid="clsid:D27CDB6E-AE6D-11cf-96B8-444553540000" codebase="https://web.archive.org/web/20150408100927oe_/http://download.macromedia.com/pub/shockwave/cabs/flash/swflash.cab#version=9,0,47,0"><param name="movie" value="http://c.brightcove.com/services/viewer/federated_f9?isVid=1&amp;isUI=1"><param name="bgcolor" value="#FFFFFF"><param name="flashVars" value="videoId=3550622298001&amp;playerID=673439623001&amp;playerKey=AQ~~,AAAAAA0Xi_s~,r1xMuE8k5NwJJtM9th7ulTVssP1QI3cp&amp;domain=embed&amp;dynamicStreaming=true"><param name="base" value="http://admin.brightcove.com"><param name="seamlesstabbing" value="false"><param name="allowFullScreen" value="true"><param name="swLiveConnect" value="true"><param name="allowScriptAccess" value="always"><embed src="https://web.archive.org/web/20150408100927oe_/http://c.brightcove.com/services/viewer/federated_f9?isVid=1&amp;isUI=1" bgcolor="#FFFFFF" flashvars="videoId=3550622298001&amp;playerID=673439623001&amp;playerKey=AQ~~,AAAAAA0Xi_s~,r1xMuE8k5NwJJtM9th7ulTVssP1QI3cp&amp;domain=embed&amp;dynamicStreaming=true" base="http://admin.brightcove.com" name="flashObj" width="486" height="450" seamlesstabbing="false" type="application/x-shockwave-flash" allowfullscreen="true" allowscriptaccess="always" swliveconnect="true" pluginspage="http://www.macromedia.com/shockwave/download/index.cgi?P1_Prod_Version=ShockwaveFlash"></object></center>
+
+<p>The musical is directed by Tony nominee Kenny Leon, and stars spoken-word artist and rapper Saul Williams&#x2014;you can <a href="https://web.archive.org/web/20150408100927/http://www.broadway.com/shows/holler-if-you-hear-me/">see the full cast listing here.</a> Previews will begin on June 2nd at the Palace Theatre, with an opening date set for June 19th. Don&apos;t expect any <a href="https://web.archive.org/web/20150408100927/http://gothamist.com/2012/04/17/the_history_of_the_hologram_as_told.php">holographic cameos</a> from the man himself&#x2014;nor should you expect to see a depiction of the East Coast/West Coast rap war. You&apos;ll just have to wait for the inevitable Biggie musical for that.</p>					
+										
+									
+				

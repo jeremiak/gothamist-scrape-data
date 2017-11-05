@@ -1,0 +1,23 @@
+---
+author: Ben Yakas
+date: Feb 28, 2014 1:47 pm
+title: Town Rallies Behind NJ Teacher Suspended After 5-Year-Olds Found "Having Sex" In Class Closet
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="22314teacher.jpg" src="https://web.archive.org/web/20140410035028im_/http://gothamist.com/attachments/byakas/22314teacher.jpg" width="640" height="500"> <br> <i> <a href="https://web.archive.org/web/20140410035028/http://www.nydailynews.com/news/national/kids-5-found-naked-school-bathroom-teacher-canned-article-1.1699249">via</a> Facebook</i></div> <p></p>
+
+<p>Last weekend, <a href="https://web.archive.org/web/20140410035028/http://gothamist.com/2014/02/23/nj_teacher_may_lose_job_after_5-yea.php">it was reported that</a> a NJ teacher was suspended and may lose her job after two 5-year-olds in her kindergarten class were found naked in a class closet &quot;having sex.&quot; Hundreds of teachers and residents of Mullica Township <a href="https://web.archive.org/web/20140410035028/http://abclocal.go.com/wpvi/story?section=news/local&amp;id=9446831">turned out to support</a> Kelly Mascio this week, demanding that the School Board reinstate her at Mullica Township Elementary School.</p>
+
+<p>Initial reports stated that Mascio found the two children, a boy and girl, naked in her classroom bathroom&#x2014;they had apparently slipped into the bathroom together while a movie was being shown in class. They explained to Mascio that they were &quot;having sex,&quot; Mascio immediately reported the incident to her principal, and she was soon suspended without pay, for allegedly failing to supervise the students properly, <a href="https://web.archive.org/web/20140410035028/http://www.myfoxphilly.com/story/24835246/mullica-township-residents-demand-suspended-teacher-be-reinstated">Fox Philly reports</a>. </p>
+
+<p>But Mullica Township Education Association President, Barbara Rheault, said things <a href="https://web.archive.org/web/20140410035028/http://www.myfoxphilly.com/story/24835246/mullica-township-residents-demand-suspended-teacher-be-reinstated">weren&apos;t that clear cut</a>: &quot;All the information out there saying students were naked and having sex are completely unfounded. That was not the case. Ms. Mascio reported that she found the students and when they were questioned they said they were having sex,&quot; she explained, adding the boy&apos;s shirt was on backwards but no other clothing was out of place. Former teacher Susan Polk <a href="https://web.archive.org/web/20140410035028/http://abclocal.go.com/wpvi/story?section=news/local&amp;id=9446831">tells ABC</a>, &quot;I&apos;m very confused and feel there has to be something missing that we don&apos;t know, because it just does not make sense.&quot;</p>
+
+<p>The police report, from which the sex claims were first reported, only cited statements made by Principal Matthew Mazzoni: &quot;The only thing on the police report is what was portrayed to us by the complainant,&#x201D; Police Chief John Thompson <a href="https://web.archive.org/web/20140410035028/http://www.pressofatlanticcity.com/news/breaking/incorrect-mullica-police-report-on-naked-kindergarteners-based-on-principal/article_fdae22a0-9ff2-11e3-a6fb-001a4bcf887a.html">told Press of Atlantic City.</a></p>
+
+<p>Here&apos;s an excerpt from Mascio&apos;s statement about the incident: &quot;I asked, &apos;What was going on in the bathroom?&apos; [Student] looked at [student] and said, &apos;Do you want to tell her or should I?&apos; I said, &apos;You better tell me now.&apos; [Student] said, &apos;Hers wanted to have sex with me.&apos; I looked at [student] and said &apos;What?&apos; she replied, &apos;He wanted to have some with me.&apos;&quot;</p>
+
+<p>Despite the haziness around the incident, and the lack of any discussion before she was suspended, School Board Solicitor Will Donio says tenure charges have been filed against the teacher, which is the first step toward firing her. &quot;The district has taken action regarding an employment matter which it considers both serious and sufficient to warrant the action taken. Again we did not and do not comment on personnel matters,&quot; said Donio <a href="https://web.archive.org/web/20140410035028/http://www.myfoxphilly.com/story/24835246/mullica-township-residents-demand-suspended-teacher-be-reinstated">told Fox.</a></p>					
+										
+									
+				

@@ -1,0 +1,19 @@
+---
+author: Ben Yakas
+date: May 10, 2014 10:55 am
+title: Video: Zoe Saldana Once Had "Super Ghetto" Sex In Between Subway Cars
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="51014saldana.jpg" src="https://web.archive.org/web/20141022152855im_/http://gothamist.com/attachments/byakas/51014saldana.jpg" width="640" height="425"> <br> <i> Original F Train photo <a href="https://web.archive.org/web/20141022152855/https://www.flickr.com/photos/joannsantangelo/4721558336/">via jo ann santangelo</a></i></div> <p></p>
+
+<p>We know way too much about the subway&#x2014;like the fact that it&apos;s a <a href="https://web.archive.org/web/20141022152855/http://gothamist.com/2011/05/05/straphangers_report_the_subway_cont.php">disgusting</a>, unsanitary mass transit system <a href="https://web.archive.org/web/20141022152855/http://gothamist.com/2013/11/04/what_microbes_are_in_your_subway_st.php">coated in filth</a>, <a href="https://web.archive.org/web/20141022152855/http://gothamist.com/2013/05/09/when_you_breathe_on_the_subway_you.php">epidermal flakes</a>, and <a href="https://web.archive.org/web/20141022152855/http://gothamist.com/2014/02/20/photo_popping_zits_subway.php">pus</a>&#x2014;to find it even remotely erotic. But that obviously hasn&apos;t stopped some people from banging a gong and <a href="https://web.archive.org/web/20141022152855/http://gothamist.com/2012/11/30/two_young_ladies_filmed_giving_thei.php">getting</a> <a href="https://web.archive.org/web/20141022152855/http://gothamist.com/2013/10/04/video_are_these_subway_humpers_havi.php">it</a> <a href="https://web.archive.org/web/20141022152855/http://gothamist.com/2010/12/12/nsfw_couple_gets_overly_raunchy_on.php#photo-1">on</a>&#x2014;and that list apparently includes actress Zoe Saldana, who revealed this week that she once had sex <em>in between</em> subway cars!</p>
+
+<center><iframe frameborder="0" width="640" height="423" scrolling="no" id="molvideoplayer" title="MailOnline Embed Player" src="https://web.archive.org/web/20141022152855if_/http://www.dailymail.co.uk/embed/video/1094175.html"></iframe></center>
+
+<p>&quot;The craziest place [I&apos;ve had sex]&#x2014;I am a part of the Mile High Club,&quot; Saldana said after being asked on &quot;Sway In The Morning&quot; on SiriusXM on Thursday about the craziest places she has had sex. &quot;Okay, this is ghetto, but hey, I&apos;m from Queens, whatever. <strong>There is a train from Coney Island all the way back into the city, and in between two train cars. It was super ghetto</strong>.&quot; Seeing as how people <a href="https://web.archive.org/web/20141022152855/http://gothamist.com/2013/10/30/subway_surfer_suffers_head_injury_a.php">routinely slip</a> and <a href="https://web.archive.org/web/20141022152855/http://gothamist.com/2011/03/01/man_dies_after_falling_between_subw.php">fall into</a> the gap <a href="https://web.archive.org/web/20141022152855/http://gothamist.com/2013/09/01/video_man_falls_under_subway_car_in.php">between cars</a>, we&apos;re nervous enough just <em>walking</em> between cars&#x2014;and even if we weren&apos;t, we would probably be the people to get caught and hit with <a href="https://web.archive.org/web/20141022152855/http://web.mta.info/nyct/rules/TransitAdjudicationBureau/rules.htm">a $75 fine.</a></p>
+
+<p>We assume Saldana must have been taking the D/F/N/Q lines, for any fans who want to feel a little bit closer to her. Just keep in mind she doesn&apos;t think any more subway sex is in the cards for her though: &quot;But I&apos;m a lady now,&quot; she added after the admission. &quot;I&apos;m a lady.&quot; While true, we wouldn&apos;t be shocked if Saldana reconsidered at some point, and signed up for a sequel, considering her affinity for such things (see: <em>Star Trek</em>, <em>Avatar</em>, <em>Guardians Of The Galaxy</em>). </p>					
+										
+									
+				

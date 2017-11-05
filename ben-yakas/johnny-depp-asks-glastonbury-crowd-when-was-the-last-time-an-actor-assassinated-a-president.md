@@ -1,0 +1,35 @@
+---
+author: Ben Yakas
+date: Jun 23, 2017 11:32 am
+title: Johnny Depp Asks Glastonbury Crowd, 'When Was The Last Time An Actor Assassinated A President?'
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="062317depp1.jpg" src="https://web.archive.org/web/20170623191307im_/http://gothamist.com/attachments/byakas/062317depp1.jpg" width="640" height="427"> <br> <i> Getty Images</i></div> <p></p>
+
+<p><strong>[Update Below]</strong> Johnny Depp, who has had more than his fair share of <a href="https://web.archive.org/web/20170623191307/http://www.hollywoodreporter.com/features/johnny-depp-a-star-crisis-insane-story-his-missing-millions-1001513">unfavorable press</a> <a href="https://web.archive.org/web/20170623191307/http://www.thedailybeast.com/johnny-depp-does-not-deserve-your-sympathy">lately</a>, added another notch to his bad boy belt this week. At the Glastonbury Festival in England on Thursday, Johnny Depp took the stage and asked the audience, &quot;Can you bring Trump here?&quot; After saying Trump &quot;needs help,&quot; he continued: &quot;When was the last time an actor assassinated a president?&quot; He then seemed to walk it back slightly by saying, &quot;I want to clarify: I&apos;m not an actor. I lie for a living. However, it&apos;s been awhile, and maybe it&apos;s time.&quot;</p>
+
+<p><iframe width="640" height="360" src="https://web.archive.org/web/20170623191307if_/https://www.youtube.com/embed/YF4_CuHjXE8" frameborder="0" allowfullscreen></iframe></p>
+
+<p>The NY Times has another <a href="https://web.archive.org/web/20170623191307/https://www.nytimes.com/2017/06/23/arts/johnny-depp-glastonbury-trump.html?_r=1">angle of the speech here.</a> &quot;I think he needs help. By the way, this is going to be in the press and it&apos;ll be horrible,&quot; he said during the speech. &quot;But I like that you&apos;re all a part of it.&quot; According to the Times, he reportedly added, &quot;It&apos;s just a question; I&apos;m not insinuating anything.&quot;</p>
+
+<p>For those who completely skipped American history in order to smoke weed and watch <em>21 Jump Street</em> reruns, President Abraham Lincoln was assassinated at Ford&apos;s Theatre in Washington D.C. in 1865 by actor John Wilkes Booth, as Lincoln attended a performance of the play <em>Our American Cousin</em>. John Hinckley Jr., who tried to assassinate Ronald Reagan in 1981, was an aspiring songwriter and Jodie Foster fanatic.</p>
+
+<p><a href="https://web.archive.org/web/20170623191307/http://www.cnn.com/2017/06/22/entertainment/johnny-depp-trump-comment-glastonbury/index.html?sr=twCNN062317/johnny-depp-trump-comment-glastonbury/1100AMVODtopLink&amp;linkId=39016197">According to CNN</a>, the Secret Service have been made aware of the comments: &quot;For security reasons, we cannot discuss specifically nor in general terms the means and methods of how we perform our protective responsibilities,&quot; they said in a statement. The backlash to his comments has been swift on social media and from various news organization; Fox News ran the headline, <a href="https://web.archive.org/web/20170623191307/http://www.foxnews.com/entertainment/2017/06/23/johnny-depp-talks-about-assassinating-trump.html">&quot;Johnny Depp talks about assassinating Trump.&quot;</a></p>
+
+<center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">Disgusting! Johnny Depp talks about assassinating President Trump, referencing Abraham Lincoln&apos;s assassination by an actor <a href="https://web.archive.org/web/20170623191307/https://t.co/wfASurcd9q">pic.twitter.com/wfASurcd9q</a></p>&#x2014; FOX &amp; friends (@foxandfriends) <a href="https://web.archive.org/web/20170623191307/https://twitter.com/foxandfriends/status/878219491045285889">June 23, 2017</a></blockquote>
+<script async src="//web.archive.org/web/20170623191307js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">Hi <a href="https://web.archive.org/web/20170623191307/https://twitter.com/SecretService">@SecretService</a>, we have video evidence of Johnny Depp threatening to assassinate President Trump. Please do something! <a href="https://web.archive.org/web/20170623191307/https://t.co/CRvnpzZsef">pic.twitter.com/CRvnpzZsef</a></p>&#x2014; Tennessee (@TEN_GOP) <a href="https://web.archive.org/web/20170623191307/https://twitter.com/TEN_GOP/status/878064087686623232">June 23, 2017</a></blockquote>
+<script async src="//web.archive.org/web/20170623191307js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<p>Depp&apos;s comment comes a week after the <a href="https://web.archive.org/web/20170623191307/http://www.cnn.com/2017/06/14/politics/alexandria-virginia-shooting/index.html">politically-motivated shooting</a> of Rep. Steve Scalise during a Republicans&apos; early-morning practice ahead of a charity baseball game. It also comes on the heels of a controversy over the <a href="https://web.archive.org/web/20170623191307/http://gothamist.com/tags/shakespeareinthepark"> Public Theater&apos;s production of <em>Julius Caesar</em> in Central Park</a>, which turned Caesar into a Trump-like figure. Several protesters <a href="https://web.archive.org/web/20170623191307/http://gothamist.com/2017/06/19/caesar_protesters_central_park.php">were arrested</a> for disrupting recent performances.</p>
+
+<p>This is also far from the first celebrity to joke about or allude to the president&apos;s assassination; Kathy Griffin <a href="https://web.archive.org/web/20170623191307/http://gothamist.com/2017/05/31/kathy_griffin_trump_cnn.php">got in trouble</a> for holding a prop of Trump&apos;s bloody and severed head, losing her job as co-host of CNN&apos;s New Year&#x2019;s Eve program. Earlier this year at the Women&#x2019;s March on Washington, Madonna <a href="https://web.archive.org/web/20170623191307/http://www.cnn.com/2017/01/23/entertainment/madonna-white-house/index.html">said that</a> she&apos;d &quot;thought an awful lot about blowing up the White House.&quot;</p>
+
+<p>Of course, celebrities saying controversial and violent things about the president is a long-standing tradition on both sides of the aisle, as with Ted Nugent&apos;s many previous calls <a href="https://web.archive.org/web/20170623191307/http://www.thedailybeast.com/ted-nugent-wants-to-elect-trump-and-kill-hillary-clinton-barack-obama">to kill Hillary Clinton and Barack Obama.</a></p>
+
+<p><strong>Update:</strong> Depp <a href="https://web.archive.org/web/20170623191307/http://people.com/politics/johnny-depp-apologizes-for-comments-about-president-trump/">has now apologized</a> for this comments at Glastonbury: &quot;I apologize for the bad joke I attempted last night in poor taste about President Trump,&#x201D; he said. &#x201C;It did not come out as intended, and I intended no malice. I was only trying to amuse, not to harm anyone.&quot;</p>					
+										
+									
+				

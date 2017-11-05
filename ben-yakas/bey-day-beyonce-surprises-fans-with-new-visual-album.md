@@ -1,0 +1,30 @@
+---
+author: Ben Yakas
+date: Dec 13, 2013 12:05 pm
+title: BeyDay: Beyonce Surprises Fans With New 'Visual Album'
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="121313beyonce.jpeg" src="https://web.archive.org/web/20150506144451im_/http://gothamist.com/attachments/byakas/121313beyonce.jpeg" width="640" height="435" class="image-none"> </span></p>
+
+<p>Picking up on the fact that 2013 was sorely lacking in new Beyonc&#xE9; albums, Beyonc&#xE9; decided to celebrate Taylor Swift&apos;s birthday by surprise releasing her long-awaited new album, the self-titled <em>Beyonc&#xE9;</em>, last night. No amount of <a href="https://web.archive.org/web/20150506144451/http://www.refinery29.com/2013/12/58754/beyonce-pizza-outfit-vegan">pizza sweaters</a> and <a href="https://web.archive.org/web/20150506144451/http://instagram.com/p/h2rIh1Pw4C/">vegan cupcakes</a> could <a href="https://web.archive.org/web/20150506144451/http://newsfeed.time.com/2013/12/13/this-is-how-the-internet-reacted-to-beyonces-amazing-surprise-album-drop/">prepare fans</a> for the release, which includes 14 songs and 17 videos, with guest appearances by Jay Z, Blue Ivy, Drake, <a href="https://web.archive.org/web/20150506144451/http://www.l3.ulg.ac.be/adichie/">Nigerian intellectuals</a>,  and more. Fans are <a href="https://web.archive.org/web/20150506144451/http://www.buzzfeed.com/ailbhemalone/16-people-who-needed-medical-care-because-of-beyonce">having heart attacks</a>, Buzzfeed <a href="https://web.archive.org/web/20150506144451/http://www.buzzfeed.com/mattbellassai/the-most-unbelievably-flawless-and-life-changing-moments">is having a heart attack</a>, iTunes <a href="https://web.archive.org/web/20150506144451/http://gizmodo.com/beyonces-surprise-new-album-crashed-itunes-overnight-1482524545">broke down</a>&#x2014;and most amazingly, Beyonc&#xE9; found a way to <a href="https://web.archive.org/web/20150506144451/http://www.slate.com/blogs/moneybox/2013/12/13/beyonc_secret_album_is_marketing_genius_this_is_how_you_get_people_to_pay.html">get people to pay money for music.</a> </p>
+
+<p><iframe width="640" height="360" src="//web.archive.org/web/20150506144451if_/http://www.youtube.com/embed/SUaO0OoBsSo" frameborder="0" allowfullscreen></iframe></p>
+
+<p><iframe width="640" height="360" src="//web.archive.org/web/20150506144451if_/http://www.youtube.com/embed/qoRKw16O_ME" frameborder="0" allowfullscreen></iframe></p>
+
+<p>Of course, Beyonc&#xE9;&apos;s release method is kind of old hat at this point: Radiohead, Nine Inch Nails, and David Bowie <a href="https://web.archive.org/web/20150506144451/http://www.telegraph.co.uk/culture/music/music-news/10515279/How-Beyonce-copied-David-Bowie.html">all surprise released</a> albums in recent years. <a href="https://web.archive.org/web/20150506144451/http://www.samesame.com.au/reviews/4014/Tori-Amos-Visualettes--Abnormally-Attracted-To-Sin.htm">Tori Amos</a> and <a href="https://web.archive.org/web/20150506144451/http://usatoday30.usatoday.com/life/music/news/2006-10-09-beck-information-extras_x.htm">Beck</a> have both released &quot;visual&quot; albums to accompany their new releases. Even some of her biggest fans <a href="https://web.archive.org/web/20150506144451/http://gawker.com/this-beyonce-fan-is-very-unhappy-about-having-to-buy-he-1482624917?utm_campaign=socialflow_gawker_twitter&amp;utm_source=gawker_twitter&amp;utm_medium=socialflow">weren&apos;t happy</a> with how this all went down:</p>
+
+<center><blockquote class="twitter-tweet" lang="en"><p>Beyonc&#xE9; fans be like: <a href="https://web.archive.org/web/20150506144451/http://t.co/29Ic4PVjtZ">pic.twitter.com/29Ic4PVjtZ</a></p>&#x2014; Tyler Oakley (@tyleroakley) <a href="https://web.archive.org/web/20150506144451/https://twitter.com/tyleroakley/statuses/411514756441206784">December 13, 2013</a></blockquote>
+<script async src="//web.archive.org/web/20150506144451js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<p>But of course, it&apos;s not about being first&#x2014;it&apos;s about being best. We haven&apos;t had much time to process the album yet (we&apos;re only 1 and a 1/2 listens in so far, including one pass of most of the videos), but we are already pretty impressed by the music videos, which are consistently inspired and playful, whether they are bubblegum fun (&quot;Blow&quot;), slightly artsy (&quot;Ghost&quot;), or essentially home movies (&quot;Blue&quot;). She left the catchiest song/most obvious single off the record (&quot;Grown Woman,&quot; for which there is a video), and overall, the album seems less overtly commercial than the majority of her past work. Having said that, there are plenty of immediate highlights, like the addictive &quot;Blow,&quot; the sexy &quot;Partition,&quot; horny slow jam &quot;Rocket,&quot; the anthem &quot;Flawless&quot; (formerly known as &quot;Bow Down&quot;), and &quot;Drunk In Love,&quot; a sort of sequel to her first solo hit, &quot;Crazy In Love.&quot; </p>
+
+<p><iframe width="640" height="360" src="//web.archive.org/web/20150506144451if_/http://www.youtube.com/embed/iT56VtNSeR8" frameborder="0" allowfullscreen></iframe></p>
+
+<p><iframe width="640" height="360" src="//web.archive.org/web/20150506144451if_/http://www.youtube.com/embed/3IeOmXZ95i8" frameborder="0" allowfullscreen></iframe></p>
+
+<p>Lots of people will be spending today injecting this album into their craniums and furiously re-writing their best of 2013 lists, so we&apos;d recommend staying away from Twitter if you&apos;re not highly interested in watching people&apos;s immediate reactions file in. For what it&apos;s worth, we think <em>Yeezus</em> is still the album of the year. But if you&apos;ve ever wanted to hear Beyonc&#xE9; sing a (sincerely good) ode to her own derriere, you&apos;d be hard pressed to find anything better than this.</p>					
+										
+									
+				

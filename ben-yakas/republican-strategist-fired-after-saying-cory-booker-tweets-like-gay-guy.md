@@ -1,0 +1,26 @@
+---
+author: Ben Yakas
+date: Oct 12, 2013 10:00 am
+title: Republican Strategist Fired After Saying Cory Booker Tweets Like "Gay Guy"
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2013_10_bookerstripper.jpg" src="https://web.archive.org/web/20150504140948im_/http://gothamist.com/attachments/jen/2013_10_bookerstripper.jpg" width="640" height="502"> <br> <i> Booker&apos;s direct messages to the stripper </i></div> <p></p>
+
+<p>Last month, <a href="https://web.archive.org/web/20150504140948/http://www.buzzfeed.com/bennyjohnson/cory-bookers-interesting-dms-with-a-portland-stripper">Buzzfeed published a breaking news listicle</a> about NJ senatorial candidate <a href="https://web.archive.org/web/20150504140948/http://gothamist.com/tags/corybooker">Cory Booker</a>, all about his fairly innocent and mighty boring Twitter exchanges with a vegan stripper from Portland. The non-controversy blew away pretty quickly for most people, but one Republican strategist for rival Steve Lonegan went on a <a href="https://web.archive.org/web/20150504140948/http://talkingpointsmemo.com/dc/top-aide-believes-steve-lonegan-is-surging-because-of-cory-booker-s-strange-behavior">bizarre rant to Talking Points Memo</a>, claiming Booker&apos;s tweets to the stripper were  &quot;strange&quot; and &quot;like what a gay guy would say.&quot; And you&apos;ll never guess what happened next.</p>
+
+<p>The strategist, Rick Shaftan, told TPM that he was weirded out because Booker did not take note of stripper Lynsie Lee&apos;s &quot;great breasts.&quot; This perturbed him, because if Booker talked about them, then he&apos;d be cool, or something: </p>
+
+<blockquote>&quot;It was just weird. I mean, to me, you know, hey,<strong> if he said, &apos;Hey, you got really hot breasts man, I&apos;d love to suck on them.&apos; Then like, yeah, coo</strong>l. But like, he didn&apos;t say that,&quot; Shaftan explained. &quot;<strong>It was like kind of like, I don&apos;t know, it was like what a gay guy would say to a stripper</strong>. It&apos;s the way he was talking to her. It&apos;s just like like there was no sexual interest at all. I don&apos;t know. To me, if I was single and you know like some stripper was tweeting me, I might take advantage of the perks of the office, you know?&quot;</blockquote>
+
+<p>Shaftan went on to say that the fact Booker didn&apos;t comment on &quot;those great breasts&quot; really makes you wonder, man: &quot;<strong>It&apos;s just too odd and people they just wonder, like, who does this guy really want to work for? Who&apos;s he representing?</strong>&quot; Later in the interview, Shaftan deflected his incisive inquiries onto Booker, claiming that since <a href="https://web.archive.org/web/20150504140948/http://www.mediaite.com/tv/msnbcs-chris-hayes-questions-mayor-cory-booker-about-gay-rumors/">Booker has previously been asked about the rumors that he&apos;s gay</a> (and he&apos;s been open about <a href="https://web.archive.org/web/20150504140948/http://gothamist.com/2013/01/10/cory_booker_wrote_an_editorial_abou.php">his homophobia as a young man</a>), it&apos;s his fault Shaftan can&apos;t stop thinking about breasts and gay conspiracies: &quot;It&apos;s just like, you know, he talked about being gay or whatever. ... It&apos;s like, dude, you&apos;re bringing all this shit up yourself.&quot;</p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="101213booker.jpg" src="https://web.archive.org/web/20150504140948im_/http://gothamist.com/attachments/byakas/101213booker.jpg" width="640" height="420"> <br> <i> Cory Booker (AP); Rick Shaftan</i></div> <p></p>
+
+<p><br>
+Shaftan also compared Booker to Gary Hart and Larry Craig, because Shaftan is a fucking idiot. Thankfully, Shaftan&apos;s boss thinks he&apos;s an idiot too, and <a href="https://web.archive.org/web/20150504140948/http://www.nbcnewyork.com/news/local/Steve-Lonegan-Fires-Adviser-Gay-Comments-Cory-Booker-US-Senate-New-Jersey-227471741.html">promptly fired him</a> for the &quot;distasteful and offensive&quot; comments. &quot;Mr. Shaftan&apos;s comments are not reflective of my views or that of my campaign,&quot; he said in a statement about his longtime adviser.</p>
+
+<p>&#x201C;I shouldn&#x2019;t be talking anymore,&#x201D; Shaftan <a href="https://web.archive.org/web/20150504140948/http://blogs.wsj.com/metropolis/2013/10/11/lonegan-aide-rick-shaftan-regrets-racy-interview/?mod=WSJBlog">told the Journal</a> after the interview was printed. &#x201C;I shouldn&#x2019;t mouth off like that. It&#x2019;s not representative of Lonegan, it&#x2019;s representative of Rick Shaftan.&quot; Shaftan has accepted the blame on Twitter as well, <a href="https://web.archive.org/web/20150504140948/https://twitter.com/Shaftan/status/388854004630818816">saying</a>, &quot;On or off the record, my comments were inexcusable and unprofessional.&quot; This isn&apos;t the first time that TPM has caught a political aide ranting <a href="https://web.archive.org/web/20150504140948/http://gothamist.com/2013/07/30/weiners_spokeswoman_trashes_ex-inte.php">during this election cycle.</a></p>					
+										
+									
+				

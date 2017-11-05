@@ -1,0 +1,34 @@
+---
+author: Ben Yakas
+date: Oct 24, 2016 1:10 pm
+title: SNL's Pete Davidson Takes A Dump All Over Staten Island: "F*ck Them, They All Suck"
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="102416davidson.jpg" src="https://web.archive.org/web/20170723031003im_/http://gothamist.com/attachments/byakas/102416davidson.jpg" width="640" height="427"> <br> <i> Getty Images</i></div> <p></p>
+
+<p>We really like <a href="https://web.archive.org/web/20170723031003/http://gothamist.com/tags/snl"><em>Saturday Night Live&apos;s</em></a> resident young person Pete Davidson (seriously, he&apos;s 22, it makes no sense), who is already in his third year on the show. Despite the fact he only does one impression (a one second Al Pacino one), he&apos;s forged his own place at SNL mostly by exploiting his easygoing, weed-friendly shtick and sticking to his brutally honest stand-up persona. There is one topic of which Davidson is less-than-easygoing: his hometown of Staten Island. </p>
+
+<p>Making fun of SI has become <a href="https://web.archive.org/web/20170723031003/http://www.silive.com/entertainment/index.ssf/2016/08/watch_pete_davidsons_not-half-.html">a major part</a> of his comedy routine, but it doesn&apos;t seem like it&apos;s just a joke. In a <a href="https://web.archive.org/web/20170723031003/http://uproxx.com/filmdrunk/pete-davidson-interview/3/">revealing interview with Uproxx</a>, Davidson went to town on SI: &quot;F*ck them. They all suck. They have nothing to do with me or my success. It&#x2019;s a terrible borough, filled with terrible people. A f*cking tidal wave could take out Staten Island and I wouldn&#x2019;t even move in my sleep. In fact I would sleep better. F*ck Staten Island. A bunch of Trump-supporting f*cking jerk offs. F*ck them. End quote.&quot; </p>
+
+<p>Davidson noted that his mother still lives there &quot;because she&#x2019;s too f*cking stupid to realize she shouldn&#x2019;t.&quot; He also vented about some of the people he grew up with there, and how almost ruined comedy for him: &quot;It&#x2019;s just hard to explain to people that you do stand up without them being f*cking f*ck faces about it. Yeah. It&#x2019;s annoying. It&#x2019;s like &#x201C;You do stand up, tell me a joke. You&#x2019;re not funny.&#x201D; People are c*nts. It&#x2019;s really difficult to do anything today. Everybody&#x2019;s such a f*cking c*nt,&quot; he said. &quot;It&#x2019;s like no matter, if you do anything that&#x2019;s not construction in Staten Island, you&#x2019;re a pussy for some reason.&quot;</p>
+
+<p>He&apos;s been just as vicious about the Island in various stand-up routines: &quot;If you don&apos;t know what Staten Island is, it&apos;s like New York&apos;s abortion that lived,&quot; he said. &quot;There&apos;s good people everywhere, but not in Staten Island at all. Like everybody could die on Staten Island and I wouldn&apos;t lose sleep over it at all. I&apos;d be like, &apos;Oh, I guess I need to find a new Xanax dealer.&apos;&quot;</p>
+
+<center><div style="background-color:#000000;width:520px;"><div style="padding:4px;"><iframe src="https://web.archive.org/web/20170723031003if_/http://media.mtvnservices.com/embed/mgid:arc:video:comedycentral.com:7b1affcb-4c44-41fc-9e35-d70c273f5457" width="512" height="288" frameborder="0" allowfullscreen="true"></iframe></div></div></center>
+
+<p><br>
+In this clip from 2013, he added, &quot;It&apos;s this awful place where dreams die. I&apos;m from there, the only good thing we have are women sex offenders, I think that&apos;s awesome. It&apos;s actually why I still live there.&quot;</p>
+
+<center><div style="background-color:#000000;width:520px;"><div style="padding:4px;"><iframe src="https://web.archive.org/web/20170723031003if_/http://media.mtvnservices.com/embed/mgid:arc:video:comedycentral.com:3b049489-cc9d-412b-8358-cffd1d820daf" width="512" height="288" frameborder="0" allowfullscreen="true"></iframe></div></div></center>
+
+<p><br>
+The rest of <a href="https://web.archive.org/web/20170723031003/http://uproxx.com/filmdrunk/pete-davidson-interview/3/">the Uproxx interview</a> is worth checking out, especially the parts about how he got the SNL job (thanks to a recommendation from Bill Hader), his views on being an SNL castmember (&quot;I really think I&#x2019;m a Make-A-Wish kid&quot;), his respect for Justin Bieber (&quot;If I was Justin Bieber, I would&#x2019;ve murdered five people already [and] been in jail.&quot;), and his many tattoos: &quot;The solar system. F*cking rubber ducks. F*cking Harry Potter symbols. My dad&#x2019;s helmet. My girlfriend&#x2019;s face. I got a wolf. A watermelon emoji. It goes on and on.&quot; </p>
+
+<p>[That girlfriend, by the way, is Larry David&apos;s daughter.]</p>
+
+<center><blockquote class="instagram-media" data-instgrm-captioned="" data-instgrm-version="7" style=" background:#FFF; border:0; border-radius:3px; box-shadow:0 0 1px 0 rgba(0,0,0,0.5),0 1px 10px 0 rgba(0,0,0,0.15); margin: 1px; max-width:658px; padding:0; width:99.375%; width:-webkit-calc(100% - 2px); width:calc(100% - 2px);"><div style="padding:8px;"> <div style=" background:#F8F8F8; line-height:0; margin-top:40px; padding:39.0740740741% 0; text-align:center; width:100%;"> <div style=" background:url(data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAACwAAAAsCAMAAAApWqozAAAABGdBTUEAALGPC/xhBQAAAAFzUkdCAK7OHOkAAAAMUExURczMzPf399fX1+bm5mzY9AMAAADiSURBVDjLvZXbEsMgCES5/P8/t9FuRVCRmU73JWlzosgSIIZURCjo/ad+EQJJB4Hv8BFt+IDpQoCx1wjOSBFhh2XssxEIYn3ulI/6MNReE07UIWJEv8UEOWDS88LY97kqyTliJKKtuYBbruAyVh5wOHiXmpi5we58Ek028czwyuQdLKPG1Bkb4NnM+VeAnfHqn1k4+GPT6uGQcvu2h2OVuIf/gWUFyy8OWEpdyZSa3aVCqpVoVvzZZ2VTnn2wU8qzVjDDetO90GSy9mVLqtgYSy231MxrY6I2gGqjrTY0L8fxCxfCBbhWrsYYAAAAAElFTkSuQmCC); display:block; height:44px; margin:0 auto -44px; position:relative; top:-22px; width:44px;"></div></div> <p style=" margin:8px 0 0 0; padding:0 4px;"> <a href="https://web.archive.org/web/20170723031003/https://www.instagram.com/p/BHnEyG_BXOJ/" style=" color:#000; font-family:Arial,sans-serif; font-size:14px; font-style:normal; font-weight:normal; line-height:17px; text-decoration:none; word-wrap:break-word;" target="_blank">&#x1F433;</a></p> <p style=" color:#c9c8cd; font-family:Arial,sans-serif; font-size:14px; line-height:17px; margin-bottom:0; margin-top:8px; overflow:hidden; padding:8px 0 7px; text-align:center; text-overflow:ellipsis; white-space:nowrap;">A photo posted by Cazzie (@cazziedavid) on <time style=" font-family:Arial,sans-serif; font-size:14px; line-height:17px;" datetime="2016-07-08T18:28:11+00:00">Jul 8, 2016 at 11:28am PDT</time></p></div></blockquote>
+<script async defer src="//web.archive.org/web/20170723031003js_/http://platform.instagram.com/en_US/embeds.js"></script></center>					
+										
+									
+				

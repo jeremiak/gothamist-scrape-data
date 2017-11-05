@@ -1,0 +1,24 @@
+---
+author: Ben Yakas
+date: Mar 8, 2014 1:55 pm
+title: Cops Ticketing Jaywalkers At Busy Greenpoint Street Crossing
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="3814jaywalk.jpg" src="https://web.archive.org/web/20150507075144im_/http://gothamist.com/attachments/byakas/3814jaywalk.jpg" width="640" height="414"> <br> <i> (Google Maps)</i></div> <p></p>
+
+<p>In late December, a 32-year-old woman <a href="https://web.archive.org/web/20150507075144/http://gothamist.com/2013/12/30/women_fatally_struck_by_two_drivers.php">was killed</a> in Greenpoint after two drivers struck her while she crossed the street at the corner of McGuinness Boulevard and Nassau Avenue. Local pols and activists called for increased traffic safety measures at that intersection, where three pedestrians and two cyclists have been killed since 1995, asking police to focus their efforts on speeding cars on the five-lane thoroughfare. So what have the NYPD been doing to improve safety? Giving tickets to <a href="https://web.archive.org/web/20150507075144/http://gothamist.com/tags/Jaywalking">jaywalking</a> pedestrians.</p>
+
+<center><blockquote class="twitter-tweet" lang="en"><p>NYPD standing on the corner of my street in Greenpoint casually handing out jaywalking tickets. I will soon be in debt.</p>&#x2014; Casey Lewis (@caseymlewis) <a href="https://web.archive.org/web/20150507075144/https://twitter.com/caseymlewis/statuses/435554350199767040">February 17, 2014</a></blockquote>
+<script async src="//web.archive.org/web/20150507075144js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<p><a href="https://web.archive.org/web/20150507075144/http://greenpointers.com/2014/03/06/whats-up-with-cops-ticketing-jaywalkers-at-mcguinness/">Greenpointers reports</a> that cops have been stationed at the corner over the last several weeks, giving out tickets and warnings to pedestrians trying to cross the busy intersection. The local precinct confirmed to them that they have been stationing there &#x201C;because it&#x2019;s an accident prone location.&quot; Resident Sonia Deepak told them that she was stopped by cops while crossing there around 7 p.m. last week, and an officer &#x201C;explained that a young lady had been hit and killed while jaywalking across the intersection and that what we did was illegal. <strong>They said that in the next couple of weeks they were going to start giving $50 summons to everyone who jaywalked at the intersection</strong>.&#x201D;</p>
+
+<p>Deepak and her friend were only given warnings, but their ID&#x2019;s and information were taken down by the cop. &quot;In the 8+ years I&#x2019;ve lived here I&#x2019;ve seen a number of memorials, a ghost bike and a live accident happen at this intersection,&quot; she wrote to Greenpointers. &quot;I&#x2019;m frustrated that city&#x2019;s reaction is to blame residents and not consider that it is the intersection itself is dangerous&#x2026;Their intentions might be good but if they&#x2019;re trying to save lives, they&#x2019;re going about it the wrong way.&quot;</p>
+
+<p>If you look back at a <a href="https://web.archive.org/web/20150507075144/http://www.brooklynpaper.com/stories/37/2/dtg-greenpoint-pedestrian-death-2014-01-03-bk_37_2.html">Brooklyn Paper article</a> from December 31st all about the reactions in the wake of Nicole Detweiler&apos;s death while crossing the street, all the suggestions by pols and activists involved the traffic patterns of the cars, not the pedestrians. &#x201C;There is a lot of traffic coming off the bridge and it is all going fast,&#x201D; said John Beadle, a member of the Kings County Democratic Committee. &#x201C;We need left-turn signals so that the people who are turning do not have to rush,&#x201D; said Herman Dziegielewski, a friend of Detweiler&#x2019;s. &#x201C;Another heartbreaking accident at this deadly intersection calls for swift action in the new year under the new mayoral administration to install red light cameras, speed cameras, and new traffic calming measures,&#x201D; said Assemblyman Joe Lentol.</p>
+
+<p>None of those changes have come to pass. Instead, locals like Zachary Martz have been issued tickets costing hundreds of dollars: &quot;In New York City, where Jaywalking is artform and a way of life, I was flabbergasted at the very notion this occurrence was even cosmically possible,&quot; he wrote about <a href="https://web.archive.org/web/20150507075144/http://blog.zamartz.com/post/78448801587/nyc-jaywalking-a-pink-summons-nightmare">getting a jaywalking ticket at the corner last Friday.</a> Jaywalking tickets have been up <a href="https://web.archive.org/web/20150507075144/http://gothamist.com/2014/02/16/nypd_cracks_down_on_speeding_and_ye.php">by nearly 800 percent</a> this year. </p>					
+										
+									
+				

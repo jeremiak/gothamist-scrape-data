@@ -1,0 +1,35 @@
+---
+author: Ben Yakas
+date: May 11, 2014 4:10 pm
+title: ReBar Owner Owed IRS Millions, Former Employees Claim
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="51114rebar.jpg" src="https://web.archive.org/web/20141231071003im_/http://gothamist.com/attachments/byakas/51114rebar.jpg" width="640" height="438"> <br> <i> Jason Stevens (<a href="https://web.archive.org/web/20141231071003/https://www.storybehindthestore.com/general/story_gallery/view.aspx?VnI5xKTJP8si0Mqd0OkceQxMbPglm3jslabshs4rCLNDyliGKMjequablss">screenshot via</a>)</i></div> <p></p>
+
+<p>While former employees of DUMBO gastropub reBar and local businesses <a href="https://web.archive.org/web/20141231071003/http://gothamist.com/2014/05/10/ex-rebar_employee_local_businesses.php">have rallied together to try to help couples</a> salvage their weddings after reBar <a href="https://web.archive.org/web/20141231071003/http://gothamist.com/2014/05/09/dumbo_rebar_closed.php">abruptly shut down</a> amid claims of bankruptcy on Friday, former reBar owner <a href="https://web.archive.org/web/20141231071003/https://twitter.com/BKStartupPro">Jason Stevens</a> has seemingly disappeared. None of the former employees and friends of Stevens&apos; we spoke to have heard from him since he sent a brief email Thursday evening notifying managers reBar was bankrupt, but they claim that a series of bad financial decisions led him to allegedly steal hundreds of thousands of dollars from clients and take off into the night. </p>
+
+<p>&quot;He hadn&apos;t&#xA0;paid&#xA0;his&#xA0;sales&#xA0;taxes&#xA0;for&#xA0;five&#xA0;years,&quot; said Jeremy Leech, former head chef of reBar who worked there from September 2009 to September 2013. Leech, who now runs a food truck in Bangkok, Thailand, told us he was &quot;floored and...in complete shock&quot; to learn what happened to his former employer and friend, calling him &quot;the best boss I ever worked for&quot; and someone who &quot;cultivated creativity.&quot; Leech described Stevens, whom Gothamist <a href="https://web.archive.org/web/20141231071003/http://gothamist.com/2011/07/20/dumbos_rebar_shut_down_by_doh_follo.php">had spoken to</a> in the past, as &quot;the most generous guy I&apos;ve ever seen,&quot; adding, &quot;people would need rent, he&apos;d give employees money out of pocket.&quot;</p>
+
+<p>But Leech and other employees, who asked not to be named because they were speaking frankly about a former employer, claim Stevens had fallen into financial trouble over taxes; four employees all claimed that the IRS audited the business last April (&quot;12 IRS officers with guns and badges&quot;), and Stevens was expected to make certain payments by this week. Leech estimates Stevens owed about $3 million in taxes, while another employee&#x2014;who worked as an upper manager at reBar for the past seven years&#x2014;puts the figure at $2.5 million. </p>
+
+<p>&quot;The state is after him and he is facing a minimum of 2.5 years in prison for $2.5 million dollars in unpaid taxes,&quot; that employee claims. &quot;I know everything about him except where he is. I was there for him when his wife divorced him. The IRS came last year, then this past Wednesday he had an order to pay by Brooklyn Supreme Court but couldn&apos;t get the money.&quot; </p>
+
+<p>Leech says he worked alongside Stevens to build up reBar&apos;s wedding business into an all-inclusive service, fueling the growth of the restaurant over several years. It seems the success of that was too much for Stevens: &quot;He couldn&apos;t control his creativeness,&quot; Leech said. &quot;He couldn&apos;t manage his funds.&quot; </p>
+
+<p>Leech has evidence that he spoke to reBar&apos;s former accountant, who claims <strong>Stevens took $27K in cash from reBar and $150K in wedding deposits before he disappeared this week</strong>. He added, &quot;the last time I had direct knowledge of the accounts [before I left], he&#xA0;was&#xA0;in&#xA0;debt&#xA0;$200K&#xA0;with&#xA0;vendors.&quot; Leech says he left the business last September because after the IRS came, it started to feel unstable. </p>
+
+<p>&quot;His&#xA0;optimism&#xA0;drove&#xA0;him,&quot; Leech said. &quot;<strong>He was 120%&#xA0;sure&#xA0;he&#xA0;could&#xA0;bring&#xA0;it&#xA0;back. The malicious intent wasn&apos;t there. He thought they would rebound,&#xA0;prosper&#xA0;and thrive</strong>.&quot; To that end, Stevens amped up the number of weddings and other events reBar would work over the last year. &quot;The day to day stuff wasn&apos;t enough,&quot; he said. &quot;The restaurant business wasn&apos;t enough to cover the costs.&quot;  </p>
+
+<p>Another former upper management employee, who asked to remain anonymous, told us:</p>
+
+<blockquote>He was audited last year. They came and closed the place down and took all the books and cash drawers. We have problems paying purveyors some times. But he spends money like it&apos;s no problem and is constantly talking about expanding etc. He just hired a new chef three weeks ago to revamp the menu and push the catering business. The new chef never got a paycheck. 
+
+<p>The money that comes in for a wedding usually comes in months if not a year before and has come and gone. I don&apos;t think they&apos;ll be any refunds outside of court because there is no money in the reBar account. He has other businesses too but no one knows what they are. Our paychecks say <a href="https://web.archive.org/web/20141231071003/http://www.entitysource.com/details/entity/ny_3205335/fulton-ferry-market-inc">&quot;Fulton Ferry Market, Inc.&quot;</a> Maybe he can pay them with other moneys. Jason has not contacted anyone or answered calls etc since that last email.</p></blockquote><p></p>
+
+<p>Because of the increase in weddings and such events, reBar started closing on the weekends, and employees believe that it lost some of its cachet among longtime patrons (&quot;it wasn&apos;t quite the destination spot that it used to be&quot;). It also led to a higher turnover of staff, something which employee Dina Thaverne also noted in recent months, when she said there had been a flurry of firings amid bad communication: &quot;It&apos;s been good, but lately Jason has been dropping people like flies. No warning, no pink slips, no explanations.&quot;</p>
+
+<p>Like many couples and employees we spoke to over the last 48 hours, Leech was still in contact with Stevens this week, and there was no indication that anything was especially amiss. Repeated calls to Stevens for comment haven&apos;t been answered. The IRS did not immediately respond to a request for comment. You can see a short <a href="https://web.archive.org/web/20141231071003/https://www.storybehindthestore.com/general/story_gallery/view.aspx?VnI5xKTJP8si0Mqd0OkceQxMbPglm3jslabshs4rCLNDyliGKMjequablss">interview with Stevens from 2012 here.</a></p>					
+										
+									
+				

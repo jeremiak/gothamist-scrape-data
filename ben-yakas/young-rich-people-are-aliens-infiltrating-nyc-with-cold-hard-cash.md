@@ -1,0 +1,23 @@
+---
+author: Ben Yakas
+date: Feb 14, 2014 11:20 am
+title: Young Rich People Are Aliens Infiltrating NYC With Cold Hard Cash
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="21414aliens.jpg" src="https://web.archive.org/web/20150509235331im_/http://gothamist.com/attachments/byakas/21414aliens.jpg" width="640" height="449"> <br> <i> <a href="https://web.archive.org/web/20150509235331/http://www.shutterstock.com/pic-103864439/stock-photo-two-men-and-woman-posing-in-luxury-interior.html?src=NE_4b3tIgAvSc7inqbLzig-1-87">Shutterstock/Valery Sidelnykov</a></i></div> <p></p>
+
+<p>For years, we&apos;ve wondered how rich people could <a href="https://web.archive.org/web/20150509235331/http://gothamist.com/2013/08/02/midtown_east_rezoning_gets_new_amen.php">keep getting rich</a> even as <a href="https://web.archive.org/web/20150509235331/http://gothamist.com/2014/01/20/worlds_85_richest_people_are_as_wea.php">everyone else</a> got poorer. How do they keep making the <a href="https://web.archive.org/web/20150509235331/http://gothamist.com/2013/06/23/only_rich_people_and_celebrities_ca.php">seemingly impossible</a> happen? How do they have the balls to compare their &quot;suffering&quot; <a href="https://web.archive.org/web/20150509235331/http://gothamist.com/2014/01/25/rich_idiot_thinks_1_is_being_treate.php">with that of the Jews in Nazi Germany</a>? Thanks to <a href="https://web.archive.org/web/20150509235331/http://www.nytimes.com/2014/02/16/realestate/how-new-yorks-young-millionaires-live.html?utm_content=buffera13cc&amp;utm_medium=social&amp;utm_source=twitter.com&amp;utm_campaign=buffer&amp;_r=0">a NY Times story today</a>, we finally get it all: they can do all these things because they&apos;re aliens.</p>
+
+<p>&quot;They have a completely different DNA from the rest of us,&quot; said amateur alien archivist Robert Dankner, who is also the president of Prime Manhattan Residential, which caters to young rich extraterrestrials (though they prefer the term &quot;young tech millionaires&quot;). &quot;They like to stay under the radar [as aliens are known to do], and the time and energy others spend to conform [to being human, and not aliens], these [aliens] spend forging their own path. What is important to them is to have something that is not like what everyone else has [and also inevitably to conquer humanity in the name of Omicron Persei 8].&#x201D;</p>
+
+<p>The Times is clearly under the sway of these creatures, who are so unfamiliar with the customs of the flesh and blood real estate market, they choose to use cold hard cash to pay for flashy, ridiculously expensive apartments in downtown Manhattan. &quot;The mind-set of wildly successful [aliens] who are under 40, if you think about what made them that kind of money, it is a pioneering, creative spirit,&#x201D; explained architect Cary Tamarkin, who has no doubt brokered some sort of occult blood-pact with the aliens, and will probably enjoy a cushy job as Minister of Bespoke Kitchens when they formally seize power. &quot;They have a lot of self-confidence [because they are aliens] &#x2014; they aren&#x2019;t relying on an address or someone&#x2019;s name [or the weak flesh of humans] to give them that cachet, but rather they are going on their [alien] spirit.&quot;</p>
+
+<p>The Times profiles one such alien, interior designer Sasha Bikoff, 26 [which we believe is roughly 2623 in Blorgian years]. Bikoff was previously renting a one-bedroom with a terrace in Chelsea that just wasn&apos;t &quot;super super unique&quot; enough, likely because it did not contain any space for her alien armoire. She ended up buying a &quot;sprawling one-bedroom at 471 Washington that has three levels, a 650-square-foot backyard and a large basement.&quot; </p>
+
+<p>&quot;Sasha walked in and from the first moment, looking at just four cement walls, she was like, &#x2018;This is it, this is what I want,&#x2019; &#x201D; recounted Ariel Dagan, the 25-year-old broker who sold out her people and colluded with the alien, likely on commission. &quot;She had [3D alien] vision and the space gave her inspiration.&quot;</p>
+
+<p>In case you still aren&apos;t convinced that obscenely wealthy young rich people are not like you or I, Bikoff tipped her alien hand completely in the piece: &quot;I am the type of person that will walk into Barney&#x2019;s in my sweatpants, I don&#x2019;t care.&quot; Pray for the human race, people. Or, alternatively, hit the clubs and try to get one of these hot young aliens to put a ring on your finger.</p>					
+										
+									
+				

@@ -1,0 +1,27 @@
+---
+author: Ben Yakas
+date: Feb 2, 2014 10:15 am
+title: Justin Bieber Gives Middle Finger To The World At NYC Hotel Party
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2114bieb.jpg" src="https://web.archive.org/web/20150430041245im_/http://gothamist.com/attachments/byakas/2114bieb.jpg" width="640" height="458"> <br> <i> Teenage angst has paid off well/now I&apos;m bored and old (<a href="https://web.archive.org/web/20150430041245/http://www.tmz.com/2014/02/01/justin-bieber-maxim-party-super-bowl-finger/">via TMZ</a>)</i></div> <p></p>
+
+<p>It&apos;s been a hard year for amateur mustache grower <a href="https://web.archive.org/web/20150430041245/http://gothamist.com/tags/justinbieber">Justin Bieber</a>, who has been in trouble with Johnny Law for everything from drag racing to neighbor egging. On Friday, his private plane was detained en route to NYC for the Super Bowl <a href="https://web.archive.org/web/20150430041245/http://pagesix.com/2014/01/31/justin-biebers-jet-stopped-for-pot/">because it reeked of weed.</a> After five hours of questioning, he and his entourage were allowed to go, and they spent the evening partying at a Maxim Super Bowl party. Of course, Bieber&apos;s good friends TMZ were on hand, and <a href="https://web.archive.org/web/20150430041245/http://www.tmz.com/2014/02/01/justin-bieber-maxim-party-super-bowl-finger/">received a flipped bird</a> for their continuing efforts to document <a href="https://web.archive.org/web/20150430041245/http://www.tmz.com/2014/01/31/justin-bieber-flagged-u-s-customs-marijuana-weed/">every</a> <a href="https://web.archive.org/web/20150430041245/http://www.tmz.com/2014/02/01/justin-bieber-dui-miami-beach-police-gps-drag-racing-prosecutors-plea-bargain/">waking</a> <a href="https://web.archive.org/web/20150430041245/http://www.tmz.com/2014/02/01/justin-bieber-stripper-biting-boob-photo-khalil/">moment</a> of Bieber&apos;s Cristal-drenched life.</p>
+
+<p><a href="https://web.archive.org/web/20150430041245/http://www.people.com/people/article/0,,20782443,00.html">According to People</a>, anytime a partygoer tried to take a photo with a camera or phone, Bieber&apos;s well-paid bodyguards swatted the device out of their hands or tossed them to the ground.  &quot;Justin was surrounded by 30 security guards, and nobody was allowed to approach him, except one blond Maxim girl who Justin pointed out in the crowd and had a security guard flash [with a flashlight] and bring her in,&quot; a source <a href="https://web.archive.org/web/20150430041245/http://pagesix.com/2014/02/01/bieber-picked-blonde-out-of-crowd-to-party-with/?_ga=1.141482738.1156324577.1348938752">told the Post</a>. &quot;Justin ignored everyone all night and was just focused on the girl. She didn&#x2019;t leave his side all night. Party sponsors Patr&#xF3;n tequila didn&apos;t want to be associated with him and made sure all alcohol was cleared from his area.&quot;</p>
+
+<p>There were some conflicting reports about that last bit:</p>
+
+<center><blockquote class="twitter-tweet" lang="en"><p>I hope justin Bieber gets arrested for underage drinking at the <a href="https://web.archive.org/web/20150430041245/https://twitter.com/search?q=%23maxim&amp;src=hash">#maxim</a> Super Bowl party.</p>&#x2014; Lili Salzberg (@lilisalzberg) <a href="https://web.archive.org/web/20150430041245/https://twitter.com/lilisalzberg/statuses/429513067454803968">February 1, 2014</a></blockquote>
+<script async src="//web.archive.org/web/20150430041245js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<center><blockquote class="twitter-tweet" lang="en"><p>Justin won&apos;t take off his sunglasses but he did just get 2 bottles of dom delivered to his table</p>&#x2014; Lili Salzberg (@lilisalzberg) <a href="https://web.archive.org/web/20150430041245/https://twitter.com/lilisalzberg/statuses/429507764667564032">February 1, 2014</a></blockquote>
+<script async src="//web.archive.org/web/20150430041245js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<p>Considering his traveling and legal woes, the fact <a href="https://web.archive.org/web/20150430041245/http://www.dailymail.co.uk/news/article-2550060/Day-hell-Justin-Biebers-Super-Bowl-weekend-rocky-start-stars-chrome-plated-car-towed-sniffer-dogs-called-search-private-jet.html">his car was towed</a> Saturday morning and part of the country <a href="https://web.archive.org/web/20150430041245/http://www.rollingstone.com/music/news/white-house-to-address-petition-to-deport-justin-bieber-20140201">wants him deported</a>, and the revelation of his <a href="https://web.archive.org/web/20150430041245/http://laist.com/2014/02/01/justin_bieber_and_friend_caught_in.php">preference for left aureoles</a>, it&apos;s no shock that Bieber is excelling at acting like a teen with a buttload of money at hand, no parental guidance, and nothing resembling a sense of personal responsibility. And Bieber has only been in NYC for less than 24 hours as all of this has happened&#x2014;there&apos;s plenty of time for him to throw a 20-foot bong out a hotel window, or <a href="https://web.archive.org/web/20150430041245/http://en.wikipedia.org/wiki/Bosom_Buddies">adopt a female persona in order to live in a dirt-cheap women&apos;s-only apartment complex</a> or whatever.</p>
+
+<p>On a semi-related note: did you know that Bieber is a part-time musician? </p>					
+										
+									
+				

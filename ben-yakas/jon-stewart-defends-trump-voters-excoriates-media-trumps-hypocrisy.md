@@ -1,0 +1,37 @@
+---
+author: Ben Yakas
+date: Dec 2, 2016 11:40 am
+title: Jon Stewart Defends Trump Voters, Excoriates Media & Trump's Hypocrisy
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="120216stewbeef1.jpg" src="https://web.archive.org/web/20170310112319im_/http://gothamist.com/attachments/byakas/120216stewbeef1.jpg" width="640" height="426"> <br> <i> Getty Images</i></div> <p></p>
+
+<p>While he was barely a presence during the seemingly interminable campaign season, <a href="https://web.archive.org/web/20170310112319/http://gothamist.com/tags/jonstewart">Jon Stewart</a> has been making more appearances in recent weeks as he promotes the new oral history of The Daily Show and reckons with Trump&apos;s looming presidency. Yesterday, he took part in a Times Talk with journalist Chris Smith, author of <em>The Daily Show: An Oral History</em>&#x2014;he talked at length about the mistakes the media made during the election, and passionately defended Trump voters while excoriating the man himself. And he also commented on the realization that he may be considered a enemy of the state because of <a href="https://web.archive.org/web/20170310112319/http://gothamist.com/2016/11/02/jon_stewart_donald_trump.php">a Twitter argument</a>: &quot;It is odd to be in a position of knowing that the leader of the free world tweeted that you were a pussy at 1:30 in the morning,&quot; Stewart noted at one point.</p>
+
+<p>&quot;What the media has become is an information-laundering system,&quot; Stewart said <a href="https://web.archive.org/web/20170310112319/http://qz.com/850475/jon-stewart-the-american-media-has-become-an-information-laundering-scheme/">according to Quartz</a>, discussing the blending of real news and misinformation that has led to the spread of fake news and hyperbolic headlines. But he rejected the idea that the media could have changed the results of this election any more than a satirical news program could have: &quot;I think of one of the lessons of this book and what we&#x2019;re talking about is to put satire and culture in its proper place. That controlling a culture is not the same as power,&quot; he said. &#x201C;Trump didn&#x2019;t happen because CNN sucks&#x2014;CNN just sucks.&quot;</p>
+
+<p>One of his biggest issues is the length of the election coverage, because the media&#x2014;especially television stations&#x2014;&quot;don&#x2019;t give a flying fuck about governance, they care about campaigns and that&#x2019;s where the fun is for them.&quot; He compared the current political climate to sports grudges: </p>
+
+<blockquote>Because what you become is just teams. And the campaigns are just too long. Have you ever been in a parking lot after, like, a Giants game and it&#x2019;s between a guy in a Giants jersey and a guy in, like, a Cowboys jersey? They will fight. They will punch each other. What is that fight? Like, &#x201C;Hey! Your shirt, it&#x2019;s got a star on it. It&#x2019;s supposed to have an NY. I&#x2019;m going to have to punch you in the face.&#x201D; There&#x2019;s no reason for that, other than basic human primitive nature, and if we turn our discourse into that, then that&#x2019;s what it will become.</blockquote>
+
+<p>Just as he did in his interview <a href="https://web.archive.org/web/20170310112319/http://gothamist.com/2016/11/17/jon_stewart_nobody_asked_donald_tru.php">with CBS This Morning</a>, Stewart was quick to defend Trump voters and castigate people lumping them all together as racists: &quot;Not everybody that voted for Trump is a racist,&#x201D; he argued. &quot;I don&#x2019;t give a fuck what any of you say to me. You can yell it at me, you can tweet it at me. They&#x2019;re not all racists. Or they&#x2019;re not giving tacit support to a racist system &#x2026; We all give tacit support to exploitative systems as long as they don&#x2019;t affect us that badly.&quot;</p>
+
+<p>As an example, he cited 9/11 first responders he had gotten to know while fighting on behalf <a href="https://web.archive.org/web/20170310112319/http://gothamist.com/2015/12/08/jon_stewart_zadroga_911.php">of the Zadroga Act</a>. Huffington Post <a href="https://web.archive.org/web/20170310112319/http://www.huffingtonpost.com/entry/jon-stewart-donald-trump_us_5840424ae4b0c68e047f25f2">has this excerpt of what he said</a>:</p>
+
+<blockquote>I know a lot of first responders. I spent a lot of time in that community. A shitload of them voted for Trump. The same people that voted for Trump ran into burning buildings and saved whoever the fuck they could no matter what color they were, no matter what religion and they would do it again tomorrow. So, if you want to sit and tell me that those people are giving tacit approval to an exploitative system &#x2015; I say, &#x201C;OK, and would you put your life on the line for people who aren&#x2019;t like you? Because they did.&#x201D; I get mad about this stuff.</blockquote>
+
+<p>But he made it clear that just because he felt empathy for Trump voters, he wasn&apos;t accepting of Trump, his divisive rhetoric, and his hypocritical stances: he noted that Trump painted Hillary Clinton as &quot;an unqualified Secretary of State because the way she handled classified material. His selection for Secretary of State will be David Petraeus, who pled guilty to mishandling classified material. He said she was unqualified because she gave a speech to Goldman Sachs. His Secretary of the Treasury is somebody from Goldman Sachs. We&#x2019;re in post-accountability.&quot;</p>
+
+<p>So what can be done now to fight the ramifications of Trump&apos;s policies? Stewart advocated for looking out &quot;for the losers,&quot; finding vulnerable people in real life (not just online) and trying to help them. <a href="https://web.archive.org/web/20170310112319/http://www.huffingtonpost.com/entry/jon-stewart-donald-trump_us_5840424ae4b0c68e047f25f2">Via Huff Po</a>:</p>
+
+<blockquote>If [Trump] tries to deport dreamers, then that&#x2019;s where everyone has to go, to protect them. If he tries to make a Muslim Registry, then everyone has to go there and help them. You have to find the people that are going be most in jeopardy, I think, and put your attentions on them because now it&#x2019;s about reality.
+
+<p>But the only thing I would tell everybody to hearten is we&#x2019;re still the same country. Obama didn&#x2019;t change and fix everything and Trump can&#x2019;t ruin everything. If we&#x2019;re that vulnerable to one guy, that guy &#x2014; that&#x2019;s how we&#x2019;re going out? This incredible experiment in liberty and democracy that we fought and died for is going to go out &#x2015; with that guy.</p>
+
+<p>That can&#x2019;t be how this story ends.</p></blockquote><p></p>
+
+<p>Read a few more quotes from Stewart on the importance of political activism and how he&apos;s staying optimistic <a href="https://web.archive.org/web/20170310112319/http://www.huffingtonpost.com/entry/jon-stewart-donald-trump_us_5840424ae4b0c68e047f25f2">over at Huffington Post</a>. Also, in case you think the Times Talk was all serious political discussion, they note that Stewart &quot;undercut his points with jokes about masturbation and dildos to lessen the self-seriousness.&quot;</p>					
+										
+									
+				

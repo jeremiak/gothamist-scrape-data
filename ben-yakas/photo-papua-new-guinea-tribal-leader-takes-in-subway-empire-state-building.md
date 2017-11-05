@@ -1,0 +1,17 @@
+---
+author: Ben Yakas
+date: Jun 12, 2014 12:16 pm
+title: Photo: Papua New Guinea Tribal Leader Takes In Subway & Empire State Building
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="61214train.jpeg" src="https://web.archive.org/web/20150503145409im_/http://gothamist.com/attachments/byakas/61214train.jpeg" width="640" height="480"> <br> <i> Left <a href="https://web.archive.org/web/20150503145409/http://www.reddit.com/r/nyc/comments/27xvm9/saw_this_guy_on_the_train_thought_it_was_a_photo/">via Reddit</a>; Right via <a href="https://web.archive.org/web/20150503145409/https://www.facebook.com/media/set/?set=a.904561069561065.1073741983.153817204635459&amp;type=1">Empire State Building Facebook</a></i></div> <p></p>
+
+<p>We&apos;ve spotted so many spectacular sights on the subway over the years&#x2014;from <a href="https://web.archive.org/web/20150503145409/http://gothamist.com/2013/03/21/photos_magical_giant_horse_dog_ride.php#photo-1">giant dogs</a> to <a href="https://web.archive.org/web/20150503145409/http://gothamist.com/2013/11/21/photo_giant_de_blasio_takes_the_sub.php">actual living giants</a>&#x2014;that stumbling upon a man in traditional Papua New Guinea attire seems like just another day in the life. And so it goes with the photo above: someone <a href="https://web.archive.org/web/20150503145409/http://www.reddit.com/r/nyc/comments/27xvm9/saw_this_guy_on_the_train_thought_it_was_a_photo/">on Reddit</a> bumped into Mundiya Kepanga, author and tribal leader from Papua New Guinea, on the subway this week. And the best part is how, in true New York fashion, no one on the train seems to notice.</p>
+
+<p>&quot;Thought it was a photo shoot until he started [freaking] out when the train moved,&quot; the uploader wrote. &quot;Two cameramen were with him, who were speaking French to each other and the one guy (in the photo) was speaking a different, unknown language to the guy.&quot; </p>
+
+<p>Kepanga, a member of the Huli tribe, is in NYC for the first time ever this week for several promotional events, including a trip to the Empire State Building (<a href="https://web.archive.org/web/20150503145409/https://www.facebook.com/media/set/?set=a.904561069561065.1073741983.153817204635459&amp;type=1">see more pics here</a>) and two events today: he&apos;ll be at the National Museum of Natural History &amp; Smithsonian Institution this afternoon for <a href="https://web.archive.org/web/20150503145409/http://absolutetravel.com/2014/06/papua-new-guinea-event-curious-birds-never-knew-existed/">&quot;Curious Birds You Never Knew Existed with Smithsonian&#x2019;s Bruce Beehler,&quot;</a> where he&apos;ll give live carving demonstrations. Then tonight, he&apos;ll be at Drift Studios in Chelsea for <a href="https://web.archive.org/web/20150503145409/http://www.pngnyc.com/#!film-screening/c10nu">a screening of <em>Dancing With The Papuans</em></a>, which tells the true story of three French Cabaret dancers who went to Papua New Guinea to join Mundiya&apos;s village as they compete in the country&apos;s largest tribal gathering using the feather-clad women as the tribe&apos;s &quot;secret weapon.&quot;</p>					
+										
+									
+				

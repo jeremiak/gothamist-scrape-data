@@ -1,0 +1,19 @@
+---
+author: Ben Yakas
+date: May 17, 2014 10:20 am
+title: Unapologetic 'Nazi Cabbie' Thinks There Are "A Lot Of Crybabies Out There In Manhattan"
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="51714cabbie.jpg" src="https://web.archive.org/web/20150508164426im_/http://gothamist.com/attachments/byakas/51714cabbie.jpg" width="640" height="500"> <br> <i> ADL</i></div> <p></p>
+
+<p>Yesterday we learned that a cab driver had been <a href="https://web.archive.org/web/20150508164426/http://gothamist.com/2014/05/16/heil_taxi_nazi_cabbie.php">suspended for wearing a Nazi swastika armband</a>. The Anti-Defamation League said the driver&#x2019;s operator&#x2019;s license had been suspended for 30 days after he pleaded guilty to <a href="https://web.archive.org/web/20150508164426/http://www.nyc.gov/html/tlc/downloads/pdf/rule_book_current_chapter_54.pdf">violating commission rules</a>. But we hadn&apos;t heard from the cabbie himself, and wondered: what if it was a prank taken too far? What if the driver didn&apos;t realize the significance of the swastika? What if it was all a terrible, comical misunderstanding? Well rest assured, it wasn&apos;t: &quot;If a Muslim can drive a cab wearing a turban, if a homosexual can walk around with a big rainbow flag, why can&#x2019;t a person like me wear a Nazi armband?&quot; cabbie Gabriel Diaz <a href="https://web.archive.org/web/20150508164426/http://www.nydailynews.com/new-york/nyc-cabbie-suspended-sporting-nazi-armband-duty-article-1.1795145">told the News.</a></p>
+
+<p>Diaz, 27, was seemingly delighted to <a href="https://web.archive.org/web/20150508164426/http://www.nydailynews.com/new-york/nyc-cabbie-suspended-sporting-nazi-armband-duty-article-1.1795145">have an audience in the News</a> to spout off some boilerplate Nazi rhetoric, saying races should live with their own &quot;kind.&quot; &quot;We believe in racial separation and racial segregation,&quot; he said. &quot;We&#x2019;ve been told lies about Hitler.&quot; The irony isn&apos;t lost on Diaz that seeing as how he&apos;s Dominican, the Nazis probably wouldn&apos;t have been very friendly toward him in their heyday: &quot;I know it&#x2019;s very controversial that a non-white is wearing a Nazi armband,&quot; he said. &quot;Whoever said you had to be white to be a National Socialist?&quot; Uh, Hitler? <a href="https://web.archive.org/web/20150508164426/http://en.wikipedia.org/wiki/National_Socialist_Movement_(United_States)">Wikipedia</a>? Common knowledge? </p>
+
+<p>Despite the fact that he believes the TLC has infringed upon his civil rights, Diaz said he would comply and not wear the armband anymore on duty: &quot;I&#x2019;m going to wear it, but not while driving a cab because there&#x2019;s a lot of crybabies out there in Manhattan, a lot of liberal crybabies, who cry every time they see a symbol of hate.&quot; Yeah, why would anyone be upset at seeing insignia that&apos;s a visual representation and reminder of the death of millions of people, you <em>crybabies.</em></p>
+
+<p>For what it&apos;s worth, and because you clearly want to know, Diaz doesn&apos;t limit his hatred to Jews and non-Aryans like himself: &quot;If I have to apologize, then a homosexual has to apologize for being a homosexual, for being open and gay.&quot; Diaz&apos;s father and brother both sounded embarrassed by him: &quot;He needs help!&quot; his father Juan Diaz told the News. &quot;Forget all that he say.&quot; Say what you want about the tenets of National Socialism, Dude, at least <a href="https://web.archive.org/web/20150508164426/https://www.youtube.com/watch?v=J41iFYO0NQA">it&apos;s an ethos</a>! Oh wait, Diaz probably wouldn&apos;t get that reference. Because, you know, <a href="https://web.archive.org/web/20150508164426/http://brightlightsfilm.com/67/67coens.php">Jews.</a></p>					
+										
+									
+				

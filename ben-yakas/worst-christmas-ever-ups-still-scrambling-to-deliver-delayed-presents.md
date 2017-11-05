@@ -1,0 +1,21 @@
+---
+author: Ben Yakas
+date: Dec 26, 2013 11:30 am
+title: "Worst Christmas Ever": UPS Still Scrambling To Deliver Delayed Presents
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="122613ups.jpg" src="https://web.archive.org/web/20150505135148im_/http://gothamist.com/attachments/byakas/122613ups.jpg" width="640" height="413"> <br> <i> via Wiki</i></div> <p></p>
+
+<p>If you enjoyed the privilege of taking <a href="https://web.archive.org/web/20150505135148/http://www.youtube.com/watch?v=8c3-0HA12K4">some gift-wrapped presents by the jaw and ripping them open</a> on Christmas morning, you should be counting your lucky stars, because apparently lots of people did not receive their Xmas goods in the mail. And UPS <a href="https://web.archive.org/web/20150505135148/http://www.nytimes.com/2013/12/26/business/gifts-sent-by-ups-miss-a-big-deadline.html?_r=1&amp;">is very, very sorry</a> they ruined your Christmas: &#x201C;It is unfortunate for this to happen at this time of year, but we&#x2019;re working around the clock to fix it,&#x201D; said Natalie Black, a spokeswoman for United Parcel Service.<strong> &#x201C;We had our peak projections, and the volume has exceeded our projection. We are sorry.&quot;</strong></p>
+
+<p>It&apos;s unclear how widespread a problem this was, but another spokesman said, &quot;a small percentage of shipments [were] delayed and [would] not be delivered&quot; on Christmas. UPS blamed a &quot;short holiday shopping season, a rise in online shopping and bad weather&quot; for the delays. But before you raise up your pitchforks in anger, it really sounds like it was an incredibly stressful time for the drivers: &quot;This has been the worst Christmas ever,&quot; <a href="https://web.archive.org/web/20150505135148/http://www.usatoday.com/story/news/nation/2013/12/25/ups-delivery-christmas/4199967/">said Larry Ledet</a>, 55, who has been a UPS driver for 27 years. He made 337 stops and delivered 505 packages on Monday, which certainly sounds like an insane amount of stops to do in one day.</p>
+
+<p>So some people took to Twitter and Facebook <a href="https://web.archive.org/web/20150505135148/http://www.dailymail.co.uk/news/article-2529170/Customers-nationwide-disappointed-Christmas-morning-overwhelmed-UPS-fails-deliver-time-holiday.html">to throw rotten tomatoes</a> at the company and declare them the Grinch and all that. Sure, it&apos;s a bummer if someone&apos;s little Brooklyn Begonia didn&apos;t get their <a href="https://web.archive.org/web/20150505135148/http://gothamist.com/2013/12/23/video_new_nike_sneakers_spark_melee.php">Nike Air Jordans</a> on Xmas morning. But if presents are the only thing that makes Christmas Christmas in your household&#x2014;if Christmas feels &quot;incomplete&quot; because the green chef&#x2019;s coat embroidered with the name of your partner <a href="https://web.archive.org/web/20150505135148/http://www.nytimes.com/2013/12/26/business/gifts-sent-by-ups-miss-a-big-deadline.html?_r=1&amp;">did not arrive on time</a>&#x2014;you&apos;re doing it wrong.</p>
+
+<p>At least Oklahoma resident Christopher Le, who is still waiting for his packages, has the right attitude: &quot;It&apos;s really easy to sit behind the internet and bash UPS,&quot; Le told USA Today. &quot;People forget it&apos;s not just a corporation&#x2014;it&apos;s people, too. I am proud that they made the decision to let their employees take off and spend Christmas with their families rather than make them come in because people were angry about their presents. The holiday season is about family.&quot;</p>
+
+<p>Is it about family, or is it <a href="https://web.archive.org/web/20150505135148/http://www.cbsnews.com/news/ups-fedex-scrambling-to-deliver-late-christmas-packages/">about Harry Potter stuff</a>? Or is it finding a great Chinese food restaurant to eat at and <a href="https://web.archive.org/web/20150505135148/https://www.google.com/search?q=wolf+of+wall+street&amp;oq=wolf+of+&amp;aqs=chrome.1.69i57j0l2j69i60l3.1774j0j7&amp;sourceid=chrome&amp;espv=210&amp;es_sm=91&amp;ie=UTF-8">a great movie to watch</a>?</p>					
+										
+									
+				

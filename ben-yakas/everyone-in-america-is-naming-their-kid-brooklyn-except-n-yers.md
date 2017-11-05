@@ -1,0 +1,17 @@
+---
+author: Ben Yakas
+date: May 8, 2014 12:37 pm
+title: Everyone In America Is Naming Their Kid "Brooklyn" Except NYers
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="5814brook.jpeg" src="https://web.archive.org/web/20150424140614im_/http://gothamist.com/attachments/byakas/5814brook.jpeg" width="640" height="386"> <br> <i> <a href="https://web.archive.org/web/20150424140614/http://www.slate.com/articles/arts/culturebox/2014/05/baby_name_map_new_yorkers_don_t_call_their_babies_brooklyn.html">via Slate</a></i></div> <p></p>
+
+<p>Slate has been taking a closer look at the <a href="https://web.archive.org/web/20150424140614/http://www.slate.com/articles/arts/culturebox/2014/04/viral_maps_the_problem_with_all_those_fun_maps_of_the_u_s_plus_some_fun.html">pitfalls of viral maps</a> lately, the conclusion of which seems to be, &quot;maps are completely misleading, but that doesn&apos;t mean they&apos;re not fun!&quot; And they stumbled upon <a href="https://web.archive.org/web/20150424140614/http://www.slate.com/articles/arts/culturebox/2014/05/baby_name_map_new_yorkers_don_t_call_their_babies_brooklyn.html">one particularly interesting name trend</a> while analyzing how maps deceive: the name Brooklyn has become much more popular everywhere in America outside of NYC. Ben Blatt writes: &quot;In 2012, roughly 5 out of every 10,000 baby girls from Brooklyn, New York, were named Brooklyn, while roughly 131 out of every 10,000 baby girls born in West Virginia were named Brooklyn.&quot;</p>
+
+<p>Now to get into the specifics, Brooklyn is the most popular <em>B name</em> for girls&#x2014;it&apos;s not more popular than names like Madison or Charlotte in any states but the Dakotas, Idaho, Utah and Iowa (<a href="https://web.archive.org/web/20150424140614/http://www.usatoday.com/story/life/tv/2014/04/03/hbo-girls-iowa/7282901/"><em>Girls</em> bump</a>?). So this is a narrow definition of &quot;popular,&quot; but it still is notable that there are more women named Brooklyn born in Montana than there are in Brooklyn. But of course, it would be gauche for natives to name their children after the place they go to get <a href="https://web.archive.org/web/20150424140614/http://gothamist.com/2014/02/15/the_most_expensive_latte_in_nyc_is.php">the most expensive lattes in NYC.</a></p>
+
+<p>So what has inspired this trend? Do people in Utah really <a href="https://web.archive.org/web/20150424140614/http://gothamist.com/2014/05/02/jefftown_bushwick_guide.php#photo-1">want a piece of Jefftown to call their own</a>? Do people in Idaho aspire to be <a href="https://web.archive.org/web/20150424140614/http://www.dailymail.co.uk/tvshowbiz/article-2597836/David-Victoria-Beckham-eldest-son-Brooklyn-exercise-class.html">Victoria Beckham</a>? Were people inspired after seeing Brooklyn Decker in <em>Battleship</em>? If so, the joke&apos;s on them: &quot;I&apos;m named after a horse,&quot; <a href="https://web.archive.org/web/20150424140614/http://www.usmagazine.com/celebrity-news/news/brooklyn-decker-im-named-after-a-horse-2012165#ixzz318U0FC9G">Decker told</a> Vanity Fair. Life&apos;s little wonders will never cease to amaze.</p>					
+										
+									
+				

@@ -1,0 +1,28 @@
+---
+author: Ben Yakas
+date: Jan 6, 2017 12:30 pm
+title: Anti-Gay Hate Mail Sent To Professor Involved In Ivanka Trump's JetBlue Incident
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="" src="https://web.archive.org/web/20170108175809im_/http://gothamist.com/upload/2016/12/122216ivanka1.jpg" width="640" height="480" class="image-none"> </span></p>
+
+<p>At the end of December, a couple <a href="https://web.archive.org/web/20170108175809/http://gothamist.com/2016/12/22/ivanka_trump_jetblue_why_god.php">was kicked off a JetBlue flight</a> before it left JFK after they expressed their displeasure with fellow passengers Ivanka Trump and Jared Kushner. Since then, one half of the couple, Hunter College professor Matthew Lasner, has been the subject of much public vitriol, despite the fact that he didn&apos;t actually have any direct contact with Trump whatsoever. The pile-on continues for Lasner, who has received several <a href="https://web.archive.org/web/20170108175809/http://www.nydailynews.com/new-york/hunter-prof-caught-ivanka-trump-flight-saga-gay-hate-mail-article-1.2936195">anti-gay hate letters</a> since the incident, including one that was reportedly covered in poop.</p>
+
+<p>Lasner called the cops Tuesday after receiving several hate-filled letters at his Hunter office on the Upper East Side. An NYPD spokesperson said they contained &quot;various disparaging remarks regarding homosexuals&quot;; <a href="https://web.archive.org/web/20170108175809/http://nypost.com/2017/01/05/ivanka-hecklers-husband-is-bombarded-with-hate-mail/">the Post says</a> they included photos of a poster board that read, &quot;God hates fags,&quot; and &quot;Next time you and your fag husband die.&quot; Sources also tell the tabloid that one of the letters contained a white powder (which has since been tested and determined to be safe) and another contained feces. </p>
+
+<p>The incident is being investigated as a bias crime.</p>
+
+<p>Lasner and his husband, Brooklyn lawyer Dan Goldstein, as well as their child were removed from the San Francisco-bound flight around 10:30 a.m. on December 22nd. While outlets such as TMZ initially reported that Goldstein was &quot;screaming&quot; and &quot;out of control&quot; when he supposedly confronted Trump, <a href="https://web.archive.org/web/20170108175809/http://gothamist.com/2016/12/23/ivanka_trump_jetblue_not_nice.php">a witness later revealed</a> that there was no yelling whatsoever, and only a few exasperated words were said as the couple passed by Trump while boarding. </p>
+
+<p><a href="https://web.archive.org/web/20170108175809/http://gothamist.com/2016/12/28/right_wing_millennials_start_petiti.php">A week later,</a> a group of &quot;Right Wing Millennials&quot; started a Change.org petition page to get Lasner fired from Hunter, despite the fact that Goldstein made the comments, not Lasner. The site reads:</p>
+
+<blockquote>Matt Lasner&apos;s conduct is a direct representation of Hunter College. We believe his immature and cruel harassment of Ivanka Trump and her family at JFK airport should be met with disciplinary action. The fact that someone who would be involved in such conduct is teaching students is very troubling. We are petitioning that Hunter College take ACTION. Someone like Mr. Lasner, who would harass a mother and her child simply trying to go about their day, does not deserve the honor of teaching. The fact that he tried to cover up and change the story around to avoid the consequences of his actions is also a testament to his character. He is NOT a good example for our youth.</blockquote>
+
+<p>To add insult to injury, one half of the couple (it&apos;s not clear if it was Lasner or Goldstein) was confronted by Fox News bro <a href="https://web.archive.org/web/20170108175809/http://gothamist.com/tags/jessewatters">Jesse Watters</a> as part of <a href="https://web.archive.org/web/20170108175809/http://money.cnn.com/2017/01/05/media/jesse-watters-fox-news/index.html">his new weekly show.</a> &quot;You harassed a woman with her baby on a flight. You proud of that?&#x201D; Watters <a href="https://web.archive.org/web/20170108175809/http://nypost.com/2017/01/06/man-who-harassed-ivanka-trump-on-flight-gets-quiet-on-air/">said in the clip</a>, which aired on Fox News last night as a promo for the show; the man he was talking to was not identified, but the sleuths over at the <a href="https://web.archive.org/web/20170108175809/http://www.infowars.com/ivanka-trumps-crazed-harasser-confronted-by-fox-news-on-air/">InfoWars comments cesspool are on it.</a></p>
+
+<center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">Oh ya! <a href="https://web.archive.org/web/20170108175809/https://twitter.com/hashtag/TheFive?src=hash">#TheFive</a> <a href="https://web.archive.org/web/20170108175809/https://twitter.com/jessebwatters">@jessebwatters</a> found the guy who harassed Ivanka <a href="https://web.archive.org/web/20170108175809/https://twitter.com/hashtag/JetBlue?src=hash">#JetBlue</a> a COWARD hiding his face under a red puffy jacket details Saturday</p>&#x2014; Kristin Billitere&#xAE; (@SpecialKMB1969) <a href="https://web.archive.org/web/20170108175809/https://twitter.com/SpecialKMB1969/status/817144507904966656">January 5, 2017</a></blockquote>
+<script async src="//web.archive.org/web/20170108175809js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>					
+										
+									
+				

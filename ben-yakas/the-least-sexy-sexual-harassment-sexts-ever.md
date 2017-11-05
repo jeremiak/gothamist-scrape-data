@@ -1,0 +1,19 @@
+---
+author: Ben Yakas
+date: Mar 27, 2014 11:40 am
+title: The Least Sexy Sexual Harassment Sexts Ever
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="32714sext.jpeg" src="https://web.archive.org/web/20150405030254im_/http://gothamist.com/attachments/byakas/32714sext.jpeg" width="640" height="431"> <br> <i> <a href="https://web.archive.org/web/20150405030254/http://www.shutterstock.com/pic-180116375/stock-photo-closeup-portrait-of-two-women-looking-shocked-upset-while-watching-something-on-their-cell-phone.html?src=Bx0MCYJj8Hkf83_GhCNsiA-1-93">Shutterstock/PathDoc</a></i></div> <p></p>
+
+<p>We&apos;ve seen a lot of creepy, inappropriate, and altogether cringe-worthy accusations of <a href="https://web.archive.org/web/20150405030254/http://gothamist.com/tags/sexualharassment">sexual harassment</a> in our time, including <a href="https://web.archive.org/web/20150405030254/http://gothamist.com/2011/05/13/detective_files_lawsuit_against_nyp.php"><em>Twilight</em>-obsessed cops</a>, <a href="https://web.archive.org/web/20150405030254/http://gothamist.com/2013/08/17/cabbies_license_revoked_after_sexua.php">horny cabbies</a>, <a href="https://web.archive.org/web/20150405030254/http://gothamist.com/2012/08/30/assemblyman_vito_gropez_allegedly_t.php">gropey assemblymen</a>, <a href="https://web.archive.org/web/20150405030254/http://gothamist.com/2013/03/30/manhattan_woman_allegedly_crotch-gr.php">leering old men</a> and bosses who refer to <a href="https://web.archive.org/web/20150405030254/http://gothamist.com/2014/03/16/nypd_officer_claims_boss_sexually_h.php">underlings as their &quot;work pussy.&quot;</a> And yet, the sexts allegedly sent by Duke&#x2019;s Original Roadhouse supervisor Sean Salinas to employee Sujeilee Ramos may take the cake as the single least sexy attempts at sexual harassment we&apos;ve ever encountered: <strong>&quot;I like my little Irish peepee,&quot;</strong> Salinas allegedly texted her. <strong>&quot;He is cute and [at] least he is not an ugly peepee.&quot;</strong></p>
+
+<p>&quot;I have seen some of the most bizarre things as an employment lawyer, but these text messages top the chart,&quot; Ramos&#x2019; lawyer Matthew Blit said of the sexts. Ramos, who acts under the name <a href="https://web.archive.org/web/20150405030254/http://www.imdb.com/name/nm2911724/?ref_=nmmd_md_nm">Sujeilee Candele</a>, says in her lawsuit that Salinas sent her links to porn videos and photos of his own &quot;peepee&quot; in addition to the pathetic sexts, <a href="https://web.archive.org/web/20150405030254/http://nypost.com/2014/03/26/actress-claims-manhattan-bar-boss-sent-strange-xxx-texts/">which the Post describes as</a> often slipping &quot;into bizarre, scatological baby talk.&quot; Ramos claims that if she didn&#x2019;t respond &quot;politely,&quot; this adult who referred to his genitalia as his &quot;peepee&quot; would give her fewer hours as bartender. </p>
+
+<p>Michael Schatzberg, managing partner of the restaurant&#x2019;s parent company, Branded Restaurant Foods, LLC, told the Post that it was all fun and games up until she filed the lawsuit: &quot;She&#x2019;d answer LOL&#x2014;it looked to me like two consensual adults going back and forth with silly banter,&quot; an adult said, referring to sexts about &quot;peepees.&quot;  </p>
+
+<p>Schatzberg adds that when he questioned Salinas about the allegations, he responded: &quot;We were laughing and having fun. In hindsight, we probably shouldn&#x2019;t have done it, but it was all just silly stuff.&quot; Just to make this abundantly clear: when he says &quot;silly stuff,&quot; he is referring to the fact that he is an adult who sent sexts to another human being in which he referred to his penis as his cute little Irish &quot;peepee.&quot; At least you can all say where you were the day sexting died.</p>					
+										
+									
+				

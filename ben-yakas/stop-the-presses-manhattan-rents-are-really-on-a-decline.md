@@ -1,0 +1,25 @@
+---
+author: Ben Yakas
+date: Feb 15, 2014 4:40 pm
+title: Stop The Presses: Manhattan Rents Are Really On A Decline
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="21313rent.jpeg" src="https://web.archive.org/web/20150423210619im_/http://gothamist.com/attachments/byakas/21313rent.jpeg" width="640" height="423"> <br> <i> <a href="https://web.archive.org/web/20150423210619/http://www.flickr.com/photos/frisky/5497776424/">friskypics&apos; flickr</a></i></div> <p></p>
+
+<p>Almost exactly a year ago, <a href="https://web.archive.org/web/20150423210619/http://gothamist.com/2013/02/13/report_manhattan_and_brooklyn_renta.php">the latest market reports indicated</a> that Manhattan and Brooklyn rental rates were on a {very} slight decline. It was the equivalent of a <a href="https://web.archive.org/web/20150423210619/http://arresteddevelopment.wikia.com/wiki/Development_Arrested">Mad Money &quot;Don&apos;t Buy&quot;-to-&quot;Risky&quot; upgrade</a>, but it was still <em>something</em>. Since that time, Brooklyn rents have risen <a href="https://web.archive.org/web/20150423210619/http://gothamist.com/2013/09/12/brooklyn_rents_hit_highest_damn_poi.php">to their highest levels in the last five years</a>. But something unexpected has happened in Manhattan: the rents have been on a continued decline for a few months in a row.</p>
+
+<p>&quot;All of sudden, in late September, the market just died,&quot; Marc Lewis, the managing chairman of rental brokerage Coldwell Banker AC Lawrence, <a href="https://web.archive.org/web/20150423210619/http://www.nytimes.com/2014/02/16/realestate/manhattan-rents-down-incentives-are-up.html">told the Times</a>. &#x201C;There&#x2019;s been a strong drop-off in demand, and landlords have lost a few months&#x2019; rent.&quot; While it&apos;s normal for there the market to slow down in winter, this has been a steeper and longer decline than in recent years.</p>
+
+<blockquote>Take a typical one-bedroom walk-up, for example. In September, it rented for an average of $2,512 a month, the firm&#x2019;s data show, but in October it fell to $2,326, or more than 7 percent. In November there was a further decline of nearly 2 percent, to $2,282, and in December yet another 2 percent slide, to $2,238. Last month, average rents slipped again, according to other firms&#x2019; data.</blockquote>
+
+<p>Landlords have noticed the change, and are acting accordingly: the Times says about 30 percent of rentals were offering <a href="https://web.archive.org/web/20150423210619/http://realestate.about.com/od/commercialbizbasics/a/lease_concede.htm">some types of concessions</a> (such as a month of free rent, landlord-paid broker fees, or both) as of January, the highest rate since 2010 (<a href="https://web.archive.org/web/20150423210619/http://therealdeal.com/blog/2014/02/13/manhattan-landlords-get-wise-brooklyn-rents-rise/">some other reports</a> put that figure at closer to 13%, still an increase from where it was six months ago). This has helped bring down vacancy levels, which went from 1.82% in December to 1.62% in January.</p>
+
+<p>It&apos;s not all wine and roses though: as <a href="https://web.archive.org/web/20150423210619/http://online.wsj.com/news/articles/SB10001424052702304888404579379310219542336">the Journal points out</a>, the average Manhattan apartment rented for $3,397 in January, $186 more than in January 2013 (<a href="https://web.archive.org/web/20150423210619/http://www.nydailynews.com/new-york/back-manhattan-landlords-starting-offer-concessions-tenants-push-back-article-1.1612082">the News</a> puts the median rent at $3,114; average rental prices tend to be higher than median ones). That&apos;s because up until the drop-off in the fall, rents <a href="https://web.archive.org/web/20150423210619/http://gothamist.com/2013/07/29/rent_is_high_god_is_dead.php">were moving ever upward</a> for the first half of 2013.</p>
+
+<p>Here&apos;s the most remarkable bit of data: the price gap between Manhattan <a href="https://web.archive.org/web/20150423210619/http://gothamist.com/2013/09/12/brooklyn_rents_hit_highest_damn_poi.php">and Brooklyn</a> is now just $284, the smallest difference in at least five years. For some context: the gap was closer to $1000 back in 2008. But of course, that was before <a href="https://web.archive.org/web/20150423210619/http://gothamist.com/2014/02/14/eat_the_rich_aliens.php">all the aliens</a> and <a href="https://web.archive.org/web/20150423210619/http://gothamist.com/2013/08/17/bushwick_residents_fleeing_for_ridg.php"><em>Girls</em> fanatics</a> moved to town.</p>
+
+<p>Suffice to say, you&apos;d probably still be better off <a href="https://web.archive.org/web/20150423210619/http://gothamist.com/2013/11/07/why_not_buy_this_island_instead_of.php">buying a small island</a> if you have the cash.</p>					
+										
+									
+				

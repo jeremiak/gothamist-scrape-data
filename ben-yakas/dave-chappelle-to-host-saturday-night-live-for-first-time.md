@@ -1,0 +1,22 @@
+---
+author: Ben Yakas
+date: Nov 4, 2016 12:35 pm
+title: Dave Chappelle To Host 'Saturday Night Live' For First Time
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="83013chappelle.jpg" src="https://web.archive.org/web/20161107085842im_/http://gothamist.com/attachments/byakas/83013chappelle.jpg" width="640" height="480"> <br> <i> (Amy Price/Amicitas )</i></div> <p></p>
+
+<p><a href="https://web.archive.org/web/20161107085842/http://gothamist.com/tags/snl"><em>Saturday Night Live</em></a> has had a very strong start to the season, thanks to Alec Baldwin&apos;s instantly-classic portrayal <a href="https://web.archive.org/web/20161107085842/http://gothamist.com/2016/10/16/video_alec_baldwins_trump_turns_int.php">of Donald Trump</a>, a musical-heavy episode with <a href="https://web.archive.org/web/20161107085842/http://gothamist.com/2016/10/09/lin-manuel_miranda_hosts_saturday_n.php#photo-1">Lin-Manuel Miranda</a>, and a supremely viral <a href="https://web.archive.org/web/20161107085842/http://gothamist.com/2016/10/23/americas_dad_tom_hanks_hosts_snl_fo.php#photo-1">Tom Hanks-hosted</a> episode. Even Pete Davidson <a href="https://web.archive.org/web/20161107085842/http://gothamist.com/2016/10/24/snls_pete_davidson_takes_a_dump_all_1.php">shitting all over Staten Island</a> has made headlines! But things are about to get even better: <a href="https://web.archive.org/web/20161107085842/http://gothamist.com/tags/davechappelle">Dave Chappelle</a> will host SNL for the first time <a href="https://web.archive.org/web/20161107085842/https://twitter.com/ditzkoff/status/794572794906476544">on November 12th</a>, with musical guest A Tribe Called Quest.</p>
+
+<p>This is more surprising than last season when the show was able to snag Larry David to play Bernie Sanders in a half dozen episodes, and also host for the first time ever. Just over a decade ago, Chappelle walked away from the iconic <em>Chappelle&apos;s Show</em> and turned his back on fame. But in recent years, he&apos;s been a steady presence on the stand-up circuit, transforming into a bonafide storyteller along the way. You can get a taste of his new material tonight when he performs at The Cutting Room&#x2014;tickets are <a href="https://web.archive.org/web/20161107085842/http://www.brooklynvegan.com/dave-chappelle-playing-another-small-nyc-show-tonight-tix-on-sale/">available now if you hurry.</a></p>
+
+<p>A Tribe Called Quest will release <a href="https://web.archive.org/web/20161107085842/http://gothamist.com/2016/10/28/a_tribe_called_quest_confirms_new_a.php">their final album</a>, <a href="https://web.archive.org/web/20161107085842/http://consequenceofsound.net/2016/11/a-tribe-called-quest-enlist-jack-white-andre-3000-kendrick-lamar-for-new-album/">which features</a> Jack White, Andr&#xE9; 3000, Kendrick Lamar, next Friday. You can read an excellent profile of the band, including the making of the new album and how they&apos;ve deal with <a href="https://web.archive.org/web/20161107085842/http://gothamist.com/2016/03/23/a_tribe_called_quests_phife_dawg_ha.php">the death</a> of Phife Dawg, <a href="https://web.archive.org/web/20161107085842/http://www.nytimes.com/2016/11/06/arts/music/a-tribe-called-quest-new-album-interview.html?_r=0">here.</a></p>
+
+<p>Benedict Cumberbatch hosts this weekend&apos;s episode, alongside musical guest Solange. SNL opted to skip the traditional jokey promos with a castmember, and instead post this very dramatic one:</p>
+
+<center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">Benedict Cumberbatch. <a href="https://web.archive.org/web/20161107085842/https://twitter.com/solangeknowles">@solangeknowles</a>. Saturday. <a href="https://web.archive.org/web/20161107085842/https://twitter.com/hashtag/SNL?src=hash">#SNL</a> <a href="https://web.archive.org/web/20161107085842/https://t.co/aUWuRSGgMo">pic.twitter.com/aUWuRSGgMo</a></p>&#x2014; Saturday Night Live (@nbcsnl) <a href="https://web.archive.org/web/20161107085842/https://twitter.com/nbcsnl/status/793652368344834048">November 2, 2016</a></blockquote>
+<script async src="//web.archive.org/web/20161107085842js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>					
+										
+									
+				

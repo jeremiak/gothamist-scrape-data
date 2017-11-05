@@ -1,0 +1,34 @@
+---
+author: Ben Yakas
+date: May 31, 2017 4:02 pm
+title: The Best Anecdotes From Radiohead's Intimate 'OK Computer' Anniversary Interview
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="050217radiohead1.jpg" src="https://web.archive.org/web/20170717071050im_/http://gothamist.com/attachments/byakas/050217radiohead1.jpg" width="640" height="428"> <br> <i> Look at how happy these heads full of radios were! (Tom Sheehan / Radiohead)</i></div> <p></p>
+
+<p><a href="https://web.archive.org/web/20170717071050/http://gothamist.com/tags/radiohead">Radiohead</a> are gearing up to release a 20th anniversary reissue of their landmark album <em>OK Computer</em> called OKNOTOKCOMPUTER, featuring b-sides and three unreleased tracks that fans have been salivating over for two decades, <a href="https://web.archive.org/web/20170717071050/http://gothamist.com/2017/05/02/paranoid_vindicationdroid_radiohead.php#photo-2">this month</a>. If it seems unusual for a band as nostalgia-averse as Radiohead to suddenly dip into their archives for something like this, then you&apos;ll be equally (and pleasantly) surprised by their intimate <a href="https://web.archive.org/web/20170717071050/http://www.rollingstone.com/music/features/exclusive-thom-yorke-and-radiohead-on-ok-computer-w484570">interview with Rolling Stone</a> regarding the reissue, in which the band opens up about the turmoil of making the album, and we learn what sticker Thom Yorke has on his iPhone.</p>
+
+<p>While the album and band have been praised for their forward-leaning musings on the inescapability of technology (something which has only proven more prophetic in the years since), Yorke reveals that the main thrust behind the album&apos;s unique paranoia was more a symptom of the isolation and loneliness of being on tour for several years with barely any breaks. </p>
+
+<p>&quot;The paranoia I felt at the time was much more related to how people related to each other,&quot; Yorke explained. &quot;But I was using the terminology of technology to express it. Everything I was writing was actually a way of trying to reconnect with other human beings when you&apos;re always in transit. That&apos;s what I had to write about because that&apos;s what was going on, which in itself instilled a kind of loneliness and disconnection.&quot;</p>
+
+<p>&quot;I was basically catatonic. The claustrophobia&#x2014;just having no sense of reality at all,&quot; he added. &quot;Back then, the person I saw in the mirror kept saying, &apos;You&apos;re shit. Everything you do is shit. Don&apos;t do that. It&apos;s shit.&apos;&quot;</p>
+
+<p>The whole thing <a href="https://web.archive.org/web/20170717071050/http://www.rollingstone.com/music/features/exclusive-thom-yorke-and-radiohead-on-ok-computer-w484570">is worth reading</a>, but below, we&apos;ve picked out some highlights:</p>
+
+<ul>
+	<li>The band tried out <em>OK</em> material while opening for Alanis Morissette on her <em>Jagged Little Pill</em> tour in 1995:  &quot;My main memory of that tour,&quot; said Jonny Greenwood, &quot;is playing interminable hand-organ solos to an audience full of quietly despairing teenage girls.&quot; Yorke added, &quot;We were well adept at playing to people that didn&apos;t give a rat&apos;s ass about us. I used to quite enjoy it. People are sitting down to their chicken dinners. We were trying to get them to choke on the bones.&quot;</li>
+	<li>The title for the album came while the band was listening to an audio version of Douglas Adams&apos; classic, <em>A Hitchhiker&apos;s Guide to the Galaxy:</em> &quot;Midway through the book, a spaceship computer says it&apos;s incapable of fending off incoming missiles. &apos;OK, computer,&apos; responds galactic president Zaphod Beeblebrox, &apos;I want full manual control now.&apos;&quot;</li>
+	<li>Yorke really hates cars: &quot;People get up too early to leave houses where they don&apos;t want to live, to drive to jobs where they don&apos;t want to be, in one of the most dangerous forms of transport on Earth. I&apos;ve never gotten used to that.&quot;</li>
+	<li>Yorke took advice from ghosts about his hair length while working on the record at St. Catherine&apos;s Court: &quot;Ghosts would talk to me while I was asleep... There was one point where I got up in the morning after a night of hearing voices and decided I had to cut my hair.&quot;</li>
+	<li>The album were deeply influenced by Miles Davis&apos; <em>Bitches Brew</em>, but they hated Brit Pop: &quot;It just leads to pastiche,&quot; said Greenwood. &quot;It&apos;s you wishing it was another era. But as soon as you go down that route, you might as well be a Dixieland jazz band, really.&quot;</li>
+<li>Producer Nigel Godrich has the best one-liner description of Radiohead&apos;s music I&apos;ve ever read: &quot;This was not Neanderthal rock &amp; roll.&quot;</li>
+	<li>Yorke explains the story behind the lyrics of &quot;The Tourist&quot;: &quot;Everything was about speed when I wrote those songs,&quot; Yorke said. &quot;I had a sense of looking out a window at things moving so fast I could barely see. One morning in Germany I was feeling particularly paranoid because I hadn&apos;t slept well. I walked out to find something to eat, but I couldn&apos;t find anything, and this fucking dog was barking at me. I&apos;m staring at this dog, and everyone else is carrying on. That&apos;s where &apos;hey, man, slow down&apos; comes from. It sounds like it&apos;s all about technology and stuff, but it&apos;s not.&quot;</li>
+	<li>The band briefly touch on <em>A Moon Shaped Pool</em>, which was shaped by the pain of Yorke&apos;s separation from his partner of 23 years, Rachel Owens (who died last December). &quot;There was a lot of difficult stuff going on at the time, and it was a tough time for us as people,&quot; said Yorke. &quot;It was a miracle that that record got made at all.&quot;</li>
+	<li>The subsequent tour has been very &quot;joyful&quot; however, and Yorke is even open to recording live as a band for the first time since 1997: &#x201C;I&#x2019;ve always been extreme about resisting us being a drum-guitar-bass band,&#x201D; he said. &quot;But if that&#x2019;s what people want to try, I&#x2019;m too old to be standing there with a hammer and saying, &#x2018;We must do this, we must do that!&#x2019; I would like everyone to feel free. But, you know, it&#x2019;s not easy.&quot;</li>
+	<li>And lastly, that aforementioned sticker on Yorke&apos;s iPhone &quot;sums up his response to nearly every conceivable query: &apos;Fuck what you heard.&apos;&quot;</li>
+</ul>					
+										
+									
+				

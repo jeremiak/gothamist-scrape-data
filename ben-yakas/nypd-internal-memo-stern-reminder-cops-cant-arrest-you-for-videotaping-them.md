@@ -1,0 +1,21 @@
+---
+author: Ben Yakas
+date: Aug 30, 2014 2:20 pm
+title: NYPD Internal Memo Stern Reminder Cops Can't Arrest You For Videotaping Them
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="83014nypd.jpg" src="https://web.archive.org/web/20150515013952im_/http://gothamist.com/attachments/byakas/83014nypd.jpg" width="640" height="427"> <br> <i> <a href="https://web.archive.org/web/20150515013952/https://www.flickr.com/photos/mytummytalkstome/14091041433/">adrian cabrero&apos;s flickr</a></i></div> <p></p>
+
+<p>Photographing and videotaping anything in public view, including federal buildings and the police, is <a href="https://web.archive.org/web/20150515013952/http://gothamist.com/2012/10/21/psa_it_is_100_legal_to_film_the_pol.php">completely legal</a> in NYC, so long as the documentation doesn&apos;t impede any law enforcement activity. Nevertheless, <a href="https://web.archive.org/web/20150515013952/http://gothamist.com/2014/02/19/watch_cop_arrest_photographer_in_th.php">plenty</a> of <a href="https://web.archive.org/web/20150515013952/http://gothamist.com/2013/11/06/video_film_student_sues_nypd_after.php">people</a>&#x2014;including <a href="https://web.archive.org/web/20150515013952/http://gothamist.com/2012/09/19/nypds_harassment_of_journalists_con.php">journalists</a>&#x2014;continue to be <a href="https://web.archive.org/web/20150515013952/http://gothamist.com/2014/05/02/cyclist_cop_video.php">arrested</a> and <a href="https://web.archive.org/web/20150515013952/http://gothamist.com/2013/03/16/video_bronx_man_hauled_to_jail_for.php">harassed</a> by <a href="https://web.archive.org/web/20150515013952/http://gothamist.com/tags/photographersrights">camera-shy NYPD officers</a>. But in the wake of the death of Eric Garner (which was captured on videotape), confrontations between police and protesters in Ferguson, and <a href="https://web.archive.org/web/20150515013952/http://gothamist.com/2014/07/16/nypd_still_thinks_its_a_crime_for_y.php">recent lawsuits</a>, the NYPD brass felt compelled to send out a stern reminder to officers about these facts earlier this month. Check out the exclusive internal memo below.</p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="83014cameras.jpg" src="https://web.archive.org/web/20150515013952im_/http://gothamist.com/attachments/byakas/83014cameras.jpg" width="640" height="853" class="image-none"> </span></p>
+
+<p>The memo was distributed to all police commands early in August. &quot;Members of the public are legally allowed to record police interactions,&quot; the memo reads. &quot;Intentional interference such as blocking or obstructing cameras or ordering the person to cease constitutes censorship and also violates the First Amendment.&quot; </p>
+
+<p>So next time you feel the need to videotape an officer in public, you can gently remind them that what you&apos;re doing is legal&#x2014;and just the act of taking video does not constitute interfering with police business. &quot;I think that there are many officers that believe that the minute they tell somebody to do or not do something, that that&#x2019;s an order,&quot; Mickey Osterreicher, a lawyer for the National Press Photographers Association, <a href="https://web.archive.org/web/20150515013952/http://www.huffingtonpost.com/2014/08/13/filming-police-officers_n_5676940.html">told the Huffington Post</a>. &quot;But police can only order somebody to do or not do something based on the law, and there is no law that says you can not record or photograph out in public.&quot;</p>
+
+<p>And while we&apos;re on the subject, if an officer tries <a href="https://web.archive.org/web/20150515013952/http://gothamist.com/2014/02/19/watch_cop_arrest_photographer_in_th.php">to turn the tables</a> on you with their smartphone, don&apos;t forget that cops are <a href="https://web.archive.org/web/20150515013952/http://gothamist.com/2014/08/17/cops_warned_to_not_use_cell_phones.php">not allowed to take photo or video while on duty.</a> </p>					
+										
+									
+				

@@ -1,0 +1,29 @@
+---
+author: Ben Yakas
+date: Apr 12, 2014 4:20 pm
+title: Adorable Older NYers Are Encroaching Upon "Hipster Territory"
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="41214epochials.jpg" src="https://web.archive.org/web/20150509235351im_/http://gothamist.com/attachments/byakas/41214epochials.jpg" width="640" height="480"> <br> <i> A Cool Dad (via <a href="https://web.archive.org/web/20150509235351/http://www.shutterstock.com/pic-145619068/stock-photo-healthcare-concept-portrait-of-a-smiling-mature-old-man-in-casual-shirt-and-stylish-glasses.html?src=pp-same_model-145635760-2Obc_HJOOKbEQFf_4izREQ-4">Shutterstock/Augustino</a>) evaluates some real estate in the East Village (<a href="https://web.archive.org/web/20150509235351/https://www.flickr.com/photos/vivnsect/5420135519/">vivienne gucwa&apos;s flickr</a>)</i></div> <p></p>
+
+<p>Now that we&apos;ve successfully clarified what a Millennial is, via a <a href="https://web.archive.org/web/20150509235351/http://gothamist.com/2014/04/06/the_ny_times_a_newspaper_explains_m.php">not-so-scientific analysis of NY Times trend stories</a>, it&apos;s time to turn our attention toward their parents. The Grey Lady <a href="https://web.archive.org/web/20150509235351/http://www.nytimes.com/2014/04/13/realestate/new-york-boomers-on-hipster-turf.html?_r=1">has a feature this weekend</a> all about older New Yorkers who are starting to buy and rent properties in &quot;youth-oriented outposts&quot; where they can go &quot;swimming in a sea of skinny-jeaned hipsters.&quot; Don&apos;t call them Baby Boomers&#x2014;call them Epochials.</p>
+
+<p>The <a href="https://web.archive.org/web/20150509235351/http://www.nytimes.com/2014/04/13/realestate/new-york-boomers-on-hipster-turf.html?_r=1">Times writes</a>: </p>
+
+<blockquote>Driven by a taste for adventure and a lively urban lifestyle, a new crop of older New Yorkers are casting an eye on areas heavily populated by the young and the artistic. These neighborhoods include Greenpoint, Red Hook, Gowanus, Bushwick, the East Village, the Lower East Side and notably, Long Island City, which is luring boomers with a passion for craft beer, first-rate latte and a laid-back vibe, just as Williamsburg beckoned them a few years ago.</blockquote>
+
+<p>So far, so <a href="https://web.archive.org/web/20150509235351/http://gothamist.com/2014/03/23/ny_times_gets_reflective_about_trends.php">Times trend story</a>. But here&apos;s the TWIST: unlike those futurism consultants who think <a href="https://web.archive.org/web/20150509235351/http://gothamist.com/2013/02/16/ny_times_trolls_brooklyn_hipsters_w.php">&quot;Brooklyn is turning out to be the last three days of Burning Man&quot;</a> and the young tech millionaires who <a href="https://web.archive.org/web/20150509235351/http://gothamist.com/2014/02/14/eat_the_rich_aliens.php">&quot;have a completely different DNA from the rest of us,&quot;</a> these people moving to Brownstone Brooklyn and lower Manhattan sound (more or less) adorable. Just take a look at some of these quotes, and let your dead heart be momentarily warmed.</p>
+
+<ul>
+	<li>&quot;It was a big leap of faith,&#x201D; said Lenore Berner, a longtime Park Slope resident who turned 50 last year, and recently moved to Long Island City with her husband. &quot;But we&#x2019;d heard only amazing things about the neighborhood. <strong>And just walking these streets makes me feel younger. I feel like I&#x2019;m starting a whole new chapter in my life</strong>.&quot; </li>
+	<li>&quot;I like that you see people walking the streets late at night,&quot; said Greg Stone, 57, who also recently moved into a one-bedroom in LIC. &quot;<strong>I&#x2019;ll be young again &#x2014; what can I tell you? It&#x2019;s an adventure for me</strong>.&#x201D;</li>
+	<li>&quot;I&#x2019;m still a little afraid of how groovy and arty my neighbors are,&#x201D; said new Gowanus resident John Weir, 55, who is <strong>working on a novel about a 50-something man much like himself living in a neighborhood much like Gowanus</strong>. &quot;To be honest, I don&#x2019;t feel hip enough for Brooklyn. But when you&#x2019;re 55, and you see people forming themselves and determining what they&#x2019;re going to be, that&#x2019;s a good feeling. I like being around people who haven&#x2019;t fully found themselves.&quot;</li>
+	<li>&quot;I liked the sky, the space, the different kinds of people,&quot; said Victoria Hamilton, 70, who moved from the Upper West Side to Williamsburg. &quot;When I first moved, <strong>I definitely felt like the oldest person in the neighborhood, and it was weird for a while. Then I forgot about it. People were kind, and they never made me feel old</strong>. Plus, after a while there were more people of mixed ages around.&quot;</li>
+	<li>&#x201C;I&#x2019;ve always had a very funky life,&#x201D; said 50-something Aldo Sampieri, who moved to Bushwick last summer. &quot;I was married, divorced. I have no family. I can do what I want. And when you&#x2019;re in a neighborhood filled with people of different ages, you feel like you&#x2019;re not that old. <strong>Seeing young people walking around makes you feel happy, more alive. You find yourself playing bass with some guys in a studio, leading a life that a person my age usually can&#x2019;t do.</strong>&quot;</li>
+</ul>
+
+<p>In case you&apos;re feeling <em>too</em> warm and fuzzy right now, leave it to real estate agents to poor a bucketful of dirty water all over the good vibes: &quot;There are lots of boomers out there who might be empty nesters, but they&#x2019;re not retiring,&quot; said Jessica Kaufman, a Citi Habitats agent who helped Stone find his place in LIC. <strong>&quot;This neighborhood is hip-hopping, and they want to be part of it.&quot;</strong></p>					
+										
+									
+				

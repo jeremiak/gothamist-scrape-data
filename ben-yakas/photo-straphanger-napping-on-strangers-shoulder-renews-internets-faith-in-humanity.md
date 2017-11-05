@@ -1,0 +1,21 @@
+---
+author: Ben Yakas
+date: Nov 6, 2013 3:47 pm
+title: Photo: Straphanger Napping On Stranger's Shoulder Renews Internet's Faith In Humanity
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="11613subway.jpg" src="https://web.archive.org/web/20150508194124im_/http://gothamist.com/attachments/byakas/11613subway.jpg" width="640" height="857"> <br> <i> <a href="https://web.archive.org/web/20150508194124/http://r2.reddit.com/r/nyc/comments/1pmjf5/stranger_falls_asleep_on_guys_shoulder_on_the/">via Reddit</a></i></div> <p></p>
+
+<p>We are of the belief that the subway exists to get us from Point A to Point B, and if some people want to <a href="https://web.archive.org/web/20150508194124/http://gothamist.com/2013/10/11/subway_cheese.php">eat brie</a> or <a href="https://web.archive.org/web/20150508194124/http://gothamist.com/2013/10/08/photo_this_woman_is_all_of_us.php">kick back with a beer</a> or even <a href="https://web.archive.org/web/20150508194124/http://gothamist.com/2013/08/01/yeah_thats_it_kick_off_your_sandals.php">expose their bare feet while riding</a>, well, god bless &apos;em and just don&apos;t sit too close to us and also feel free to send pics of said people to tips@gothamist.com. However, some people seem to get a lot more out of this whole mass transit thing&#x2014;like a renewed sense of faith in humanity. This is apparently what happened after a photo of a black man sleeping against an orthodox Jewish man&apos;s shoulder <a href="https://web.archive.org/web/20150508194124/http://r2.reddit.com/r/nyc/comments/1pmjf5/stranger_falls_asleep_on_guys_shoulder_on_the/">went viral via Reddit</a> last week. How many Facebook likes can change the world? </p>
+
+<p><a href="https://web.archive.org/web/20150508194124/http://www.nydailynews.com/new-york/brooklyn/check-subway-sleeping-beauty-article-1.1508486">According to The Daily News</a>, it takes approximately 1.3 million &#x201C;likes&#x201D; and 172,563 shares on Facebook. Oscar &quot;Isaac&quot; Theil, 65, tells them he was on his way home from the Upper East Side to the Kensington section of Brooklyn on the Q train last Thursday night when an unidentified man fell asleep on his shoulder for more than a half hour. When someone asked him whether he wanted to wake him up, Theil responded, &quot;He had a long day so let him sleep. We&apos;ve all been there.&quot;</p>
+
+<p><a href="https://web.archive.org/web/20150508194124/http://r2.reddit.com/user/braffination">The Redditor</a> who shot the photo said he was touched that Theil wasn&apos;t grossed out when a stranger made physical contact with him: &quot;It was just more that New Yorkers, especially in the subway, don&apos;t want to touch people or have them get in their personal space. That was striking to me and made me smile and I thought was a very nice gesture.&quot; </p>
+
+<p>While it was a nice gesture, has the bar really been set that low that someone putting up with a minor annoyance is worthy of overwhelming praise across the Internet and mainstream media? Are we so inundated with tasteless Halloween costumes, crack-addled mayors that being awkwardly civil &quot;inspires&quot; us? Theil seems bewildered by the response: &quot;I just kept steady so he would be able to sleep,&quot; he said. &quot;It wasn&apos;t easy to do because he was dead weight.&quot; This wasn&apos;t like some Brogrammer <a href="https://web.archive.org/web/20150508194124/http://gothamist.com/2013/08/22/nyc_entrepreneur_promises_to_teach.php">hand-picked a homeless man to teach him how to code</a>&#x2014;Theil just acted like a generous, non-germaphobic human being while someone took a very uncomfortable-looking nap on his arm. </p>
+
+<p>But hey, if this inspires even one person to <a href="https://web.archive.org/web/20150508194124/http://gothamist.com/tags/subwayetiquette">be a little friendlier on the subway</a>, maybe that&apos;s good enough. Having said that, there are <a href="https://web.archive.org/web/20150508194124/http://gothamist.com/2013/10/24/photo_if_you_must_sleep_on_the_subw.php">a lot sweeter ways of sleeping on the train.</a></p>					
+										
+									
+				

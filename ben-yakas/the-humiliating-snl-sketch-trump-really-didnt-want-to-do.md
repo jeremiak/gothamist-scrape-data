@@ -1,0 +1,27 @@
+---
+author: Ben Yakas
+date: Jun 1, 2017 4:50 pm
+title: The Humiliating SNL Sketch Trump Really Didn't Want To Do
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="060117trumphappyman.jpg" src="https://web.archive.org/web/20170606060854im_/http://gothamist.com/attachments/byakas/060117trumphappyman.jpg" width="640" height="427" class="image-none"> </span></p>
+
+<p>The book is closed on season 42 of <a href="https://web.archive.org/web/20170606060854/http://gothamist.com/tags/snl"><em>Saturday Night Live</em></a>, which ended its year with added cultural relevancy and historic ratings thanks to its close parodying of the Trump administration. Even so, the show was still hounded by the fact they invited then-presidential candidate Donald Trump <a href="https://web.archive.org/web/20170606060854/http://gothamist.com/2015/11/08/donald_trump_snl_terrible_terrible_terrible.php#photo-4">to host in 2015</a> in one of the worst episodes in the show&apos;s history. As his presidency continues, SNL cast and crew have, little by little, been revealing embarrassing details around Trump&apos;s appearance&#x2014;like the fact that he <a href="https://web.archive.org/web/20170606060854/https://www.youtube.com/watch?v=PR7cQAjZsJI">maybe can&apos;t read</a>, and <a href="https://web.archive.org/web/20170606060854/http://gothamist.com/2017/04/07/taran_killam_trump.php">is a &quot;moron...who seems to be powered by bluster.&quot;</a></p>
+
+<p>The latest embarrassing reveal from that episode comes via writer Bryan Tucker, who has been with the show since 2005. He <a href="https://web.archive.org/web/20170606060854/http://www.huffingtonpost.com/entry/saturday-night-live-political-comedy_us_593007dee4b09ec37c3203ec?pds8">told the Huffington Post</a> about the sketch Trump really didn&apos;t want to do (and which was ultimately cut from the episode):</p>
+
+<blockquote>We did do a dress-rehearsal sketch where he was the Giving Tree, and the Giving Tree was giving fruit to a boy. And eventually the Giving Tree got completely chopped down and was a stump, and Trump was a neighboring tree saying, &#x201C;You&#x2019;re a sucker, you&#x2019;re getting played, you should not be giving things to these people.&#x201D; And Trump had to stand in a tree with his face looking out of the hole of this tree, and he did not like that. I don&#x2019;t think he enjoyed looking like a tree. He was not into it and it showed, and it did not get a lot of laughs.</blockquote>
+
+<p>He also commented on what it was like behind-the-scenes when Trump was there for rehearsals:</p>
+
+<blockquote>Oh, man. It&#x2019;s so loaded. One thing that struck me was, when other candidates come to the show, like Hillary Clinton or John McCain or Al Gore or Mike Huckabee, they bring at least one &#x2014; and sometimes two or three &#x2014; other people to talk to us and vet the material that we give them. Trump came alone. He had a BlackBerry and he had his security guy outside the door, and that&#x2019;s about all. When we would present him an idea, he would just go from his gut and say, &#x201C;I like that&#x201D; or &#x201C;I don&#x2019;t like that.&#x201D; Sometimes we could persuade him. Sometimes he would lean out of the door and ask his security guy, &#x201C;Do you think this is funny? Do you think this is a good idea?&#x201D; But that was, to me, an insight into him that I hadn&#x2019;t gotten before: He really makes decisions by himself, and although he had people he was talking to throughout the week, there was very little back-and-forth with other people.</blockquote>
+
+<p>Former writer Tim Herlihy (1993-2000) also weighed in on the controversial appearance, which has been criticized for helping Trump look <a href="https://web.archive.org/web/20170606060854/http://gothamist.com/2016/11/11/snl_trump_reality_tv.php">cuddly and in-on-the-joke:</a></p>
+
+<blockquote>We&#x2019;ve had presidential candidates on many times. Donald Trump hosted a year before the election. He was technically a candidate, but he was a joke candidate. I wasn&#x2019;t there and I didn&#x2019;t see the whole show, but I assume it was sort of like the times he hosted before. He&#x2019;s a public figure, and nobody thought there was a prayer of him being elected at that point. If we had had somebody host the show after they&#x2019;d already received the nomination, I would think that would be extraordinarily strange, more for the candidate than for us, because we&#x2019;re going to try to get them to do crazy stuff, and normally a candidate doesn&#x2019;t want to do anything that could potentially get them in trouble. I worked with politicians there, and the difference between the ones who were up for election and the ones who were either retired or in safe seats, in terms of their whole outlook, was tremendous.</blockquote>
+
+<p>If you&apos;re in the mood to put on your headphones and ride out the rest of the day, check out our lists of our favorite <a href="https://web.archive.org/web/20170606060854/http://gothamist.com/2017/05/22/best_of_snl_season_42.php">pre-taped segments and commercials</a>; <a href="https://web.archive.org/web/20170606060854/http://gothamist.com/2017/05/23/snl_42_best_live_sketches.php">live sketches and monologues</a>; and <a href="https://web.archive.org/web/20170606060854/http://gothamist.com/2017/05/24/baldwin_trump_best_of_snl.php">Trump sketches.</a></p>					
+										
+									
+				

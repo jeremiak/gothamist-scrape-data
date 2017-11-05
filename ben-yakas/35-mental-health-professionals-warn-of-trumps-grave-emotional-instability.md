@@ -1,0 +1,32 @@
+---
+author: Ben Yakas
+date: Feb 14, 2017 3:23 pm
+title: 35 Mental Health Professionals Warn Of Trump's 'Grave Emotional Instability'
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="021417trump121.jpg" src="https://web.archive.org/web/20170508081935im_/http://gothamist.com/attachments/byakas/021417trump121.jpg" width="640" height="427"> <br> <i> Getty Images</i></div> <p></p>
+
+<p>Yesterday, <a href="https://web.archive.org/web/20170508081935/http://gothamist.com/2017/02/13/trump_mental_illness.php">we wrote about how</a> speculation regarding the president&apos;s mental health has grown with every reality-bending lie that Trump espouses and every rage tweet he spits in all caps. Now a group of 35 psychiatrists, psychologists and social workers has released a strongly-worded statement warning that Trump&apos;s &quot;grave emotional instability&quot; disqualify him from office.</p>
+
+<p>The letter was sent to the NY Times in response to <a href="https://web.archive.org/web/20170508081935/https://www.nytimes.com/2017/02/09/opinion/trumps-leading-rivals-wear-robes.html">Charles M. Blow&apos;s column last week</a> about Trump&apos;s tyrannical behavior in dealing with people and branches of government that disagree with his worldview: &quot;He always wants to grind the opposition underfoot. This is how democracy slips away, not always by a singular eruption, but sometimes by slow, constant erosion, the way the river carves itself into the rock.&quot;</p>
+
+<p><a href="https://web.archive.org/web/20170508081935/https://www.nytimes.com/2017/02/13/opinion/mental-health-professionals-warn-about-trump.html?_r=0">The letter in response</a>, which was signed by Lance M. Dodes, Joseph Schachter <a href="https://web.archive.org/web/20170508081935/http://www.lancedodes.com/new-york-times-letter">and 33 others</a>, directly addresses many of the issues we discussed in <a href="https://web.archive.org/web/20170508081935/http://gothamist.com/2017/02/13/trump_mental_illness.php">our piece yesterday</a>, including the issue of whether it was ethical for medical professionals to speculate about a public figure&apos;s mental health:</p>
+
+<blockquote>Silence from the country&#x2019;s mental health organizations has been due to a self-imposed dictum about evaluating public figures (the American Psychiatric Association&#x2019;s 1973 Goldwater Rule). But this silence has resulted in a failure to lend our expertise to worried journalists and members of Congress at this critical time. We fear that too much is at stake to be silent any longer.
+
+<p>Mr. Trump&#x2019;s speech and actions demonstrate an inability to tolerate views different from his own, leading to rage reactions. His words and behavior suggest a profound inability to empathize. Individuals with these traits distort reality to suit their psychological state, attacking facts and those who convey them (journalists, scientists).</p>
+
+<p>In a powerful leader, these attacks are likely to increase, as his personal myth of greatness appears to be confirmed. We believe that the grave emotional instability indicated by Mr. Trump&#x2019;s speech and actions makes him incapable of serving safely as president.</p></blockquote><p></p>
+
+<p>(Dr. Dodes is a retired assistant clinical professor of psychiatry at Harvard Medical School, while Dr. Schachter is a former chairman of the Committee on Research Proposals, International Psychoanalytic Association.)</p>
+
+<p>This letter comes after many <a href="https://web.archive.org/web/20170508081935/https://www.theatlantic.com/magazine/archive/2016/06/the-mind-of-donald-trump/480771/">respected analysts</a> <a href="https://web.archive.org/web/20170508081935/http://www.vanityfair.com/news/2015/11/donald-trump-narcissism-therapists">and psychotherapists</a> have evaluated Trump from afar (<a href="https://web.archive.org/web/20170508081935/http://www.slate.com/articles/health_and_science/medical_examiner/2016/10/it_s_ok_to_speculate_about_donald_trump_s_mental_health.html">as Slate argued</a>, the latest editions of the DSM notes &quot;a number of diagnoses are now made largely on a person&#x2019;s observable behavior or what can reasonably be inferred from it&quot;). In addition, there was also the recent <a href="https://web.archive.org/web/20170508081935/https://www.change.org/p/trump-is-mentally-ill-and-must-be-removed">Change.org petition</a> started by Dr. John Gartner, <a href="https://web.archive.org/web/20170508081935/http://bipartisanreport.com/2017/01/27/johns-hopkins-top-psychotherapist-releases-terrifying-diagnosis-of-president-trump/">a registered psychotherapist</a> from Johns Hopkins University Medical School, and signed by thousands of mental health professionals calling on Trump to be removed from office due to his apparent mental illness.</p>
+
+<p>Even within the boundaries of expertise set forth in the Times letter, there are still plenty of people who likely will find such a letter inappropriate. <a href="https://web.archive.org/web/20170508081935/https://www.bustle.com/p/why-you-should-stop-speculating-about-trumps-mental-health-36806">Bustle argued yesterday</a> that by labeling him mentally ill, it keeps journalists from calling him out as an &quot;authoritarian bigot&quot; whose worldview has been unchallenged over a lifetime and rewarded with the most powerful position in the world. Others see it as closer to <a href="https://web.archive.org/web/20170508081935/http://www.redstate.com/mickeywhite2/2017/02/12/no.-not-okay-call-donald-trump-mentally-ill-insult/">an offensive insult</a> than a diagnosis.</p>
+
+<p>But it&apos;s possible that Trump could be all these things at once&#x2014;authoritarian-minded strong man, casually bigoted, and <a href="https://web.archive.org/web/20170508081935/http://theconcourse.deadspin.com/what-would-it-look-like-hypothetically-if-a-public-fi-1792052074">exhibiting signs of dementia.</a> Perhaps <a href="https://web.archive.org/web/20170508081935/http://www.huffingtonpost.com/entry/donald-trump-mental-health-ted-lieu_us_589a4b70e4b0c1284f2930cd">passing legislation requiring</a> the White House to have an in-house psychiatrist is the best thing we can all push for at this point. <br>
+</p>					
+										
+									
+				

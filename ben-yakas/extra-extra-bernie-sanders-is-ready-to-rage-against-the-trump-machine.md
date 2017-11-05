@@ -1,0 +1,30 @@
+---
+author: Ben Yakas
+date: Nov 14, 2016 5:41 pm
+title: Extra, Extra: Bernie Sanders Is Ready To Rage Against The Trump Machine
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="111416xx1.jpg" src="https://web.archive.org/web/20161120002837im_/http://gothamist.com/attachments/byakas/111416xx1.jpg" width="640" height="427"> <br> <i> <a href="https://web.archive.org/web/20161120002837/https://www.flickr.com/photos/edcnyc/30663925420/in/pool-gothamist/">eddie crimmins&apos; flickr</a></i></div> <p></p>
+
+<ul>
+	<li>Follow Gothamist <a href="https://web.archive.org/web/20161120002837/http://twitter.com/gothamist">on Twitter</a>, <a href="https://web.archive.org/web/20161120002837/https://instagram.com/gothamist/">Instagram</a>, <a https:="" www.youtube.com="" c="" gothamist?sub_confirmation="1&quot;">YouTube</a>, and <a href="https://web.archive.org/web/20161120002837/https://www.snapchat.com/add/gothamist">Snapchat</a>, and <a href="https://web.archive.org/web/20161120002837/http://www.facebook.com/pages/Gothamist/13927915491">like us on Facebook</a>.  You can also get the top stories mailed to you&#x2014;<a href="https://web.archive.org/web/20161120002837/http://eepurl.com/Mu4T">sign up here</a>.</li>
+	<li>This is what goes into <a href="https://web.archive.org/web/20161120002837/https://munchies.vice.com/en/articles/inside-the-danish-factory-that-makes-sausages-for-your-hotdog">making a hot dog.</a></li>
+	<li>Will there be another <a href="https://web.archive.org/web/20161120002837/http://www.nydailynews.com/entertainment/kim-catrrall-hints-sex-city-spinoff-wait-article-1.2871672"><em>Sex and the City</em> movie?</a></li>
+	<li>Van Jones <a href="https://web.archive.org/web/20161120002837/http://www.motherjones.com/politics/2016/11/van-jones-donald-trump-sanders-clinton-racism">has some sensible advice</a>: hope for the best, expect the worse.</li>
+	<li>Is this the <a href="https://web.archive.org/web/20161120002837/http://www.bloomberg.com/news/features/2016-11-13/obscure-casino-run-by-a-trump-protege-is-raising-big-questions">world&apos;s most successful casino</a>? </li>
+	<li>The New Yorker has a feature on <a href="https://web.archive.org/web/20161120002837/http://www.newyorker.com/culture/portfolio/new-york-citys-graveyard-shift?mbid=synd_digg">NYC&apos;s graveyard shift workers.</a></li>
+	<li>Here&apos;s a soothing liberal &quot;rant&quot; from Bernie Sanders <a href="https://web.archive.org/web/20161120002837/http://theslot.jezebel.com/just-a-soothing-liberal-rant-from-bernie-sanders-about-1788954273?rev=1479158913250&amp;utm_campaign=socialfow_jezebel_twitter&amp;utm_source=jezebel_twitter&amp;utm_medium=socialflow">about holding Trump accountable.</a></li>
+	<li>Are certain Democrats <a href="https://web.archive.org/web/20161120002837/http://www.politico.com/story/2016/11/donald-trump-senate-democrats-231256">going to capitulate</a> to the GOP immediately?</li>
+	<li>Mike Pence doesn&apos;t want you <a href="https://web.archive.org/web/20161120002837/http://www.politico.com/blogs/donald-trump-administration/2016/11/pence-email-privacy-indiana-231332">to read his emails.</a></li>
+	<li>From Buzzfeed to <a href="https://web.archive.org/web/20161120002837/http://www.hollywoodreporter.com/news/warner-bros-buzzfeed-enlist-jim-parsons-brother-orange-film-947076">meme to movie.</a></li>
+	<li>HBO still really wants a <a href="https://web.archive.org/web/20161120002837/http://www.ew.com/article/2016/11/14/game-thrones-prequel-series"><em>Game Of Thrones</em> prequel series.</a></li>
+	<li>Trump wants to make <a href="https://web.archive.org/web/20161120002837/http://nymag.com/daily/intelligencer/2016/11/trump-could-allow-armed-tourists-to-walk-the-streets-of-nyc.html">nationwide concealed carry possible.</a></li>
+	<li>And finally, if you see Maxine around town, make sure to give her some Cheerios:</li>
+</ul>
+
+<center><blockquote class="instagram-media" data-instgrm-captioned="" data-instgrm-version="7" style=" background:#FFF; border:0; border-radius:3px; box-shadow:0 0 1px 0 rgba(0,0,0,0.5),0 1px 10px 0 rgba(0,0,0,0.15); margin: 1px; max-width:658px; padding:0; width:99.375%; width:-webkit-calc(100% - 2px); width:calc(100% - 2px);"><div style="padding:8px;"> <div style=" background:#F8F8F8; line-height:0; margin-top:40px; padding:26.5277777778% 0; text-align:center; width:100%;"> <div style=" background:url(data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAACwAAAAsCAMAAAApWqozAAAABGdBTUEAALGPC/xhBQAAAAFzUkdCAK7OHOkAAAAMUExURczMzPf399fX1+bm5mzY9AMAAADiSURBVDjLvZXbEsMgCES5/P8/t9FuRVCRmU73JWlzosgSIIZURCjo/ad+EQJJB4Hv8BFt+IDpQoCx1wjOSBFhh2XssxEIYn3ulI/6MNReE07UIWJEv8UEOWDS88LY97kqyTliJKKtuYBbruAyVh5wOHiXmpi5we58Ek028czwyuQdLKPG1Bkb4NnM+VeAnfHqn1k4+GPT6uGQcvu2h2OVuIf/gWUFyy8OWEpdyZSa3aVCqpVoVvzZZ2VTnn2wU8qzVjDDetO90GSy9mVLqtgYSy231MxrY6I2gGqjrTY0L8fxCxfCBbhWrsYYAAAAAElFTkSuQmCC); display:block; height:44px; margin:0 auto -44px; position:relative; top:-22px; width:44px;"></div></div> <p style=" margin:8px 0 0 0; padding:0 4px;"> <a href="https://web.archive.org/web/20161120002837/https://www.instagram.com/p/BMy9xdCB-4P/" style=" color:#000; font-family:Arial,sans-serif; font-size:14px; font-style:normal; font-weight:normal; line-height:17px; text-decoration:none; word-wrap:break-word;" target="_blank">&#x1F50A; I drink your milkshake. #ThereWillBeFluff</a></p> <p style=" color:#c9c8cd; font-family:Arial,sans-serif; font-size:14px; line-height:17px; margin-bottom:0; margin-top:8px; overflow:hidden; padding:8px 0 7px; text-align:center; text-overflow:ellipsis; white-space:nowrap;">A video posted by &#x1F436; Maxine the Fluffy Corgi (@madmax_fluffyroad) on <time style=" font-family:Arial,sans-serif; font-size:14px; line-height:17px;" datetime="2016-11-14T15:54:47+00:00">Nov 14, 2016 at 7:54am PST</time></p></div></blockquote>
+<script async defer src="//web.archive.org/web/20161120002837js_/http://platform.instagram.com/en_US/embeds.js"></script></center>					
+										
+									
+				

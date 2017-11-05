@@ -1,0 +1,75 @@
+---
+author: Ben Yakas
+date: Apr 6, 2014 3:00 pm
+title: In A Year's Worth Of NY Times Articles, The Millennial Emerges
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="4514millennials.jpg" src="https://web.archive.org/web/20150509235420im_/http://gothamist.com/attachments/byakas/4514millennials.jpg" width="640" height="426"> <br> <i> (Original photo <a href="https://web.archive.org/web/20150509235420/https://www.flickr.com/photos/tobinbridge/3548180517/">via Tobin Bridge</a>)</i></div> <p></p>
+
+<p><a href="https://web.archive.org/web/20150509235420/http://mobile.nytimes.com/2013/12/22/fashion/Millenials-Millennials-Generation-Y.html">You know</a> them when you see them. They are tapping on their smartphones, strolling into work late and amassing Instagram followers faster than a twerking cat. They complain. They &#x201C;disrupt&#x201D; stuff. They simultaneously (and somewhat improbably) like both Kanye West and Kenny Chesney.</p>
+
+<p><a href="https://web.archive.org/web/20150509235420/http://www.nytimes.com/2014/02/16/fashion/millennials-internships.html">Millennials, it</a> is often said, want more than just a paycheck; they crave meaningful and fulfilling careers, maybe even a chance to change the world.</p>
+
+<p><a href="https://web.archive.org/web/20150509235420/http://economix.blogs.nytimes.com/2013/08/01/millennials-in-their-parents-basements/?_r=0">Last year,</a> a record 36 percent of people 18 to 31 years old &#x2014; roughly the age range of the generation nicknamed the millennials &#x2014; were living in their parents&#x2019; homes, according to a new Pew Research Center analysis of Census Bureau data.</p>
+
+<p><a href="https://web.archive.org/web/20150509235420/http://www.nytimes.com/2014/03/25/your-money/millennials-at-work-young-and-callow-like-their-parents.html?_r=0">They don&#x2019;t</a> have a strong work ethic, these reports say. They&#x2019;re not motivated and don&#x2019;t take the initiative. They&#x2019;re undependable and not committed to their employers. They need constant affirmation and expect rapid advancement.</p>
+
+<p><a href="https://web.archive.org/web/20150509235420/http://www.nytimes.com/2013/05/28/booming/the-truth-about-millennials-in-boomer-eyes.html?pagewanted=all&amp;_r=0">According to</a> these stories, millennials are ruining pro football, killing the housing market, subverting tried-and-true dating rituals, and overconsuming even while [they] are underconsuming.</p>
+
+<p><a href="https://web.archive.org/web/20150509235420/http://www.nytimes.com/2013/12/01/opinion/sunday/millennial-searchers.html?pagewanted=1&amp;_r=0">To give</a> you a sense of their lot, when you search &#x201C;are millennials&#x201D; in Google, the search options that come up include: &#x201C;are millennials selfish,&#x201D; &#x201C;are millennials lazy,&#x201D; and &#x201C;are millennials narcissistic.&#x201D;</p>
+
+<p><a href="https://web.archive.org/web/20150509235420/http://www.nytimes.com/2014/02/16/realestate/how-new-yorks-young-millionaires-live.html?utm_content=buffera13cc&amp;utm_medium=social&amp;utm_source=twitter.com&amp;utm_campaign=buffer&amp;_r=0">&#x201C;They have</a> a completely different DNA from the rest of us,&#x201D; said Robert Dankner, the president of Prime Manhattan Residential, a brokerage that represents young tech millionaires. &#x201C;They like to stay under the radar, and the time and energy others spend to conform, these people spend forging their own path. What is important to them is to have something that is not like what everyone else has.&#x201D;</p>
+
+<p><a href="https://web.archive.org/web/20150509235420/http://www.nytimes.com/2013/11/10/jobs/embracing-the-millennials-mind-set-at-work.html">Mike Marasco</a>, the leader of the NUvention program, puts it this way: &#x201C;Millennials work more closely together, leverage right- and left-brain skills, ask the right questions, learn faster and take risks previous generations resisted. They truly want to change the world and will use technology to do so.&#x201D;</p>
+
+<p><a href="https://web.archive.org/web/20150509235420/http://www.nytimes.com/2014/02/16/fashion/millennials-internships.html">Like an</a> army of worker ants, they are a subculture with a distinct identity, banding together in Occupy Wall Street-inspired groups and, lately, creating their own blogs, YouTube channels, networking groups and even a magazine that captures life inside the so-called Intern Nation.</p>
+
+<p><a href="https://web.archive.org/web/20150509235420/http://www.nytimes.com/2013/03/31/magazine/do-millennials-stand-a-chance-in-the-real-world.html?pagewanted=all">The millennials&#x2019;</a> relationship with money seems quite simple. They do not have a lot of it, and what they do have, they seem reluctant to spend.</p>
+
+<p><a href="https://web.archive.org/web/20150509235420/http://www.nytimes.com/2013/11/20/business/for-those-in-their-20s-a-finding-that-they-dont-manage-debt-well.html">Millennials have</a> the fewest number of credit cards and the lowest average balance on them, according to Experian&#x2019;s annual state of credit report. Yet, they also have the lowest credit scores, and a relatively high incidence of late payments.</p>
+
+<p><a href="https://web.archive.org/web/20150509235420/http://www.nytimes.com/2013/12/04/business/media/sock-of-the-month-clubs-rise-online-bringing-subscriptions-to-feet.html">&#x201C;The millennial</a> demographic is more willing to put their credit card on the Internet, and the next logical step is, &#x2018;Are you willing to give me your credit card like with a gym membership?&#x2019; &#x201D; Mr. Alex Realmuto&#x2014;who began selling his sock brand, Soul Socks, through online subscriptions (one pair a month for $12 monthly)&#x2014;said. &#x201C;Millennials value the convenience of having something come to their mailbox, and this is just set it and forget it.&#x201D;</p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="4614mil2.jpg" src="https://web.archive.org/web/20150509235420im_/http://gothamist.com/attachments/byakas/4614mil2.jpg" width="640" height="426"> <br> <i> <a href="https://web.archive.org/web/20150509235420/https://www.flickr.com/photos/myopenbar/234518594/">Rebecca Smeyne&apos;s flickr</a></i></div> <p></p>
+
+<p><a href="https://web.archive.org/web/20150509235420/http://www.nytimes.com/2011/11/13/opinion/sunday/the-entrepreneurial-generation.html?pagewanted=all">Previous youth</a> cultures &#x2014; beatniks, hippies, punks, slackers &#x2014; could be characterized by two related things: the emotion or affect they valorized and the social form they envisioned. </p>
+
+<p><a href="https://web.archive.org/web/20150509235420/http://www.nytimes.com/2011/11/13/opinion/sunday/the-entrepreneurial-generation.html?pagewanted=all">So what&#x2019;s</a> the affect of today&#x2019;s youth culture? Not just the hipsters, but the Millennial Generation as a whole, people born between the late &#x2019;70s and the mid-&#x2019;90s, more or less &#x2014; of whom the hipsters are a lot more representative than most of them care to admit. The thing that strikes me most about them is how nice they are: polite, pleasant, moderate, earnest, friendly. Rock &#x2019;n&#x2019; rollers once were snarling rebels or chest-beating egomaniacs. Now the presentation is low-key, self-deprecating, post-ironic, eco-friendly. When Vampire Weekend appeared on &#x201C;The Colbert Report&#x201D; last year to plug their album &#x201C;Contra,&#x201D; the host asked them, in view of the title, what they were against. &#x201C;Closed-mindedness,&#x201D; they said.</p>
+
+<p><a href="https://web.archive.org/web/20150509235420/http://www.nytimes.com/2014/03/08/opinion/blow-the-self-ie-generation.html">Although half</a> of millennials describe themselves as independent, 57 percent say their views on social issues &#x201C;have become more liberal&#x201D; over the course of their lives. </p>
+
+<p><a href="https://web.archive.org/web/20150509235420/http://www.nytimes.com/2013/04/30/us/politics/for-millennial-voters-a-tide-of-cynicism-toward-politics.html">The idealism</a> of youth is slipping away, replaced by mistrust and a growing partisan divide among voters under 30. These so-called millennials, who turned out in droves to elect Mr. Obama in 2008, are increasingly turned off by politics. Experts fear their cynicism may become permanent.</p>
+
+<p><a href="https://web.archive.org/web/20150509235420/http://www.nytimes.com/2013/01/13/fashion/the-end-of-courtship.html?pagewanted=all&amp;_r=0">Blame the</a> much-documented rise of the &#x201C;hookup culture&#x201D; among young people, characterized by spontaneous, commitment-free (and often, alcohol-fueled) romantic flings.</p>
+
+<p><a href="https://web.archive.org/web/20150509235420/http://www.nytimes.com/2013/01/13/fashion/the-end-of-courtship.html?pagewanted=all&amp;_r=0">Hookups may</a> be fine for college students, but what about after, when they start to build an adult life? </p>
+
+<p><a href="https://web.archive.org/web/20150509235420/http://www.nytimes.com/2013/01/13/fashion/the-end-of-courtship.html?pagewanted=all&amp;_r=0">In interviews</a> with students, many graduating seniors did not know the first thing about the basic mechanics of a traditional date. &#x201C;They&#x2019;re wondering, &#x2018;If you like someone, how would you walk up to them? What would you say? What words would you use?&#x2019; &#x201D; Ms. Freitas said.</p>
+
+<p><a href="https://web.archive.org/web/20150509235420/http://www.nytimes.com/2013/07/14/fashion/sex-on-campus-she-can-play-that-game-too.html?pagewanted=all">Until recently</a>, those who studied the rise of hookup culture had generally assumed that it was driven by men, and that women were reluctant participants, more interested in romance than in casual sexual encounters. But there is an increasing realization that young women are propelling it, too.</p>
+
+<p><a href="https://web.archive.org/web/20150509235420/http://well.blogs.nytimes.com/2013/11/11/women-find-orgasms-elusive-in-hookups/?_r=0%20">Yet mediocre</a> sex was a small price to pay &#x201C;for the freedom to be able to enjoy it all.&#x201D; The physical aspect of a tryst with a relative stranger was gratifying, she said, even if her chances of reaching orgasm were limited. When her partner&#x2019;s performance was lackluster, she still took pride in her own sexual prowess.</p>
+
+<p><a href="https://web.archive.org/web/20150509235420/http://www.nytimes.com/2014/03/30/fashion/Cats-Internet-Adoption.html">The cat</a> ladies of yore may have been sad sacks (think of the infamous scenes in &#x201C;Grey Gardens&#x201D;), but this new breed is young, sociable and ambitious. And cats for them (us) are not signs of spinsterhood, but of independence. Dogs need walks and near-constant attention, but cats need hardly anything at all. They sleep while you&#x2019;re at work, eat food out of a can and jump on your lap while you watch Netflix: the perfect pet for the so-called millennial.</p>
+
+<p><a href="https://web.archive.org/web/20150509235420/http://www.nytimes.com/2014/02/09/education/edlife/teaching-generation-y-the-basics-of-a-strong-relationship.html">But given</a> the way members of Generation Y have been conditioned, their seemingly blithe attitude about...love, may become less of a boon and more of a bust.</p>
+
+<p><a href="https://web.archive.org/web/20150509235420/http://www.nytimes.com/2010/11/03/business/media/03adco.html?_r=0">Instead of</a> traditional must-haves like engraved invitations or sit-down dinners, the millennials &#x2014; people generally in their 20s &#x2014; seek touches that showcase their interests and personal style...Couples want their nuptials to reflect their particular story, and brands are adapting marketing campaigns to account for a new set of tastes and needs.</p>
+
+<p><a href="https://web.archive.org/web/20150509235420/http://www.nytimes.com/2013/08/05/business/media/bass-gives-classic-penny-loafer-a-modern-makeover.html">&#x201C;If you&#x2019;re</a> a millennial, you&#x2019;re certainly looking for somewhat of a fashion statement about yourself,&#x201D; [she] said.</p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="4614mil3.jpg" src="https://web.archive.org/web/20150509235420im_/http://gothamist.com/attachments/byakas/4614mil3.jpg" width="640" height="427"> <br> <i> <a href="https://web.archive.org/web/20150509235420/https://www.flickr.com/photos/rachel_citron/5667293766/">rachel citron&apos;s flickr</a></i></div> <p></p>
+
+<p><a href="https://web.archive.org/web/20150509235420/http://www.nytimes.com/2013/12/05/fashion/Brittany-Morin-is-a-diy-millennial-with-the-digitized-touch.html">Brit, as</a> her followers know her, is the founder of Brit &amp; Co. a company dedicated to all things D.I.Y. &#x201C;Every moment is a canvas,&#x201D; she said, crossing the stage with a practiced stride. &#x201C;We are all artists. Show the world your canvas, and help them paint one, too.&#x201D;</p>
+
+<p><a href="https://web.archive.org/web/20150509235420/http://www.nytimes.com/2014/03/06/fashion/the-monocle-returns-as-a-fashion-accessory.html">&#x201C;I got</a> it just to have my own style, bring something new to the table,&#x201D; said Jose Vega, 23, an aspiring Miami rap musician who can be seen sporting a monocle on his SoundCloud page. &#x201C;Also, I&#x2019;m nearsighted.&#x201D;</p>
+
+<p>(<a href="https://web.archive.org/web/20150509235420/http://www.nytimes.com/2013/07/28/jobs/she-turned-her-upspeak-down-a-notch.html">It&#x2019;s so</a> pervasive among both women and men in the millennial generation that once they are in more positions of power, it might become the corporate norm.)</p>
+
+<p><a href="https://web.archive.org/web/20150509235420/http://www.nytimes.com/2013/11/05/booming/i-want-to-be-a-millennial-when-i-retire.html">What is</a> a tattoo on the forearm of a 20-something in a medium-size Midwestern state worth? The Eskimos have all those words for snow, and it seems the only language we have for expressing success is numeric. It may be a universal language, but it&#x2019;s an impoverished one. Maybe we need a word for &#x201C;never having to sit in a meeting where someone reads long power point slides out loud.&#x201D; Maybe we should have an expression that captures the level of success you&#x2019;ve achieved when you do exactly what you love every day.</p>
+
+<p><a href="https://web.archive.org/web/20150509235420/http://parenting.blogs.nytimes.com/2014/01/08/millennials-want-children-but-theyre-not-planning-on-them/">Of course</a>, it&#x2019;s impossible to know if millennials will do what they say they&#x2019;ll do; it&#x2019;s one thing to declare a life plan when you&#x2019;re 22; it&#x2019;s another thing to follow through on it.</p>					
+										
+									
+				

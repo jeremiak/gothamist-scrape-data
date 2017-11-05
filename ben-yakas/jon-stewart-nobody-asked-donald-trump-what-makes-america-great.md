@@ -1,0 +1,21 @@
+---
+author: Ben Yakas
+date: Nov 17, 2016 10:45 am
+title: Jon Stewart: Nobody Asked Donald Trump WHAT Makes America Great
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="111716stewbeef.jpg" src="https://web.archive.org/web/20170310072324im_/http://gothamist.com/attachments/byakas/111716stewbeef.jpg" width="640" height="422" class="image-none"> </span></p>
+
+<p>Despite having left The Daily Show over a year ago and only popping up a handful of times during the election cycle (mostly to help out friends including Stephen Colbert and Samantha Bee), <ah ref="http://gothamist.com/tags/jonstewart">Jon Stewart&apos;s voice still carries a lot of weight in certain circles. So much so, that <a href="https://web.archive.org/web/20170310072324/https://thefederalist.com/2016/11/11/how-jon-stewart-and-the-daily-show-elected-donald-trump/">some in the hot take economy</a> have partly blamed Trump&apos;s triumph on Stewart&apos;s departure. Stewart spoke about the results of the election at length in a new interview <a href="https://web.archive.org/web/20170310072324/http://www.cbsnews.com/news/jon-stewart-the-daily-show-former-host-election-2016-donald-trump-republicans/">with CBS This Morning</a> this week, and the biggest missed opportunity of the campaign: that nobody challenged Trump&apos;s campaign slogan. &quot;One of the things that struck me as odd about this election...is that nobody asked Donald Trump, &apos;What makes America great?&apos;&quot;</ah></p>
+
+<p>&quot;What are the metrics?&quot; Stewart continued. &quot;Because it seems like from listening to him, the metrics are that it&#x2019;s a competition. And I think what many would say is what makes us great is America is an anomaly in the world,&#x201D; Stewart said. &quot;His candidacy has animated that thought &#x2014;that a multiethnic democracy, a multicultural democracy is impossible. And that is what America by its founding, and constitutionally is. Like every other state.&quot;</p>
+
+<center><embed src="https://web.archive.org/web/20170310072324oe_/http://www.cbsnews.com/common/video/cbsnews_video.swf" scale="noscale" salign="lt" type="application/x-shockwave-flash" background="/web/20170310072324im_/http://gothamist.com/2016/11/17/jon_stewart_nobody_asked_donald_tru.php#000000" width="620" height="387" allowfullscreen="true" allowscriptaccess="always" flashvars="pType=embed&amp;si=254&amp;pid=YYeZhhOXHqcm&amp;uuid=cd92f63a-1dbe-40cc-9ea2-d31ca8ba9a4d&amp;url=http://www.cbsnews.com/videos/jon-stewart-on-president-elect-trump-hypocrisy-in-america"></center>
+
+<p>Stewart had some more positive outlooks on the election&#x2014;or at least shared the viewpoint that things are just as hard today as they were yesterday: &quot;I don&#x2019;t believe we are a fundamentally different country today than we were two weeks ago,&quot; Stewart said. &quot;The same country with all its grace and flaws, and volatility, and insecurity, and strength, and resilience exists today as existed two weeks ago. The same country that elected Donald Trump elected Barack Obama. I feel badly for the people for whom this election will mean more uncertainly and insecurity. But I also feel like this fight has never been easy. And the ultimate irony of this election is the cynical strategy of the Republicans, which is: &#x2018;Our position as government doesn&#x2019;t work. We&#x2019;re going to make sure&#x2026; that it doesn&#x2019;t work.&#x2019;&quot;</p>
+
+<p>He also cautioned liberals to hold back from demonizing everyone who voted for Trump: &quot;I thought Donald Trump disqualified himself at numerous points. But there is now this idea that anyone who voted for him...has to be defined by the worst of his rhetoric,&quot; Stewart said. &quot;Like, there are guys in my neighborhood that I love, that I respect, that I think have incredible qualities who are not afraid of Mexicans, and not afraid of Muslims, and not afraid of blacks. They&#x2019;re afraid of their insurance premiums. In the liberal community, you hate this idea of creating people as a monolith. Don&#x2019;t look as Muslims as a monolith. They are the individuals and it would be ignorance. But everybody who voted for Trump is a monolith, is a racist. That hypocrisy is also real in our country.&quot;</p>					
+										
+									
+				

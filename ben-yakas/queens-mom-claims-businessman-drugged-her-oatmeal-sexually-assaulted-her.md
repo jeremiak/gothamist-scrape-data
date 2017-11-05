@@ -1,0 +1,17 @@
+---
+author: Ben Yakas
+date: Feb 2, 2014 4:20 pm
+title: Queens Mom Claims Businessman Drugged Her Oatmeal & Sexually Assaulted Her
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left"> <img alt="020314oatmeal.jpg" src="https://web.archive.org/web/20140420053944im_/http://gothamist.com/attachments/nyc_arts_john/020314oatmeal.jpg" width="325" height="257"> <br> <i style=" width:325px; ;display:block"> (<a href="https://web.archive.org/web/20140420053944/http://www.shutterstock.com/gallery-324901p1.html">MaraZe</a> / <a href="https://web.archive.org/web/20140420053944/http://www.shutterstock.com/">Shutterstock</a>)</i></div> A Queens mother whose home was flooded during Hurricane Sandy <a href="https://web.archive.org/web/20140420053944/http://nypost.com/2014/02/01/obsessed-mogul-drugged-moms-oatmeal-tracked-every-move-suit/">claims that a Manhattan businessman took advantage of her</a>, regularly drugging her oatmeal and sexually assaulting her. Horse trainer Francesca Riccardi, 33, claims in her lawsuit that 72-year-old Frank Villano, who owned Mickey Mantle&apos;s and Solera restaurants in Midtown, laced her oatmeal with Ambien and Xanax while she was staying in his Long Island mansion, then assaulted her in front of her 10-year-old son.<p></p>
+
+<p>Riccardi, whose mother was a friend of Villano, lost her belongings when Sandy flooded the Staten Island home where she lived with her boyfriend. Villano offered to let her and her son stay in his $3 million Glen Head home in November 2012. &#x201C;He was a very rich man and wanted to take care of them for the rest of their lives,&#x201D; Riccardi said Villano told her and her son. But she claims he became obsessed with her, monitoring her every movement by installing a GPS tracker on her car, having a private eye tail her, and hacking her email. &#x201C;You belong to me and nobody else,&#x201D; she claims Villano told her.</p>
+
+<p><a href="https://web.archive.org/web/20140420053944/http://www.dailymail.co.uk/news/article-2550495/New-York-mogul-72-used-drug-laced-oatmeal-sexually-assault-33-year-old-mom-slept.html">The suit alleges</a> that, &#x201C;Villano would enter their room, disrobe Riccardi in her sleep, and put his hands on her body. Villano would even kiss her face and moan while he was molesting her. All this was done in front of [Riccardi&#x2019;s son] and [he] witnessed it.&quot; She didn&apos;t take the pills one night, and says she screamed and fought when he attempted to sexually assault her that evening. After that, she moved out and filed a complaint.</p>
+
+<p>&quot;He acted like a father figure,&quot; Riccardi&#x2019;s lawyer, Joseph Tacopina, <a href="https://web.archive.org/web/20140420053944/http://nypost.com/2014/02/01/obsessed-mogul-drugged-moms-oatmeal-tracked-every-move-suit/">told the Post</a>. &#x201C;This was despicable conduct by a guy who knew Francesca was traumatized by Hurricane Sandy and took advantage of her.&#x201D; Villano, a divorced father-of-four who donated $1&#x2009;million to a Greenwich Village child-protection center in 2005, called Riccardi a &#x201C;gold digger&#x201D; and claims they had &#x201C;consensual sexual contact.&#x201D; &#x201C;It&#x2019;s a ridiculous complaint and a complete lie,&#x201D; said his lawyer Aida Leisenring. &quot;It&#x2019;s transparent that she wants money.&quot;</p>					
+										
+									
+				
