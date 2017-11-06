@@ -1,0 +1,7 @@
+---
+author: Jen Carlson
+date: December 21, 2009  1:16 PM
+title: Brrr... Polar Bears Take Snowy Plunge
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="phpHK90kZAM.jpg" src="https://web.archive.org/web/20110611045702im_/http://gothamist.com/phpHK90kZAM.jpg" width="120" height="98" class="image-right"> </span>While most avoided the winter elements this weekend, <a href="https://web.archive.org/web/20110611045702/http://www.polarbearclub.org/">the Polar Bear Club</a> headed to the beach. <a href="https://web.archive.org/web/20110611045702/http://ny1.com/1-all-boroughs-news-content/top_stories/110765/polar-bear-club-takes-dip-in-frigid-brooklyn-waters">NY1 reports</a> that the group took an icy cold dip in the Atlantic on Sunday morning, just after the city was pummeled with <a href="https://web.archive.org/web/20110611045702/http://gothamist.com/2009/12/20/snow_is_here.php">a ton of snow</a>. From November through April they&apos;re out there every Sunday, also raising money for New York Cares and Camp Sunshine. Polar Bear Club VP Tony Nastro said, &quot;There&apos;s an energy that comes from the people that do this, that just makes you feel you&apos;re in the right place, you&apos;re doing the right thing.&quot; They&apos;ll be out there again soon for their annual New Year&apos;s Day plunge.</p>

@@ -1,0 +1,21 @@
+---
+author: Nell Casey
+date: Mar 20, 2017 10:35 am
+title: It's National Ravioli Day But There's Other Stuff To Eat This Week, Too
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="032017ravioli.jpg" src="https://web.archive.org/web/20170322183030im_/http://gothamist.com/attachments/nyc_nellcasey/032017ravioli.jpg" width="640" height="603"> <br> <i> Altesi Ravioli (Marili Forastieri)</i></div> <p></p>
+
+<p>We begin this week with another Day of Food, with the observance of <strong>National Ravioli Day</strong> on Monday. <a href="https://web.archive.org/web/20170322183030/http://faun.nyc/">Faun</a> in Prospect Heights offers a hand-made Baccala Ravioli stuffed with either a cod or hake mixture fortified with potatoes, garlic and cream in a butter sauce. On the Upper East Side, <a href="https://web.archive.org/web/20170322183030/http://www.altesinyc.com/">Altesi Ristorante</a> tosses ricotta and pecorino ravioli in a butter, sage and prosciutto sauce with aged balsamic. We&apos;re also fond of the <a href="https://web.archive.org/web/20170322183030/http://gothamist.com/2014/02/05/the_best_pasta_dishes_in_nyc.php">burrata ravioli</a> at <a href="https://web.archive.org/web/20170322183030/http://vairestaurant.com/">Vai</a> on the Upper West Side and the fresh ravioli being sold at <a href="https://web.archive.org/web/20170322183030/http://www.borgattis.com/">Borgatti&apos;s</a> on Arthur Avenue in the Bronx.</p>
+
+<p>On Tuesday, the <a href="https://web.archive.org/web/20170322183030/http://www.thefarmonadderley.com/">Farm on Adderley</a> transports visitors upstate to the wine-making regions of the Fingerlakes and Catskills. The restaurant will serve a five-course dinner paired with wines from <a href="https://web.archive.org/web/20170322183030/http://www.eminenceroad.com/">Eminence Farm Road Winery</a>, a winery based out of Long Eddy, New York that uses grapes from sustainably managed Finger Lakes vineyards. The winemakers will be on hand to discuss the process of natural wines. The paired dinner is $85 (plus tax and gratuity) per person; email farmreservations@gmail.com to reserve. </p>
+
+<p>If tequila&apos;s more to your taste, head to Tom Colicchio&apos;s <a href="https://web.archive.org/web/20170322183030/http://www.craftbarnyc.com/">Craftbar</a> on Friday. The restaurant will serve a four-course Mexican menu with each dish paired with either a mezcal or tequila cocktail. Pork Liver Pate with parsnip and sunchoke chips comes with a Puebla York cocktail made with El Buho Mezcal, tamarind and lime; and the Al Pastor Pork Belly pairs with the Herb Albert, a cocktail made with Don Julio Blanco, Illegal Mezcal, oregano, salt, jalapeno and lime. Seatings cost $95 per person; email astone@craftedhospitality.com to reserve a seat.</p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="032017lobplc.jpg" src="https://web.archive.org/web/20170322183030im_/http://gothamist.com/attachments/nyc_nellcasey/032017lobplc.jpg" width="640" height="427"> <br> <i> Lobster Place (<a href="https://web.archive.org/web/20170322183030/https://www.facebook.com/TheLobsterPlaceNYC/photos/a.115464871825903.6969.108959639143093/115477921824598/?type=3&amp;theater">Facebook</a>)</i></div> <p></p>
+
+<p>Taking cues from the &quot;early morning sushi offerings at Tskuiji fish market in Tokyo,&quot; <a href="https://web.archive.org/web/20170322183030/http://lobsterplace.com/pages/market-welcome">The Lobster Place</a> inside Chelsea Market now offers a breakfast omakase daily from 9:30 a.m. until 9 p.m. Begin the day with a <a href="https://web.archive.org/web/20170322183030/https://cdn.shopify.com/s/files/1/0434/4217/files/Omakase_Menu_1.6.17.pdf?16251916063888663061">choice</a> of courses priced between $38 and $68. The smallest meal still includes eight nigiri and a maki roll, while the largest includes soup, an appetizer, 12 pieces nigiri and a hand roll. </p>					
+										
+									
+				

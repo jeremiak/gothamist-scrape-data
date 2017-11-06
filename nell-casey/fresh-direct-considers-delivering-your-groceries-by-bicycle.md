@@ -1,0 +1,17 @@
+---
+author: Nell Casey
+date: Aug 29, 2012 11:42 am
+title: FreshDirect Considers Delivering Your Groceries By Bicycle
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="082912_freshdirect.jpg" src="https://web.archive.org/web/20150505135221im_/http://gothamist.com/attachments/nyc_nellcasey/082912_freshdirect.jpg" width="640" height="428"> <br> <i> META: FreshDirect truck blocks bike lane meant for FreshDirect bicycles. (<a href="https://web.archive.org/web/20150505135221/http://www.flickr.com/photos/paolomastrangelo/3989061330/in/photostream/">Paolo Mastrangelo</a>&apos;s flickr)</i></div> <p></p>
+
+<p>Soon we may not be seeing as many FreshDirect trucks rumbling around town, as the vendor is considering a radical new delivery method: the good, old-fashioned bicycle. Although the company declined to <a href="https://web.archive.org/web/20150505135221/http://www.dnainfo.com/new-york/20120829/midtown/freshdirect-deliver-food-on-bicycles">officially comment to DNAInfo</a>, workers recently attended a Transportation Department forum to learn more about the city&apos;s bicycle laws, a key to avoiding <a href="https://web.archive.org/web/20150505135221/http://gothamist.com/2012/07/13/hot_food_shouldnt_cost_lives_dot_wi.php#photo-1">aggressive ticketing by the DOT</a>. The grocer also hinted, &quot;We are constantly looking for ways to go green so we&apos;re open to this idea as well as others.&quot;</p>
+
+<p>It appears FreshDirect has been taking to heart complaints from community members about delivery trucks polluting their neighborhoods with fumes and noise and taking up valuable parking spaces. &quot;Basically, they&apos;re using the streets as their office, but they&apos;re not paying the City of New York for that,&quot; Andrew Albert, transportation committee chairman of Upper West Side&apos;s CB 7, <a href="https://web.archive.org/web/20150505135221/http://www.dnainfo.com/new-york/20120829/midtown/freshdirect-deliver-food-on-bicycles">told DNAInfo</a>. Earlier this year, FreshDirect was also <a href="https://web.archive.org/web/20150505135221/http://gothamist.com/2012/02/13/fresh_directs_sweet_govt_subsidies.php">criticized by local groups in the Bronx</a> for <a href="https://web.archive.org/web/20150505135221/http://gothamist.com/2012/02/07/millions_in_ny_money_keeps_fresh_di.php">accepting large government subsides</a> while blocking unions, not hiring local workers and not servicing the areas around their new facility. The company later <a href="https://web.archive.org/web/20150505135221/http://gothamist.com/2012/05/18/fresh_direct_fine_well_deliver_to_t.php">agreed to fix some of the issues</a> by extending delivery to all areas of the Bronx and accepting food stamps. </p>
+
+<p>It remains to be seen just how far-reaching this new cycling campaign will go and whether implementing said system will be feasible in a city of this size. For example, would bikes only be available for small orders? Will there be an extra delivery fee for this &quot;green&quot; service? Will bicycles be fitted with climate-controlled boxes for perishable items? And perhaps, most importantly, will FreshDirect&apos;s remaining trucks stop blocking the bike lanes?</p>					
+										
+									
+				

@@ -1,0 +1,17 @@
+---
+author: Jen Chung
+date: Mar 6, 2010 7:37 pm
+title: ABC 7, Cablevision Talks Deadline At Midnight
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:240px; "> <img alt="2010_03_oscars2.jpg" src="https://web.archive.org/web/20150422214523im_/http://gothamist.com/attachments/jen/2010_03_oscars2.jpg" width="240" height="176"> <br> <i>Oscar statues getting ready for tomorrow (Photo:AP)</i></div> Disney and Cablevision still haven&apos;t come to an agreement about the fate of WABC 7.  The two have been publicly sparring about fees: Disney, which owns WABC 7, wants $40 million to carry the local network from Cablevision. But the cable company is balking,  so Disney says it will pull WABC 7 programming from three million Cablevision homes and businesses at midnight tonight!*<p></p>
+
+<p>Cablevision has argued that it already pays Disney over $200 million in fees, but Disney says that those fees are for the Disney channel and ESPN, not WABC 7, pointing out that Cablevision <a href="https://web.archive.org/web/20150422214523/http://www.google.com/hostednews/ap/article/ALeqM5gpO3sK4oKoOHa2VRJOSE_ytKplpAD9E974Q80">charges customers $18/month</a> for basic broadcast.  Cablevision also notes that Disney is giving away ABC programming for free over the air and on its website.  </p>
+
+<p>The two sides <a href="https://web.archive.org/web/20150422214523/http://latimesblogs.latimes.com/entertainmentnewsbuzz/2010/03/disney-and-cablevision-battle-gets-uglier-as-deadline-nears-.html">have been blaming each other</a>: WABC 7 general manager Rebecca Campbell said, &quot;We can no longer sit back and allow Cablevision to use our shows for free while they continue to charge their customers for them...  If Cablevision CEO James Dolan and the Dolan family dynasty have any regard at all for the millions of customers who pay hard-earned dollars for their service, they will order their troops to stop slinging mud and start cutting a deal,&quot; while Cablevision EVP of communications Charles Schueler said, &quot;There is one man who is going to decide whether New York gets to see the Oscars, and that&apos;s Disney President and CEO Bob Iger. We call on Bob Iger to stop holding his own viewers hostage, end his threats to pull the plug on ABC at midnight and instead work with us to reach a fair agreement.&quot;</p>
+
+<p>As for the *, the <a href="https://web.archive.org/web/20150422214523/http://mediadecoder.blogs.nytimes.com/2010/03/06/clock-ticking-on-disney-cablevision-talks/">Media Decoder explains</a> that  Disney&apos;s threat to leave Cablevision customers without the Oscars tomorrow night comes with a &quot;big caveat here: Disputes like this one usually come down to the wire, and programming is rarely interrupted. It is possible that the two parties will keep talking after midnight, and decide to extend their self-imposed deadline.&quot; In the meantime, WABC 7 has <a href="https://web.archive.org/web/20150422214523/http://abclocal.go.com/wabc/story?section=resources/tv_listings&amp;id=7238199">tips for Cablevision subscribers</a> to get ABC programming&#x2014;you may want to get an antenna!</p>					
+										
+									
+				

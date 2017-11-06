@@ -1,0 +1,11 @@
+---
+author: Jen Carlson
+date: July 20, 2010  1:00 PM
+title: Brooklyn Residents Rally Against Movie Noise
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:300px; "> <img alt="php7S9a87AM.jpg" src="https://web.archive.org/web/20111118045442im_/http://gothamist.com/attachments/arts_jen/php7S9a87AM.jpg" width="300" height="195"> <br> <i><span class="photo_caption">Photo via <a href="https://web.archive.org/web/20111118045442/http://www.flickr.com/photos/linus/2701716550/">Linus Gelber&apos;s flickr</a></span></i></div> This year&apos;s <a href="https://web.archive.org/web/20111118045442/http://www.brooklynbridgepark.org/go/programs-/-events/movies-with-a-view">Movies With A View</a> series kicked off on July 8th with a screening of <em>Annie Hall</em>, and after last Thursday&apos;s screening of <em>Monsters vs. Aliens</em>, Brooklyn Heights residents had enough of the ongoing summer event. <p></p>
+
+<p>According to <a href="https://web.archive.org/web/20111118045442/http://www.brooklynpaper.com/stories/33/30/bh_noisyheights_2010_07_23_bk.html">the Brooklyn Paper</a>, locals preferred the old site in DUMBO (pictured) over the new one on Pier 1. Community Board 2 member Rob Perris told the paper, &#x201C;There were swift and numerous complaints after this first event. I think what we have to find out is how the sound travels, and how it is best contained.&#x201D;</p>
+
+<p>Allegedly Park officials have written a letter warning that there would be more amplified events in the park this summer, but did note that they&apos;ll &quot;fine-tune the presentation.&#x201D; One possible solution is turning the speakers toward the East River, but how about bringing in some old <a href="https://web.archive.org/web/20111118045442/http://homebuilding.thefuntimesguide.com/2008/01/retro_drive_in_movie_speakers.php">drive-in movie</a> technology? Or maybe just bring back <a href="https://web.archive.org/web/20111118045442/http://gothamist.com/2010/04/30/choppers.php">the helicopters</a> to distract the locals with.</p>

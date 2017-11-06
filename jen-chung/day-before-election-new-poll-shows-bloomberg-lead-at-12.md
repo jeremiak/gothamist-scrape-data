@@ -1,0 +1,17 @@
+---
+author: Jen Chung
+date: Nov 2, 2009 3:37 pm
+title: Day Before Election, New Poll Shows Bloomberg Lead At 12
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:250px; "> <img alt="2009_11_dianae.jpg" src="https://web.archive.org/web/20160306170920im_/http://gothamist.com/attachments/jen/2009_11_dianae.jpg" width="250" height="201"> <br> <i>Photograph of Mayor Bloomberg&apos;s girlfriend Diana Taylor showing off her earrings by <a href="https://web.archive.org/web/20160306170920/http://www.observer.com/2009/politics/morning-read-bloomberg-and-thompson-campaign-lopez-sends-holy-robocall">Azi Paybarah</a></i></div> Tomorrow is Election Day&#x2014;make sure you know <a href="https://web.archive.org/web/20160306170920/http://vote.nyc.ny.us/">where to vote</a> and if you still need help with your choices, Gotham Gazette&apos;s <a href="https://web.archive.org/web/20160306170920/http://gothamgazette.com/article/issueoftheweek/20091102/200/3082">Guide For The Last Minute Voter</a> is a good resource&#x2014;and the big election is the mayoral race between Mayor Michael Bloomberg and City Comptroller William Thompson. Both candidates crammed their<a href="https://web.archive.org/web/20160306170920/http://www.nytimes.com/2009/11/02/nyregion/02mayor.html?partner=rss&amp;emc=rss"> weekend full of campaign stops</a>, phone calls, ads, etc., because turnout is the wild card.<p></p>
+
+<p>The <a href="https://web.archive.org/web/20160306170920/http://www.nytimes.com/2009/11/02/nyregion/02mayor.html?partner=rss&amp;emc=rss">NY Times reports</a>, &quot;Voters have shown little interest in the race, which has seemed lopsided from the start, because of Mr. Bloomberg&#x2019;s colossal financial advantage and lavish campaign spending. But the widespread apathy has injected uncertainty into the race, and both campaigns said the outcome would depend, to an unusually large degree, on which side could persuade its supporters to show up on Tuesday.&quot;</p>
+
+<p>In fact, a new Quinnipiac poll now shows Bloomberg leading with 50% among likely voters, to  Thompson&apos;s 38%&#x2014;last week, <a href="https://web.archive.org/web/20160306170920/http://gothamist.com/2009/10/26/quinnipiac_poll_bloomberg_leads_tho_1.php">he led 53% to Thompson&apos;s 38%</a>.  Bloomberg campaign spokesman Howard Wolfson <a href="https://web.archive.org/web/20160306170920/http://www.observer.com/2009/politics/poll-bloombergs-lead-slightly-smaller-still-not-small">said</a>, &quot;Would you rather be up 12 or down 12?...Look, it&apos;s an election. Somebody&apos;s got to win, somebody&apos;s got to lose.&quot;  The Observer&apos;s Azi Paybarah adds, &quot;When asked why they went down slightly from the last poll, and if that suggested anything in the campaign strategy should change, Wolfson sighed audibly and looked at his watch, indicating the race was in its final hours and that their lead would hold.&quot;</p>
+
+<p>Thompson&apos;s campaign issued a statement saying, &quot;This is further proof that Bill is surging. New Yorkers are getting ready for an upset. Mike is stuck at 50% and for a guy spending close to a million dollars a day this poll is pretty shocking. More and more New Yorkers are making it clear that they are ready for a change.&quot;</p>					
+										
+									
+				

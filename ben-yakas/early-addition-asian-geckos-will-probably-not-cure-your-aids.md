@@ -1,0 +1,21 @@
+---
+author: Ben Yakas
+date: November 16, 2011 12:41 PM
+title: Early Addition: Asian Geckos Will Probably Not Cure Your AIDS
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="111611ea.jpg" src="https://web.archive.org/web/20120518015036im_/http://gothamist.com/attachments/byakas/111611ea.jpg" width="640" height="426"> <br> <i><a href="https://web.archive.org/web/20120518015036/http://www.flickr.com/photos/jpinlac/6349799052/&quot;&gt;agentalovesagentj" s="" flickr<="" a=""></a></i></div><a href="https://web.archive.org/web/20120518015036/http://www.flickr.com/photos/jpinlac/6349799052/&quot;&gt;agentalovesagentj" s="" flickr<="" a=""> <p></p>
+
+</a><ul><a href="https://web.archive.org/web/20120518015036/http://www.flickr.com/photos/jpinlac/6349799052/&quot;&gt;agentalovesagentj" s="" flickr<="" a="">
+	</a><li><a href="https://web.archive.org/web/20120518015036/http://www.flickr.com/photos/jpinlac/6349799052/&quot;&gt;agentalovesagentj" s="" flickr<="" a="">Follow Gothamist </a><a href="https://web.archive.org/web/20120518015036/http://twitter.com/#!/gothamist">on Twitter</a> and <a href="https://web.archive.org/web/20120518015036/http://www.facebook.com/pages/Gothamist/13927915491">like us on Facebook</a>.  You can also get the top stories mailed to you&#x2014;<a href="https://web.archive.org/web/20120518015036/http://eepurl.com/Mu4T">sign up here</a>.</li>
+	<li>A Brooklyn man <a href="https://web.archive.org/web/20120518015036/http://www.nydailynews.com/new-york/brooklyn/police-investigating-fatal-sheepshead-bay-shooting-man-gunned-basement-tuesday-article-1.978103">was shot in the head</a> in his Sheepshead Bay apartment under mysterious circumstances.</li>
+	<li>Benetton <a href="https://web.archive.org/web/20120518015036/http://copyranter.blogspot.com/2011/11/benetton-unveils-new-campaign-in-italy.html">has released a new ad campaign</a> in Italy featuring President Obama kissing Chinese leader Hu Jintao.</li>
+	<li>Watch what may be (hopefully not) <a href="https://web.archive.org/web/20120518015036/http://pitchfork.com/news/44639-watch-sonic-youths-final-show/">the last Sonic Youth concert ever.</a></li>
+	<li>No, Asian geckos will probably not <a href="https://web.archive.org/web/20120518015036/http://www.nydailynews.com/life-style/health/wild-claims-asian-geckos-cure-aids-dangerous-species-conservation-group-article-1.978296">cure your AIDS.</a> </li>
+	<li>The paternity lawsuit against Justin Bieber <a href="https://web.archive.org/web/20120518015036/http://www.nydailynews.com/gossip/justin-bieber-paternity-suit-dropped-accuser-mariah-yeater-hopes-settle-court-article-1.978316">has been withdrawn</a> because of death threats.</li>
+<li><a href="https://web.archive.org/web/20120518015036/http://shanghaiist.com/2011/11/16/breaking_at_least_17_preschoolers_d.php">At least 17 preschoolers died</a> in an overcrowded minibus accident in Western China.</li>
+	<li>Chinese artist Ai Weiwei feels robbed <a href="https://web.archive.org/web/20120518015036/http://www.nydailynews.com/news/world/chinese-artist-ai-weiwei-i-feel-i-robbed-paying-1-3-million-government-tax-dispute-article-1.978290">for paying taxes.</a></li>
+	<li>Google&apos;s new music-download store <a href="https://web.archive.org/web/20120518015036/http://www.hollywoodreporter.com/news/google-music-four-things-we-262313">is launching later today.</a></li>
+	<li>The city teachers union <a href="https://web.archive.org/web/20120518015036/http://www.nypost.com/p/news/local/court_smacks_union_ZjXc0770dxz2A35QXMUIiO?CMP=OTC-rss&amp;FEEDNAME=">lost a bid to block the Department of Education</a> from letting the public know how classroom teachers are performing.</li>
+	<li>And finally, <a href="https://web.archive.org/web/20120518015036/http://thedailywh.at/2011/11/16/metaphor-for-life-of-the-day-2/">this video of a woman struggling</a> to climb an escalator the wrong way is a metaphor for life.</li>
+</ul>

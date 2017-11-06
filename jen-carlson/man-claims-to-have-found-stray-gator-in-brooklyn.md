@@ -1,0 +1,11 @@
+---
+author: Jen Carlson
+date: September 14, 2010 11:04 AM
+title: Man Claims To Have Found Stray Gator In Brooklyn
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:300px; "> <img alt="gowanusgators.jpg" src="https://web.archive.org/web/20110623150426im_/http://gothamist.com/attachments/arts_jen/gowanusgators.jpg" width="300" height="228"> <br> <i><span class="photo_caption">Original photo via <a href="https://web.archive.org/web/20110623150426/http://www.flickr.com/photos/listenmissy/416965088/">Listen Missy!&apos;s flickr</a></span></i></div> The gator <a href="https://web.archive.org/web/20110623150426/http://gothamist.com/2010/08/23/gator_in_the_sewers_gator_in_the_se.php">spotted in Astoria</a> recently, which actually turned out being an 18-inch long caiman, has been enjoying retirement <a href="https://web.archive.org/web/20110623150426/http://gothamist.com/2010/08/24/gator.php">in the Poconos</a>&#x2014;but he left some friends behind, it seems. A 2-foot long baby alligator was spotted on the streets of Brooklyn over the weekend, reports <a href="https://web.archive.org/web/20110623150426/http://www.nydailynews.com/ny_local/2010/09/14/2010-09-14_man_brings_cops_toothy_2foot_reptile_after_he_found_it_in_park_gotcha_lil_gator_.html">the Daily News</a>, and was brought in to the 88th Precinct in Clinton Hill.<p></p>
+
+<p>The man who found the gator says he&apos;s a good Samaritan, but authorities aren&apos;t buying his story. He said he happened upon the gator in a Brooklyn park&#x2014;but police believe this was his own, illegal pet, that got too big for him to handle. </p>
+
+<p>Mike Pastore of the Animal Care &amp; Control of New York City says the gator is nothing to be messed with, and that &quot;he has teeth wrapped around his whole head. He can definitely do some damage to someone.&quot; As much as we&apos;d like to believe in <a href="https://web.archive.org/web/20110623150426/http://gothamist.com/2009/11/23/urban_legend_uncovered_sewer_alliga.php">the legend of sewer gators</a>, we&apos;re going to have to agree with The Man on this one... <em>unless</em> there are a community of gators living in the Gowanus Canal prepping for their takeover of the human race.</p>

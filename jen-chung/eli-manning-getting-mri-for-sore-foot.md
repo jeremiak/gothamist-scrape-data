@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: October  5, 2009  2:41 PM
+title: Eli Manning Getting MRI For Sore Foot
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2009_10_elimfoot.jpg" src="https://web.archive.org/web/20110629203932im_/http://gothamist.com/attachments/jen/2009_10_elimfoot.jpg" width="75" height="109" class="image-right"> </span>Uh-oh?  Giants quarterback Eli Manning will be <a href="https://web.archive.org/web/20110629203932/http://www.nydailynews.com/sports/football/giants/2009/10/05/2009-10-05_eli_swollen.html">getting an MRI</a> on his swollen and sore foot. It was a non-contact injury; the Daily News says it occurred during the 4th quarter of the Giants&apos; <a href="https://web.archive.org/web/20110629203932/http://gothamist.com/2009/10/05/last_nights_action_win_win_win_loss.php">4th victory</a> this season, when he &quot;planted his right leg, then hopped, then completed his throw, and immediately dropped to the ground.&quot;  Manning <a href="https://web.archive.org/web/20110629203932/http://sports.espn.go.com/nfl/news/story?id=4533731">said</a>, &quot;I don&apos;t think it&apos;s nothing to be worried about. It will be getting rid of the soreness,&quot; and was getting ice and stim treatment for it. Still, his status for Sunday&apos;s game against the Raiders depends on how fast it heels.  </p>

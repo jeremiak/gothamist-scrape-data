@@ -1,0 +1,26 @@
+---
+author: Jen Carlson
+date: Aug 26, 2015 12:15 pm
+title: Elderly Brothers Seek Crew To Help Them Sail Around The World Until They Die
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="seacaptainvollmer.jpg" src="https://web.archive.org/web/20160305141428im_/http://gothamist.com/attachments/arts_jen/seacaptainvollmer.jpg" width="640" height="441" class="image-none"> </span><br>
+<span class="photo_caption">via <a href="https://web.archive.org/web/20160305141428/https://twitter.com/moneyries/status/629633471128973312/photo/1">Brian Ries</a></span></p>
+
+<p>&quot;A longtime Brooklyn contractor is assembling a 12-person paid crew for a two-year excursion around the world. He will be taking The Peacemaker, a 158-foot, three-masted barquentine, on the adventure of a lifetime.&quot; These words appeared next to a photo of a gorgeous sailboat <a href="https://web.archive.org/web/20160305141428/https://twitter.com/moneyries/status/629633471128973312/photo/1">on flyers</a> that were hung around New York City earlier this month. The flyers also stated the captain of this trip was now &quot;hiring mature, dedicated, compassionate individuals to come together as a team to fulfill the following rolls: mechanic, deck hand, cook, nutritionist, personal trainer, aquaponic gardener, IT/tech, photographer, videographer and more.&quot; This all sounds like the plot to a Wes Anderson film, but it&apos;s real life, and the story has just begun.</p>
+
+<p>Van Vollmer and his twin brother Carl plan to embark on this journey from Florida, hitting up the Panama Canal, Hawaii, Australia, the Suez Canal, and the Mediterranean Sea, before, as the flyer declares, returning to New York. But <a href="patch.com/new-york/williamsburg/last-voyage-vollmer-twins">a Patch article</a> revealed that it would just be the boat and the crew that would return&#x2014;&#x201C;I want to go down a chute into the water and swim with the fishes for eternity,&quot; Van told the outlet. His brother was more blunt: &#x201C;We want to spend the rest of our lives on this boat. We want to get thrown overboard.&#x201D;</p>
+
+<blockquote>The itinerary will include hopping the Greek Isles, learning foreign languages, scuba diving off the Great Barrier Reef and searching for gold in sunken Spanish galleons. And somewhere along the way, years from now, if all goes according to plan, the crew of the Peacemaker will be called on to perform a solemn task: that of sliding the Vollmer twins&#x2019; bodies into the ocean.</blockquote>
+
+<p>The Vollmers, who were priced out of their long-time homes in Williamsburg and Greenpoint, currently live on a boat docked in the Bronx, but this isn&apos;t the boat they want to take on their final journey. The Peacemaker is the sailboat pictured on the flyer, and the asking price is around $3 million. The ship is being sold off by <a href="https://web.archive.org/web/20160305141428/https://en.wikipedia.org/wiki/Twelve_Tribes_communities">the Twelve Tribes community</a>, and a rep offered this update: &#x201C;[Van] keeps telling us that the funds are going to be available any day. I don&#x2019;t know what kind of pleasure he would get out of leading us on.&#x201D; </p>
+
+<p>As far as securing the ship and setting sail by September, Carl told Patch, &#x201C;We have a separate talent than most people. We&#x2019;re problem solvers.&#x201D; The two are reportedly doing odd jobs. However, a Google search brings up <a href="https://web.archive.org/web/20160305141428/http://www.brooklynian.com/discussion/3479/van-vollmer/p1">a few</a> <a href="https://web.archive.org/web/20160305141428/http://www.brownstoner.com/blog/2005/07/general-contrac/">message boards</a> with numerous complaints about the Vollmers, circa 2005, all accusing them of being con-artists. They &quot;basically took away our last ten years savings,&quot; one man declares, another warns: &quot;Stay away from both Van and Carl Vollmer, they are bad news.&quot;</p>
+
+<p>But that was ten years ago, and it&apos;s hard not to get behind the twins&apos; dream of sailing out the rest of their lives. &#x201C;This is my swan song,&#x201D; Van told Patch, &#x201C;I have no platform on which to stand other than the fact that I&#x2019;m doing it. You can&#x2019;t have a dream come true,&#x201D; he added, &#x201C;if you don&#x2019;t have a dream.&#x201D; Maybe someone should tell them about crowdfunding? </p>
+
+<p>Simone Wilson, who wrote the Patch article and is now &quot;helping them handle the avalanche of interview requests, as a friend,&quot; passed along this comment from Van: crowdfunding is &quot;not necessary at this point, but we would consider it if the other thing doesn&#x2019;t come through. But we&#x2019;re pretty sure it&#x2019;s going to come through.&quot; Wilson added, &quot;He also said he doesn&apos;t know how he could possibly raise $3 million when &apos;our cause is to make us happy.&apos;&quot;</p>					
+										
+									
+				

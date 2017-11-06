@@ -1,0 +1,15 @@
+---
+author: Ben Yakas
+date: November 19, 2011 12:15 PM
+title: Brooklyn Porn Store Clerk Killed During Apparent Botched Robbery
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="111911adult.jpg" src="https://web.archive.org/web/20111120171814im_/http://gothamist.com/attachments/byakas/111911adult.jpg" width="640" height="428"> <br> <i><a href="https://web.archive.org/web/20111120171814/http://www.shutterstock.com/cat.mhtml?lang=en&amp;search_source=search_form&amp;version=llv1&amp;anyorall=all&amp;safesearch=1&amp;searchterm=porn+store&amp;search_group=&amp;orient=&amp;search_cat=&amp;searchtermx=&amp;photographer_name=&amp;people_gender=&amp;people_age=&amp;people_ethnicity=&amp;people_number=&amp;commercial_ok=&amp;color=&amp;show_color_wheel=1#id=7010614&amp;src=a902ce423b99e45d6bf3e6db5e830e89-1-1">Shutterstock/ Karin Hildebrand Lau</a></i></div> <p></p>
+
+<p>A clerk at a Brooklyn porn shop <a href="https://web.archive.org/web/20111120171814/http://www.nydailynews.com/new-york/brooklyn-sex-shop-worker-killed-botched-robbery-cops-search-suspect-foot-air-article-1.980101">was beaten to death early this morning</a> in what cops believe was a botched robbery. The clerk, who <a href="https://web.archive.org/web/20111120171814/http://www.nypost.com/p/news/local/brooklyn/klyn_porn_store_clerk_beaten_to_MKFWyMJbvvN12nLnU62VwJ">the Post identified as</a> Nemal Randunu and who was apparently in his 50s, was bludgeoned to death around 12:30 a.m. at  Video Xcitement Inc. on 3rd Avenue near 25th Street. &#x201C;I don&apos;t know what happened. The police are still looking into it, but it might have been a robbery,&#x201D; the owner of the 24-hour Sunset Park sex shop told the Daily News.</p>
+
+<p>Authorities are now searching for a Hispanic male suspect, who they say came to Video Xcitement to rob the store. It&apos;s unclear what led to Randunu being clobbered on the head though&#x2014;he died inside the porn shop from massive head trauma, NYPD sources said. Police added that the suspect left the store with a black garbage bag stuffed with an unidentified object. &#x201C;It&#x2019;s very sad. He&#x2019;s a good guy. He came from Sri Lanka to make a living. He worked five or six nights a week here,&#x201D; said Vertino Rodriguez, who works in a liquor store across the street. </p>
+
+<p><a href="https://web.archive.org/web/20111120171814/https://twitter.com/#!/Anakela21/status/137934577103667201">Some are upset</a> at the way the Daily News has covered the story thus far. One reader wrote us saying they were &quot;disgusted&quot; that the lede for their story refers to the victim as &quot;an over-the-hill porn store clerk.&quot; You can see a screenshot of the homepage lede below.</p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="111911dailynews.jpg" src="https://web.archive.org/web/20111120171814im_/http://gothamist.com/attachments/byakas/111911dailynews.jpg" width="640" height="310" class="image-none"> </span></p>

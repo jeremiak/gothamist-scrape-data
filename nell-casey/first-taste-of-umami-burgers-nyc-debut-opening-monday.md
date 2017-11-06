@@ -1,0 +1,27 @@
+---
+author: Nell Casey
+date: Jul 23, 2013 3:32 pm
+title: First Taste Of Umami Burger's NYC Debut, Opening Monday
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="072313umami1.jpg" src="https://web.archive.org/web/20150430033820im_/http://gothamist.com/attachments/nyc_nellcasey/072313umami1.jpg" width="640" height="427"> <br> <i> <span class="photo_caption">Truffle Burger (Nell Casey/Gothamist)</span></i></div> <p></p>
+
+<p>After months of anticipation from burger hounds, the wait for California chain <a href="https://web.archive.org/web/20150430033820/http://www.umami.com/">Umami Burger&apos;s</a> <a href="https://web.archive.org/web/20150430033820/http://gothamist.com/2012/10/24/californias_popular_umami_burger_co.php">first New York City location</a> finally comes to an end when the ridiculously popular chain opens its doors on 6th Avenue in Greenwich Village next Monday. It&apos;s the first of three outposts set to open here in the near future, with another location coming to Williamsburg sometime early next year and a third to Brookfield Place soon after. As with other locations, the newest Umami was designed to reflect the area, including a giant vintage photograph of the arch in Washington Square Park. The rustic, borderline industrial decor belies the more nuanced flavors of the food, which we tried at a press preview this afternoon.</p>
+
+<p>First, a little primer about the burgers, since that&apos;s what we&apos;re all in this for. Umami Burger aims to capture, of course, <em>umami</em>, the &quot;fifth taste,&quot; which some translate to &quot;savory.&quot; Each of their burgers begins with a 6 ounce patty, ground fresh daily from all natural beef that&apos;s delivered to the restaurants each morning. It&apos;s a coarsely ground patty, loosely packed, that threatens&#x2014;in a good way&#x2014;to fall apart with each bite. Depending on the burger, umami-rich toppings, spices and condiments are added, each getting a slathering of Master Sauce before being placed between two griddled slices of slightly-sweet bun. This isn&apos;t a custom burger bar; you aren&apos;t allowed any substitutions&#x2014;though items can be removed, if so desired&#x2014;and burgers come cooked to medium rare unless otherwise specified. </p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="072313umami2.jpg" src="https://web.archive.org/web/20150430033820im_/http://gothamist.com/attachments/nyc_nellcasey/072313umami2.jpg" width="640" height="427"> <br> <i> <span class="photo_caption">The Original (Nell Casey/Gothamist)</span></i></div> <p></p>
+
+<p>It all begins with The Original ($12), topped with a Parmesan crisp, shiitake mushroom, roasted tomato, caramelized onions and house ketchup. It&apos;s a good burger, no doubt, with a hint of sweetness and a strong, mushroomy flavor. Next, the Greenwich Village-specific Five Spice Burger, with a patty made from whole fresh duck, layered onto the bun with sauteed parsnip, Chinese Five Spice, Madagascar Pepper, Peach/Apple Chutney and Garlic Aioli. It&apos;s got a peppery kick, a nice fruity essence and great duck flavor. But it&apos;s the Truffle Burger ($12.50) that really blows the lid off this burger joint. A flavor bomb of roasted garlic aioli, house truffle cheese and a truffle glaze that, even after eating burger upon burger, we found ourselves sneaking <em>just one more bite</em>. </p>
+
+<p>The restaurant offers one substitution in the form of a portobello mushroom cap in lieu of a meat patty. They also offer an Ahi Tuna Burger ($15), Earth Burger ($12) and The Greenbird ($12.50), made with Shelton Farms turkey. Can&apos;t have a burger without fries, which you can order unadorned ($3.5) or you can Truffle &apos;em (+$2) with truffle cheese and truffle salt&#x2014;you want this&#x2014;or Make &apos;em manly (+$3) with beer-cheddar, bacon and onion strings. You also want their Cheesy Tots (a special item off the &quot;secret menu&quot;): enormous &quot;tots&quot; made with tender mashed potato and cheese, fried &apos;til crispy on the outside and gooey on the inside.</p>
+
+<p>Two full bars occupy the bi-level space, pouring out eight tap beers (Allagash White, Sixpoint Sweet Action), 17 bottled brews and a decent selection of red and white wines by the glass or bottle. Bartenders also mix up 17 cocktails&#x2014;more than any other Umami to date&#x2014;like the coconut-y &quot;Village Mojito,&quot; their nod to the famed restaurant that brought us the Bloody Mary with &quot;21-U Club,&quot; and the ridiculously potent&#x2014;though wrongly named for the NYU Mascot&#x2014;The Royals. </p>
+
+<p>So does Umami Burger live up to the hype? Should you wait on the inevitable around-the-block lines that will form up on Monday? Will the umami powerhouse eclipse <a href="https://web.archive.org/web/20150430033820/http://gothamist.com/tags/cronut">the cronut</a>? Yes. Maybe wait a month. And good lord we hope so. </p>
+
+<p><em>432 6th Avenue at West 10th Street (212) 677-8626, <a href="https://web.archive.org/web/20150430033820/http://www.umami.com/">umami.com</a></em></p>					
+										
+									
+				

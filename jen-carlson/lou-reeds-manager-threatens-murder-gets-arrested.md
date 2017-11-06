@@ -1,0 +1,11 @@
+---
+author: Jen Carlson
+date: March 22, 2011 12:22 PM
+title: Lou Reed's Manager Threatens Murder, Gets Arrested
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-right" style=" width:365px; "> <img alt="reedsarig03111.jpg" src="https://web.archive.org/web/20130611081641im_/http://gothamist.com/attachments/arts_jen/reedsarig03111.jpg" width="365" height="242"> <br> <i><span class="photo_caption">Photo of Sarig and Reed via <a href="https://web.archive.org/web/20130611081641/http://www.maxskansascity.com/view/?post=1206">MKC</a></span></i></div> Grumpy old man Lou Reed has a grumpy old manager, it would seem. According to <a href="https://web.archive.org/web/20130611081641/http://www.nydailynews.com/news/ny_crime/2011/03/22/2011-03-22_rockers_manager_threatens_headhunters_skull.html?r=news&amp;utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+nydnrss%2Fnews+%28News%29&amp;utm_content=Google+Reader">the Daily News</a>, his manager Tom Sarig was arrested after <em>threatening to kill</em> a corporate headhunter, Adrian Smith. Allegedly Sarig told Smith, &quot;I&apos;m going to have my guys kill you. Your head is going to be in a bag.&quot; (Make this threat more amusing by picturing Nico and the Factory folks when picturing &quot;his guys.&quot;) The threatening phone call came after Smith attempted to <a href="https://web.archive.org/web/20130611081641/http://www.nme.com/news/lou-reed/55496">collect on a finder&apos;s fee</a> for getting Reed an assistant, which would be 20% of the assistant&apos;s annual $70,000.<p></p>
+
+<p>An $11,500 payment has already been made, but <a href="https://web.archive.org/web/20130611081641/http://blogs.villagevoice.com/runninscared/2011/03/lou_reeds_manag.php">the Village Voice reports</a> that Smith says he&apos;s not dropping it; &quot;He threatened my life. Why should I drop it? I would also be satisfied if I got an apology.&quot;</p>
+
+<p>Currently Sarig awaiting his arraignment in Manhattan Criminal Court on Monday, and he could face a year behind bars. Until then, we ponder... does Team Lou Reed have hitmen?</p>

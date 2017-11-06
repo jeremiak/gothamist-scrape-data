@@ -1,0 +1,9 @@
+---
+author: Jen Carlson
+date: October  5, 2011  6:31 PM
+title: Deer Found Bound And Injured In Brooklyn Waters
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-right" style=" width:300px; "> <img alt="saddeer1011.jpg" src="https://web.archive.org/web/20111007022126im_/http://gothamist.com/attachments/arts_jen/saddeer1011.jpg" width="300" height="277"> <br> <i>Photo by PJ Landers</i></div> Earlier today we got an alert about a few deer being rescued from the water under the Verrazano-Narrows Bridge... but it turns out the animals weren&apos;t taking a little pleasure swim, after all. Tragically, one of the deer was found tied up under the Brooklyn side of the bridge, with its legs bound, according to <a href="https://web.archive.org/web/20111007022126/http://cityroom.blogs.nytimes.com/2011/10/05/deer-are-found-on-brooklyn-coast-in-disturbing-circumstances/?smid=tw-nytmetro&amp;seid=auto&amp;pagewanted=all">CityRoom</a>. Two other deer were nearby on the rocks, and reported to the police via a 911 call. The officers on the scene &quot;said they were likely to be turned over to Animal Care and Control.&quot;<p></p>
+
+<p>Earlier in the day another injured deer was found &quot;tangled in some barbed wire... and had to be euthanized&quot;&#x2014;it was also discovered near the bridge, though it&apos;s unclear if the incidents were related. A Bay Ridge man <a href="https://web.archive.org/web/20111007022126/http://www.homereporternews.com/article_176b1ab0-ef7c-11e0-81c3-001cc4c03286.html">who witnessed some of the scene</a> said &quot;one deer climbed up and got its head caught in between the railing between the bike path and the water,&quot; which is pictured here :(</p>

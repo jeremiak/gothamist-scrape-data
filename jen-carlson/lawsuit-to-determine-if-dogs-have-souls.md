@@ -1,0 +1,21 @@
+---
+author: Jen Carlson
+date: January  4, 2012  2:35 PM
+title: Lawsuit To Determine If Dogs Have Souls
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="buckley0112soul.jpg" src="https://web.archive.org/web/20120119082754im_/http://gothamist.com/attachments/arts_jen/buckley0112soul.jpg" width="640" height="426" class="image-none"> </span><br>
+<span class="photo_caption">Incontrovertible evidence in the form of one Buckley Singh. (Photo by Amrit Singh)</span></p>
+
+<p>Do puppies have souls? There is probably a Buzzfeed photolist showing 50 puppies with souls somewhere, but now a more definitive answer will be handed down from the courts, thanks to a new lawsuit just filed right here in New York City.</p>
+
+<p>According to <a href="https://web.archive.org/web/20120119082754/http://www.nydailynews.com/new-york/pet-owner-lawsuit-asks-manhattan-judge-rule-dog-a-soul-article-1.1000560">the Daily News</a>, dog owner Elena Zakharova contends that pets&#x2014;specifically her dog Umka, who under state law is considered &quot;property&quot;&#x2014;can feel love and pain. So when an Upper East Side pet store called Raising Rover sold her a busted Brussels Griffon with bad knees and bum hips, she filed suit on behalf of her pup, saying the shop is liable for her dog&apos;s pain and suffering. Her lawyer says, &#x201C;Pets must be recognized as living souls, not inanimate property. Umka feels love and pain like any human being whose pain and suffering would be recognized in a court.&#x201D;</p>
+
+<p>Zakharova also wants compensation for her vet bills, which are currently up to $4,000. While the state has a &quot;Puppy Lemon Law&quot; (that&apos;s just depressing), it requires the buyer return the animal in 14 days, and Umka&apos;s problems didn&apos;t arise until long after that. If the judge won&apos;t recognize Umka as having a soul, then her lawyer will argue the dog &quot;should be subject to the Uniform Commercial Code that gives a buyer four years to return a defective product.&#x201D; And Zakharova isn&apos;t the only unhappy customer of Raising Rover (who claim they are under new management now), someone else has <a href="https://web.archive.org/web/20120119082754/http://www.zoeystory.com/from-the-beginning-the-abbreviated-version/">started an entire blog</a> documenting her and her pup&apos;s experience.</p>
+
+<p>Raising Rover is one of the shops investigated by the Humane Society of the U.S. <a href="https://web.archive.org/web/20120119082754/http://gothamist.com/2011/11/10/puppy_mills_1.php">last year</a>, and were found to procure their pups from particularly cruel puppy mills. The HSUS&apos;s Patrick Kwan reminded us today that, &quot;The <a href="https://web.archive.org/web/20120119082754/http://humanesociety.org/news/news/2011/11/ny_puppy_mill_110911.html">months-long investigation</a> linked more than 100 New York pet stores with Midwest puppy mills and found Raising Rover &amp; Baby purchased puppies from Brandi Cheney, who has been identified as one of the worst puppy mill operators in Missouri and linked to breeding facilities that have amassed more than 500 pages of federal Animal Welfare Act violation and enforcement records.&quot; Kwan also tells us that New Yorkers who have bought sick puppies from pet stores can submit info to The Humane Society of the United States via their <a href="https://web.archive.org/web/20120119082754/http://humanesociety.org/forms/puppy_buyer_complaint_form.html">Puppy Buyer Complaint Form</a>.</p>
+
+<p>While we wait for the gavel to come down on this decision, which was already <a href="https://web.archive.org/web/20120119082754/http://www.imdb.com/title/tt0096787/">settled in 1989</a>, what do you think?</p>
+
+<p><script type="text/javascript" charset="utf-8" src="https://web.archive.org/web/20120119082754js_/http://static.polldaddy.com/p/5812298.js"></script><br>
+<noscript><a href="https://web.archive.org/web/20120119082754/http://polldaddy.com/poll/5812298/">Do dogs have souls?</a></noscript></p>

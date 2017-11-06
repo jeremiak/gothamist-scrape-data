@@ -1,0 +1,15 @@
+---
+author: Jen Carlson
+date: August 19, 2009  8:30 AM
+title: Nick and Katharine, Two Crazy Kids
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="phpttzZ7mPM.jpg" src="https://web.archive.org/web/20120113062831im_/http://gothamist.com/attachments/arts_jen/phpttzZ7mPM.jpg" width="350" height="262" class="image-left"> </span><em>This summer two college kids, Nick and Katharine, were challenged to go see 50 free concerts in 50 days throughout the city. This of course was made more difficult by the never-ending rainy season, but they managed to reach their goal. You can read about the entire experience <a href="https://web.archive.org/web/20120113062831/http://50in50forfree.com/">on their blog</a>. Sounds fun right? Even if it is a rip-off of <a href="https://web.archive.org/web/20120113062831/http://www.100bandsin100days.com/">100 Bands in 100 Days</a>.</em> </p>
+
+<p><strong>Your 50 shows experiment just ended&#x2014;so tell us where the best place to hear music for free in NYC is? Nick:</strong> Tough question. Prospect Park is really cool, on Saturdays it feels like a county fair- a lot of people BBQ just outside the gates, but I might have to go with Stuy Town. Stuy Town has the most community vibe, whole families go there: You see people there from 8 to 88. There are no fences, it&#x2019;s a very welcoming scene. My one complaint is that the concerts at Stuy Town end too early. <br>
+ <br>
+<strong>Katharine:</strong> Honestly, venues completely depend on the kind of crowd and show that you&apos;re looking for. Everything varies so drastically from place to place, so it&apos;s mostly just on what you&apos;re in the mood for that night&#x2014;outdoors, by the water, inside, small, massive, grassy, seating or not, etc. My two favorite venues of the summer were probably the shows on the Williamsburg waterfront in East River Park and the shows at the Studio @ Webster Hall. They were very different venues (one outside on the water and one inside, intimate, dark and with a bar) and had very different shows, but they were in good locations and had a lot of different things to offer.</p>
+
+<p><strong>And the worst? N:</strong> I don&#x2019;t want to throw any venues under the bus, but when KRSone performed at Crotona Park the acoustics were terrible. You couldn&#x2019;t hear anything 50 feet from the stage.</p>
+
+<p><strong>K:</strong> I didn&apos;t have a venue that I didn&apos;t really like. There were some that were unlike any I&apos;d ever seen before (World Financial Center&apos;s Winter Garden was certainly very different, with set-up chairs and palm trees in the middle of the building) and there were some that had sound issues (Crotona Park&apos;s speakers were really weak) but none of the venues left me with a feeling like I&apos;d never want to go back again.</p>

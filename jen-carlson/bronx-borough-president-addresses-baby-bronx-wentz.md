@@ -1,0 +1,7 @@
+---
+author: Jen Carlson
+date: November 22, 2008 11:23 AM
+title: Bronx Borough President Addresses Baby Bronx Wentz
+---
+
+<p><img alt="phpBvcnxqAM.jpg" src="https://web.archive.org/web/20111124171024im_/http://gothamist.com/attachments/arts_jen/phpBvcnxqAM.jpg" width="108" height="130" class="right">Upon hearing that Ashlee Simpson and Pete Wentz <a href="https://web.archive.org/web/20111124171024/http://gothamist.com/2008/11/21/ashlee_simpson_and_pete_wentz_name.php">named their baby &quot;Bronx&quot;</a> (Bronx Mowgli Wentz, to be exact), we asked <a href="https://web.archive.org/web/20111124171024/http://bronxboropres.nyc.gov/">Bronx Borough President Adolfo Carri&#xF3;n, Jr.</a> what he thought. He told us: <strong>&#x201C;It&#x2019;s great to hear that Pete Wentz and Ashlee Simpson named their son after such a great place.  I hope baby Bronx gets the opportunity to see what a beautiful and eclectic borough he was named after.&#x201D;</strong> But just what <em>are</em> the chances of these three taking a family trip to the borough? At the very least, the MTA really should start <a href="https://web.archive.org/web/20111124171024/http://www.imageexchange.com/mvx10/engine.cgi?cid=98miS44gNHqTZp75rsOu2RRYmQ&amp;store=nytm&amp;page=default&amp;body=sku1&amp;sku=25462">making onesies</a> so they can make him look all legit.</p>

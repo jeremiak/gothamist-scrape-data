@@ -1,0 +1,18 @@
+---
+author: Jen Chung
+date: Apr 12, 2009 4:18 PM
+title: Update: Navy Seals Rescue Captain, 3 Pirates Dead
+---
+
+
+                            
+                            
+                            
+                            <p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:280px; "> <img alt="2009_04_capt.jpg" src="https://web.archive.org/web/20130928020423im_/http://gothamist.com/attachments/jen/2009_04_capt.jpg" width="280" height="239"> <br> <i>Capt. Richard Phillips, right, stands with U.S. Navy Cmdr. Frank Castellano after the rescue</i></div> <b>Update</b>: Maersk Alabama container ship Captain Richard Phillips was rescued by Navy Seals.  <a href="https://web.archive.org/web/20130928020423/http://www.cnn.com/2009/WORLD/africa/04/12/somalia.pirates/index.html">CNN reports</a>, &quot;The American cargo ship captain held hostage by pirates jumped overboard Sunday from the lifeboat where he was being held, and U.S. Navy SEALs shot and killed three of his four captors, according to a senior U.S. official with knowledge of the situation.&quot;  Phillips was taken to the destroyer U.S.S. Bainbridge and &quot;was then flown by helicopter to another Navy ship, and has contacted his family and received a routine medical examination,&quot; <a href="https://web.archive.org/web/20130928020423/http://www.nytimes.com/2009/04/13/world/africa/13pirates.html?hp">according to the NY Times</a>.<p></p>
+
+<p>The Maersk line spoke on behalf of the captain&apos;s family, &#x201C;This is truly a very happy Easter for the Phillips family. They are all just so happy and relieved.&#x201D; And President Obama said was happy that Phillips was rescued and called his courage was a &quot;model for all Americans&quot;.</p>
+
+<p><strong>Earlier</strong>: With their captain <a href="https://web.archive.org/web/20130928020423/http://gothamist.com/2009/04/10/us_navy_pirates_face_off_in_indian.php">still a hostage</a> of four Somali pirates on a lifeboat in the Indian Ocean, the crew of container ship Maersk Alabama <a href="https://web.archive.org/web/20130928020423/http://www.cnn.com/2009/WORLD/africa/04/11/ship.hijacked.crew/index.html">told reporters</a>, &quot;Captain Phillips is a hero,&quot; after the ship docked in Kenya. The crew had managed to <a href="https://web.archive.org/web/20130928020423/http://gothamist.com/2009/04/09/us_navy_destroyer_tracks_pirates_an.php">retake the ship</a> from the pirates who attacked them in the Horn of Africa, but Captain Richard Phillips (pictured) offered himself as a hostage to prevent violence (the pirates had AK-47s).  <a href="https://web.archive.org/web/20130928020423/http://news.bbc.co.uk/2/hi/africa/7995543.stm">Somali elders were attempting</a> to help negotiate with U.S. authorities, but the <a href="https://web.archive.org/web/20130928020423/http://www.nytimes.com/2009/04/12/world/africa/12somalia.html?hp">NY Times reports</a> that the discussions have broken down, because &quot;American officials insisted that the pirates be arrested&quot; while the elders have refused.  The pirates, who are demanding $2 million as well, also <a href="https://web.archive.org/web/20130928020423/http://www.cnn.com/2009/WORLD/africa/04/11/somalia.u.s.ship/index.html">fired upon a Navy vessel</a> that tried to approach the lifeboat yesterday; the Naval ship did not fire back.</p>
+                            
+                            
+                            

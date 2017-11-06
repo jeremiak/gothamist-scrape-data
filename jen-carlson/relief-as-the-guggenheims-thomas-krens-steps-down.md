@@ -1,0 +1,15 @@
+---
+author: Jen Carlson
+date: Feb 28, 2008 3:10 pm
+title: Relief as the Guggenheim's Thomas Krens Steps Down
+---
+
+	
+										<p><img alt="200802krens.jpg" src="https://web.archive.org/web/20150509180132im_/http://gothamist.com/attachments/arts_jen/200802krens.jpg" width="228" height="350" class="right">The art world is breathing <a href="https://web.archive.org/web/20150509180132/http://www.bloomberg.com/apps/news?pid=20601088&amp;sid=a4Scf6RlswG4&amp;refer=muse">a sigh of relief</a> today as the announcement of The Solomon R. Guggenheim Foundation&apos;s director stepping down was <a href="https://web.archive.org/web/20150509180132/http://ap.google.com/article/ALeqM5jgBP55XGqPsCz4mLAmswe2_5H-IQD8V3417G1">announced</a>. For many, Thomas Krens has been more of <a href="https://web.archive.org/web/20150509180132/http://nymag.com/daily/entertainment/2008/02/jerry_saltz_on_thomas_krens_ou.html">a dictator</a> than director; with a focus on franchising a &quot;McGuggenheim&quot; business over exhibiting modern art or focusing on the Frank Lloyd Wright-designed building itself.</p><blockquote>The Guggenheim flagship -- one of New York&apos;s top tourist attractions -- was falling apart. (Its crumbling facade is currently undergoing renovation.) Krens wasted considerable time and money trying to get the city to accept a second Gehry Guggenheim in Manhattan when he failed in his attempt to attract either steady streams of visitors or compelling exhibitions to a SoHo branch. (The space is now a Prada store.)</blockquote>While in charge, Krens did oversee many important exhibits, but for the most part he brought in blockbuster crowd-pleasers (tossing the museum&apos;s identity to the wayside). Consensus is that he simply overstayed his welcome (the Village Voice asked that he leave back <a href="https://web.archive.org/web/20150509180132/http://www.villagevoice.com/art/0207,saltz,32240,13.html">in 2002)</a>. Last year when museum director Lisa Dennison left her position it became clear a suitable candidate wouldn&apos;t step in until Krens stepped down. <a href="https://web.archive.org/web/20150509180132/http://www.nytimes.com/2008/02/28/arts/design/28muse.html?_r=2&amp;ref=arts&amp;oref=slogin&amp;oref=slogin">The NY Times</a> reports that &quot;candidates who were informally approached were not shy about communicating that they would not work under Mr. Krens, who is known as a difficult personality.&quot;<p></p>
+
+<p>Krens will stay on as a senior adviser for international affairs and will also oversee the creation of a Frank Gehry-designed museum in the United Arab Emirates. The search is already on for a replacement, and he&apos;ll stay in charge until that successor is found.</p>
+
+<p><span class="photo_caption">Photo via Bloomberg News</span></p>					
+										
+									
+				

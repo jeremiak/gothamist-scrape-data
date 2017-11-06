@@ -1,0 +1,19 @@
+---
+author: Jen Chung
+date: Apr 17, 2009 2:15 pm
+title: NYC Woman Killed In Boston Hotel, Craigslist Link Investigated
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2009_04_jcraig.jpg" src="https://web.archive.org/web/20150512160109im_/http://gothamist.com/attachments/jen/2009_04_jcraig.jpg" width="250" height="199" class="image-left"> </span>Boston police say the woman found shot to death in a hotel room was NYC resident Julissa Brisman.  Brisman apparently <a href="https://web.archive.org/web/20150512160109/http://bostonist.com/2009/04/15/boston_blotter_craigslist_masseuse.php">advertised massage services</a> in Craigslist&apos;s erotic services section and police suspect her killer was the man who answered her ad.  </p>
+
+<p>A hotel guest at the Marriott Copley Place heard screams on the 20th floor Tuesday night.  Jane Greenberg, a New York resident who was taking her son on college tours, <a href="https://web.archive.org/web/20150512160109/http://www.bostonherald.com/news/regional/view.bg?articleid=1165937">told the Boston Herald</a> that &quot;she opened her door and saw a woman lying in a doorway and called security.&quot; Brisman, 26, had been shot multiple times and also had a plastic restraint on one wrist. Police released surveillance photos of a man who is a &quot;person of interest&quot;&#x2014;the <a href="https://web.archive.org/web/20150512160109/http://www.nydailynews.com/news/2009/04/17/2009-04-17_web_date_with_murder_for_ny_beauty_julissa_brisman_model_.html">Daily News describes him</a> as a &quot;young, clean-cut looking man with blond hair&quot;&#x2014;and believe it may have been a robbery gone wrong.</p>
+
+<p>Brisman lived in NYC but <a href="https://web.archive.org/web/20150512160109/http://www.boston.com/news/local/massachusetts/articles/2009/04/17/shooting_victim_had_tried_to_leave_tough_past_behind/">traveled to Boston</a> that day. The Boston Globe reports, &quot;Friends said Brisman had drifted through much of her early 20s, a partyer with a taste for the good life and a thirst for celebrity. She kept odd hours and worked sporadically. Unable to keep up with expenses, she had turned to erotic services. But friends said that in the past year she had abruptly changed ways. She got sober, was exercising more, and told a friend she was getting a degree in psychology.&quot;</p>
+
+<p>Her friend, Matthew Terhune, a photographer, <a href="https://web.archive.org/web/20150512160109/http://www.nytimes.com/2009/04/17/nyregion/17slain.html?ref=nyregion">told the NY Times </a>that Brisman was always on the go, &quot;They would pay her $1,000 to go to these really expensive parties and give drinks or pass food. But she never said anything about being a call girl or an escort. When we&apos;  questioned her about whether there was anything shady, she said, &#x2018;Oh no, that&#x2019;s gross.&apos;&quot;</p>
+
+<p>The murder has raised <a href="https://web.archive.org/web/20150512160109/http://www.bostonherald.com/news/regional/view.bg?articleid=1165962">fears in online escorts</a> as well as <a href="https://web.archive.org/web/20150512160109/http://www.bostonherald.com/news/regional/view.bg?articleid=1165935">guests at the Marriott</a>, which has many coming in for the Boston Marathon on Monday. And police in Rhode Island say Brisman&apos;s <a href="https://web.archive.org/web/20150512160109/http://www.1010wins.com/Cops--Case-Similar-to-Craigslist-Slaying-of-NYC-Gi/4221550">murder is similar to the attempted robbery</a> of a woman in Providence.</p>					
+										
+									
+				

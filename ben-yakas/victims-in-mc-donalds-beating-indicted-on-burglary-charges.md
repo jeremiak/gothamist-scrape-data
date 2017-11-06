@@ -1,0 +1,19 @@
+---
+author: Ben Yakas
+date: Dec 8, 2011 3:33 pm
+title: Victims In McDonald's Beating Indicted On Burglary Charges
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="12811mcd.jpg" src="https://web.archive.org/web/20151228103000im_/http://gothamist.com/attachments/byakas/12811mcd.jpg" width="640" height="428"> <br> <i>Denise Darbeau (left) and Rachel Edwards (<a href="https://web.archive.org/web/20151228103000/http://www.dnainfo.com/20111208/greenwich-village-soho/mcdonalds-beating-victims-indicted-on-burglary-charges">via DNAInfo</a>)</i></div> <p></p>
+
+<p>Last week, a jury <a href="https://web.archive.org/web/20151228103000/http://gothamist.com/2011/12/02/all_charges_dropped_against_custome.php">voted to dismiss all charges</a> against the McDonald&apos;s cashier who used a metal rod to beat up two customers who slapped him and then jumped over the counter at the West Village location in October. While 31-year-old <a href="https://web.archive.org/web/20151228103000/http://gothamist.com/tags/rayonmcintosh">Rayon McIntosh</a> is <a href="https://web.archive.org/web/20151228103000/http://gothamist.com/2011/12/03/customer-bashing_mcdonalds_cashier_2.php">off the hook</a>, <a href="https://web.archive.org/web/20151228103000/http://www.dnainfo.com/20111208/greenwich-village-soho/mcdonalds-beating-victims-indicted-on-burglary-charges">a jury has now voted to indict</a> Denise Darbeau and Rachel Edwards, the two women who jumped over the counter, on burglary charges.</p>
+
+<p>The 24-year-old women <a href="https://web.archive.org/web/20151228103000/http://www.nydailynews.com/news/crime/denise-darbeau-amp-rachel-edwards-indicted-mcdonald-fracas-worker-rayon-mcintosh-cleared-article-1.988595">were initially charged with</a> misdemeanor trespass in the West 3rd Street McDonald&apos;s altercation which took place on October 13. Those charges were increased to burglary, which meant that they allegedly entered the fast food restaurant with intent to commit a crime. &#x201C;The person who committed a crime got away with a vicious assault,&#x201D; said defense attorney Harold Baker. &#x201C;It seems backwards to me...The people who were hurt are now charged with a crime.&#x201D; Darbeau suffered a fractured skull and a broken right arm in the incident, while Edwards received a gash on her face.</p>
+
+<p>The fight started when Darbeau tried to pay for their food with a $50 bill; that worker wanted to check the authenticity, as was store policy. The two women <a href="https://web.archive.org/web/20151228103000/http://gothamist.com/2011/10/19/mcdonalds_beating_victim_allegedly.php">allegedly taunted McIntosh</a>, who brought the order to the counter, calling him a &quot;bitch ass n--ga,&quot; and saying &quot;your mother&apos;s a bitch.&quot; McIntosh <a href="https://web.archive.org/web/20151228103000/http://gothamist.com/2011/10/22/customer-bashing_mcdonalds_cashier_1.php">said in an interview</a> that Darbeau spat at him, threatened to &quot;cut me up,&quot; came across the counter and slapped him. When Edwards jumped across to join in, McIntosh says instinct kicked in: &quot;I was being attacked by aggressive people I didn&apos;t know,&quot; said McIntosh. &quot;I was just defending myself. They came in and went crazy on me.&quot; You can see the rest of the incident play out in the video below:</p>
+
+<p><iframe width="640" height="360" src="https://web.archive.org/web/20151228103000if_/http://www.youtube.com/embed/25JtpI8jmuI" frameborder="0" allowfullscreen></iframe></p>					
+										
+									
+				

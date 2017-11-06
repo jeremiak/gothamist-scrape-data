@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: December 21, 2009 10:19 AM
+title: Citadel Broadcasting Files For Bankruptcy
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <a href="https://web.archive.org/web/20110611054008/http://gothamist.com/attachments/NYC_Billy/2009_03_imusmic.jpg"> <img alt="2009_03_imusmic.jpg" src="https://web.archive.org/web/20110611054008im_/http://gothamist.com/assets_c/2009/03/2009_03_imusmic-thumb-130x115-70918.jpg" width="90" height="79" class="image-right"> </a> </span>Citadel Broadcasting, which syndicates Don Imus&apos;s radio show, <a href="https://web.archive.org/web/20110611054008/http://www.nytimes.com/2009/12/21/business/media/21citadel.html?ref=business">filed for Chapter 11 bankruptcy</a> yesterday.  The NY Times reports it did so &quot;after agreeing to turn over control of the company to its creditors in exchange for reducing its debt. The filing by the company, which owns 224 stations across the country... was not unexpected but does reflect the troubles plaguing the radio industry amid steep declines in advertising revenue and big debt loads.&quot; The <a href="https://web.archive.org/web/20110611054008/http://www.1010wins.com/pages/5934774.php">AP adds</a> that Citadel also owns KABC-AM in Los Angeles, WLS-AM in Chicago, WABC-AM and WPLJ-FM in New York and KGO-AM in San Francisco and that &quot;Citadel&apos;s WABC is home to several syndicated hosts, including Don Imus, Rush Limbaugh, Joe Scarborough and Mark Levin.&quot;</p>

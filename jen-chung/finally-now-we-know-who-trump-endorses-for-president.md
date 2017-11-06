@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: September 18, 2008 12:51 PM
+title: Finally, Now We Know Who Trump Endorses for President
+---
+
+<p><img alt="2008_09_trumen.jpg" src="https://web.archive.org/web/20111117115929im_/http://gothamist.com/attachments/jen/2008_09_trumen.jpg" width="120" height="121" class="right">You can stop holding your breath!  Real estate developer Donald Trump <a href="https://web.archive.org/web/20111117115929/http://www.politico.com/news/stories/0908/13558.html">threw his hat behind John McCain</a> last night on Larry King Live.  He said he&apos;s known McCain for a while, &quot;Also, this is not the right time for tax increases. And Obama wants to increase your taxes drastically.&#x201D;  Politico points out, &quot;Well, maybe not your taxes. But certainly The Donald&#x2019;s: Obama would repeal President Bush tax cuts for households making more than $250,000.&quot;  (Trump, check out <a href="https://web.archive.org/web/20111117115929/http://www.factcheck.org/askfactcheck/would_obama_tax_my_profits_if_i.html">FactCheck.org</a>!) Trump went on to say he didn&apos;t understand why Hillary Clinton wasn&apos;t chosen as Obama&apos;s running mate and said, &quot;He should have chosen Hillary, It would have been a much different race, I believe. Right now, it looks to me like McCain is probably winning.&#x201D;</p>

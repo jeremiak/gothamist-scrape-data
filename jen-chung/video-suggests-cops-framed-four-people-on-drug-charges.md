@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: June 29, 2008  4:59 PM
+title: Video Suggests Cops Framed Four People on Drug Charges
+---
+
+<p><img alt="2008_06_qnscovup.jpg" src="https://web.archive.org/web/20130321083944im_/http://gothamist.com/attachments/jen/2008_06_qnscovup.jpg" width="95" height="79" class="left">Drug charges against four men were dropped when a <a href="https://web.archive.org/web/20130321083944/http://wcbstv.com/local/Undercover.NYPD.Officers.2.759420.html">video showed they had no contact with undercover police officers</a> before they were arrested.  Four cops had <a href="https://web.archive.org/web/20130321083944/http://www.nypost.com/seven/06292008/news/regionalnews/3_frame_cops_may_face_jail_117771.htm">claimed they bought crack cocaine from the men</a>, but the video showed otherwise and prosecutors said the accused men, Jose Colon and Maximo Colon and two others, didn&apos;t do the crime.  WCBS 2 reports, &quot;In the 6 months it took to clear the Colon brothers names, they lost their business and their savings.&quot;  The <a href="https://web.archive.org/web/20130321083944/http://www.nypost.com/seven/06292008/news/regionalnews/3_frame_cops_may_face_jail_117771.htm">Post reports</a> three of the four cops are under investigation and could face seven years in prison if convicted.  </p>

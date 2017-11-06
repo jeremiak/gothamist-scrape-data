@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: April 15, 2010 11:24 AM
+title: FDNY Doesn't Suspect Arson In Chinatown Fire
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <a href="https://web.archive.org/web/20110629211150/http://gothamist.com/attachments/jen/2010_03_chifire.jpg"> <img alt="2010_03_chifire.jpg" src="https://web.archive.org/web/20110629211150im_/http://gothamist.com/assets_c/2010/04/2010_03_chifire-thumb-250x188-497808.jpg" width="110" height="82" class="image-right"> </a> </span>As the FDNY sifts through the remains of two Grand Street buildings where a seven-alarm fire broke out on Sunday night, killing one person and injuring dozens, they apparently do not think it was arson.  A source <a href="https://web.archive.org/web/20110629211150/http://www.nydailynews.com/ny_local/2010/04/15/2010-04-15_arson_doubted_in_chinatown_blaze.html">tells the Daily News</a> the fire&apos;s cause may have been electrical, &quot;We believe it was smoldering for a long time. Once it reached the building&apos;s inner shafts, it exploded.&quot;  The building &quot;contained several dumbwaiter shafts that helped the flames spread quickly.&quot;  The buildings, 283 and 285-287 Grand Street, contain both market-rate and rent-stabilized apartments and <a href="https://web.archive.org/web/20110629211150/http://gothamist.com/2010/04/13/body_found_from_chinatown_fire_buil.php">had been on the market</a>.  Residents have complained about lack of hot water and heat and the buildings had many violations.  </p>

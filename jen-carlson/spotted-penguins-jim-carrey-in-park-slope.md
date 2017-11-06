@@ -1,0 +1,11 @@
+---
+author: Jen Carlson
+date: December 22, 2010  6:36 PM
+title: Spotted: Penguins, Jim Carrey in Park Slope
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="popperspenguins1210.jpg" src="https://web.archive.org/web/20110624104506im_/http://gothamist.com/attachments/arts_jen/popperspenguins1210.jpg" width="640" height="490" class="image-none"> </span></p>
+
+<p>While it&apos;s not as exciting as seeing Mel Gibson run around town with <a href="https://web.archive.org/web/20110624104506/http://nymag.com/daily/entertainment/2010/07/mel_gibson_the_beaver_what_to.html">a beaver puppet</a> on his hand (what is?), Jim Carrey has been spotted in at least 3 boroughs (Manhattan, Brooklyn, and <a href="https://web.archive.org/web/20110624104506/http://www.silive.com/northshore/index.ssf/2010/12/carrey-ing_on_causes_some_comm.html">Staten Island</a>)... sometimes <a href="https://web.archive.org/web/20110624104506/http://collider.com/mr-poppers-penguins-set-photos/65443/">with penguins</a>! The actor is in town shooting scenes for the movie <em>Mr. Popper&apos;s Penguins</em>, which tells the story of a businessman begins to change after he inherits six penguins and transforms his apartment into a winter wonderland. According to <a href="https://web.archive.org/web/20110624104506/http://whatyourdonotknowbecauseyouarenotme.blogspot.com/2010/12/snow-notsomuch.html">this blog</a> they&apos;re in Park Slope today, where they&apos;ve brought in some spotless white snow with them. Other Hollywood-in-New York magic happening during filming: <a href="https://web.archive.org/web/20110624104506/http://gothamist.com/tags/tavernonthegreen">Tavern on the Green</a> is still up and running! </p>
+
+<p>If you want to catch a glimpse of the action, they&apos;re at 8th Avenue and 2nd Street in Brooklyn until this evening, when they&apos;ll move to 62nd and 5th Avenue. (<em>Men in Black III</em> is also starting <a href="https://web.archive.org/web/20110624104506/http://www.onlocationvacations.com/2010/12/21/wednesday-dec-22-filming-locations-in-nyc-l-a-more-including-now-and-svu/">to film</a> in New York, let us know if you see that alien pug around.)</p>

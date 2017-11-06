@@ -1,0 +1,13 @@
+---
+author: Jen Chung
+date: December 18, 2009 10:45 AM
+title: UWS Shooting Suspect Knew One Of His Victims From Prison
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="2009_12_uwsshoot3.jpg" src="https://web.archive.org/web/20111111210410im_/http://gothamist.com/attachments/jen/2009_12_uwsshoot3.jpg" width="640" height="433"> <br> <i>Photograph of police outside an Upper West Side building where four people were found dead by Stephen Chernin/AP</i></div> <p></p>
+
+<p>Yesterday, a usually quiet Upper West Side street was rocked by violence when a man allegedly <a href="https://web.archive.org/web/20111111210410/http://gothamist.com/2009/12/17/multiple_shooting_on_upper_west_sid.php">shot and killed three members of a family</a>&#x2014;a father, his son and a grandfather&#x2014; and injured another before falling to his death from an Amsterdam Avenue apartment between 82nd and 83rd Streets.  And it&apos;s believed that shooting suspect Herbert Quinones knew the father from their times in state prison.</p>
+
+<p>The <a href="https://web.archive.org/web/20111111210410/http://www.nytimes.com/2009/12/18/nyregion/18shoot.html?ref=nyregion">NY Times reports</a>, &quot;If there were any doubt that Hector Quinones was intent on causing grievous harm Thursday, it would have been dispelled by one look at his hands &#x2014; covered by two sets of gloves, one rubber and one leather... By the time he was through, the police said, he would kill three members of a family: Carlos Rodriguez Sr., 52; his son Carlos Jr., 24; and Fernando Gonzales, 87, who was the elder Mr. Rodriguez&#x2019;s father-in-law.&quot;  A gun and 12-inch knife were retrieved from the scene; it&apos;s unclear if Gonzales was shot or stabbed (or both) to death.</p>
+
+<p>Carlos Rodriguez Sr.&apos;s wife Gisela Rodriguez returned the apartment with daughter Leyanis, around 1:45 p.m., and Quinones opened the door. Gisela Rodriguez was grazed by a bullet but managed to escape the apartment; the <a href="https://web.archive.org/web/20111111210410/http://www.nypost.com/p/news/local/manhattan/massacre_on_the_8nRYonxHaQa5NK3tgccbqN">Post says</a>, &quot;He then went after Gisela&apos;s daughter, who scrambled for safety and ran to a nearby bedroom. <strong>The killer was inches away from grabbing her but tripped over his low-slung pants, sources said.</strong> The horrified woman managed to slam and lock the door just in time, only to find the bloodied bodies of her brother and dad inside.&quot;</p>

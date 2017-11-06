@@ -1,0 +1,17 @@
+---
+author: Jen Chung
+date: Jun 24, 2008 9:49 am
+title: City Students' Reading, Math Scores Improve, But Critics Wonder if Test Was Too Easy
+---
+
+	
+										<p><img alt="2008_06_standtest.jpg" src="https://web.archive.org/web/20150505145752im_/http://gothamist.com/attachments/jen/2008_06_standtest.jpg" width="210" height="210" class="left">Public school children across the state between grades four and eight showed <a href="https://web.archive.org/web/20150505145752/http://www.nytimes.com/2008/06/24/education/24scores.html?ref=nyregion">tremendous improvements in their standardized test scores</a> in recently released results from the state education officials.  In particular, NYC and the &quot;Big Four&quot; --Buffalo, Rochester, Syracuse and Yonkers--made double digits increases that have now prompted some to <a href="https://web.archive.org/web/20150505145752/http://www.nydailynews.com/ny_local/education/2008/06/23/2008-06-23_state_math_and_reading_exam_scores_relea.html">wonder if the most recent test was too easy</a>.  </p>
+
+<p>Mayor Bloomberg trumpeted these results yesterday, saying,  &quot;Today, they are performing almost on the level of suburban districts, and we&apos;re making continued progress closing the shameful achievement gap. We&apos;ve put our children first and focused on results-and all New Yorkers should be very proud of what our schools are achieving.&quot; Though he emphasized there is still a lot of work to be done (it&apos;s not good when &quot;<a href="https://web.archive.org/web/20150505145752/http://www.nypost.com/seven/06242008/news/regionalnews/schoolkids_hit_high_marks_116938.htm">only 43 percent of city eighth grades were able to meet state standards this year, while less than 53 percent were able to do so in sixth grade</a>&quot;), Schools Chancellor Joel Klein credited the Mayor&apos;s transformation of the Department of Education with the gains.</p>
+
+<p>And <a href="https://web.archive.org/web/20150505145752/http://www.nydailynews.com/ny_local/education/2008/06/23/2008-06-23_state_math_and_reading_exam_scores_relea.html">State Education Commissioner Richard Mills said</a>, &quot;The bottom line is this: Performance is up in mathematics. It&apos;s up in English and more students are meeting the standards.&quot;  Still, some opponents of standardized testing suggest that the curriculums are <a href="https://web.archive.org/web/20150505145752/http://www.nysun.com/new-york/mayor-sees-a-test-scores-triumph/80476/">shaped to only teach what&apos;s on the tests</a>.  NYU professor Robert Tobias told the Daily News, &quot;&quot;Given that the scores are going up to a very large degree, especially in certain grades, it suggests the test is probably easier than it was in the past.&quot;</p>
+
+<p>Inside Schools has a <a href="https://web.archive.org/web/20150505145752/http://insideschools.blogspot.com/2008/06/test-score-bounce-looking-at-numbers.html">good analysis of the racial breakdown of the NYC test scores</a>, &quot;The achievement gap that yawns between white and Asian students and their black and Hispanic peers has narrowed, but continues far too wide.&quot;  Some sides from the DOE showing the differences in scores across races are after the jump.</p>					
+										
+									
+				

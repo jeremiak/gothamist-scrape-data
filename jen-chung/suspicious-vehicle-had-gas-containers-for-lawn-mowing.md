@@ -1,0 +1,17 @@
+---
+author: Jen Chung
+date: May 14, 2010 7:40 am
+title: Suspicious Vehicle Had Gas Containers For... Lawn Mowing
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2010_05_gascontain.jpg" src="https://web.archive.org/web/20150427141423im_/http://gothamist.com/attachments/jen/2010_05_gascontain.jpg" width="230" height="198" class="image-left"> </span>Last night, the NYPD and FDNY responded to a <a href="https://web.archive.org/web/20150427141423/http://gothamist.com/2010/05/13/suspicious_vehicle_on_irving_place.php">call about a &quot;suspicious vehicle&quot;</a> parked outside the Con Edison building on Irving Place between 14th and 15th Streets, a block east of Union Square.  The 1991 Oldsmobile Cutlass Ciera had some gas containers in the back seat.  After closing down some streets, partially evacuating a building and having the bomb squad inspect the car, it was determined that the <a href="https://web.archive.org/web/20150427141423/http://www.myfoxny.com/dpp/news/local_news/manhattan/nypd-investigates-suspicious-car-in-manhattan-20100513-akd">vehicle was not a threat</a>.  Oh, and talking to the car&apos;s owner helped, too.</p>
+
+<p>The owner said that the <a href="https://web.archive.org/web/20150427141423/http://www.wpix.com/news/wpix-union-square-suspicious-vehicle,0,628287.story">gas was for mowing lawns</a>&#x2014;because that&apos;s what <a href="https://web.archive.org/web/20150427141423/http://www.nytimes.com/2010/05/14/nyregion/14unionsquare.html?partner=rss&amp;emc=rss">he does for a living.</a>  He had been attending the Buzzcocks concert at the Fillmore up the street, and by the time he got to the scene, the bomb squad had already blown out his car&apos;s windows so the bomb robot could look inside. The <a href="https://web.archive.org/web/20150427141423/http://www.nypost.com/p/news/local/manhattan/bomb_scare_in_union_square_1KWUvndCTyL78JEJEWCkMP?CMP=OTC-rss&amp;FEEDNAME=">Post reports</a> he said, &quot;What happened! What happened! What&apos;s wrong? I didn&apos;t do anything.&quot; The NYPD determined there was &quot;no malicious intent&quot; involved.</p>
+
+<p>The Buzzcocks actually <a href="https://web.archive.org/web/20150427141423/http://www.nydailynews.com/ny_local/2010/05/13/2010-05-13_fourth_bomb_scare_since_failed_times_square_attack_nypd_probing_suspicious_vehic.html?r=ny_local&amp;utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+nydnrss%2Fny_local+(NY+Local)&amp;utm_content=Google+Reader">stopped in the middle of a song</a> to ask, &quot;Does anyone have a 1991 Cutlass?&quot;  A worker at a nearby Chipotle wondered to the Daily News, &quot;There&apos;s so many threats coming to New York. How many more?&quot;</p>
+
+<p>Ever since a smoking SUV&#x2014;which had a homemade bomb made out of gasoline containers, propane tanks, firecrackers, and non-explosive fertilizer&#x2014;was <a href="https://web.archive.org/web/20150427141423/http://gothamist.com/2010/05/01/times_square_closed_after_police_fi.php">found in Times Square</a> on May 1 (it&apos;s believed the SUV&apos;s owner is tied to the Pakistani Taliban), there has been a <a href="https://web.archive.org/web/20150427141423/http://gothamist.com/2010/05/08/suspicious_package_reports_expected.php">jump in the number</a> of suspicious packages reported and it seems like there are <a href="https://web.archive.org/web/20150427141423/http://gothamist.com/2010/05/07/photo_of_times_square_empty_for_sus.php">more evacuations</a>.</p>					
+										
+									
+				

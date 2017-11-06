@@ -1,0 +1,19 @@
+---
+author: Jen Carlson
+date: Jan 30, 2013 4:00 pm
+title: Will There Be A Catcher In The Rye Movie? And Other Things We May Find Out Soon
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="jdcatcher0113.jpeg" src="https://web.archive.org/web/20150430033739im_/http://gothamist.com/attachments/arts_jen/jdcatcher0113.jpeg" width="640" height="437" class="image-none"> </span></p>
+
+<p>A couple of years ago <a href="https://web.archive.org/web/20150430033739/http://gothamist.com/2011/08/03/casting_call_who_could_play_holden.php">we looked back at</a> all the times Holden Caulfield could have been lifted off of the printed page and put under the spotlight. Since it was published in 1951, many big names have hoped to play <a href="https://web.archive.org/web/20150430033739/http://gothamist.com/tags/jdsalinger">J.D. Salinger</a>&apos;s legendary angsty character in a film adaptation of the novel, including Marlon Brando, Jack Nicholson, Jerry Lewis, Tobey Maguire, and Leonardo DiCaprio. But Salinger never allowed a movie to be made of his work, and said that the part of Caulfield &quot;is essentially unactable. A Sensitive, Intelligent, Talented Young Actor in a Reversible Coat wouldn&apos;t nearly be enough.&quot; But could the movie still happen?</p>
+
+<p>With <a href="https://web.archive.org/web/20150430033739/http://www.deadline.com/2013/01/jd-salinger-american-masters-secret-documentary-movie-january-2014/">news this week</a> that Simon &amp; Schuster has <a href="https://web.archive.org/web/20150430033739/http://www.hollywoodreporter.com/news/jd-salinger-biography-documentary-due-416366">acquired the rights</a> to <em>The Private War of J.D. Salinger</em> biography, and a companion feature documentary on the late author has been completed, curiosity has been piqued once again. The film was being put together before Salinger <a href="https://web.archive.org/web/20150430033739/http://gothamist.com/2010/01/28/rip_jd_salinger.php">died in 2010</a>, and filmmaker Shane Salerno (who also co-authored the biography) conducted more interviews with those who knew him (at least, better than the rest of us) after his death. Today <a href="https://web.archive.org/web/20150430033739/http://www.theatlanticwire.com/entertainment/2013/01/jd-salinger-documentary/61553/">The Atlantic</a> is wondering what may be revealed through those who wanted to keep silent when the reclusive author was still alive&#x2014;including if Holden is coming to the big screen.</p>
+
+<blockquote>&quot;Sam Goldwyn, Steven Speilberg, and Billy Wilder all ran into brick walls trying to secure the rights from Salinger, who said that he himself was only person who could ever play Holden Caulfield. But there were hints that Salinger wasn&apos;t entirely against the possibility of a posthumous Catcher in the Rye film. In 1957, he wrote: &apos;I toy very seriously with the idea of leaving the unsold rights to my wife and daughter as a kind of insurance policy.&apos; The Salinger estate won&apos;t divulge whether or not he instructed his trustees to prevent an adaptation. If any of the interviewees in this new project are privy to that information, we may find out whether we can expect a big screen <em>Catcher in the Rye</em> before 2046, when the copyright expires and filmmakers can help themselves.&quot;</blockquote>
+
+<p>The documentary will air early next year on PBS&apos;s American Masters series, which also gave us <a href="https://web.archive.org/web/20150430033739/http://gothamist.com/2011/11/16/epic_woody_allen_documentary_will_f.php">that epic Woody Allen doc</a>.</p>					
+										
+									
+				

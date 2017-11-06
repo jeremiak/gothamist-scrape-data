@@ -1,0 +1,7 @@
+---
+author: Jen Carlson
+date: August 18, 2009  5:13 PM
+title: Brooklyn Wife Blogs About Annoying Husband
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="husbandannoying0809.jpg" src="https://web.archive.org/web/20111124160118im_/http://gothamist.com/attachments/arts_jen/husbandannoying0809.jpg" width="140" height="144" class="image-right"> </span><em>Finally</em>, the dark side of all those seemingly happy Brooklyn couples comes to light. Brooklyn Heights resident and WPIX-TV personality Mark Joyella is also an annoying husband in his spare time! His wife has started a blog centered around the fact, aptly titled <a href="https://web.archive.org/web/20111124160118/http://myhusbandisannoying.com/">My Husband is Annoying</a> (Mark himself is a fan <a href="https://web.archive.org/web/20111124160118/http://www.facebook.com/pages/My-Husband-is-Annoying/150927059672">on Facebook</a>). In one post she declares: &quot;My husband likes to talk like a robot. For no good reason, he&#x2019;ll just bust out the robot voice. It was even in our vows &apos;I promise to love you&#x2014;even when you talk like a robot.&apos;&#x201D; A vow&apos;s a vow! She seems to have plenty of stories to regale her readers with, including one about getting a calculator and Five Guys Burgers for her birthday. See, it&apos;s not all sunshine and strollers over in Brownstone Brooklyn. [via <a href="https://web.archive.org/web/20111124160118/http://brooklynheightsblog.com/archives/12382">Brooklyn Heights Blog</a>]</p>

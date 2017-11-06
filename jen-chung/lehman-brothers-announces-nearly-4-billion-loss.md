@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: September 10, 2008 10:30 AM
+title: Lehman Brothers Announces Nearly $4 Billion Loss
+---
+
+<p><img src="https://web.archive.org/web/20110811101757im_/http://gothamist.com/attachments/jen/2008_08_lehman.jpg" class="right">After <a href="https://web.archive.org/web/20110811101757/http://gothamist.com/2008/09/09/lehman_shares_fall_44_more_wall_str.php">its shares fell</a> amid news it failed to get a strategic investment--and pushed the Dow Jones 280 points lower--yesterday, Lehman Brothers <a href="https://web.archive.org/web/20110811101757/http://money.cnn.com/2008/09/10/news/companies/lehman/index.htm?eref=rss_topstories">said it lost almost $4 billion</a> during the third quarter. Per CNN Money, &quot;It was Lehman&apos;s biggest quarterly loss since the firm went public in 1994, exceeding a $2.8 billion loss announced in June,&quot; (analysts were expecting a $1.99 billion loss).  The investment bank is planning a major restructuring, spinning off most of its real estate assets and selling its investment management division. However, an analyst <a href="https://web.archive.org/web/20110811101757/http://www.nytimes.com/2008/09/11/business/11lehman.html">said of the spinoff</a>, &#x201C;<strong>It&#x2019;s not a good sign. It&#x2019;s really a sign of the illiquidity in the markets &#x2014; that no one wants to buy these assets.</strong>&#x201D;</p>

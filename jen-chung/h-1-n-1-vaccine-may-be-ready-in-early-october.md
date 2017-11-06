@@ -1,0 +1,11 @@
+---
+author: Jen Chung
+date: Sep 13, 2009 11:32 am
+title: H1N1 Vaccine May Be Ready In Early October
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2009_05_swineflucell.jpg" src="https://web.archive.org/web/20160228194909im_/http://gothamist.com/attachments/jen/2009_05_swineflucell.jpg" width="135" height="108" class="image-right"> </span>Amid concerns that the H1N1/ swine flu vaccine <a href="https://web.archive.org/web/20160228194909/http://www.nytimes.com/2009/09/12/us/12flu.html">might miss the peak</a>, Health and Human Services Secretary Kathleen Sebelius <a href="https://web.archive.org/web/20160228194909/http://blogs.abcnews.com/george/2009/09/exclusive-sebelius-says-h1n1-vaccine-to-be-released-earlier-than-expected.html">told This Week With George Stephanopoulos</a>  that the vaccine will be available in the first week of October, two weeks earlier than previously thought.  She said, &quot;<strong>We are on track to have an ample supply rolling out by mid October, but we may have some early vaccine as early as the first full week in October. And we plan to get the vaccine rolling out the door as fast as it hits the production line. The earlier doses are probably going to be targeted to health care workers and other high priority groups, but the one dose means that people will be able to have a robust response in about 10- days of getting that first shot and that&#x2019;s incredibly helpful.</strong>&quot; The <a href="https://web.archive.org/web/20160228194909/http://cdc.gov/h1n1flu/vaccination/acip.htm">other high-priority groups</a> are pregnant women, people between 6 months and 24 years, people between 25-64 years with higher risk medical conditions, and caregivers of children under 6 months.  Earlier this week, the Department of Health and Human Services <a href="https://web.archive.org/web/20160228194909/http://www.nytimes.com/2009/09/11/health/11vaccine.html">found that one dose</a> of the vaccine seems effective (versus needing to give two doses), which means &quot;vaccine supplies now being made will go twice as far as had been predicted.&quot;</p>					
+										
+									
+				

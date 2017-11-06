@@ -1,0 +1,25 @@
+---
+author: Emma Whitford
+date: May 13, 2016 9:35 am
+title: The World's Oldest Person Has Died In Brooklyn At Age 116
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="070615oldestwomanalive.jpeg" src="https://web.archive.org/web/20160923063307im_/http://gothamist.com/attachments/nyc_ewhitford/070615oldestwomanalive.jpeg" width="640" height="361"> <br> <i>Susannah Mushatt Jones with her world record plaque last July (Guinness Book of World Records). </i></div> <p></p>
+
+<p>Susannah Mushatt Jones&#x2014;Tee (short for Auntie) to her 100 nieces and nephews, Miss Susie to her friends&#x2014;has died in Brooklyn at the age of 116, bequeathing the Guinness Book Of World Records title of Oldest Person. Born on July 6th, 1899&#x2014;the same year Queens and Staten Island joined New York City&#x2014;Jones was the last known living American who experienced the 1800s.  </p>
+
+<p>Raised in Alabama by sharecropper parents&#x2014;her grandparents were slaves&#x2014;Jones moved to New York City in 1923 (the year Yankee Stadium opened to the public in the Bronx), where she worked as a child-care provider until 1965. And although she became blind at age 100&#x2014;and was nearly deaf at the end of her life&#x2014;Jones did not spend her final years bedridden; she was up and about to <a href="https://web.archive.org/web/20160923063307/http://gothamist.com/2015/07/06/bacon_eggs_sleep_live_4ever.php">celebrate her 116th birthday</a> last July. </p>
+
+<p>In 2005, Jones, who had been living in the seniors-only Vandalia Houses in East New York for more than 20 years, <a href="https://web.archive.org/web/20160923063307/http://www.nyc.gov/html/nycha/downloads/pdf/pr_jul05_1.pdf">got a letter from Mayor Bloomberg</a> (wishing &#x201C;good health and great happiness&quot;) for her twice-daily commitment to the tenant patrol, despite her blindness. Jones also helped develop a college scholarship fund for young black women, and put her first niece through college. The grateful relative ended up getting a doctorate, and wrote a biography of Jones titled <a href="https://web.archive.org/web/20160923063307/http://go.redirectingat.com/?id=50913X1248263&amp;site=gothamist.com&amp;xs=1&amp;isjs=1&amp;url=http%3A%2F%2Fwww.amazon.com%2FSusannah-Our-Incredible-114-Year-Old-Aunt%2Fdp%2F1614932220&amp;xguid=9db73ba48c39b4e845313e6fb6af645e&amp;xuuid=48c57fab9ca437435252109eeea095d6&amp;xsessid=7ddd0fb159ed019aff458c295fbec767&amp;xcreo=0&amp;xed=0&amp;sref=http%3A%2F%2Fgothamist.com%2F2015%2F07%2F06%2Fbacon_eggs_sleep_live_4ever.php&amp;pref=https%3A%2F%2Fwww.google.com%2F&amp;xtz=240&amp;abp=1">Susannah Our Incredible 114-Year-Old Aunt</a>.</p>
+
+<p>Married only once, and briefly at that, Jones had no children of her own. This may have been the secret to her longevity, in addition to &quot;Sleep!&quot; according to Guinness, and <a href="https://web.archive.org/web/20160923063307/http://www.nydailynews.com/new-york/brooklyn/brooklyn-susannah-mushatt-jones-world-oldest-age-115-article-1.2263761">four strips of bacon with eggs</a> every single morning. Relatives recently <a href="https://web.archive.org/web/20160923063307/http://www.theguardian.com/us-news/2016/may/13/worlds-oldest-person-susannah-mushatt-jones-dies-at-age-of-116">told the Guardian</a> that Jones also got plenty of fruits and vegetables as a child, eating produce she harvested herself. </p>
+
+<p><a href="https://web.archive.org/web/20160923063307/http://www.nydailynews.com/news/national/brooklyn-susannah-mushatt-jones-oldest-woman-dies-age-116-article-1.2635657">According to the News</a>, the oldest living person in America is now Goldie Michelson, a 113-year-old who lives in Massachusetts who is originally from Russia. The oldest woman in the world is now Emma Morano-Martinuzzi, of Italy, who is 150 days younger than Jones and has also attributed her longevity to <a href="https://web.archive.org/web/20160923063307/http://www.nytimes.com/2015/02/15/world/raw-eggs-and-no-husband-since-38-keep-her-young-at-115.html?_r=3">eating eggs and being single</a>.</p>
+
+<p>Jones reportedly died just before 8:30 p.m. on Thursday, at her senior home.</p>
+
+<p>In a <a href="https://web.archive.org/web/20160923063307/http://nymag.com/daily/intelligencer/2015/12/this-brooklyn-woman-is-the-worlds-oldest-person.html">lovely profile of Jones</a> last December, New York Magazine noted that the record holder still chewed double mint gum, and that her hair had recently, mysteriously grown in brown again after years of being white. Jones voted in 20 presidential elections, twice for Obama. If she had lived until November, the magazine noted, she might have had the chance to vote for the first woman president.</p>					
+										
+									
+				

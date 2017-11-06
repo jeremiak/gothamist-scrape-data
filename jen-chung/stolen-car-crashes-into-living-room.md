@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: September 17, 2008  3:56 PM
+title: Stolen Car Crashes into Living Room
+---
+
+<p><img alt="20008_09_carmet.jpg" src="https://web.archive.org/web/20111117101859im_/http://gothamist.com/attachments/jen/20008_09_carmet.jpg" width="130" height="115" class="right">Suffolk County police say that a man was drunk driving a stolen SUV in Patchogue when he <a href="https://web.archive.org/web/20111117101859/http://www.newsday.com/news/local/suffolk/ny-lichas0918,0,4739358.story">crashed the vehicle into a Patchogue home</a> last night.  Well, actually Frank Dawson wasn&apos;t in the car; Newsday reports that he &quot;leaped from the sport utility vehicle on Clark Street -- as the big GMC Yukon was still moving -- and ran off... <strong>the truck continued to roll until it hit the home, going into the living room and hitting a couch where a resident had been sitting moments earlier.</strong>&quot;  The home&apos;s owner Christopher Carapezza said he was watching the Yankees game, but he want to see his wife upstairs after she called for him.  Dawson <a href="https://web.archive.org/web/20111117101859/http://wcbstv.com/local/patchogue.police.chase.2.819633.html">charged with reckless endangerment and DWI</a>.</p>

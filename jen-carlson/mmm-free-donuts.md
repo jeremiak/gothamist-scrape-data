@@ -1,0 +1,11 @@
+---
+author: Jen Carlson
+date: Jun 5, 2009 9:00 am
+title: Mmm...Free Donuts
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="phpSuaMTXAM.jpg" src="https://web.archive.org/web/20150522054609im_/http://gothamist.com/attachments/arts_jen/phpSuaMTXAM.jpg" width="140" height="137" class="image-right"> </span>Happy National Doughnut Day! What this means for you is, of course, free donuts&#x2014;and <a href="https://web.archive.org/web/20150522054609/http://consumerist.com/5278885/national-doughnut-day-is-tomorrow-free-doughnuts">Consumerist</a> points out that free donuts are non-caloric and guilt free. Ah, sweet little lies. It&apos;s too bad the <a href="https://web.archive.org/web/20150522054609/http://www.doughnutplant.com/">Doughnut Plant</a> doesn&apos;t seem to be participating in today&apos;s events, but there are two ways to get your free fix. Head to the one surviving Krispy Kreme at <a href="https://web.archive.org/web/20150522054609/http://maps.google.com/maps?hl=en&amp;um=1&amp;ie=UTF-8&amp;q=krispy+kreme+nyc&amp;fb=1&amp;split=1&amp;gl=us&amp;cid=0,0,15559342970205773303&amp;ei=6hQpSsOSLKGwyQXn1PXsCg&amp;sa=X&amp;oi=local_result&amp;ct=image&amp;resnum=1">2 Penn Plaza</a> and you will get a free donut with <em>no purchase necessary</em>, barring any <a href="https://web.archive.org/web/20150522054609/http://gothamist.com/2009/05/07/kfc_denies_chicken_riot_but_phone_s.php">Kentucky Fried riots</a>. Since business isn&apos;t doing so well, however, you may want to get a little something extra while you&apos;re there. Meanwhile, over at one of the many <a href="https://web.archive.org/web/20150522054609/https://www.dunkindonuts.com/aboutus/press/PressRelease.aspx?viewtype=current&amp;id=100144">Dunkin&apos; Donuts</a> in the city (where they announced <a href="https://web.archive.org/web/20150522054609/https://www.dunkindonuts.com/donut/">a new Toffee donut</a> today) you can get a free donut with the purchase of any beverage.</p>					
+										
+									
+				

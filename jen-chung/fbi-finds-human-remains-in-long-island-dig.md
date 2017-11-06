@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: October  7, 2008  9:24 AM
+title: FBI Finds Human Remains in Long Island Dig
+---
+
+<p><img alt="2008_10_fbidig.jpg" src="https://web.archive.org/web/20110611050034im_/http://gothamist.com/attachments/jen/2008_10_fbidig.jpg" width="130" height="114" class="right">After days of digging and <a href="https://web.archive.org/web/20110611050034/http://gothamist.com/2008/10/06/fbi_still_searches_for_bones_on_lon.php">only finding dog bones</a>, a source <a href="https://web.archive.org/web/20110611050034/http://www.newsday.com/news/local/crime/ny-lidig0712036706oct06,0,2657068.story">tells Newsday</a> that the FBI seems to have found human remains buried in East Farmingdale, Long Island yesterday afternoon.  The FBI has been at the industrial complex ever since a tipster said three bodies were buried there and, by last evening, &quot;FBI agents were chopping down tree branches so a large set of floodlights could illuminate the baseball diamond-sized dig area through the evening.&quot; The <a href="https://web.archive.org/web/20110611050034/http://www.nydailynews.com/news/ny_crime/2008/10/06/2008-10-06_corpse_found_at_long_island_mob_dig_may_.html">Daily News reports</a> that agents think the remains are of former Colombo underboss William (Wild Bill) Cutolo--&quot;<strong>the corpse was found in a tarp cocoon - the traditional way mob hit men dispose of their kills - with shoe-clad feet sticking out.</strong>&quot;</p>

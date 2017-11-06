@@ -5,9 +5,9 @@ title: Game Of Thrones Power Rankings: Valar Dohaeris
 ---
 
 	
-										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="33113thrones.jpg" src="https://web.archive.org/web/20160628205932im_/http://gothamist.com/attachments/byakas/33113thrones.jpg" width="640" height="426"> <br> <i> HBO</i></div> <p></p>
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="33113thrones.jpg" src="https://web.archive.org/web/20150428172129im_/http://gothamist.com/attachments/byakas/33113thrones.jpg" width="640" height="426"> <br> <i> HBO</i></div> <p></p>
 
-<p>After <a href="https://web.archive.org/web/20160628205932/http://gothamist.com/2013/03/29/who_is_still_alive_going_into_seaso.php">all the gif recaps</a> and the <a href="https://web.archive.org/web/20160628205932/http://gothamist.com/2013/03/28/game_of_thrones.php#photo-1">passionate interviews</a>, <em>Game Of Thrones</em> is back! In tonight&apos;s season premiere, we learned not to stare at giants too long, we met the much-talked-about Mance Rayder, and we discovered that scorpions can have human faces. Since the show is all about how people jockey for power, we&apos;ve decided to follow along this season with our <em>Game of Thrones</em> Power Rankings&#x2014;aka, who is <em>owning</em> this week.</p>
+<p>After <a href="https://web.archive.org/web/20150428172129/http://gothamist.com/2013/03/29/who_is_still_alive_going_into_seaso.php">all the gif recaps</a> and the <a href="https://web.archive.org/web/20150428172129/http://gothamist.com/2013/03/28/game_of_thrones.php#photo-1">passionate interviews</a>, <em>Game Of Thrones</em> is back! In tonight&apos;s season premiere, we learned not to stare at giants too long, we met the much-talked-about Mance Rayder, and we discovered that scorpions can have human faces. Since the show is all about how people jockey for power, we&apos;ve decided to follow along this season with our <em>Game of Thrones</em> Power Rankings&#x2014;aka, who is <em>owning</em> this week.</p>
 
 <p><strong><em>Game Of Thrones</em> Power Rankings, Week 1:</strong></p>
 
@@ -46,7 +46,7 @@ title: Game Of Thrones Power Rankings: Valar Dohaeris
 
 <p><strong>Not Applicable</strong>: We didn&apos;t have any time to catch up with Arya Stark, Bran Stark, Hodor, Jamie Lannister, Brienne of Tarth, Varys, The Hound, and Theon Greyjoy. But don&apos;t worry, because many of them and lots of new characters will be appearing next week. Until then, here&apos;s the theme song the way we always hear it.</p>
 
-<p><iframe width="640" height="360" src="https://web.archive.org/web/20160628205932if_/http://www.youtube.com/embed/SISJHD9RIuA" frameborder="0" allowfullscreen></iframe></p>					
+<p><iframe width="640" height="360" src="https://web.archive.org/web/20150428172129if_/http://www.youtube.com/embed/SISJHD9RIuA" frameborder="0" allowfullscreen></iframe></p>					
 										
 									
 				

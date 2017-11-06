@@ -1,0 +1,19 @@
+---
+author: Jen Carlson
+date: Sep 1, 2009 4:51 pm
+title: Brazilian Ad Agency: Never Forget...The Tsunami
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="wtfwwf0909.jpg" src="https://web.archive.org/web/20160529083755im_/http://gothamist.com/attachments/arts_jen/wtfwwf0909.jpg" width="640" height="442" class="image-none"> </span><br>
+<span class="photo_caption">See the full size image <a href="https://web.archive.org/web/20160529083755/http://www.coloribus.com/adsarchive/prints/wwf-tsunami-327351/show/">here</a>.</span></p>
+
+<p>Advertisers have been fixated on hurtling planes at the Twin Towers <a href="https://web.archive.org/web/20160529083755/http://gothamist.com/2008/01/10/pakistan_airlin.php">long before 9/11</a> happened, but it&apos;s safe to say they held off on it <em>after</em> that tragic day. Now, it turns out that a Brazilian ad agency&#x2014;DDB Brasil&#x2014;tried to win the World Wildlife Fund (WWF)&apos;s business with this ad concept: An image of lower Manhattan showing many, many planes aiming at Manhattan&#x2014;and they even include the Towers. (What is it with <a href="https://web.archive.org/web/20160529083755/http://gothamist.com/2008/05/15/brazilian_busin.php">Brazilian ad agencies?</a>). The text urges us to protect the planet; it also reads: &quot;<strong>The Tsunami Killed 100 Times More People Than 9/11</strong>.&quot; <em>Okay</em>, so who wants to make a mock-up of 1,000 Nazi soldiers being catapulted into Thailand?</p>
+
+<p><a href="https://web.archive.org/web/20160529083755/http://www.worldwildlife.org/who/media/press/2009/WWFPresitem13540.html">The WWF has issued the following statement</a> denouncing the ad:</p><blockquote>&#x201C;<strong>WWF strongly condemns this offensive and tasteless ad and did not authorize its production or publication.</strong> It is our understanding that it was a concept offered by an outside advertising agency seeking our business in Brazil. The concept was summarily rejected by WWF and should never have seen the light of day. It is an unauthorized use of our logo and we are aggressively pursuing action to have it removed from websites where it is being currently featured. We strongly condemn the messages and the images portrayed in this ad. On behalf of WWF, here in the US and around the world, we can promise you this ad does not in any way reflect the thoughts and feelings of the people of our organization.&#x201D;</blockquote><a href="https://web.archive.org/web/20160529083755/http://cityroom.blogs.nytimes.com/2009/09/01/wildlife-group-condemns-a-911-tsunami-ad/">According to CityRoom</a>, the WWF spokesman Steve Ertel &quot;said the World Wildlife Fund had never seen the ad before Tuesday, when his phone started ringing and people began forwarding various blog posts about the ad. It was a scramble to figure out where the ad had come from, he said.&quot;  <p><br>
+<a href="https://web.archive.org/web/20160529083755/http://adweek.blogs.com/adfreak/2009/09/911-was-nothing-according-to-new-wwf-ad.html">Adweek</a> calls it &quot;tasteless, nightmarish&quot; and lacking respect; noting that &quot;exploiting one tragedy to try to prevent another is just stupid and self-defeating.&quot; And though the concept was rejected, DDB Brasil apparently still entered it into the One Show competition, where it <a href="https://web.archive.org/web/20160529083755/http://www.oneclub.org/os/os/showcase/?year=2009&amp;id=10486">won an award</a> for public service. [via <a href="https://web.archive.org/web/20160529083755/http://animalnewyork.com/2009/09/wwf-wtc-wtf/">Animal</a>]</p><p></p>
+
+<p><b>Update</b>: It gets worse: <a href="https://web.archive.org/web/20160529083755/http://gothamist.com/2009/09/02/video_ddb_brazil_made_a_911-inspire.php">DDB Brazil created a TV ad too</a>.</p>					
+										
+									
+				

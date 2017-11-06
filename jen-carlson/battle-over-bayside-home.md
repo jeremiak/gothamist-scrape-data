@@ -1,0 +1,11 @@
+---
+author: Jen Carlson
+date: Jun 25, 2009 4:10 pm
+title: Battle Over Bayside Home
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-right" style=" width:140px; "> <img alt="2009_06_soldclub.gif" src="https://web.archive.org/web/20170326215124im_/http://gothamist.com/attachments/jen/2009_06_soldclub.gif" width="140" height="108"> <br> <i>One Bayside landmark, <a href="https://web.archive.org/web/20170326215124/http://www.baysidehistorical.org/landmarks/officersclub.html">The Officer&apos;s Club</a></i></div> The owner of what many consider an historic house <a href="https://web.archive.org/web/20170326215124/http://hdc.org/blog/2009/06/16/help-save-the-ahles-house-in-bayside/">in Bayside, Queens</a> is sparring with some locals over a landmark status for the home. <a href="https://web.archive.org/web/20170326215124/http://www.nydailynews.com/ny_local/queens/2009/06/25/2009-06-25_landmarks_preservation_commission_battles_to_save_19thcentury_bayside_house.html">The Daily News</a> reports that the 19th-century villa was built by farmer Robert Bell in the 1870s for his daughter and son-in-law. Members of the <a href="https://web.archive.org/web/20170326215124/http://www.baysidehistorical.org/">Bayside Historical Society</a> and ther advocates are urging the Landmarks Preservation Commission to save the structure on 213th Street, but owner Robert Bell says it  too &quot;inelegant&quot; to get such a status (which would make it difficult for him to make any major changes). Reportedly he declared, &quot;We&apos;re not saving something that doesn&apos;t need saving!&quot; at a commission hearing earlier this week. His opponents say that the Bell family can be credited with establishing the local water system as well as creating area streets, and their Second Empire style home with a mansard roof deserves to be saved. Of course, one nearby landmark <a href="https://web.archive.org/web/20170326215124/http://gothamist.com/2009/06/01/fort_totten.php">in Fort Totten</a> is currently suffering demolition through neglect.<p></p>					
+										
+									
+				

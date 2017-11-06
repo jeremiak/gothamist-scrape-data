@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: October  6, 2008 12:02 PM
+title: Doc Rivers Thinks the Knicks Will Return to Better Days
+---
+
+<p><img alt="2008_10_docrivers.jpg" src="https://web.archive.org/web/20110611062000im_/http://gothamist.com/attachments/jen/2008_10_docrivers.jpg" width="130" height="116" class="right">Doc Rivers, former Knicks player (1992-1994) and now coach of the champion Boston Celtics, <a href="https://web.archive.org/web/20110611062000/http://www.nytimes.com/2008/10/05/sports/basketball/05rhoden.html?scp=2&amp;sq=doc%20rivers&amp;st=cse">was optimistic about his former team</a> when the NY Times&apos; William C. Rhoden asked him if he thought there was hope for the Knicks.  Rivers said, &quot;Absolutely.  I was a part of it when the Knicks were good. I was there. There was no better feeling as a player than playing in that city when you&#x2019;re winning. It was a phenomenal feeling, with that whole &#x2018;Go New York, go New York, go.&#x2019; The city was going nuts. That will return. <strong>I don&#x2019;t know what day, what year, but it&#x2019;s going to return.</strong>&#x201D;  Rhoden also noticed that the Celtics&apos; practice camp was all about team building, whereas the Knicks camp was <a href="https://web.archive.org/web/20110611062000/http://gothamist.com/2008/09/30/marbury_willing_to_be_cut.php">all about Stephon Marbury</a> (as usual).</p>

@@ -1,0 +1,17 @@
+---
+author: Jen Chung
+date: Feb 7, 2010 9:50 am
+title: "Manhattan Madam" Wants To Run For Governor
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <a href="https://web.archive.org/web/20160210154658/http://gothamist.com/2009_12_kridavis.jpg"> <img alt="2009_12_kridavis.jpg" src="https://web.archive.org/web/20160210154658im_/http://gothamist.com/assets_c/2009/12/2009_12_kridavis-thumb-190x241-466404.jpg" width="170" height="215" class="image-left"> </a> </span>While former governor Eliot Spitzer reminded everyone he used to be the Sheriff of Wall Street <a href="https://web.archive.org/web/20160210154658/http://gothamist.com/2010/02/03/spitzer_on_colbert.php">on The Colbert Report</a> this past week, <a href="https://web.archive.org/web/20160210154658/http://www.manhattanmadam.com/home">&quot;Manhattan Madam&quot;  Kristin Davis</a>, the madam who claims Spitzer was one of her clients, has been eyeing one of Spitzer&apos;s former jobs&#x2014;being governor!  <a href="https://web.archive.org/web/20160210154658/http://www.nydailynews.com/gossip/2010/02/07/2010-02-07_kristin_davis_alleged_eliot_spitzer_madam_to_run_for_new_york_governor_with_gop_.html">According to the Daily News</a>, Republican operative Roger Stone has been helping her with a gubernatorial bid! </p>
+
+<p>Stone, who has worked for Richard Nixon, <a href="https://web.archive.org/web/20160210154658/http://www.time.com/time/europe/magazine/2000/1204/cover_riot.html">organized protests</a> during the 2000 Election Florida recount, and <a href="https://web.archive.org/web/20160210154658/http://gothamist.com/2007/08/23/a_funny_thing_h_3.php">may or may not have</a> left a<a href="https://web.archive.org/web/20160210154658/http://gothamist.com/2007/08/22/crazy_phone_cal.php"> voicemail for Spitzer&apos;s dad</a> calling his son a &quot;phony, psycho piece of s---&quot;, tells the News, &quot;This is not a hoax, a prank or a publicity stunt..This started out being about Spitzer. But now that it looks like he won&apos;t run, Kristin still wants to use her celebrity to highlight a reform agenda.&quot; </p>
+
+<p>What kind of reform? Well, Davis calls herself a &quot;natural Libertarian,&quot; hates taxes, wants to legalize prostitution and marijuana (hello, revenue), and supports gay marriage while being a card-carrying member of the NRA!  Stone, who says GOP candidate Rick Lazio is &quot;a turkey,&quot; is also plotting to get Davis&apos;s Penthouse Pet friends involved, &quot;We&apos;ll get four, make them notary publics and have them, suitably attired, collecting signatures [for Davis to get on the ballot] at Grand Central Station during rush hour.&quot;</p>
+
+<p>For what it&apos;s worth, Stone, who also claims he <a href="https://web.archive.org/web/20160210154658/http://gothamist.com/2008/05/25/roger_stone_spi.php">tipped off the feds</a> about Spitzer&apos;s prostitute-loving ways, <a href="https://web.archive.org/web/20160210154658/http://stonezone.com/">is angry</a> that Spitzer is <a href="https://web.archive.org/web/20160210154658/http://gothamist.com/2010/01/29/video_spitzer_pontificates_on_love.php">denying that he wore black socks during sex</a>: &quot;Three independent sources all confirmed he did it with his droopy calf-length socks on.&quot;</p>					
+										
+									
+				

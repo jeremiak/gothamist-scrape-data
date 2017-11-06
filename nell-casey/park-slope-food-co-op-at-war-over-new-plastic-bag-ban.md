@@ -1,0 +1,19 @@
+---
+author: Nell Casey
+date: Jun 24, 2013 3:13 pm
+title: Park Slope Food Co-Op At War Over New Plastic Bag Ban
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="201108_foodcoop.jpg" src="https://web.archive.org/web/20150428175521im_/http://gothamist.com/attachments/nyc_nellcasey/201108_foodcoop.jpg" width="640" height="426"> <br> <i> <span class="photo_caption">(<a href="https://web.archive.org/web/20150428175521/http://www.flickr.com/photos/wallyg/2433947202/in/photostream/">wallyg</a>/Flickr)</span></i></div> <p></p>
+
+<p>A proposed phaseout of plastic roll bags is <em>tearing the Park Slope Food Co-Op apart. </em>The Co-Op&apos;s <a href="https://web.archive.org/web/20150428175521/http://ecokvetch.blogspot.com/">Environmental Committee</a> proposed the phaseout as a followup to earlier legislation concerning plastic bag usage at the store. Plastic shopping bags have been verboten in the Co-Op since 2007, but the ban did not extend to the plastic roll bags that customers use to bag up produce and bulk items. Now the General Coordinators&#x2014;a nine person management collective responsible for planning and financial and operational oversight&#x2014;have determined that the proposed ban would <a href="https://web.archive.org/web/20150428175521/http://www.dnainfo.com/new-york/20130624/park-slope/park-slope-food-coop-members-at-odds-over-plastic-phaseout">negatively impact the Co-Op</a> financially and interfere with the general goals and vision of the collectively-owned business.</p>
+
+<p>In a listicle-esque slideshow titled (deep breath) <a href="https://web.archive.org/web/20150428175521/http://www.slideshare.net/foodcoop/top-reasons-not-to-eliminate-roll-bags-17385188?ref=http://foodcoop.com/bags">Top Reasons NOT To Approve the Proposed Phase Out of Plastic Roll Bags at the May General Meeting</a>, the GCs explain how the plastic roll bag ban would negatively affect the Co-Op. The majority of members utilize the plastic roll bags, and without a free, readily available alternative, members would see added costs to shopping at the store. Additional concerns about sanitation, environmental impact and long-term behavioral patterns top the lists of reasons why the General Coordinators do not support the phaseout.</p>
+
+<p>You can read all the concerns about the phaseout <a href="https://web.archive.org/web/20150428175521/http://foodcoop.com/bags">here</a>. A decision about whether to rollout the phaseout was supposed to be made at the General Meeting on May 28th, but the enormous crowd couldn&apos;t fit inside the meeting space, so the decision has been postponed. Nobody can ever say the PSFC isn&apos;t <a href="https://web.archive.org/web/20150428175521/http://gothamist.com/2012/03/28/inside_the_epic_park_slope_food_co-.php#photo-1">a passionate group</a>.</p>
+
+<p>Elsewhere in the bagosphere, a forum on the environmental impact that single-use plastic bags have in New York City will be held tonight at the <a href="https://web.archive.org/web/20150428175521/http://greenwoodchurch.org/">Greenwood Baptist Church</a> in Park Slope at 7 p.m. City Council Member Brad Lander, who is introducing legislation about reducing plastic bag use, and other environmental and citizen groups will speak about the campaign to reduce the landfill bulk and general pollution caused by the bags. The group will also screen &quot;The Immortal Plastic Bag,&quot; a mini-documentary about plastic bags in NYC, which is not to be confused with the <a href="https://web.archive.org/web/20150428175521/http://www.youtube.com/watch?v=r91jVeyFl4I">other immortal plastic bag film</a>.</p>					
+										
+									
+				

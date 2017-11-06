@@ -1,0 +1,11 @@
+---
+author: Jen Carlson
+date: Jun 4, 2009 1:48 pm
+title: Record Store Closes Stays Open!
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-right" style=" width:140px; "> <img alt="0609RECORDTAPECENTER.jpg" src="https://web.archive.org/web/20160520084208im_/http://gothamist.com/attachments/arts_jen/0609RECORDTAPECENTER.jpg" width="140" height="128"> <br> <i><span class="photo_caption">Photo via <a href="https://web.archive.org/web/20160520084208/http://lostnewyorkcity.blogspot.com/2009/05/indy-record-shop-in-park-slope-to-close.html">Lost City</a></span></i></div> This is something you don&apos;t read about every day, unless it&apos;s in the Onion: a New York record store has managed to keep its doors open! <a href="https://web.archive.org/web/20160520084208/http://www.nydailynews.com/ny_local/brooklyn/2009/06/04/2009-06-04_park_slope_record_shop_.html">The Daily News</a> reports that Park Slope&apos;s only record store will remain open for at least another three years; &quot;The legendary Fifth Avenue Record and Tape Center has found a new home just three doors down from its current spot at 439 Fifth Ave&quot; where the owner will be evicted from by the end of June (despite <a href="https://web.archive.org/web/20160520084208/http://www.brooklynpaper.com/stories/32/20/32_20_eg_record_store.html">never being late on his rent</a>). 72-year-old owner Tony Mignone told the paper, &quot;I&apos;ll give it another shot. I think it&apos;ll be good, because I could fix it up the way I want it... although this is nice over here. But the landlord is jerking me around.&quot; Opening 38 years ago and keeping loyal employees and customers since then, it&apos;s nice to see this story have a happy ending. One customer said, &quot;They don&apos;t have these types of businesses anymore. All of them went out 30, 40 years ago. At least Tony maintains some of the splendor of the old days.&quot; Indeed.<p></p>					
+										
+									
+				

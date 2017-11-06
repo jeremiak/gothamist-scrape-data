@@ -1,0 +1,11 @@
+---
+author: Jen Carlson
+date: February 21, 2008  5:44 PM
+title: Brooklyn's Magnetic Field Closing Next Month
+---
+
+<p><img alt="200802magnetic.jpg" src="https://web.archive.org/web/20120612015615im_/http://gothamist.com/attachments/arts_jen/200802magnetic.jpg" width="332" height="234" class="right">Today Brooklyn venue <a href="https://web.archive.org/web/20120612015615/http://www.magneticbrooklyn.com/">Magnetic Field</a> announced they would soon be closing up shop. From their email, which likely saddened many patrons of the place when it hit inboxes earlier:</p><blockquote>After five-plus years of rocking Atlantic Avenue and entertaining thousands of customers and welcoming hundreds of great bands, Magnetic Field in Brooklyn will be closing its doors on March 31st. Co-owners Lee Greenfeld and William Crane would like to personally thank all of Magnetic Field&#x2019;s staff and patrons for their loyalty over the past few years, as well as all the numerous bands who have brought some truly tremendous and memorable performances to our stage. We are currently working on a blow-out last week of shows to run March 24th through the 31st.</blockquote>We asked Lee Greenfield what happened, expecting to hear a story of being priced out, but he told us a less frequently heard story. &quot;Truth be told, William and I just started getting involved with a lot of other projects that were taking us away from the focus that Magnetic Field needed. I have been managing and promoting bands, while William has been getting involved with another venue as well as taking care of an amazing, nearly four-year old son. There are no plans for Magnetic Field to relocate or for either of us to open a new venue, though you never know what the future will bring!&quot;<p></p>
+
+<p>Read more about the neighborhood on <a href="https://web.archive.org/web/20120612015615/http://www.forgotten-ny.com/STREET%20SCENES/atlantic/atlantic.html">Forgotten NY</a>, who has a tour of Atlantic Avenue. </p>
+
+<p><span class="photo_caption">Photo via Forgotten NY.</span></p>

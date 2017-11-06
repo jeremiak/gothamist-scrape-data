@@ -1,0 +1,47 @@
+---
+author: Nell Casey
+date: Aug 12, 2013 4:10 PM
+title: 6 Summer Cocktails To Try Before The Fall
+---
+
+
+                            
+                            
+                            
+                            <p><em>It&apos;s almost mid-August, which means it&apos;s almost September, meaning soon it will be </em>autumn<em> and we&apos;ll be back to bitching about cold snaps instead of moaning about humidity. Time to grab summer by its sweaty balls and get out there and enjoy some seasonally-appropriate alcoholic beverages while you still can. Take a gander at our selections below or head to <a href="https://web.archive.org/web/20130928020550/http://gothamist.com/2013/07/17/the_10_best_cocktail_bars_in_nyc.php">any of our favorite spots</a>.</em></p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="080913willies.jpg" src="https://web.archive.org/web/20130928020550im_/http://gothamist.com/attachments/nyc_nellcasey/080913willies.jpg" width="640" height="485"> <br> <i> <span class="photo_caption">Willie&apos;s Frozen Coffee via <a href="https://web.archive.org/web/20130928020550/http://instagram.com/p/WprfkMwSMi/">Sarah Butler</a></span></i></div> <p></p>
+
+<p><strong>Willie&apos;s Frozen Coffee from Skinny Dennis</strong>: Williamsburg&apos;s <a href="https://web.archive.org/web/20130928020550/http://gothamist.com/2013/02/22/inside_skinny_dennis_williamsburgs.php">honky-tonk haven</a> proves slushies don&apos;t have to come in fruit form with this ridiculously potent iced drink. Served in the iconic NYC coffee cup, Willie&apos;s Frozen Coffee ($6) freezes Oslo coffee and whips it into a cold, frothy mixture. Then they add in the bourbon. Lots of bourbon. It&apos;s a brain freeze-caffeine rush-intoxication machine that will put you on your ass faster than a Volcano hit with Willie Nelson. </p>
+
+<p><em>Skinny Dennis is located at 152 Metropolitan Avenue, Williamsburg, no phone; <a href="https://web.archive.org/web/20130928020550/http://www.skinnydennisbar.com/">skinnydennisbar.com</a></em></p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="080913aztecruin.jpg" src="https://web.archive.org/web/20130928020550im_/http://gothamist.com/attachments/nyc_nellcasey/080913aztecruin.jpg" width="640" height="426"> <br> <i> <span class="photo_caption">Aztec Ruin from The Lexington Social (<a href="https://web.archive.org/web/20130928020550/http://www.samhorine.com/">Sam Horine</a>/Gothamist)</span></i></div> <p></p>
+
+<p><strong>The Aztec Ruin from The Lexington Social</strong>: This cozy gastropub mixes up high-end cocktails every bit as good as the pricey varieties downtown but offers them in the more budget-friendly single digits. One such offering is the Aztec Ruin ($9), a sweet yet refreshing cocktail made with cucumber and papaya-infused tequila mixed with fresh watermelon juice. It&apos;s the perfect kind of drink for a sweltering evening in the late-summer heat and a great excuse to gorge on watermelon before the season ends.</p>
+
+<p><em>The Lexington Social is located at 1634 Lexington Avenue between 103rd and 104th Streets, (646) 820-7013; <a href="https://web.archive.org/web/20130928020550/http://www.lexingtonsocialnyc.com/">lexingtonsocialnyc.com</a></em></p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="081213rougetomate.jpeg" src="https://web.archive.org/web/20130928020550im_/http://gothamist.com/attachments/nyc_arts_john/081213rougetomate.jpeg" width="640" height="328"> <br> <i> (Robb Martinez / Katie Sokoler)</i></div> <p></p>
+
+<p><strong>The Street Corn Cocktail at Rouge Tomate:</strong> Everything on the menu at this elegant yet relaxed restaurant by the southeast corner of Central Park is impeccably fresh, and that includes the cocktails, which are served at an airy bar and lounge in the center of the capacious main dining room. <a href="https://web.archive.org/web/20130928020550/http://gothamist.com/2008/10/30/rouge_tomate.php#photo-1">Rouge Tomate</a>&apos;s brilliant sommelier <a href="https://web.archive.org/web/20130928020550/http://starchefs.com/cook/chefs/2010-new-york-rising-stars/sommelier-pascaline-lepeltier">Pascaline Lepeltier</a> also oversees the cocktail menu, which uses house-made infusions and changes constantly with the seasons. Currently they&apos;ve got a very refreshing cocktail that&apos;s ideal for those who prefer to drink their dessert. The Street Corn Cocktail ($14) is sweet but not <em>too</em> sweet. Served tall, it consists of house-made Corn Milk, Lemon, Tequila, Vago Mezcal, and a Chili black lava salt rim that gives it a nice edge. </p>
+
+<p>Rouge Tomate bartender Zach Moore came up with the drink after Lepeltier requested a cocktail made with corn milk. She tells us Moore incorporated &quot;smoked, roasted flavors like mezcal and the chili salt on the rim, to tie in the flavors of Mexico.&quot; The result is quite tasty: richness, lightness, sweetness and spice all living together in harmony.  </p>
+
+<p><em><a href="https://web.archive.org/web/20130928020550/http://rougetomatenyc.com/&#x200E;">Rouge Tomate</a> is located at 10 East 60th Street, (646) 237-8977</em></p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left"> <img alt="080913midtowncollins.jpg" src="https://web.archive.org/web/20130928020550im_/http://gothamist.com/attachments/nyc_nellcasey/080913midtowncollins.jpg" width="200" height="240"> <br> <i style=" width:200px; ;display:block"> <span class="photo_caption">Midtown Collins</span></i></div> <strong>The Midtown Collins from Ma Peche</strong>: David Chang&apos;s midtown restaurant offers an <a href="https://web.archive.org/web/20130928020550/http://gothamist.com/2010/04/12/midtown_orange_you_glad_david_chang.php#photo-1">appropriately-hued</a> beverage for the season. The Midtown Collins ($15) packs a piquant punch that uses Boiron Kalamansi puree&#x2014;an Asian citrus fruit&#x2014;and lime juice to fortify the NOLET&apos;s Silver Dry Gin-based cocktail. St. Germain and honey syrup balance out the tartness of the fruit while a splash of seltzer adds a nice effervescent pop. Get to the bar before 7 p.m. and snag some shrimp balls with scallion and taro root for a light snack to accompany your drink; establishing a base is the key to drinking longevity!<p></p>
+
+<p><em>Ma Peche is located at 15 West 56th Street between 5th and 6th Avenues, (212) 757-5878; <a href="https://web.archive.org/web/20130928020550/http://momofuku.com/new-york/ma-peche/">momofuku.com/new-york/ma-peche</a></em></p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="091213rooster.jpeg" src="https://web.archive.org/web/20130928020550im_/http://gothamist.com/attachments/nyc_arts_john/091213rooster.jpeg" width="640" height="523"> <br> <i> Uptown Sour</i></div> <strong>The Uptown Sour from Red Rooster</strong>: The drinker&apos;s adage warns against mixing liquor with other forms of alcohol, but daredevil Marcus Samuelsson didn&apos;t let that stop him from creating a cocktail that flies in the face of tradition. Enter the Uptown Sour ($14) at his Harlem restaurant Red Rooster. Things start innocently enough with a generous pour of Alibi American Whiskey, which gets a shake with Ramazotti Amaro (Italian bitters), lemon juice,  honey syrup and more aromatic bitters. After being strained over ice, the cocktail finishes with a float of red wine, either Malbec or Merlot. After a few of these potent elixirs you&apos;ll be extra grateful for that summer Friday.<p></p>
+
+<p><em>Red Rooster is located at 310 Lenox Avenue between 125th and 126th Streets, (212) 792-9001; <a href="https://web.archive.org/web/20130928020550/http://redroosterharlem.com/">redroosterharlem.com</a></em></p>
+
+<p><br>
+<span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left"> <img alt="080913whiskeysmash.jpg" src="https://web.archive.org/web/20130928020550im_/http://gothamist.com/attachments/nyc_nellcasey/080913whiskeysmash.jpg" width="222" height="261"> <br> <i style=" width:222px; ;display:block"> <span class="photo_caption">Whiskey Smash via <a href="https://web.archive.org/web/20130928020550/http://www.yelp.com/biz_photos/the-dead-rabbit-new-york?select=k87FTVb3mom_O3ypq4QQKw#08rszP_C7VdZcN6wE5S0_Q">Yelp</a></span></i></div> <strong>Whiskey Smash from The Dead Rabbit</strong>: Like a totally cracked out mint lemonade, this Bulleit Rye Whiskey-based cocktail takes a bourbon cooler to the next level. Based on a recipe from 1869, bar keeps combine lemon sherbert, lemon juice, fresh mint with tansy tincture, made from the herby flower. It&apos;s all pulled together with the rye, which gives it an edge and a bit of smoke. <p></p>
+
+<p><em>The Dead Rabbit is located at 30 Water Street, 646-422-7906; <a href="https://web.archive.org/web/20130928020550/http://www.deadrabbitnyc.com/">deadrabbitnyc.com</a></em></p>
+                            
+                            
+                            

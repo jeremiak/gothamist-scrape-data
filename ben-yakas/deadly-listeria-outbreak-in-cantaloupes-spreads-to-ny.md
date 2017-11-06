@@ -1,0 +1,15 @@
+---
+author: Ben Yakas
+date: Oct 8, 2011 10:40 am
+title: Deadly Listeria Outbreak In Cantaloupes Spreads To NY
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:260px; "> <img alt="10811listeria.jpg" src="https://web.archive.org/web/20150407165533im_/http://gothamist.com/attachments/byakas/10811listeria.jpg" width="260" height="253"> <br> <i><a href="https://web.archive.org/web/20150407165533/http://www.shutterstock.com/cat.mhtml?lang=en&amp;search_source=search_form&amp;version=llv1&amp;anyorall=all&amp;safesearch=1&amp;searchterm=cantaloupe&amp;search_group=&amp;orient=&amp;search_cat=&amp;searchtermx=&amp;photographer_name=&amp;people_gender=&amp;people_age=&amp;people_ethnicity=&amp;people_number=&amp;commercial_ok=&amp;color=&amp;show_color_wheel=1#id=85629397&amp;src=f8b5ad75a95e7ddef431635417bf35a9-1-23">Shutterstock/O.Bellini</a></i></div> <a href="https://web.archive.org/web/20150407165533/http://hosted.ap.org/dynamic/stories/U/US_LISTERIA_CANTALOUPE?SITE=AP&amp;SECTION=HOME&amp;TEMPLATE=DEFAULT&amp;CTIME=2011-10-07-15-30-26">Health officials say</a> a NY man has died from a listeria infection from tainted cantaloupes&#x2014;and they warn that the outbreak will likely spread even more. Altogether, 21 people have died from the infection, and 109 people have become seriously ill in 23 states. The western NY man who died, whose name hasn&apos;t been released, <a href="https://web.archive.org/web/20150407165533/http://www.nydailynews.com/lifestyle/health/2011/10/08/2011-10-08_1st_state_death_for_cantaloupes.html">was the first in the state</a> to die from the infection.<p></p>
+
+<p>Officials warn that old people and children are most vulnerable to <a href="https://web.archive.org/web/20150407165533/http://www.medicinenet.com/listeria/article.htm">listeria</a>&#x2014;symptoms include fever, headache, stiffness, nausea, abdominal pain and diarrhea. CDC officials have said that the symptoms of listeria can take up to two months to show up, and that they expect more illnesses through October.</p>
+
+<p>Earlier this week, distributor Fruit Fresh Up Inc. <a href="https://web.archive.org/web/20150407165533/http://www.forbes.com/feeds/ap/2011/10/07/business-us-listeria-cantaloupe-ny_8722796.html">recalled 4,800 packages</a> containing cantaloupe sold in western NY between August 31 and September 11 because of possible contamination. The Food and Drug Administration has believe the listeria in cantaloupes stems from Colorado grocery stores, ones grown at Jensen Farms. The recalled cantaloupes may be labeled &quot;Colorado Grown,&quot; &quot;Distributed by Frontera Produce,&quot; &quot;Jensenfarms.com&quot; or &quot;Sweet Rocky Fords,&quot; although not all of the recalled cantaloupes are labeled with a sticker.</p>					
+										
+									
+				

@@ -1,0 +1,21 @@
+---
+author: Nell Casey
+date: Sep 30, 2013 5:05 pm
+title: Taste The Screen At This Year's Food Film Festival
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="093013foodfilmfest.jpg" src="https://web.archive.org/web/20161026060504im_/http://gothamist.com/attachments/nyc_nellcasey/093013foodfilmfest.jpg" width="640" height="427"> <br> <i> <span class="photo_caption">via <a href="https://web.archive.org/web/20161026060504/http://thefoodfilmfestival.com/">Food Film Festival</a></span></i></div> <p></p>
+
+<p>Until such a time as <a href="https://web.archive.org/web/20161026060504/http://www.youtube.com/watch?v=qD4EVXkfe0w">food replicators</a> improve our lives, late night viewings of food porny TV and movies will be fraught with inevitable depression that you aren&apos;t stuffing your mouth with the delicious on-screen treats. Luckily, the <a href="https://web.archive.org/web/20161026060504/http://thefoodfilmfestival.com/">Food Film Festival</a> returns to NYC at the end of October, bringing with it <a href="https://web.archive.org/web/20161026060504/http://thefoodfilmfestival.com/category/events/2013-food-film-fest/">six edible events</a>, 35 food films and 150 foods and beverages.</p>
+
+<p>The Fest kicks off with the <a href="https://web.archive.org/web/20161026060504/http://thefoodfilmfestival.com/kings-bbq/">Kings Of BBQ</a> on Wednesday, October 23rd, where they&apos;ll be screening <em>Blessed by Brisket</em> about a Jewish deli in Bed-Stuy and <em>The Kings of BBQ: Barbecue Kuwait</em>, which follows legendary BBQ pitmasters as they smoke up dinner for 5,000 US troops stationed in Kuwait. Alongside the films, nosh on a BBQ Brisket Dinner, Pastrami, sides and a Southern Dessert bar plus brews by Warsteiner. </p>
+
+<p>Next up on October 24th, <a href="https://web.archive.org/web/20161026060504/http://thefoodfilmfestival.com/edible-adventure-008-surprise/">Edible Adventure #008: The Surprise Inside</a>, with a selection of dumplings, cupcakes, tacos and other &quot;filled treats&quot; with screenings of <em>Perogy!</em>, <em>Dumpling Tales</em> and other stuffed films. Feast on Indian specialties from the Punjabi region at <a href="https://web.archive.org/web/20161026060504/http://thefoodfilmfestival.com/cook-pray-eat/">Cook, Pray, Eat: Serving 50,000 Meals at the Sikh Golden Temple in Amritsar</a> on October 26th, an event in conjunction with a screening of <em><a href="https://web.archive.org/web/20161026060504/https://vimeo.com/32644846">Himself He Cooks</a></em>, which chronicles the volunteers who serve meals at the aforementioned temple.</p>
+
+<p>As always, the Fest reaches a feeding frenzy with <a href="https://web.archive.org/web/20161026060504/http://thefoodfilmfestival.com/food-porn-party/">The Food Porn Party</a> and this year get ready for some hot, hot, hot fondue action. Films like <em>Confessions of a Culinista</em>, <em>How To Make Burmese Faluda</em> and <em>That&apos;s Mandorlato!</em> will be screened and presented alongside are dishes from the films, lots of beer and a late-night food burlesque show. The last event is <a href="https://web.archive.org/web/20161026060504/http://thefoodfilmfestival.com/farm-film-table-matt-timms-green-chile-takedown/">Farm to Film to Table + Matt Timms&apos; Green Chile Takedown</a>. </p>
+
+<p>Check out the <a href="https://web.archive.org/web/20161026060504/http://thefoodfilmfestival.com/category/events/2013-food-film-fest/">full lineup here</a> and grab your tickets soon as the screenings tend to sell out quickly. <a href="https://web.archive.org/web/20161026060504/http://thefoodfilmfestival.com/2013-nyc-tickets/">Tickets range $45 to $145</a> depending on the event, with a Festival-Wide VIP Pass for $595 also available. Each ticket includes all the film screenings plus food and beverages, and ticket sales once again benefit <a href="https://web.archive.org/web/20161026060504/http://www.foodbanknyc.org/">Food Bank for NYC</a>.  </p>					
+										
+									
+				

@@ -1,0 +1,17 @@
+---
+author: Ben Yakas
+date: Jan 5, 2012 4:58 pm
+title: Kanye West: Fixing The World One Epic Twitter Rant At A Time
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="1512kanye.jpeg" src="https://web.archive.org/web/20160604123804im_/http://gothamist.com/attachments/byakas/1512kanye.jpeg" width="640" height="440"> <br> <i>Kanye + The Jetsons</i></div> <p></p>
+
+<p>When <a href="https://web.archive.org/web/20160604123804/http://gothamist.com/tags/kanyewest">Kanye West</a> isn&apos;t busy <a href="https://web.archive.org/web/20160604123804/http://gothamist.com/2011/10/11/video_kanye_west_too_angsty_to_talk.php">capturing the zeitgeist</a>, he&apos;s been known to indulge in some tweeting in his off hours. But he one-upped himself during an epic two-and-a-half hour <a href="https://web.archive.org/web/20160604123804/https://twitter.com/#!/kanyewest">Twitter rampage last night</a>, making more than 80 tweets with the exuberance of an overstimulated tween. Among other things, we learned all about his DONDA design company, his ambivalence about award shows, his desire to fix the school system, and his involvement in a <em>Jetsons</em> movie: &quot;I was just discussing becoming the creative director for the Jetson movie and someone on the call yelled out.. you should do a Jetsons tour!&quot;</p>
+
+<p>The <a href="https://web.archive.org/web/20160604123804/https://twitter.com/#!/kanyewest">whole long rant</a>, which took place between 11 p.m. and 1:30 a.m., started with him clarifying that @DWbyKanye was a fake account, and quickly spiralled from there. Between inspirational quotes and tons of info about his fashion background (&quot;I moved to Japan for one month after that and designed every night in my room&quot;), <a href="https://web.archive.org/web/20160604123804/http://nymag.com/daily/entertainment/2012/01/what-we-learned-from-kanyes-tremendous-late-night-twitter-rant.html">highlights included</a> mentions of educational collaborations (&quot;Spike Jonze and I want to do a Summer school that tries new forms of cuuriculim&quot;) and DONDA&apos;s utopian vision for fixing the world: &quot;We want to help simplify and aesthetically improve everything we see hear, touch, taste and feel. ...To dream of, create, advertise and produce products driven equally by emotional want and utilitarian need.. To marry our wants and needs.&quot; </p>
+
+<p>And of course, the fallout from the tweeting has been interesting as well. Buzzfeed compiled a list of <a href="https://web.archive.org/web/20160604123804/http://www.buzzfeed.com/bfeld/poorly-illustrated-kanye-west-tweets">interpretive drawings of the tweets by a 5-year-old</a>. And Gawker got <a href="https://web.archive.org/web/20160604123804/http://www.observer.com/2012/01/dis-original-blogga-joke-sucks-gawkers-charming-acronym-for-kanyes-donda-with-n-bomb-a-joke/">into some hot water</a> over a pretty stupid joke&#x2014;<a href="https://web.archive.org/web/20160604123804/http://gawker.com/5873236/the-top-10-kanye-west-tweets-about-donda-his-new-everything-venture">they called DONDA</a> (which was named after West&apos;s deceased mother) &quot;an acronym for Dis Original N***a Dresses Aight.&quot; </p>					
+										
+									
+				

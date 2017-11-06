@@ -1,0 +1,21 @@
+---
+author: Nell Casey
+date: Jun 3, 2016 12:40 pm
+title: This Weekend: Dolla Dolla Oysters Y'all
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="060316oysters.jpeg" src="https://web.archive.org/web/20161110084109im_/http://gothamist.com/attachments/nyc_nellcasey/060316oysters.jpeg" width="640" height="480"> <br> <i> (via <a href="https://web.archive.org/web/20161110084109/https://www.instagram.com/p/BFovByDSDn0/?taken-by=oceanprime_cmr">Instagram</a>)</i></div> <p></p>
+
+<p>Whether you&apos;re blessed with summer Fridays or not, Midtown&apos;s <a href="https://web.archive.org/web/20161110084109/http://www.ocean-prime.com/locations/new-york-city/photo-gallery">Ocean Prime</a> is hooking you up with discounted seafood and hooch to ease into the weekends. Fridays beginning today and running through September, they&apos;ll be doing <strong>$1 oysters and $10 sushi rolls</strong> beginning at 2 p.m. for the early crowd and ending at 11 p.m. for anyone chained to their desks through happy hour. They&apos;re also pouring $10 classes of Veuve Clicquot or Moet Imperial champagne and they&apos;ll offer one special cocktail each Friday for $10 also. </p>
+
+<p><a href="https://web.archive.org/web/20161110084109/http://www.ramen-lab.com/#experience">Ramen Lab&apos;s</a> mission to bring unique styles of noodle soups from a rotating cast of chefs continues with this week&apos;s YouTubers <a href="https://web.archive.org/web/20161110084109/https://www.youtube.com/user/FungBrosComedy">Fung Bros</a> collaborating with Sun Noodle for a two day pop-up. Today and tomorrow beginning at noon, slurp down  <strong>Cantonese Sausage Dumpling Ramen</strong> with pork dumplings, chicken broth and thin wavy noodles; Chilled Beef Ramen with a beef broth and thin noodles; and Taiwanese Popcorn Chicken Mala Tsukemen, a dipping ramen with a pork tonkotsu broth with mala spicy oil and popcorn chicken. Only 50 bowls of each will be served daily, so factor that into your arrival time.</p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="060313tasteuws_lincoln.jpg" src="https://web.archive.org/web/20161110084109im_/http://gothamist.com/attachments/nyc_nellcasey/060313tasteuws_lincoln.jpg" width="640" height="427"> <br> <i> <span class="photo_caption">Capizza from Lincoln Ristorante from 2013&apos;s event (Nell Casey/Gothamist)</span></i></div> <p></p>
+
+<p>One of the city&apos;s <a href="https://web.archive.org/web/20161110084109/http://gothamist.com/2013/06/03/five_reasons_new_taste_of_the_uws_i.php">best food celebrations</a>, <a href="https://web.archive.org/web/20161110084109/https://www.eventbrite.com/e/best-of-the-west-tickets-21219746834"><strong>Best of the West</strong></a>, returns to the Upper West Side on Saturday at the O&apos;Shea schoolyard at Columbus Avenue and West 77th Street. Beneath the enormous tent, sample bites from UWS restaurants like Crave Fishbar and Olma Caviar Boutique, joining returning favorites Dovetail, RedFarm and Rosa Mexicano. All told, there&apos;ll be over 45 restaurants in attendance, plus booze and music. The event runs from 7:30 p.m. to 10 p.m.; <a href="https://web.archive.org/web/20161110084109/https://www.eventbrite.com/e/best-of-the-west-tickets-21219746834#tickets">tickets $135 each or two for $250</a>. </p>
+
+<p>To recuperate from the weekend&apos;s festivities, head over to <a href="https://web.archive.org/web/20161110084109/https://www.facebook.com/pages/Precious-Metal/807455992731203">Precious Metal</a> in Bushwick for a <strong>Vegan Waffle Brunch</strong> Saturday and Sunday beginning at sleep-in friendly 2 p.m. They&apos;ll have both sweet and savory waffle options, which can be paired with the bar&apos;s house cocktails and bloody marys. They&apos;ll also be selling assorted vegan baked goods if waffles aren&apos;t your jam. The brunch, which is run in partnership with <a href="https://web.archive.org/web/20161110084109/http://www.brooklynwhiskersbakery.com/#home">Brooklyn Whiskers</a>, runs every other weekend until 6 p.m.</p>					
+										
+									
+				

@@ -1,0 +1,54 @@
+---
+author: Jen Carlson
+date: May 15, 2012 11:40 am
+title: 14 Photos Of The Subway System Under Construction, 1901-1931
+---
+
+	
+					<div class="galleryEase" id="gallery-520781">
+<!-- gallery js -->
+<script type="text/javascript" src="https://web.archive.org/web/20160201202839js_/http://assets.gothamistllc.com/v5/js/gallery.js"></script>
+<!-- end gallery js -->
+
+<style type="text/css">
+#imgContainer {
+min-height: 300px;
+min-width: 300px;
+background: url('https://web.archive.org/web/20160201202839im_/http://assets.gothamistllc.com/v5/images/progress.gif') center center no-repeat;
+}
+</style>
+
+<!--start of gallery code-->
+<a name="gallery"></a>
+<div class="galleryEaseDisplayed">
+<div id="imgContainer">
+    <img id="galleryImg">
+</div>
+<div class="galleyEaseInfo"></div>
+<div class="galleryEaseNext"></div>
+<div class="galleryEasePrev"></div>
+</div>
+<div class="galleryEaseThumbs">
+		<img src="https://web.archive.org/web/20160201202839im_/http://gothamist.com/assets_c/2012/05/5subway0512old-thumb-60x60-714195.jpeg" title="" id="photo_1" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":1, "image": "https://web.archive.org/web/20160201202839/http://gothamist.com/upload/2012/05/5subway0512old.jpeg", "caption": "\"Subway Construction: 14th Street & 4th Avenue Pillars and tracks; stairs down to platform. October 1903.\"", "credit":"via \<a href=\"http://nycma.lunaimaging.com/luna/servlet\"\>Municipal Archives\<\/a\>"};galleryObj['photo_1'] = photo;</script>
+		<img src="https://web.archive.org/web/20160201202839im_/http://gothamist.com/assets_c/2012/05/6subway0512old-thumb-60x60-714194.jpeg" title="" id="photo_2" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":2, "image": "https://web.archive.org/web/20160201202839/http://gothamist.com/upload/2012/05/6subway0512old.jpeg", "caption": "\"Subway Construction: Park Row and City Hall Park, from street level. Church with Ionic columns at right. November 1902.\"", "credit":"via \<a href=\"http://nycma.lunaimaging.com/luna/servlet\"\>Municipal Archives\<\/a\>"};galleryObj['photo_2'] = photo;</script>
+		<img src="https://web.archive.org/web/20160201202839im_/http://gothamist.com/assets_c/2012/05/3subway0512old-thumb-60x60-714193.jpeg" title="" id="photo_3" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":3, "image": "https://web.archive.org/web/20160201202839/http://gothamist.com/upload/2012/05/3subway0512old.jpeg", "caption": "\"Independent Subway Construction: Interior of above structure. Workers and cranes. January 1931.\"", "credit":"via \<a href=\"http://nycma.lunaimaging.com/luna/servlet\"\>Municipal Archives\<\/a\>"};galleryObj['photo_3'] = photo;</script>
+		<img src="https://web.archive.org/web/20160201202839im_/http://gothamist.com/assets_c/2012/05/2subway0512old-thumb-60x60-714192.jpeg" title="" id="photo_4" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":4, "image": "https://web.archive.org/web/20160201202839/http://gothamist.com/upload/2012/05/2subway0512old.jpeg", "caption": "\"Subway Construction: 8th Avenue and 52nd Street. May 1927.\"", "credit":"via \<a href=\"http://nycma.lunaimaging.com/luna/servlet\"\>Municipal Archives\<\/a\>"};galleryObj['photo_4'] = photo;</script>
+		<img src="https://web.archive.org/web/20160201202839im_/http://gothamist.com/assets_c/2012/05/7subway0512old-thumb-60x60-714196.jpeg" title="" id="photo_5" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":5, "image": "https://web.archive.org/web/20160201202839/http://gothamist.com/upload/2012/05/7subway0512old.jpeg", "caption": "\"Subway Construction: Broadway & 42nd Street, below ground seen from street. February 1903.\"", "credit":"via \<a href=\"http://nycma.lunaimaging.com/luna/servlet\"\>Municipal Archives\<\/a\>"};galleryObj['photo_5'] = photo;</script>
+		<img src="https://web.archive.org/web/20160201202839im_/http://gothamist.com/assets_c/2012/05/9subway0512old-thumb-60x60-714197.jpeg" title="" id="photo_6" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":6, "image": "https://web.archive.org/web/20160201202839/http://gothamist.com/upload/2012/05/9subway0512old.jpeg", "caption": "\"Independent Subway Construction, 173rd to 177th Street under Broadway. Workers in tunnel in background. April 1928.\"", "credit":"via \<a href=\"http://nycma.lunaimaging.com/luna/servlet\"\>Municipal Archives\<\/a\>"};galleryObj['photo_6'] = photo;</script>
+		<img src="https://web.archive.org/web/20160201202839im_/http://gothamist.com/assets_c/2012/05/subway0512old-thumb-60x60-714198.jpeg" title="" id="photo_7" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":7, "image": "https://web.archive.org/web/20160201202839/http://gothamist.com/upload/2012/05/subway0512old.jpeg", "caption": "\"Subway Construction: North tube, looking East. Circular tunnel with chains running across. February 1906.\"", "credit":"via \<a href=\"http://nycma.lunaimaging.com/luna/servlet\"\>Municipal Archives\<\/a\>"};galleryObj['photo_7'] = photo;</script>
+<br>		<img src="https://web.archive.org/web/20160201202839im_/http://gothamist.com/assets_c/2012/05/2subold0512-thumb-60x60-714199.jpeg" title="" id="photo_8" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":8, "image": "https://web.archive.org/web/20160201202839/http://gothamist.com/upload/2012/05/2subold0512.jpeg", "caption": "\"Independent Subway Construction: Ground level. January 1931.\"", "credit":"via \<a href=\"http://nycma.lunaimaging.com/luna/servlet\"\>Municipal Archives\<\/a\>"};galleryObj['photo_8'] = photo;</script>
+		<img src="https://web.archive.org/web/20160201202839im_/http://gothamist.com/assets_c/2012/05/3subold0512-thumb-60x60-714200.jpeg" title="" id="photo_9" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":9, "image": "https://web.archive.org/web/20160201202839/http://gothamist.com/upload/2012/05/3subold0512.jpeg", "caption": "\"New avenue open subway station east from Norfolk Street. December 13, 1906\"", "credit":"via \<a href=\"http://nycma.lunaimaging.com/luna/servlet\"\>Municipal Archives\<\/a\>"};galleryObj['photo_9'] = photo;</script>
+		<img src="https://web.archive.org/web/20160201202839im_/http://gothamist.com/assets_c/2012/05/4subold0512-thumb-60x60-714201.jpeg" title="" id="photo_10" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":10, "image": "https://web.archive.org/web/20160201202839/http://gothamist.com/upload/2012/05/4subold0512.jpeg", "caption": "\"Excavation for Essex Street Station, open pit, horse team. December 13, 1906.\"", "credit":"via \<a href=\"http://nycma.lunaimaging.com/luna/servlet\"\>Municipal Archives\<\/a\>"};galleryObj['photo_10'] = photo;</script>
+		<img src="https://web.archive.org/web/20160201202839im_/http://gothamist.com/assets_c/2012/05/5subold0512-thumb-60x60-714202.jpeg" title="" id="photo_11" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":11, "image": "https://web.archive.org/web/20160201202839/http://gothamist.com/upload/2012/05/5subold0512.jpeg", "caption": "\"Opening for subway Delancey Street west.\"", "credit":"via \<a href=\"http://nycma.lunaimaging.com/luna/servlet\"\>Municipal Archives\<\/a\>"};galleryObj['photo_11'] = photo;</script>
+		<img src="https://web.archive.org/web/20160201202839im_/http://gothamist.com/assets_c/2012/05/6subold0512-thumb-60x60-714203.jpeg" title="" id="photo_12" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":12, "image": "https://web.archive.org/web/20160201202839/http://gothamist.com/upload/2012/05/6subold0512.jpeg", "caption": "\"Subway Construction: 4th Avenue & 15th Street, looking north from street into sunlit lower level. September 1901.\"", "credit":"via \<a href=\"http://nycma.lunaimaging.com/luna/servlet\"\>Municipal Archives\<\/a\>"};galleryObj['photo_12'] = photo;</script>
+		<img src="https://web.archive.org/web/20160201202839im_/http://gothamist.com/assets_c/2012/05/subold0512-thumb-60x60-714204.jpeg" title="subwayconst05.jpeg" id="photo_13" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":13, "image": "https://web.archive.org/web/20160201202839/http://gothamist.com/upload/2012/05/subold0512.jpeg", "caption": "\"Independent Subway Construction: 175th to 183rd Street under Grand Concourse, Bronx.1928-1931\"", "credit":"via \<a href=\"http://nycma.lunaimaging.com/luna/servlet\"\>Municipal Archives\<\/a\>"};galleryObj['photo_13'] = photo;</script>
+		<img src="https://web.archive.org/web/20160201202839im_/http://gothamist.com/assets_c/2012/05/subwayconst05-thumb-60x60-714209.jpeg" title="" id="photo_14" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":14, "image": "https://web.archive.org/web/20160201202839/http://gothamist.com/attachments/arts_jen/subwayconst05.jpeg", "caption": "\"Subway tunnel under construction: laborers look at camera.\" No date given.", "credit":"via \<a href=\"http://nycma.lunaimaging.com/luna/servlet\"\>Municipal Archives\<\/a\>"};galleryObj['photo_14'] = photo;</script>
+									
+</div></div>					<p>A demonstration for an underground transit system in New York City was first built by Alfred Ely Beach in 1869, with a 312 foot run under Broadway in Lower Manhattan (this was later demolished when the BMT Broadway Line was built in the 1910s). The first underground line of the subway opened in October of 1904, though the first elevated line opened 35 years prior. Click through for a look at the underground subway system being constructed, from Delancey Street to the Bronx, from 1901 through 1931&#x2014;and here&apos;s what a ride through the tunnels looked like back <a href="https://web.archive.org/web/20160201202839/http://gothamist.com/2008/12/12/video_of_the_day_subway_circa_1905.php">in 1905</a>.</p>
+
+<p><iframe width="640" height="480" src="https://web.archive.org/web/20160201202839if_/http://www.youtube.com/embed/JvL-YZleK_s" frameborder="0" allowfullscreen></iframe></p>
+
+<p>Today, <a href="https://web.archive.org/web/20160201202839/http://gothamist.com/2012/03/08/check_out_this_humungous_cavern_und.php#photo-1">this is what it looks like to construct a subway</a> with a giant <a href="https://web.archive.org/web/20160201202839/http://gothamist.com/2010/07/16/video_giant_tunnel_boring_machine_c.php#photo-1">tunnel boring machine</a>.</p>					
+										
+									
+				

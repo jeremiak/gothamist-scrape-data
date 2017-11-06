@@ -1,0 +1,7 @@
+---
+author: Jen Carlson
+date: September 17, 2008  5:51 PM
+title: Rosenberg Kids "Don't have any reason to doubt Morty"
+---
+
+<p><img alt="rosenbergs0908.jpg" src="https://web.archive.org/web/20111117115722im_/http://gothamist.com/attachments/arts_jen/rosenbergs0908.jpg" width="130" height="177" class="right">In the opening of Sylvia Plath&apos;s <em>The Bell Jar</em>, the narrative voice of Esther Greenwood notes that &quot;It was the summer they electrocuted the Rosenbergs.&quot; <a href="https://web.archive.org/web/20111117115722/http://www.nytimes.com/2008/09/17/nyregion/17rosenbergs.html?_r=1&amp;oref=slogin">The NY Times</a> recently looked back to that summer, in light of <a href="https://web.archive.org/web/20111117115722/http://gothamist.com/2008/09/11/sobell.php">Morton Sobell</a> confessing last week he and Julius Rosenberg were in the spy game. Julius and Ethel&apos;s sons, Robert and Michael, say they have no reason to doubt &quot;Morty.&quot;  The Times adds &quot;whatever atomic bomb information their father passed to the Russians was, at best, superfluous; the case was riddled with prosecutorial and judicial misconduct; their mother was convicted on flimsy evidence to place leverage on her husband; and neither deserved the death penalty.&quot;</p>

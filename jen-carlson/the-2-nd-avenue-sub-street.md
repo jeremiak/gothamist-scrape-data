@@ -1,0 +1,16 @@
+---
+author: Jen Carlson
+date: Feb 20, 2008 11:23 am
+title: The 2nd Avenue Sub-Street
+---
+
+	
+										<p><img alt="200802streetfuture.jpg" src="https://web.archive.org/web/20150408110156im_/http://gothamist.com/attachments/arts_jen/200802streetfuture.jpg" width="640" height="540"><br>
+<span class="photo_caption">Photo via Modern Mechanix.</span></p>
+
+<p>Thanks to Modern Mechanix we can now see what New York was supposed to look like by the year 2000, <a href="https://web.archive.org/web/20150408110156/http://blog.modernmechanix.com/2007/04/16/new-york-in-the-year-2000/?Qwd=./PopularScience/10-1927/future_cities&amp;Qif=future_cities_1.jpg&amp;Qiv=thumbs&amp;Qis=XL#qdig">as seen from 1927</a>. In that article &quot;streets on five levels have been prophesied,&quot; but by 1931, <a href="https://web.archive.org/web/20150408110156/http://blog.modernmechanix.com/2008/02/12/2-level-streets-to-speed-traffic">two-level streets</a> (pictured) seemed more realistic.</p><blockquote>A definite step towards the relief of traffic congestion on much traveled city thoroughfares by the construction of streets under streets is soon to be taken by the city of New York. When this stupendous project has been brought to completion the metropolis will have an underground lane for fast through traffic, a tunnel for local and express trains, all built underneath the surface street, which will be left for local traffic.<p></p>
+
+<p>Extending down Second Avenue from the Harlem river, the roadway will greatly improve circulation in Manhattan. The plan proposes a four-lane roadway and a pavement 20 feet below the present street level. Local rapid transit tracks will be placed beneath the service roadways, with ramps and escalators making them easily accessible to the streets. On the surface the existing sidewalks will be placed in pedestrian arcades within the buildings lining the streets. Ventilation will be provided by openings in the street center, as illustrated in the drawing above.</p></blockquote>Underground streets on 2nd Avenue sound awfully ambitious, people of the past. As it stands, 77 years after this article was published, we&apos;re still working on the whole <a href="https://web.archive.org/web/20150408110156/http://blog.modernmechanix.com/2008/02/12/2-level-streets-to-speed-traffic/">2nd Avenue <em>subway</em></a> thing. At least we&apos;ll always have <a href="https://web.archive.org/web/20150408110156/http://www.flickr.com/photos/wallyg/152454340">the Park Avenue Viaduct</a> around Grand Central (as noted in Modern Mechanix, &quot;If you stand in Forty-second Street, New York, for instance, in front of the Grand Central Station, there is a viaduct over you. That is one level. Forty-second Street itself is on the second level&#x2014;the ground level&quot;). And just for fun, here&apos;s <a href="https://web.archive.org/web/20150408110156/http://www.nycroads.com/roads/unbuilt_NYC">a list of more unbuilt roads</a> in New York.<p></p>					
+										
+									
+				

@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: September 16, 2008  8:59 AM
+title: Teens Attempt to Use Staten Island Ferry as Escape Boat
+---
+
+<p><img alt="2008_09_siferrym.jpg" src="https://web.archive.org/web/20111117124121im_/http://gothamist.com/attachments/jen/2008_09_siferrym.jpg" width="130" height="109" class="right">The police arrested five Brooklyn teenagers for, <a href="https://web.archive.org/web/20111117124121/http://www.silive.com/news/index.ssf/2008/09/brawling_teens_cause_staten_is.html">per the Staten Island Advance</a>, &quot;allegedly attacking another teenager then trying to escape on a ferryboat.&quot;  One of the teens, all 16 years old, supposedly punched someone a block away from the St. George Ferry Terminal and then fled, with four friends, on the Guy V. Molinari ferryboat.  The victim pointed out the attacker and cops had to follow the group onto the ferry, eventually taking them into custody on at the Whitehall terminal.  The Advance&apos;s <a href="https://web.archive.org/web/20111117124121/http://www.silive.com/news/index.ssf/2008/09/ferry_passengers_held_aboard_w.html">earlier story</a> reported, &quot;<strong>Police called for reinforcements because they did not have enough handcuffs</strong>.&quot;</p>

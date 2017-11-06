@@ -1,0 +1,24 @@
+---
+author: Jen Carlson
+date: Aug 8, 2011 12:30 pm
+title: Why Are New York's Rock Festivals Struggling?
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="newMUSICFEST0811C.jpg" src="https://web.archive.org/web/20151004001802im_/http://gothamist.com/attachments/arts_jen/newMUSICFEST0811C.jpg" width="640" height="380" class="image-none"> </span><br>
+<span class="photo_caption">Woodstock &apos;69 vs. Rock Beach &apos;11 (Photos via LIFE and <a href="https://web.archive.org/web/20151004001802/http://www.controlgeek.net/">Control Geek</a>)</span></p>
+
+<p>Woodstock 1969 was a long time ago, and since then New York&apos;s festival scene has seemed to go downhill (while other states have seen success with Coachella, Pitchfork, and Lollapalooza). Throughout the years festival organizers have tried to bring massive music events to the city and state, but even those that weren&apos;t cancelled after disinterest have been plagued by traffic nightmares, last minute venue changes (hello, <a href="https://web.archive.org/web/20151004001802/http://www.nytimes.com/2003/06/09/arts/festival-review-uprooted-bands-playing-to-ponchos.html">Field Day 2003</a>), and <a href="https://web.archive.org/web/20151004001802/http://en.wikipedia.org/wiki/Woodstock_1999#Violence">violent riots</a>. This year&apos;s festival season is no different, and in fact may be the worst. Here&apos;s a recap, so far:<br>
+</p><ul><li><strong>ROCK BEACH:</strong> After <a href="https://web.archive.org/web/20151004001802/http://gothamist.com/2011/08/03/jellynycs_rock_beach_is_no_more_mee.php">no one showed up</a> to Floyd Bennett Field for JellyNYC&apos;s summer-long Rock Beach event, the organization downsized and are now holding a much smaller show in a venue closer to their demographic in East Williamsburg.<br>
+</li><li><strong>MUSIC TO KNOW FESTIVAL:</strong> This was supposed to take place <a href="https://web.archive.org/web/20151004001802/http://musictoknow.com/">in East Hampton</a> (scheduled for this coming weekend), but was just cancelled. Organizers, who had booked acts like Bright Eyes and Vampire Weekend, said: &quot;Despite our unique vision and arranging a world-class line-up, ticket sales were not adequate to allow the event to continue.&quot;<br>
+</li><li><strong>ESCAPE TO NY FESTIVAL:</strong> This one sort of happened in South Hampton over the weekend, before being shut down. <a href="https://web.archive.org/web/20151004001802/http://www.brooklynvegan.com/archives/2011/08/hamptons_fest_e.html">Brooklyn Vegan</a> reported back saying they &quot;weren&apos;t exactly packing them in, especially on Friday,&quot; and then they officially cancelled the whole thing due to weather.<br>
+</li><li><strong>TRUCK AMERICA FESTIVAL:</strong> This one was scheduled to go down at <a href="https://web.archive.org/web/20151004001802/http://www.truckfestival.us/">the Full Moon Resort</a> upstate in early September. And now that&apos;s been cancelled, too.</li></ul><p></p>
+
+<p>One of the people involved with Truck America told us this morning: &quot;I guess, in our case, we still haven&apos;t heard anything from the organizers in the UK. From what we know, they had a terrible UK festival (they&apos;ve been doing that one for 14 years) and thus, it affected the U.S. version.  I was proud of the lineup and the way tickets were selling, so it&apos;s just unfortunate.&quot; He added that &quot;the most successful festivals are the ones whose ticket price is very low per day [under $50] but you get to see several cool bands.&quot; </p>
+
+<p>Earlier this year the ATP organizers announced their festival would relocate from upstate New York <a href="https://web.archive.org/web/20151004001802/http://gothamist.com/2011/01/26/atp_festival_is_jersey_shore-bound.php">to New Jersey</a> (a decision made prior to <a href="https://web.archive.org/web/20151004001802/http://gothamist.com/2011/08/05/report_some_former_brooklyn_residen.php">this article</a> about the Brooklynization of upstate NY!). And last year <a href="https://web.archive.org/web/20151004001802/http://gothamist.com/2010/02/24/all_points_west_2.php">All Points West</a> called it quits after two years, with one organizer saying, &#x201C;I don&#x2019;t know how great an experience it was for the fans.&quot;</p>
+
+<p>We should note that our own John Del Signore <em>did</em> experience a successful New York music festival earlier this year, <a href="https://web.archive.org/web/20151004001802/http://gothamist.com/2011/07/04/photos_phish.php">courtesy of Phish</a>, a band that has been mastering the art of fan-friendly festivals since 1996. Del Signore also tells us, &quot;<a href="https://web.archive.org/web/20151004001802/http://www.moedown.com/">Moedown</a> has also been quite successful.&quot;</p>					
+										
+									
+				

@@ -1,0 +1,13 @@
+---
+author: Jen Carlson
+date: March  5, 2008 11:41 AM
+title: Courts Bring Corliss Back Down to Earth
+---
+
+<p><img alt="200803corliss.jpg" src="https://web.archive.org/web/20110913164315im_/http://gothamist.com/attachments/arts_jen/200803corliss.jpg" width="294" height="354" class="right">Would-be Empire State Building jumper, Jeb Corliss (pictured), <a href="https://web.archive.org/web/20110913164315/http://www.1010wins.com/pages/1764833.php">isn&apos;t in the clear yet</a>. Last year&apos;s decision from Supreme Court Justice Michael Ambrecht to <a href="https://web.archive.org/web/20110913164315/http://gothamist.com/2007/01/18/jumping_off_the.php">dismiss the charges</a> against him was overturned yesterday when The Supreme Court Appellate Division decided to bring the case back to life. </p>
+
+<p>A four-judge panel unanimously voted, and the Manhattan District Attorney&apos;s office can now pursue its charge of reckless endangerment against Corliss for his 2006 <a href="https://web.archive.org/web/20110913164315/http://gothamist.com/2006/04/28/thwarted_empire.php">attempted jump</a>. The judges did <a href="https://web.archive.org/web/20110913164315/http://www.nytimes.com/2008/03/05/nyregion/05jumper.html?ref=nyregion">reduce the charge</a> from a felony to a misdemeanor, however Corliss could still end up in the slammer for a year, most likely the worst nightmare for a daredevil (though Evel Knievel was known to be familiar with a jail cell or two). On the upside, <a href="https://web.archive.org/web/20110913164315/http://en.wikipedia.org/wiki/Daedalus">Daedalus</a> made some wings while imprisoned; maybe time served could serve as inspiration.</p>
+
+<p>His lawyer, Mark Heller, has stood by his argument that there is no law in New York against jumping off buildings. This is something that council member Peter Vallone, Jr. is <a href="https://web.archive.org/web/20110913164315/http://gothamist.com/2008/03/03/vallone_says_no.php">trying to change</a> with the new bill he has introduced which would essentially protect innocent bystanders from getting fallen on. <a href="https://web.archive.org/web/20110913164315/http://gothamist.com/2008/03/04/yesterday_we_no.php">Yesterday</a> Vallone&apos;s office told us that they don&apos;t actually know of any fatalities that have been caused by base jumping in New York, however &quot;a basic search reveals there have been over 100 fatalities in the past 25 years&quot; worldwide. </p>
+
+<p>Heller is considering an appeal to the state&apos;s highest court.</p>

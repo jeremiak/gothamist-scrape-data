@@ -1,0 +1,17 @@
+---
+author: Jen Chung
+date: Apr 6, 2010 9:30 am
+title: Bloomberg Calls Midtown Violence "Wilding"
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2010_04_tsriot.jpg" src="https://web.archive.org/web/20160528185910im_/http://gothamist.com/attachments/jen/2010_04_tsriot.jpg" width="280" height="209" class="image-left"> </span>The <a href="https://web.archive.org/web/20160528185910/http://gothamist.com/2010/04/05/easter_night_violence_in_times_squa.php">multiple brawls, shootings and more</a> that spread in Midtown on Easter night into Monday morning were dubbed &quot;wilding&quot; by Mayor Bloomberg, &quot;The mayhem in Midtown appears to be a bunch of gang members wilding. There&#x2019;s a bunch of people that think it&#x2019;s cute to go out and to run around and to cause chaos, and we loaded the area up with police, but they can&#x2019;t be everywhere.&quot;  Know what else some of these people may think is cute? To <a href="https://web.archive.org/web/20160528185910/http://www.nydailynews.com/news/ny_crime/2010/04/06/2010-04-06_easter_night_mayhem_evokes_scarier_times.html">give the bird to a Daily News photographer</a> after being arrested!</p>
+
+<p>Bloomberg also said, &quot;This is just a bunch of people who shouldn&apos;t be on the streets if they behave this way, and we&apos;re not going to stand for it.&quot;  Four people were shot&#x2014;three by guns and one by a BB gun&#x2014;and suffered non-life-threatening injuries. One of the victims, Keanu Griffin, who was shot in the thigh when she was heading to a subway,<a href="https://web.archive.org/web/20160528185910/http://www.nydailynews.com/news/ny_crime/2010/04/05/2010-04-05_nypd_arrests_dozens_after_easter_night_gang_mayhem_in_times_square_herald_square.html"> said</a>, &quot;It came out of nowhere. I just saw people running and I got hit.&quot;  </p>
+
+<p>Thirty-three people were arrested for offenses like gang assault and disorderly conduct; another 23 received summonses.  Police say that Easter night violence has become an unwelcome tradition of sorts, but Griffin&apos;s father said, &quot;If it&apos;s a regular routine on Easter, they should have had enough cops up there to stop whatever it is going on...She just got hurt from going to have a good time. On 42nd St. <strong>On Easter!</strong>&quot;</p>
+
+<p> A business owner on West 40th Street <a href="https://web.archive.org/web/20160528185910/http://www.nypost.com/p/news/local/manhattan/the_bad_old_daze_JhqXn4oO23hC4I7UUY30wM">told the Post</a>, &quot;I was shocked<strong>. I&apos;ve been here 25 years and I can&apos;t believe anything like this can happen in Times Square. </strong>I don&apos;t like to use the word scared, but this is very unhealthy for the city.&quot; On the other hand, Angus McIndoe, owner of Angus McIndoe&apos;s restaurant, said, &quot;<strong>You know it&apos;s the cost of doing business. It&apos;s not the first time there has been nutty activity in Times Square</strong>.&quot; <a href="https://web.archive.org/web/20160528185910/http://www.nytimes.com/2010/04/06/nyregion/06timessq.html?partner=rss&amp;emc=rss">The NY Times offered</a> some history of Easter night violence: </p>					
+										
+									
+				

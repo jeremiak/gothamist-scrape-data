@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: September 19, 2008  8:27 AM
+title: Three Separate Pepper Spray Incidents at Schools
+---
+
+<p><img alt="2008_09_pepspray.jpg" src="https://web.archive.org/web/20111117121742im_/http://gothamist.com/attachments/jen/2008_09_pepspray.jpg" width="125" height="125" class="right">It was the trifecta when the FDNY <a href="https://web.archive.org/web/20111117121742/http://www.ny1.com/content/top_stories/86004/pepper-spray-released-in-three-city-schools/Default.aspx">responded to three different schools</a> where pepper spray had been released.  NY1 has the rundown:  The first was at A. Philiip Randolph Campus High School in Harlem.  It&apos;s unclear what the circumstances were, but one student was taken to a hospital with chest pains while 16 others had burning eyes and itchy throats.  The second was at a Chelsea high school, where a &quot;14-year-old sprayed pepper spray in the cafeteria&quot;; five students were taken to the hospital for treatment and the 14-year-old was arrested.  The final one was at St. Francis Prep in Queens, where a &quot;student claimed it fell out of her purse and discharged.&quot;  She was taken into custody as 11 people were taken to hospitals.</p>

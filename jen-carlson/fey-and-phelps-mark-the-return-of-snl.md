@@ -1,0 +1,13 @@
+---
+author: Jen Carlson
+date: September 14, 2008 11:30 AM
+title: Fey and Phelps Mark the Return of SNL
+---
+
+<p><img alt="phelpssnlsketch.jpg" src="https://web.archive.org/web/20111117122152im_/http://gothamist.com/attachments/arts_jen/phelpssnlsketch.jpg" width="168" height="168" class="right">Saturday Night Live has returned, and their season opener featured Tina Fey as Sarah Palin, a now-pregnant Amy Poehler reprising her role as Hillary Clinton, Lil&apos; Wayne as musical guest and Michael Phelps as the host (who <a href="https://web.archive.org/web/20111117122152/http://gothamist.com/2008/09/09/countdown_to_michael_phelps_and_his.php">didn&apos;t take his shirt off</a> during one sketch, not one!). </p>
+
+<p>There&apos;s still no word on if Fey will continue her Palin appearances through November (or...post-November?), but she nailed it last night. No word on if the real Sarah Palin has seen it, but <a href="https://web.archive.org/web/20111117122152/http://blogs.abcnews.com/politicalradar/2008/09/live-from-new-y.html">ABC News</a> reports that she was flying Jetblue at the time it aired and that the show was available through the airline&apos;s satellite TV system.</p>
+
+<center><object type="application/x-shockwave-flash" data="https://web.archive.org/web/20111117122152im_/http://widgets.nbc.com/o/4727a250e66f9723/48cd12c0a36aadd5/4741e3c5156499a7/44a0caaa" id="W4727a250e66f972348cd12c0a36aadd5" height="283" width="384"><param value="http://widgets.nbc.com/o/4727a250e66f9723/48cd12c0a36aadd5/4741e3c5156499a7/44a0caaa" name="movie"><param value="transparent" name="wmode"><param value="all" name="allowNetworking"><param value="always" name="allowScriptAccess"></object></center>
+
+<p>As for Phelps, the pageant queen may have stolen the Olympian&apos;s spotlight--his appearance was <a href="https://web.archive.org/web/20111117122152/http://gothamist.com/2008/09/12/anyone_else_notice_sarah_palin_look.php">overshadowed by Fey playing Palin</a> even prior to the live show. Fey and Palin&apos;s looks have been compared since day one, and Poehler&apos;s Clinton even accused Fey&apos;s Palin of getting to the White House by gliding in &quot;on a dog sled wearing your pageant sash and your Tina Fey glasses.&quot; Back to Phelps, they kept him mostly quiet with only a few lines, but the <a href="https://web.archive.org/web/20111117122152/http://www.nbc.com/Saturday_Night_Live/video/clips/michael-phelps-diet/656342">Michael Phelps Diet</a> short was good for some laughs.</p>

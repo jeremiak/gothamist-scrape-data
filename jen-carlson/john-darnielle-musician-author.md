@@ -1,0 +1,17 @@
+---
+author: Jen Carlson
+date: May 16, 2008  9:09 AM
+title: John Darnielle, Musician/Author
+---
+
+<p><img alt="0805darnielle.jpg" src="https://web.archive.org/web/20110623142723im_/http://gothamist.com/attachments/arts_jen/0805darnielle.jpg" width="176" height="235" class="left"><em>John Darnielle may be best known for his band <a href="https://web.archive.org/web/20110623142723/http://www.mountain-goats.com/">The Mountain Goats</a>, but he&apos;s also the latest <a href="https://web.archive.org/web/20110623142723/http://www.lastplanetojakarta.com/">blogger</a> with <a href="https://web.archive.org/web/20110623142723/http://33third.blogspot.com/2008/04/new-book-black-sabbaths-master-of.html">a book</a>; this weekend he&apos;s in town as both a musician and an author.</em></p><em>
+
+<p>Tomorrow night Darnielle will read from his book, the latest in the 33 1/3 series, about Black Sabbath&apos;s <em>Master of Reality</em>; which he wrote through the voice of a 15-year-old boy who&apos;s been institutionalized. Before taking a seat at <a href="https://web.archive.org/web/20110623142723/http://www.livefromhome.org/events">Housing Works</a> on Saturday, he&apos;ll get on stage at the Brooklyn Masonic Temple with The Mountain Goats as the band headlines the AIDS Walk benefit (<a href="https://web.archive.org/web/20110623142723/http://www.ticketweb.com/t3/sale/SaleEventDetail?dispatch=loadSelectionData&amp;eventId=256644&amp;REFERRAL_ID=tmfeedbuyatbrooklynvegan">tickets</a>). </p>
+
+</em><p><em>Earlier this week he told us about the 15-year-old fictional Roger Painter, playing at the Knitting Factory, and, of course, death metal.</em></p>
+
+<p><strong>On your Flickr account you caption the photo of your book by saying your first ambition was to be a writer. Did you ever pursue that until now? Do you think you&apos;ll publish something else in the future?</strong> No, I didn&apos;t pursue it - I mean, I did a little, just before I started the Mountain Goats I was writing poetry and starting to get published. But then I sorta channeled all my energy into music for a long time. I am writing another book for sure, I gotta be honest, writing a book gives a sort of jolt that&apos;s new and really exciting to me, and I work best when I&apos;m excited.</p>
+
+<p><strong>Why ultimately did you choose writing songs over books?</strong> I don&apos;t know how most people come to do what they do but for me anyway it&apos;s not like I sat down with a list of my options and went &quot;I shall now choose to do this! Because this is what I desire to do!&quot; You know? I am not really a rational plan-it-out dude like that. I&apos;m a nurse by nature and vocation, I just sort of started writing songs one day because I was sitting around my room thinking about Frankie Valli, and things kinda snowballed from there. If writing books was a quicker process I might have ended up being an author earlier.</p>
+
+<p><strong>Are there any other ambitions that have been put on the back burner?</strong> Hmm. Gotta think about this for a minute - maybe yeah, I have thoughts of writing symphonic music sometimes. I really doubt I have the melodic or harmonic chops to do that by myself - I would need somebody to push me, you know, and shake me out of my comfort zone. I have thought about asking some people to see if they want to write something really ambitious in that way. But it&apos;s more of a vague thought than an ambition, I think the word ambition is maybe kind of dangerous. I prefer &quot;thoughts.&quot;</p>

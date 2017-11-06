@@ -1,0 +1,11 @@
+---
+author: Jen Chung
+date: July  9, 2008  2:29 PM
+title: Hello Kitty Backpack is the Ultimate Mets Accessory
+---
+
+<p><img alt="2008_07_hellokitty.jpg" src="https://web.archive.org/web/20110811082847im_/http://gothamist.com/attachments/jen/2008_07_hellokitty.jpg" width="300" height="165" class="left">Well, it&apos;s the ultimate accessory if you&apos;re Mets reliever Joe Smith.  Because he missed out on rookie hazing last year, Smith must wear a pink Hello Kitty backpack every time he walks from the dugout to the bullpen.  Mets closer Billy Wagner <a href="https://web.archive.org/web/20110811082847/http://www.mlb.com/news/article.jsp?ymd=20080618&amp;content_id=2955939&amp;vkey=news_nym&amp;fext=.jsp&amp;c_id=nym">presented him with the bag  on June 19</a> and <a href="https://web.archive.org/web/20110811082847/http://blogs.nypost.com/sports/mets/archives/2008/06/smith_having_to.html">proclaimed</a>, &quot;<strong>It&apos;s not Hello Kitty, it&apos;s Hello Smitty -- mee-oww</strong>!&quot; </p>
+
+<p>And Smith has been living up to the demand:  Recently, the bag has been seen in the dugout--the Sporting News mentioned that Tony Armas <a href="https://web.archive.org/web/20110811082847/http://www.sportingnews.com/blog/the_sporting_blog/entry/view/8752/mets_tony_armas_is_a_real_tough_guy">took some moisturizer out of the bag</a> (pictured)--or on <a href="https://web.archive.org/web/20110811082847/http://mywong13.blogspot.com/2008/07/raves-even-mets-love-hello-kitty.html">Smith&apos;s back</a> as he <a href="https://web.archive.org/web/20110811082847/http://www.nydailynews.com/blogs/mets/2008/07/hello-smitty.html">walks to the bullpen</a>.  While possibly embarrassing, it might be less embarrassing than the <a href="https://web.archive.org/web/20110811082847/http://shop.sanrio.com/Hello%20Kitty%20Rolling%20Backpack%3a%20Boutique/86819-200701,default,pd.html">rolling Hello Kitty backpack</a>.</p>
+
+<p>Previously, Mr. Met and Hello Kitty <a href="https://web.archive.org/web/20110811082847/http://gothamist.com/2004/08/18/mr_met_and_hello_kitty_caught_canoodling.php">were caught canoodling</a>.</p>

@@ -1,0 +1,11 @@
+---
+author: Nell Casey
+date: September 21, 2012 11:31 AM
+title: Food Trucks Swarm Grand Army Plaza This Saturday! Saturday! Saturday!
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="092112GAPfoodtrucks.jpg" src="https://web.archive.org/web/20130409041449im_/http://gothamist.com/attachments/nyc_nellcasey/092112GAPfoodtrucks.jpg" width="640" height="480"> <br> <i> <span class="photo_caption">Kimchi Taco Truck at Grand Army Plaza (<a href="https://web.archive.org/web/20130409041449/https://twitter.com/DavidWeberNYC">David Weber</a>)</span></i></div> <p></p>
+
+<p>The Food Truck Age trundles into the next epoch in Brooklyn this Saturday when six trucks will <a href="https://web.archive.org/web/20130409041449/http://www.nycfoodtrucks.org/events">advance on Grand Army Plaza</a>, across from the <a href="https://web.archive.org/web/20130409041449/http://www.grownyc.org/grandarmygreenmarket">green market</a>. Locals are accustomed to the trucks during their regular Sunday tenure at the Food Truck Rally, but now they&apos;ll be able to munch some Mexican food while they shop for seasonal produce. Just when you thought a Saturday in Park Slope couldn&apos;t possibly get any more <em>darling...</em></p>
+
+<p>If you find yourself in Park Slope on Saturday you&apos;ll see <a href="https://web.archive.org/web/20130409041449/http://green-pirate.com/">Green Pirate</a> (fresh juices), <a href="https://web.archive.org/web/20130409041449/http://kimchitacotruck.com/">Kimchi Taco Track</a>, <a href="https://web.archive.org/web/20130409041449/http://mexicue.com/">Mexicue</a>, <a href="https://web.archive.org/web/20130409041449/http://morrisgrilledcheese.com/">Morris Truck</a> (grilled cheese), <a href="https://web.archive.org/web/20130409041449/http://www.philssteaks.com/">Phil&apos;s Steaks</a> and <a href="https://web.archive.org/web/20130409041449/http://rickshawdumplings.com/">Rickshaw Dumplings</a>. And FYI: the trucks are paying rent to temporarily set up shop&#x2014;the money supports the &quot;operations and beautification of Prospect Park&quot;&#x2014;hopefully giving local restaurants <a href="https://web.archive.org/web/20130409041449/http://gothamist.com/2011/06/15/park_slope_restaurants_pissed_at_di.php">less cause for complaint</a>.</p>

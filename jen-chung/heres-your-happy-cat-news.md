@@ -1,0 +1,17 @@
+---
+author: Jen Chung
+date: Sep 13, 2009 8:00 pm
+title: Here's Your Happy Cat News
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="2009_09_kittenlittle.jpg" src="https://web.archive.org/web/20161220165541im_/http://gothamist.com/attachments/jen/2009_09_kittenlittle.jpg" width="640" height="465"> <br> <i>The <a href="https://web.archive.org/web/20161220165541/http://kittenlittlerescue.com/">Kitten Little Rescue</a> stand at West 72nd Street and Columbus Avenue</i></div> <p></p>
+
+<p>As a bit of an antidote to the <a href="https://web.archive.org/web/20161220165541/http://gothamist.com/2009/09/13/aspca_finds_animal_cruelty_suspect.php">upsetting animal cruelty news</a>, we recommend you read this NY Times real estate section story about the <a href="https://web.archive.org/web/20161220165541/http://www.nytimes.com/2009/09/13/realestate/13habi.html?partner=rss&amp;emc=rss">Upper West Side apartment of cat rescuer Tammy Cross</a>.  Cross works with <a href="https://web.archive.org/web/20161220165541/http://kittenlittlerescue.com/">Kitten Little Rescue</a>&#x2014;maybe you&apos;ve seen their set-up of cats available for adoption and fostering on the corner of West 72nd and Columbus Avenue&#x2014;and in her one-bedroom rent-stabilized apartment, &quot;<strong>some 6 to 18 baby kittens &#x2014; and once as many as 22 &#x2014; are bottle fed and nursed back to health</strong>.&quot; Awwww.</p>
+
+<p>While cats and cat toys are evident, the NY Times says, &quot;The space is scrupulously clean. The three litter boxes are emptied so religiously that you would never know just by sniffing that this is what pet supply manufacturers describe as a multiple-cat household.&quot; Cross, who also discusses the cats <a href="https://web.archive.org/web/20161220165541/http://www.nytimes.com/interactive/2009/09/11/realestate/20090913-habi-audioss/index.html">in this audio slide show</a>, told us this morning that she hopes this article will lead to <a href="https://web.archive.org/web/20161220165541/http://www.petfinder.com/shelterSearch/shelterSearch.cgi?shelterid=NY827">some adoptions</a>.</p>
+
+<p>Kitten Little Rescue is one of many animal rescue organizations in the city that are made up of dedicated volunteers who take in animals that would otherwise be at risk&#x2014;some others we know are <a href="https://web.archive.org/web/20161220165541/http://emptycagescollective.wordpress.com/">Empty Cages Collective</a>, <a href="https://web.archive.org/web/20161220165541/http://www.bideawee.org/">Bideawee</a>, and <a href="https://web.archive.org/web/20161220165541/http://www.barcshelter.org/">Brooklyn Animal Resource Coalition</a>&#x2014;hats off to all of them! And a <em>disclosure</em>: Our cats Madison (silver grey tabby) and Curtis (black Siamese mix) were adopted from Kitten Little Rescue&#x2014;here <a href="https://web.archive.org/web/20161220165541/http://gothamist.com/attachments/jen/2009_09_cm1.jpg">they are in the KLR cages in August 2007</a>, and here <a href="https://web.archive.org/web/20161220165541/http://gothamist.com/attachments/jen/2009_09_cm2.jpg">they are just a few weeks ago</a>. </p>					
+										
+									
+				

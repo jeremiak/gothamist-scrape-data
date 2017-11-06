@@ -1,0 +1,21 @@
+---
+author: Ben Yakas
+date: Dec 24, 2011 10:50 am
+title: Video: Charlie Brown Converts To Islam In Xenophobic Peanuts Parody
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="122311peanut.jpeg" src="https://web.archive.org/web/20150416030317im_/http://gothamist.com/attachments/byakas/122311peanut.jpeg" width="640" height="422" class="image-none"> </span></p>
+
+<p><a href="https://web.archive.org/web/20150416030317/http://joemande.com/post/14672881616/denis-leary-posted-this-holiday-video-on-his">Comedian Joe Mande pointed us</a> in the direction of a new holiday-themed video comedian Denis Leary <a href="https://web.archive.org/web/20150416030317/http://www.whosay.com/DenisLeary/videos/108117">posted on his website</a> this week. It turns Charlie Brown&apos;s Christmas Special into some sort of very uncomfortable jihadist joke. As Mande put it, &quot;I still can&#x2019;t get over how profoundly fucked up and confusing it is. That said, pleeeeeease watch.&quot;</p>
+
+<p><object width="640" height="359"><param name="movie" value="http://media.whosay.com/public/video-player/20110810/player.swf?v_url=http%3A%2F%2Fmedia.whosay.com%2F108117%2F108117_480.flv&amp;tracker=UA-12028902-1&amp;videoId=108117&amp;viewmore=http%3A%2F%2Fwww.whosay.com%2FDenisLeary%2Fvideos&amp;autoPlay=false&amp;viewMoreDisplay=Denis+Leary"><param name="allowfullscreen" value="true"><param name="allowscriptaccess" value="never"><param name="wmode" value="transparent"><embed src="https://web.archive.org/web/20150416030317oe_/http://media.whosay.com/public/video-player/20110810/player.swf?v_url=http%3A%2F%2Fmedia.whosay.com%2F108117%2F108117_480.flv&amp;tracker=UA-12028902-1&amp;videoId=108117&amp;viewmore=http%3A%2F%2Fwww.whosay.com%2FDenisLeary%2Fvideos&amp;autoPlay=false&amp;viewMoreDisplay=Denis+Leary" type="application/x-shockwave-flash" allowscriptaccess="never" allowfullscreen="true" wmode="transparent" width="640" height="359"></object><br><a href="https://web.archive.org/web/20150416030317/http://www.whosay.com/DenisLeary">Denis Leary on WhoSay</a></p>
+
+<p>Leary, who starred in the FX show <em>Rescue Me</em> for seven seasons, is known for his provocative comedy style, which has brought him controversy with statements about <a href="https://web.archive.org/web/20150416030317/http://gawker.com/5092737/denis-leary-slams-ridiculous-autism-fakers">autism</a>. While Leary is probably trying to shock his fans out of their pre-holiday stupor&#x2014;fueled by a never ending stream of wallpaper Christmas tunes&#x2014;we had a very tough time sitting through this particularly xenophobic one-note joke. </p>
+
+<p>Of course, Leary is nothing if not an equal-opportunity offender, so <a href="https://web.archive.org/web/20150416030317/http://www.whosay.com/DenisLeary/videos/108116">he also posted a video</a> of Santa Claus partaking in some of his favorite illicit activities, among other things. Watch below&#x2014;because who doesn&apos;t want to listen to Leary sing a jaunty anti-Christmas song!</p>
+
+<p><object width="640" height="359"><param name="movie" value="http://media.whosay.com/public/video-player/20110810/player.swf?v_url=http%3A%2F%2Fmedia.whosay.com%2F108116%2F108116_480.flv&amp;tracker=UA-12028902-1&amp;videoId=108116&amp;viewmore=http%3A%2F%2Fwww.whosay.com%2FDenisLeary%2Fvideos&amp;autoPlay=false&amp;viewMoreDisplay=Denis+Leary"><param name="allowfullscreen" value="true"><param name="allowscriptaccess" value="never"><param name="wmode" value="transparent"><embed src="https://web.archive.org/web/20150416030317oe_/http://media.whosay.com/public/video-player/20110810/player.swf?v_url=http%3A%2F%2Fmedia.whosay.com%2F108116%2F108116_480.flv&amp;tracker=UA-12028902-1&amp;videoId=108116&amp;viewmore=http%3A%2F%2Fwww.whosay.com%2FDenisLeary%2Fvideos&amp;autoPlay=false&amp;viewMoreDisplay=Denis+Leary" type="application/x-shockwave-flash" allowscriptaccess="never" allowfullscreen="true" wmode="transparent" width="640" height="359"></object><br><a href="https://web.archive.org/web/20150416030317/http://www.whosay.com/DenisLeary">Denis Leary on WhoSay</a></p>					
+										
+									
+				

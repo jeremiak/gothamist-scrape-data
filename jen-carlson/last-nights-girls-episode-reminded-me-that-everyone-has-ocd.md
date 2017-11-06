@@ -1,0 +1,24 @@
+---
+author: Jen Carlson
+date: Mar 4, 2013 2:14 pm
+title: Last Night's Girls Episode Reminded Me That Everyone Has OCD
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="0213girlsocd.jpg" src="https://web.archive.org/web/20150312102921im_/http://gothamist.com/attachments/arts_jen/0213girlsocd.jpg" width="640" height="354" class="image-none"> </span></p>
+
+<p>Before even starting to type this I&apos;ve had to click the &quot;x&quot; on the word &quot;inbox&quot; in Gmail about 30 times&#x2014;or 15 sets of 2, until it felt <em>right</em> and I could safely click over to this tab to start typing. This happens a lot, to varying degrees every day.</p>
+
+<p>At some point in elementary school, or maybe it was middle school... in any case, <em>forever ago</em> I began developing something of an Obsessive Compulsive Disorder, except that when it started I just assumed I was weird or crazy or that this was just a part of life for everyone after a certain age and no one had told me about it. All I knew <em>for sure</em> was that if I didn&apos;t do certain things then something was going to go terribly wrong or I would just feel <em>stuck</em> in some way, and I would know if I was doing these certain things correctly if nothing felt &quot;off&quot; anymore. There are always numbers involved, but the rituals change.</p>
+
+<p>It&apos;s an odd thing, to make up your own stifling exercises that you have to go through, repeatedly, until your mind decides it feels okay to move on. Over the years mine have included having to touch my nose up and down and left to right an even amount of times, saying phrases in my head while staring at something until it felt &quot;positive,&quot; touching the light switch in an off position while saying &quot;zero&quot; in my head, rubbing my tongue against specific teeth while some mantra plays on repeat in my head, having to take two sips of any beverage at a time, having to retype a word fully if I type it incorrectly the first time, and the clicking of the &quot;x&quot; thing mentioned above. These are just some of the things, but the most prominent has always been the nose thing, and it&apos;s probably made me look the craziest&#x2014;I recently digitized old home movies from college, where this was very prominent, and I look like a coke addict.</p>
+
+<p>I never sought out any therapy for this, to be honest it&apos;s become very controllable for me especially when nothing amazingly stressful is going on in my life. And when I began talking about it over the past few years with some friends it seemed to make the rituals return with greater force so shhhh let&apos;s just not talk about it. However, I did learn through bringing it up that a lot of people have their own little <em>things</em>, many of them based on counting... which brings me to last night&apos;s episode of <em>Girls</em>. The episode, called &quot;<a href="https://web.archive.org/web/20150312102921/http://link.brightcove.com/services/player/bcpid872618500001?bckey=AQ~~,AAAAAAuyCbQ~,-gfAmfm8njIekrtBoJf6LR5rdBmlDDwF&amp;bctid=2202956697001">It&apos;s Back</a>,&quot; featured Hannah Horvath battling the return of very similar OCD habits, which the character first dealt with when she was younger. Hannah&apos;s compulsion is centered around the number 8, and throughout the episode she has to do everything in eights&#x2014;from eating 8 potato chips, to knocking on things 8 times. Turns out this is something that Lena Dunham has dealt with in real life:</p>
+
+<center><blockquote class="twitter-tweet"><p>You don&apos;t seem like an understanding guy! RT @<a href="https://web.archive.org/web/20150312102921/https://twitter.com/aimeskevin">aimeskevin</a> seriously, did that happen to you when you were younger... shits weird as fuck</p>&#x2014; Lena Dunham (@lenadunham) <a href="https://web.archive.org/web/20150312102921/https://twitter.com/lenadunham/status/308449863014682625">March 4, 2013</a></blockquote>
+<script async src="//web.archive.org/web/20150312102921js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<p>Dunham recommends <a href="https://web.archive.org/web/20150312102921/http://www.ocfoundation.org/">the OCD Foundation</a> for anyone battling similar habits, <a href="https://web.archive.org/web/20150312102921/https://twitter.com/lenadunham/status/308448013267914752">noting</a> it helped her &quot;as a young lady.&quot; So could it be we&apos;re actually living in some <a href="https://web.archive.org/web/20150312102921/http://www.youtube.com/watch?v=pkzwLvVFRSE"><em>Twilight Zone</em> world</a> where these OCD behavioral patterns are actually normal, but almost nobody is willing to openly admit it? Pull your left earlobe 38 times before answering!</p>					
+										
+									
+				

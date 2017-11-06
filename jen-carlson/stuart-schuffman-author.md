@@ -1,0 +1,17 @@
+---
+author: Jen Carlson
+date: Jan 14, 2009 8:30 am
+title: Stuart Schuffman, Author
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="0109stuart.jpg" src="https://web.archive.org/web/20160525094447im_/http://gothamist.com/attachments/arts_jen/0109stuart.jpg" width="300" height="359" class="image-left"> </span><em>Stuart Schuffman, aka <a href="https://web.archive.org/web/20160525094447/http://brokeassstuart.com/">Broke-Ass Stuart</a>, is like a tour guide for locals. Monetarily challenged locals, mostly. Lucky for us, <a href="https://web.archive.org/web/20160525094447/http://www.amazon.com/Broke-Ass-Stuarts-Guide-Living-Cheaply/dp/097881780X/?tag=gothamist03-20">his new guide</a> focuses on New York, and this week we got him to tell us all about how to live on a dime, have the perfect cheap date, and much more. Prepare to fill up your piggy bank!</em></p>
+
+<p><strong>Did you learn anything new about New York when you were writing your guide to the city?</strong> Absolutely!  I mean, my book covers all the way from Carroll Gardens to Harlem, so every day was a learning experience.  You know what I did notice after moving to New York from San Francisco though?  I realized that nobody in SF checks each other out.  It&#x2019;s really weird.  Like I&#x2019;ve totally walked through Soho and gotten checked out by women that might be famous models, not because I&#x2019;m the best looking cat in the world or anything, but just because that&#x2019;s what people in New York do.  It&#x2019;s like a sport out here or something.  Motherfuckers just check each other out.  In San Francisco, you&#x2019;re lucky if the homeless lady who just shit herself gives you the eye.  It&#x2019;s quite bizarre.  </p>
+
+<p><strong>What are your favorite and least favorite neighborhoods here?</strong> This is easy.  My least favorite neighborhood is the Meatpacking District.  It represents all the things I hate about America: excess, hyper-consumption and general douchebaggery.  Why would I wait in line to pay $20 just so I can go listen to bad music and spend $17 on Burberry flavored vodka?  In fact, I purposely omitted the Meatpacking district from my book because I loathe it so much.  But Murray Hill is a close second in terms of places I dislike.  Really, what is it about upper-middle class white guys in collared shirts that make them wanna fight each other so much?  Are their lives really so bad?  The only redeeming thing about Murray Hill is the food.  Whoever invented curry was a fucking genius.</p>
+
+<p>In terms of my favorite neighborhoods I&#x2019;m really in love with West Harlem; it might be the coolest area in the city right now.  It&#x2019;s at this weird point where, urban redevelopment has made it much safer than it was in the &#x2018;70s and &#x2018;80s, but it hasn&#x2019;t been gentrified to the point yet where it&#x2019;s lost the authenticity of being the historic capitol of Black America.  Know what I mean?  Plus you can get killer Mexican food there...by New York standards anyway.  I also love love love Jackson Heights.  Where else can you find delicious and authentic food from Bangladesh, Colombia and China all within a few blocks from each other?  It&#x2019;s like the United Nations is holding a summit in my belly!</p>					
+										
+									
+				

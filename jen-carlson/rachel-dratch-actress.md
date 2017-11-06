@@ -1,0 +1,31 @@
+---
+author: Jen Carlson
+date: February  9, 2011 11:03 AM
+title: Rachel Dratch, Actress
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="dratchr0211a.jpg" src="https://web.archive.org/web/20120603051945im_/http://gothamist.com/attachments/arts_jen/dratchr0211a.jpg" width="640" height="603" class="image-none"> </span></p>
+
+<p><em>Tomorrow night the Moth brings Valentine&apos;s Day to love burnt New Yorkers a little bit early (can&apos;t we just rip it off like a Band-Aid?). The event, called &quot;<a href="https://web.archive.org/web/20120603051945/http://www.themoth.org/events/?month=02&amp;year=2011&amp;eid=3">Shot Through the Heart: Stories of Beaus and Arrows</a>,&#x201D; will feature stories from Christian McBride, Tina McElroy Ansa, Walter Mosley, Todd Bush, and Rachel Dratch (the evening is hosted by Mike Birbiglia). Recently Rachel&#x2014;who lives in New York with her baby son&#x2014;talked to us about the dreaded V-day, being a mom, living in a one-bedroom, and yes, Zazu. She may also be our first interview subject to use the C word (it&apos;s anecdotal!).</em></p>
+
+<p><strong>Is this your first Moth storytelling event?</strong> Yes. Help!</p>
+
+<p><strong>The event is called &quot;Shot Through The Heart: Stories of Beaus and Arrows.&quot; Is there a story you left on the cutting room floor that you can share with us?</strong> Oh lord. I have quite a few. Most of them aren&apos;t really funny though. </p>
+
+<p><strong>How are you celebrating Valentine&apos;s Day?  Do you think it&apos;s an overrated holiday?</strong> I never seem to have a &quot;candy and flowers&quot; type of Valentine&apos;s Day. I have been single for many Valentine&apos;s Days.  I used to look at canoodling couples with envy, but now that I&apos;m older I don&apos;t idealize others as much. When I see a couple on Valentine&apos;s Day that looks super in-love,  like they have birds tweeting around their heads, instead of being jealous I think  &quot;I wonder what their secret problem is.&quot;</p>
+
+<p><strong>How is motherhood?  Is being a mom in NYC challenging?</strong> I  was never a &quot;baby person&quot; who was always like &quot;Ohhh! Can I hold your baaaaby?&quot; yet I always imagined having kids.  So when I discovered i was going to be a mom, I had no idea what to expect . But I ended up surprising myself and in reality being pretty zenned out about the whole thing.  The only bad thing is you don&apos;t have a second of free time for such luxuries as doing the dishes or taking a shower. This poor kid is going to be scarred for life because he has to watch me take a shower every morning. The most fun part is that he is very smiley. No matter how early it is when he wakes me up in the morning, it&apos;s a pretty great way to start the day to look over and see a little peanut laughing his head off.</p>
+
+<p>As for in NYC&#x2014;I guess the only NYC specific thing is that I just have a one-bedroom apartment. I guess eventually i&apos;ll have to move to a bigger place. I&apos;m not trying to make a joke here: I actually dread having to find another apartment in NYC more than I dreaded giving birth.</p>
+
+<p><strong>Which do you prefer&#x2014;performing live or taping/filming work?</strong> Well, when you get a film you feel like you&apos;ve really made it! Doing a film seems the most prestigious, and you are seen by a wider audience, and it pays better than live theater.  However I find doing live theater much more fun.  Doing a comic play or improvising&#x2014;that gives me a sort of high.</p>
+
+<p><strong>What are you going to be reading from during Celebrity Autobiography on February 28? Do you have any recommendations for what celebrities autobiographies we should read?</strong> I always read the same ones&#x2014;Joan Lunden, one of the Jonas Brothers...my favorite one is a piece in which Burt Reynolds wrote one, Loni Anderson wrote one and then, get this, Burt Reynolds&apos; secretary wrote one too. So I like reading hers.  </p>
+
+<p><strong>Do you get tired of people making the Debbie Downer noise to you? Or do they yell &quot;<a href="https://web.archive.org/web/20120603051945/http://www.hulu.com/watch/134256/saturday-night-live-sully-and-denise-nomar">Zazu</a>!&quot;?</strong> I really don&apos;t get tired of that. The funniest incident was I was walking down the street at night on Houston and there was a couple walking by me who didn&apos;t see me and the woman said to the man &quot; I mean, I don&apos;t want to be a Debbie Downer...&quot; RIGHT as I passed them. I wish I had had my wits about me to tap her on the shoulder and say in the voice &quot;You&apos;re not being a Debbie Downer. I am. <a href="https://web.archive.org/web/20120603051945/http://www.youtube.com/watch?v=IJ_R-G_i4Xk">Waah-waaah</a>.&quot;</p>
+
+<p><strong>So, we&apos;re a NYC blog, you live in NYC... can you share your strangest &quot;only in New York&quot; story.</strong> Well, the night I met the guy who would become the father of my baby, or &quot;baby daddy&quot; as they say, we were sitting outside at a table at a bar with a little group. A man who was walking by with 2 large dogs just suddenly turned to our table and said &quot;YOU&apos;RE ALL A BUNCH OF COCKSUCKERS! AND YOU!&quot; he said looking directly at me...&quot;YOU&apos;RE A FUCKING CUNT!!&quot;  That&apos;s something you think would happen in NYC but never in all my days had anything like that ever happened to me. I guess it all worked out though. </p>
+
+<p><strong>Which New Yorker do you most admire?</strong> Whoever invented <a href="https://web.archive.org/web/20120603051945/http://seamlessweb.com/">SeamlessWeb</a>. Are they a New Yorker? I don&apos;t know. But it lets you order delivery without having to talk to anyone on the phone or have cash on hand. </p>
+
+<p><strong>Given the opportunity, how would you change the city?</strong> My snap response is I wouldn&apos;t change anything! It&apos;s open all night, we recycle,  and you can walk into a nail salon and get a 10 minute backrub for 10 bucks. Those are my criteria for a good city.</p>

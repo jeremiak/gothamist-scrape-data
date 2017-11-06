@@ -1,0 +1,11 @@
+---
+author: Jen Chung
+date: October 26, 2009  8:50 AM
+title: Paterson Calls Special Session For Legislature
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2009_10_paterson26.jpg" src="https://web.archive.org/web/20111114202212im_/http://gothamist.com/attachments/jen/2009_10_paterson26.jpg" width="170" height="189" class="image-left"> </span>With his <a href="https://web.archive.org/web/20111114202212/http://gothamist.com/2009/10/16/painful_paterson_offers_3_billion_i.php">proposed $3 billion budget</a> and other issues to contend with, Governor Paterson has called a special session of the State Legislature next month&#x2014;plus he wants a <a href="https://web.archive.org/web/20111114202212/http://blog.timesunion.com/capitol/archives/19327/november-special-session-on-tap/">&quot;leaders meeting&quot; in NYC</a> this Thursday, which seems like it would include State Senator Pedro Espada Jr. among the leaders, since he is the Senate Majority leader.</p>
+
+<p>The governor said, &quot;In this fiscal crisis, we cannot afford to delay action or continue spending at our current rate. The Deficit Reduction Plan, while painful, calls for the necessary sacrifices we need to keep our state afloat. My colleagues and I have met to discuss how we can lessen the impact that these reductions will have on all New Yorkers - but the surest way to mitigate the pain is to act now. I look forward to working with my partners in government to reach a consensus approach to closing our current- and out-year shortfalls.&quot; <a href="https://web.archive.org/web/20111114202212/http://www.observer.com/2009/politics/paterson-calling-session-november">PolitickerNY notes </a>that the November 9 start is later than Paterson previously suggested.</p>
+
+<p>Paterson also wants the Senate to <a href="https://web.archive.org/web/20111114202212/http://gothamist.com/2009/10/23/paterson_believes_gay_marriage_bill.php">vote on gay marriage</a>.  <a href="https://web.archive.org/web/20111114202212/http://wcbstv.com/local/david.paterson.legislature.2.1270085.html">WCBS 2 reports</a> it&apos;s &quot;technically called an extraordinary session&quot; and we think the extraordinary thing is if anything gets passed!</p>

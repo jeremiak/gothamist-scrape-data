@@ -1,0 +1,51 @@
+---
+author: Jen Carlson
+date: Sep 28, 2012 2:30 pm
+title: Check Out These Old NYC Coffee Shops, From The 1880s To 1980s
+---
+
+	
+					<div class="galleryEase" id="gallery-536752">
+<!-- gallery js -->
+<script type="text/javascript" src="https://web.archive.org/web/20150718011740js_/http://assets.gothamistllc.com/v5/js/gallery.js"></script>
+<!-- end gallery js -->
+
+<style type="text/css">
+#imgContainer {
+min-height: 300px;
+min-width: 300px;
+background: url('https://web.archive.org/web/20150718011740im_/http://assets.gothamistllc.com/v5/images/progress.gif') center center no-repeat;
+}
+</style>
+
+<!--start of gallery code-->
+<a name="gallery"></a>
+<div class="galleryEaseDisplayed">
+<div id="imgContainer">
+    <img id="galleryImg">
+</div>
+<div class="galleyEaseInfo"></div>
+<div class="galleryEaseNext"></div>
+<div class="galleryEasePrev"></div>
+</div>
+<div class="galleryEaseThumbs">
+		<img src="https://web.archive.org/web/20150718011740im_/http://gothamist.com/assets_c/2012/09/caffeereggio0912-thumb-60x60-744392.jpeg" title="caffereggio1978.jpeg" id="photo_1" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":1, "image": "https://web.archive.org/web/20150718011740/http://gothamist.com/upload/2012/09/caffeereggio0912.jpeg", "caption": "\<span class=\"http://www.cafereggio.com\"\>Caffe Reggio\<\/a\>, 1975", "credit":""};galleryObj['photo_1'] = photo;</script>
+		<img src="https://web.archive.org/web/20150718011740im_/http://gothamist.com/assets_c/2012/09/caffereggio1978-thumb-60x60-744391.jpeg" title="oldcoffee0912.jpeg" id="photo_2" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":2, "image": "https://web.archive.org/web/20150718011740/http://gothamist.com/attachments/arts_jen/caffereggio1978.jpeg", "caption": "\<span class=\"http://www.cafereggio.com\"\>Caffe Reggio\<\/a\>, 1978", "credit":""};galleryObj['photo_2'] = photo;</script>
+		<img src="https://web.archive.org/web/20150718011740im_/http://gothamist.com/assets_c/2012/09/oldcoffee0912-thumb-60x60-744319.jpeg" title="" id="photo_3" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":3, "image": "https://web.archive.org/web/20150718011740/http://gothamist.com/attachments/arts_jen/oldcoffee0912.jpeg", "caption": "Chock Full O\'Nuts on Lexington Avenue and 86th Street, 1935. (Courtesy of \<a href=\"http://collections.mcny.org/\"\>the MCNY\<\/a\>)", "credit":""};galleryObj['photo_3'] = photo;</script>
+		<img src="https://web.archive.org/web/20150718011740im_/http://gothamist.com/assets_c/2012/09/3oldcoffee0912-thumb-60x60-744350.jpeg" title="" id="photo_4" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":4, "image": "https://web.archive.org/web/20150718011740/http://gothamist.com/upload/2012/09/3oldcoffee0912.jpeg", "caption": "La Casa del Cafe; coffee shop, 1962. (Courtesy of \<a href=\"http://collections.mcny.org/\"\>the MCNY\<\/a\>)", "credit":""};galleryObj['photo_4'] = photo;</script>
+		<img src="https://web.archive.org/web/20150718011740im_/http://gothamist.com/assets_c/2012/09/5oldcoffee0912-thumb-60x60-744348.jpeg" title="" id="photo_5" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":5, "image": "https://web.archive.org/web/20150718011740/http://gothamist.com/upload/2012/09/5oldcoffee0912.jpeg", "caption": "Rufus Story, dealer in coffee, 1881. (Courtesy of \<a href=\"http://collections.mcny.org/\"\>the MCNY\<\/a\>)", "credit":""};galleryObj['photo_5'] = photo;</script>
+		<img src="https://web.archive.org/web/20150718011740im_/http://gothamist.com/assets_c/2012/09/4oldcoffee0912-thumb-60x60-744349.jpeg" title="" id="photo_6" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":6, "image": "https://web.archive.org/web/20150718011740/http://gothamist.com/upload/2012/09/4oldcoffee0912.jpeg", "caption": "550 West 125th Street, 1932. Battle\'s Coffee Pot. (Courtesy of \<a href=\"http://collections.mcny.org/\"\>the MCNY\<\/a\>)", "credit":""};galleryObj['photo_6'] = photo;</script>
+		<img src="https://web.archive.org/web/20150718011740im_/http://gothamist.com/assets_c/2012/09/coffeeold0912-thumb-60x60-744345.jpeg" title="oldcoffeeshop0912.jpeg" id="photo_7" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":7, "image": "https://web.archive.org/web/20150718011740/http://gothamist.com/upload/2012/09/coffeeold0912.jpeg", "caption": "Coffee and donuts on the waterfront, May 1937. (Courtesy of \<a href=\"http://collections.mcny.org/\"\>the MCNY\<\/a\>)", "credit":""};galleryObj['photo_7'] = photo;</script>
+<br>		<img src="https://web.archive.org/web/20150718011740im_/http://gothamist.com/assets_c/2012/09/oldcoffeeshop0912-thumb-60x60-744370.jpeg" title="" id="photo_8" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":8, "image": "https://web.archive.org/web/20150718011740/http://gothamist.com/attachments/arts_jen/oldcoffeeshop0912.jpeg", "caption": "", "credit":""};galleryObj['photo_8'] = photo;</script>
+		<img src="https://web.archive.org/web/20150718011740im_/http://gothamist.com/assets_c/2012/09/COFFEEPOT0912-thumb-60x60-744376.jpeg" title="" id="photo_9" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":9, "image": "https://web.archive.org/web/20150718011740/http://gothamist.com/upload/2012/09/COFFEEPOT0912.jpeg", "caption": "8th Avenue and 23rd Street, Coffee Pot. February 28, 1926. (Courtesy of the Municipal Archives)", "credit":""};galleryObj['photo_9'] = photo;</script>
+		<img src="https://web.archive.org/web/20150718011740im_/http://gothamist.com/assets_c/2012/09/oldcoffeeshop0912-thumb-60x60-744375.jpeg" title="" id="photo_10" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":10, "image": "https://web.archive.org/web/20150718011740/http://gothamist.com/upload/2012/09/oldcoffeeshop0912.jpeg", "caption": "\"Cat sitting in front of Galatzer & Botoshaner Tea & Coffee House,\" 1930s. (Courtesy of the Municipal Archives)", "credit":""};galleryObj['photo_10'] = photo;</script>
+		<img src="https://web.archive.org/web/20150718011740im_/http://gothamist.com/assets_c/2012/09/8oldcoffee0912-thumb-60x60-744346.jpeg" title="" id="photo_11" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":11, "image": "https://web.archive.org/web/20150718011740/http://gothamist.com/upload/2012/09/8oldcoffee0912.jpeg", "caption": "King\'s Coffee and Teas, 288 Hudson Street, 1915. (Courtesy of \<a href=\"http://collections.mcny.org/\"\>the MCNY\<\/a\>)", "credit":""};galleryObj['photo_11'] = photo;</script>
+		<img src="https://web.archive.org/web/20150718011740im_/http://gothamist.com/assets_c/2012/09/6oldcoffee0912-thumb-60x60-744347.jpeg" title="coffeesanta0912.jpeg" id="photo_12" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":12, "image": "https://web.archive.org/web/20150718011740/http://gothamist.com/upload/2012/09/6oldcoffee0912.jpeg", "caption": "Hotel Governor Clinton. Coffee room niche. October 15th, 1929. \"With table set. Southeast corner of 31st Street and 7th Avenue.\" (Courtesy of \<a href=\"http://collections.mcny.org/\"\>the MCNY\<\/a\>)", "credit":""};galleryObj['photo_12'] = photo;</script>
+		<img src="https://web.archive.org/web/20150718011740im_/http://gothamist.com/assets_c/2012/09/coffeesanta0912-thumb-60x60-744458.jpeg" title="peacockcoffee90812.jpeg" id="photo_13" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":13, "image": "https://web.archive.org/web/20150718011740/http://gothamist.com/attachments/arts_jen/coffeesanta0912.jpeg", "caption": "Santa taking a coffee break, 1962. (via LIFE)", "credit":""};galleryObj['photo_13'] = photo;</script>
+		<img src="https://web.archive.org/web/20150718011740im_/http://gothamist.com/assets_c/2012/09/peacockcoffee90812-thumb-60x60-744460.jpeg" title="automat912COFFEE.jpeg" id="photo_14" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":14, "image": "https://web.archive.org/web/20150718011740/http://gothamist.com/attachments/arts_jen/peacockcoffee90812.jpeg", "caption": "The Peacock, an Italian coffee house in New York. March 1953. (via LIFE)", "credit":""};galleryObj['photo_14'] = photo;</script>
+		<img src="https://web.archive.org/web/20150718011740im_/http://gothamist.com/assets_c/2012/09/automat912COFFEE-thumb-60x60-744461.jpeg" title="" id="photo_15" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":15, "image": "https://web.archive.org/web/20150718011740/http://gothamist.com/attachments/arts_jen/automat912COFFEE.jpeg", "caption": "Coffee at one of the last Horn & Hardart Automats. Photo taken June 8th, 1987. (via AP)", "credit":""};galleryObj['photo_15'] = photo;</script>
+									
+</div></div>					<p>Did you know the Horn &amp; Hardart Automat were said to have <a href="https://web.archive.org/web/20150718011740/http://exhibitions.nypl.org/lunchhour/exhibits/show/lunchhour/automat">the best coffee in New York</a>? Since today is <a href="https://web.archive.org/web/20150718011740/http://gothamist.com/2012/09/28/wake_up_here_are_some_places_to_get.php">National Coffee Day</a>, we thought we would look back at old New York coffee shops and suppliers, as well as New Yorkers imbibing in the bean juice. No Starbucks here, but you will see everything from Caffe Reggio (still on MacDougal Street today) in 1975 to a classic Chock Full O&apos;Nuts storefront in 1935 to what looks like some sort of tough coffee gang in the 1880s.</p>					
+										
+									
+				

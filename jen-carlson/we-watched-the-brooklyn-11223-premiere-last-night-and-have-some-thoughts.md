@@ -1,0 +1,18 @@
+---
+author: Jen Carlson
+date: March 27, 2012 10:22 AM
+title: We Watched The Brooklyn 11223 Premiere Last Night And Have Some Thoughts
+---
+
+<p><a href="https://web.archive.org/web/20120328235101/http://gothamist.com/tags/brooklyn11223"><em>Brooklyn 11223</em></a> started airing on Oxygen last night and we watched it so you wouldn&apos;t have to. The show is a transparent rip-off of the soul-sucking yet mind-bogglingly successful <a href="https://web.archive.org/web/20120328235101/http://gothamist.com/tags/jerseyshore"><em>Jersey Shore</em></a>. Except this one is set in Bay Ridge, Brooklyn.  The first thing you see are flashes of parts of Brooklyn that are mostly nowhere near Bay Ridge, all soundtracked by music that will make the viewer think Brooklyn is a tough place. They show shoes hanging on telephone lines at least three times during scene transitions. BROOKLYN!</p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="teamchristie0312.jpg" src="https://web.archive.org/web/20120328235101im_/http://gothamist.com/attachments/arts_jen/teamchristie0312.jpg" width="640" height="426" class="image-none"> </span><br>
+<span class="photo_caption">Team Christie</span></p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-right" style=" width:350px; "> <img alt="joeylynn0312.jpg" src="https://web.archive.org/web/20120328235101im_/http://gothamist.com/attachments/arts_jen/joeylynn0312.jpg" width="350" height="234"> <br> <i>Joey Lynn</i></div> The entire series is based around two groups: Team Christie and Team Joey Lynn. Christie, described as a having the personality of a wet mop even by her &quot;close friend,&quot; thinks Joey Lynn slept with her boyfriend Roberto like a million years ago, and she refuses to get over it even though it seems pretty clear Joey Lynn never actually did such a thing. Either way! Christie has a new boyfriend named Michael and he has nice blue eyes and everyone seem to like him, <em>so just move on already Christie</em>.<p></p>
+
+<p>Instead of moving forward in life, however, Team Christie spend all of their time running in circles, talking shit, and acting like idiots. These girls will likely never leave Bay Ridge, and will spend their lives dwelling on non-issues, fighting, and drinking Coronas and chain smoking on the beach at Coney Island. Which leaves us with Team Joey Lynn. These girls aren&apos;t <em>that</em> terrible. Specifically Joey Lynn, who we actually like! She&apos;s had a rough life (her father was murdered by a family friend while she was still in her mother&apos;s womb), she does very little shit-talking, and she seems to just want to get out of Brooklyn and start fresh. She&apos;s tired of working at the same bar, tired of being around such terrible people, and ready to experience something new&#x2014;in one scene she declares: &quot;I hate this neighborhood and I hate everyone in it. I wish there was somewhere to just go and start over. I want to meet somebody who&apos;s not from Brooklyn. But Prince Charming is not walking through that [bar] door. I feel like I&apos;m trapped. I would give a limb to get out of here.&quot;</p>
+
+<p>Note to Oxygen: just cancel this show now and give Joey Lynn her own show, tracking her escape from Bay Ridge. Of course, we&apos;ve only seen one episode, maybe she ends up being terrible, too. To us, though, her image will remain untainted, as we&apos;ll likely never watch another episode.</p>
+
+<p><iframe width="640" height="480" src="https://web.archive.org/web/20120328235101if_/http://www.youtube.com/embed/OayxhNhlKUk" frameborder="0" allowfullscreen></iframe></p>

@@ -1,0 +1,19 @@
+---
+author: Ben Yakas
+date: Nov 2, 2011 10:50 am
+title: NYPD "Cowboy Culture": Narcotics Detective Guilty Of Planting Drugs
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="11211nypd.jpg" src="https://web.archive.org/web/20141230220114im_/http://gothamist.com/attachments/byakas/11211nypd.jpg" width="640" height="450"> <br> <i><a href="https://web.archive.org/web/20141230220114/http://www.flickr.com/photos/aintnojoke/4465413141/">ain&apos;t no joke&apos;s flickr</a></i></div> <p></p>
+
+<p>The Brooklyn South narcotics detective <a href="https://web.archive.org/web/20141230220114/http://gothamist.com/2011/10/13/nypd_narcotics_detective_testifies.php">accused of planting drugs</a> on a woman and her boyfriend <a href="https://web.archive.org/web/20141230220114/http://www.nytimes.com/2011/11/02/nyregion/brooklyn-detective-convicted-of-planting-drugs-on-innocent-people.html?_r=1&amp;partner=rss&amp;emc=rss">was convicted yesterday</a>. Jason Arbeeny, a 14-year NYPD veteran, was guilty of eight counts of falsifying records and official misconduct for planting drugs on innocent suspects in order to reach quotas. And the judge in the case scolded the narcotics department for their &quot;cowboy culture&quot; and widespread corruption: &quot;Having been a judge for 20 years, I thought I was not na&#xEF;ve regarding the reality of narcotics enforcement. <strong>But even the Court was shocked, not only by the seeming pervasive scope of the misconduct, but even more distressingly by the seeming casualness by which such conduct is employed</strong>,&quot; said Supreme Court Justice Gustin Reichbach before handing out his verdict. </p>
+
+<p>Arbeeny <a href="https://web.archive.org/web/20141230220114/http://www.nydailynews.com/news/crime/brooklyn-judge-hocked-cowboy-culture-narcotics-cops-article-1.970874">was found guilty</a> of &quot;flaking&quot;&#x2014;planting a twist of crack under a car seat during a Coney Island bust in January 2007&#x2014;and for doctoring paperwork to make the arrest last. &quot;It&apos;s a sad day when a police officer abuses his authority to plant drugs,&quot; prosecutor Charles Guria said after the verdict. Arbeeny faces up to four years in prison. </p>
+
+<p>Over the course of the case, the &quot;flaking&quot; practices of the NYPD <a href="https://web.archive.org/web/20141230220114/http://gothamist.com/2011/10/13/nypd_narcotics_detective_testifies.php">was detailed by</a> former narcotics Detective Stephen Anderson: &quot;The corruption I observed...was something I was seeing a lot of, whether it was from supervisors or undercovers and even investigators.&quot;</p>
+
+<p>Altogether, &quot;flaking&quot; <a href="https://web.archive.org/web/20141230220114/http://gothamist.com/2011/10/16/nypd_drug-planting_costs_city_at_le.php">has reportedly cost</a> the city $1.2 million to settle cases of false arrests. Justice Reichbach made a direct connection between &quot;flaking&quot; and the <a href="https://web.archive.org/web/20141230220114/http://gothamist.com/tags/quotas">arrest quotas</a> which the NYPD has repeatedly denied exist, or referred to as <a href="https://web.archive.org/web/20141230220114/http://gothamist.com/2011/02/19/jury_rules_that_nypd_are_influenced.php">&quot;productivity goals&quot;</a>&#x2014;Reichbach noted that several witnesses said narcotics officers were expected to make 60 percent of their arrests for felonies and that cops would spread collars around so they could all meet the quotas. He specifically pointed to the <strong>&quot;mindset in Narcotics that seemingly embraces a cowboy culture where anything goes in the never-ending war on drugs.&quot;</strong></p>					
+										
+									
+				

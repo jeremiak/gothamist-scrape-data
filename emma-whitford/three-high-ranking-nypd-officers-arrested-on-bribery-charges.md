@@ -1,0 +1,39 @@
+---
+author: Emma Whitford
+date: Jun 20, 2016 10:40 am
+title: Three High-Ranking NYPD Officers Arrested On Bribery Charges 
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-right"> <img alt="160407JamesGrantNYPD.jpeg" src="https://web.archive.org/web/20170321030700im_/http://gothamist.com/attachments/nyc_ewhitford/160407JamesGrantNYPD.jpeg" width="360" height="360"> <br> <i style=" width:360px; ;display:block">Deputy Inspector James Grant (NYPD)</i></div> Three high-ranking NYPD officers were arrested early Monday morning&#x2014;two over their alleged quid-pro-quo relationship with prominent businessmen, and a third for close ties with a volunteer officer for the Orthodox Jewish Borough Park Shomrim, a <a href="https://web.archive.org/web/20170321030700/http://gothamist.com/2016/06/17/shomrim_patrol_brooklyn.php">community-based policing force</a>. The officers have been accused of accepting prostitutes, expensive vacations, cash, jewelry and other perks in exchange for NYPD escorts, gun licenses and other favors. <p></p>
+
+<p>Brooklyn consultant Jeremy Reichberg, who served on de Blasio&apos;s inaugural advisory committee, was also arrested Monday morning. He is one of two businessmen at the center of <a href="https://web.archive.org/web/20170321030700/http://gothamist.com/2016/04/09/de_blasio_fund-raising_corruption.php">a federal corruption probe</a> into Mayor de Blasio&apos;s fundraising efforts that&apos;s already <a href="https://web.archive.org/web/20170321030700/http://gothamist.com/2016/04/13/andrew_capul_demoted_nypd.php">prompted numerous NYPD demotions</a> and, most recently, the arrest of <a href="https://web.archive.org/web/20170321030700/http://gothamist.com/2016/06/08/fbi_arrests_correction_union_presi.php">correction officers union head Norman Seabrook</a>. Upper West Side businessman Jona Rechnitz, Reichberg&apos;s alleged co-conspirator, recently pleaded guilty to corruption charges. He <a href="https://web.archive.org/web/20170321030700/http://www.nytimes.com/2016/06/09/nyregion/norman-seabrook-jail-officers-union-arrest.html">cooperated with the feds</a> on the Seabrook arrest. </p>
+
+<p>Deputy Chief Michael Harrington, 50; Deputy Inspector James Grant, 43; and Sergeant David Villanueva, 42, have all been arrested and charged with various counts of bribery, wire fraud and conspiracy. U.S. Attorney Preet Bharara will detail the charges at a press conference Monday afternoon.</p>
+
+<p>Deputy Chief Harrington served as Inspector for Brooklyn North from fall 2012 to mid-2013, before being promoted to second-in-command at the Chief of Department&apos;s Office at NYPD headquarters. From 2014 until this spring, he served as Deputy Chief of the NYPD&apos;s Housing Bureau overseeing NYCHA properties. </p>
+
+<p>Deputy Inspector Grant served as commanding officer of both the 72nd Precinct in Sunset Park and the 19th Precinct on the Upper East Side. Both Harrington and Grant were <a href="https://web.archive.org/web/20170321030700/http://gothamist.com/2016/04/07/nypd_corruption_fbi.php">placed on modified duty in April</a>, when bribery allegations surfaced. </p>
+
+<p>Reichberg has been accused of bribing Harrington and Grant over the course of several years, lubricating close relationships in order to keep the officers &quot;on call,&quot; according to court papers. Bribes included jewelry, business cards, and expensive meals. In exchange, the officers allegedly carried out favors for Reichberg and members of his Borough Park community. Reichberg and his friends allegedly obtained security at religious events, got out of parking tickets, and used their NYPD connections to settle, rather ominously, &quot;private disputes.&quot; </p>
+
+<p>Together with the other unnamed businessman (listed in the complaint as a cooperating co-conspirator, <a href="https://web.archive.org/web/20170321030700/http://www.nytimes.com/2016/06/21/nyregion/nypd-arrests.html">likely Rechnitz according to the NY Times</a>), Reichberg allegedly bought flights, prostitutes, sports tickets, and hotel rooms for Grant, Harrington and other officers. In February 2013, Reichberg and the unnamed businessman allegedly flew with Grant and another detective to Las Vagas for Super Bowl weekend. A prostitute flew with the group on a private jet and allegedly stayed in Grant&apos;s room. </p>
+
+<p>The businessmen also allegedly bought expensive jewelry for Grant&apos;s wife, and a video game system for his children. The NYPD Patrol Guide explicitly prohibits accepting any gift in exchange for any service connected with official officer duties. </p>
+
+<p>Sergeant Villanueva was assigned to the NYPD Licensing division for more than a decade, where his responsibilities included approving applications for gun licenses. He was reportedly <a href="https://web.archive.org/web/20170321030700/http://gothamist.com/2016/04/19/a_volunteer_officer_with_the.php">placed on modified duty</a> in April following the arrest of Alex &quot;Shaya&quot; Lichtenstein, 44, a volunteer officer with the Orthodox Jewish <a href="https://web.archive.org/web/20170321030700/http://www.bpshomrim.org/">Borough Park Shomrim</a>. Lichtenstein was accused of bribing NYPD officials with cash and gifts for expedited gun licenses.</p>
+
+<p>Villanueva, in turn, has been accused of lax background checks. At least one of the applications associated with Lichtenstein is for an unnamed gun license holder who had been listed in at least four domestic violence complaints and had allegedly threatened to kill someone. </p>
+
+<p>According to court papers unsealed Monday, Lichtenstein allegedly bribed Villanueva with thousands of dollars, as well as liquor and limousine rides, including a limousine tour of wineries. In turn, Villanueva allegedly approved between 100 and 150 licenses. </p>
+
+<p>An unnamed co-conspirator who reported to Villanueva between 2009 and 2016 and reaped some of the bribery money has already pleaded guilty to bribery and conspiracy to commit bribery, and is now cooperating with investigators. Police Officer Richard Ochetal of the Licensing Division was also arrested Monday. </p>
+
+<p>The Police Department has a history of granting favors to ultra-Orthodox Jews in Borough Park who make up an influential voting bloc. <a href="https://web.archive.org/web/20170321030700/http://nypost.com/2016/04/07/nypd-captain-probed-by-fbi-stripped-of-his-badge-and-gun/">The Post has reported</a> that Grant doled out hundreds of police captains&apos; union cards with the message &quot;Please extend all courtesy to the holder of this card&quot; when he served as commander of the 77th. </p>
+
+<p>Today&apos;s charges are based on phone conversations recorded via wiretap, as well as reviews of personal e-mails and extensive interviews with the unnamed businessman. NYPD Commissioner Bill Bratton <a href="https://web.archive.org/web/20170321030700/http://gothamist.com/2016/05/19/fbi_corruption_modified.php">predicted that arrests were imminent</a> back in May, after one detective was fired for refusing to answer questions before a grand jury, and Inspector Michael Ameri, head of the Highway Patrol, <a href="https://web.archive.org/web/20170321030700/http://gothamist.com/2016/05/13/michael_ameri_suicide.php">killed himself</a> as the federal investigation reportedly <a href="https://web.archive.org/web/20170321030700/http://gothamist.com/2016/05/14/nypd_inspector_who_killed_himself_f.php">delved into records</a> related to escorts provided by his unit. </p>
+
+<p>&quot;Some of this will probably result in criminal indictment,&quot; he <a href="https://web.archive.org/web/20170321030700/https://soundcloud.com/johngambling/11am-hour-5-19-16-bill-bratton">said on AM970</a>, of Grant&apos;s alleged Las Vegas trip. </p>					
+										
+									
+				

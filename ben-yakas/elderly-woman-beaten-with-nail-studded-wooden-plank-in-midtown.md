@@ -1,0 +1,11 @@
+---
+author: Ben Yakas
+date: November 13, 2011  9:55 AM
+title: Elderly Woman Beaten With Nail-Studded Wooden Plank In Midtown
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:240px; "> <img alt="111311beating.jpg" src="https://web.archive.org/web/20111113171842im_/http://gothamist.com/attachments/byakas/111311beating.jpg" width="240" height="160"> <br> <i><a href="https://web.archive.org/web/20111113171842/http://www.shutterstock.com/cat.mhtml?lang=en&amp;search_source=search_form&amp;version=llv1&amp;anyorall=all&amp;safesearch=1&amp;searchterm=police+tape&amp;search_group=&amp;orient=&amp;search_cat=&amp;searchtermx=&amp;photographer_name=&amp;people_gender=&amp;people_age=&amp;people_ethnicity=&amp;people_number=&amp;commercial_ok=&amp;color=&amp;show_color_wheel=1#id=16992496&amp;src=db3a34e28baa01d369a7f08f86a63e58-1-56">Shutterstock/Brian A Jackson</a></i></div> According <a href="https://web.archive.org/web/20111113171842/http://www.nypost.com/p/news/local/manhattan/midtown_nut_beats_granny_8r5QiNqaqoxTRZhCsS8VcL">to the Post</a>, a 75-year-old woman was beaten with a nail-studded wooden plank by a homeless man in midtown yesterday evening. Police confirmed the woman was discovered bleeding from the head with bruises all over her body after being attacked by a suspect with a 2-by-4 piece of wood. &#x201C;I stepped outside and saw a woman laying near a puddle of blood,&#x201D; said witness Rasheeda Kin, a security guard at a building nearby.<p></p>
+
+<p>Andre Lineaux, 51, allegedly attacked the woman at East 40th Street near Madison Avenue at around 6:15 p.m. &#x201C;I was just cleaning up and looking out the window when I noticed a guy was following her down the street,&#x201D; said witness Carmarino Mendez. &#x201C;He looked like he was harassing her and yelling at her.&quot; Witnesses say that&apos;s when Lineaux starting hitting her with a five-foot, 2-by-4 piece of wood. &#x201C;I saw him hit her across her face with something and beat her when she fell,&#x201D; said Mendez. </p>
+
+<p>Lineaux has been arrested; the victim was taken to Bellevue, where she is being treated for a laceration to the head, as well as possible skull fracture and possible broken arm.</p>

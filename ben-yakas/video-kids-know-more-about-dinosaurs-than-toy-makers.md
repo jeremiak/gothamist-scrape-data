@@ -1,0 +1,15 @@
+---
+author: Ben Yakas
+date: January  5, 2012  6:11 PM
+title: Video: Kids Know More About Dinosaurs Than Toy Makers
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="1512dino.jpeg" src="https://web.archive.org/web/20120504035348im_/http://gothamist.com/attachments/byakas/1512dino.jpeg" width="640" height="427"> <br> <i>From <a href="https://web.archive.org/web/20120504035348/http://gothamist.com/2011/04/14/photos_worlds_largest_dinosaurs_now.php#photo-1">last year&apos;s special dino exhibit</a> at The American Museum Of Natural History (Katie Sokoler/Gothamist)</i></div> <p></p>
+
+<p>We already know that kids are serious about their dinosaurs&#x2014;<a href="https://web.archive.org/web/20120504035348/http://gothamist.com/2011/04/21/worlds_youngest_art_critic_upset_ab.php">our favorite MoMA critic</a> reminded us of that fact last year. So it doesn&apos;t come as that big a surprise kids would know more about Triceratops&apos; and Styracosaurus&apos; than toy makers would&#x2014;but who knew they could give such brutal critiques! The little girl in the video below finds multiple mistakes with a 3D dinosaur toy, and tears apart the product with the ferocity of an adorable mini-Robert Christgau. &quot;But they got the beak right,&quot; she mercifully decrees about the pitiful toy.</p>
+
+<p><iframe width="640" height="480" src="https://web.archive.org/web/20120504035348if_/http://www.youtube.com/embed/jM4nomPWQ88" frameborder="0" allowfullscreen></iframe></p>
+
+<p>Will this little girl grow up to be <a href="https://web.archive.org/web/20120504035348/http://www.buzzfeed.com/cbz3000/mom-is-worried-that-toy-dinosaurs-will-send-her-ch-7xu">a godless evolution-believer</a> now? Between the toys and the <a href="https://web.archive.org/web/20120504035348/http://www.huffingtonpost.com/2011/08/20/pixar-announces-two-new-films_n_932198.html">Pixar movies,</a> it certainly seems like Big Dinosaur has their claws in our children. If you don&apos;t mind your kids knowing about evolution, we suggest you take them to learn more from people who know even more about dinos than passionate children, and check out the American Museum of Natural History&apos;s <a href="https://web.archive.org/web/20120504035348/http://www.amnh.org/exhibitions/permanent/fossils/sauris.html">permanent dinosaur collection</a> (unfortunately, their fantastic <a href="https://web.archive.org/web/20120504035348/http://gothamist.com/2011/04/14/photos_worlds_largest_dinosaurs_now.php#photo-1">World&#x2019;s Largest Dinosaurs exhibit just ended</a>). Until then, let precocious French children teach you all about why they went extinct:</p>
+
+<p><iframe width="640" height="360" src="https://web.archive.org/web/20120504035348if_/http://www.youtube.com/embed/HxB8pH47hdc" frameborder="0" allowfullscreen></iframe></p>

@@ -1,0 +1,20 @@
+---
+author: Jen Carlson
+date: September  5, 2011  1:47 PM
+title: Video: Stevie Nicks Did Some Singing And Storytelling In NY Last Night
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="stevienicksjones0811.jpg" src="https://web.archive.org/web/20130414040507im_/http://gothamist.com/attachments/arts_jen/stevienicksjones0811.jpg" width="640" height="474" class="image-none"> </span><br>
+<span class="photo_caption">Fact: The photo pit at Jones Beach might as well be in the parking lot. (Photo by Jen Carlson/Gothamist)</span></p>
+
+<p>After unfortunate incidents involving a stolen iPod and crashed music library, much of 2010/2011 became an experiment in listening <em>only</em> to Fleetwood Mac&apos;s <em>Rumours</em>&#x2014;it was all that was left, living safely on our iPhone. Combine that with being raised on a heavy dose of Fleetwood Mac, and the news of <a href="https://web.archive.org/web/20130414040507/http://gothamist.com/2011/08/31/fleetwood_mac_will_tour_next_year.php">a possible tour</a> next year is <em>very exciting to us</em>... but in the meantime, a Nicks fix will do.</p>
+
+<p>Earlier this year Stevie Nicks was <a href="https://web.archive.org/web/20130414040507/http://gothamist.com/2011/05/03/stevie_nicks.php">scheduled to play</a> in Manhattan, but had to cancel under doctor&apos;s orders, so when we heard she was finishing up her solo tour last night on Long Island, we headed out there (tip: stop by Point Lookout for lobster rolls and drinks on docks before going to any Jones Beach show!). Her setlist included a few new songs, more older songs, and lots of stories.</p>
+
+<center><div style="text-align: center;" class="setlistImage"><a href="https://web.archive.org/web/20130414040507/http://www.setlist.fm/setlist/stevie-nicks/2011/nikon-at-jones-beach-theater-wantagh-ny-3d0c18f.html" title="Stevie Nicks Setlist Nikon at Jones Beach Theater, Wantagh, NY, USA 2011" target="_blank"><img src="https://web.archive.org/web/20130414040507im_/http://www.setlist.fm/widgets/setlist-image-v1?id=3d0c18f&amp;size=large" alt="Stevie Nicks Setlist Nikon at Jones Beach Theater, Wantagh, NY, USA 2011" style="border: 0;"></a></div></center>
+
+<p>One of those stories was about &quot;Landslide&quot; (which she has has retold <a href="https://web.archive.org/web/20130414040507/http://www.inherownwords.com/landslide.htm">a few different ways</a>). Last night she said she wrote the song in 1973 (at just 25-years-old), living in a not-very-nice apartment in Aspen, Colorado while Lindsey Buckingham was filling in for one of the Everly Brothers on the road. (The two hadn&apos;t joined up with Fleetwood Mac yet.) Exhausted trying to make the music thing happen, Nicks contemplated going back to school instead, and wrote this song about her and Lindsey... two years later it was on Fleetwood Mac&apos;s self-titled release. Last night she sang it with a montage her life playing behind her, which included many photos of her father (it was his favorite song, she said): </p>
+
+<p><iframe src="https://web.archive.org/web/20130414040507if_/http://player.vimeo.com/video/28616779?title=0&amp;byline=0&amp;portrait=0&amp;color=dedede&amp;autoplay=1" width="640" height="853" frameborder="0"></iframe></p>
+
+<p>Nicks also performed the song at GMA&apos;s summer concert series on Friday in Central Park (last night she mentioned this is the most requested song, particularly by television programs)&#x2014;you can <a href="https://web.archive.org/web/20130414040507/http://abcnews.go.com/GMA/video/stevie-nicks-captivates-nyc-landslide-14386956">watch it here</a>. While her tour has ended, Buckingham&apos;s is just starting up, and you can see him at Town Hall <a href="https://web.archive.org/web/20130414040507/http://www.ticketmaster.com/Lindsey-Buckingham-tickets/artist/734662">on September 27th</a>... and hopefully with the whole Fleetwood Mac gang next year (though <a href="https://web.archive.org/web/20130414040507/http://twitter.com/#!/jenist/status/109781629429493760">our dad assures us</a> Christine McVie will not be joining them again).</p>

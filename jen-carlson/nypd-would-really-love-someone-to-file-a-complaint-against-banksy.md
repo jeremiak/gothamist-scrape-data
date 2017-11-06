@@ -1,0 +1,20 @@
+---
+author: Jen Carlson
+date: Oct 21, 2013 4:28 pm
+title: NYPD Would Really Love Someone To File A Complaint Against Banksy
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="newbanksycop.jpg" src="https://web.archive.org/web/20141022220347im_/http://gothamist.com/attachments/arts_jen/newbanksycop.jpg" width="640" height="480" class="image-none"> </span><br>
+<span class="photo_caption">Cops on the scene in the South Bronx today (Photo by Robert Dunning/Gothamist)</span></p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="BANKSYPOST.jpg" src="https://web.archive.org/web/20141022220347im_/http://gothamist.com/attachments/arts_jen/BANKSYPOST.jpg" width="350" height="377" class="image-right"> </span>This morning <a href="https://web.archive.org/web/20141022220347/http://gothamist.com/tags/banksy">Banksy</a> posted a photo of his new piece (the 21st from his <a href="https://web.archive.org/web/20141022220347/http://gothamist.com/tags/betteroutthanin">Better In Than Out</a> residency) <a href="https://web.archive.org/web/20141022220347/http://gothamist.com/2013/10/21/new_banksy_up_in_south_bronx.php#photo-1">in the South Bronx</a>. Since <a href="https://web.archive.org/web/20141022220347/http://gothamist.com/2013/10/02/photos_banksys_lower_east_side_piec.php">day one</a>, his pieces have been subject to almost immediate defacement, eventually leading building owners to go to drastic measures to preserve the pieces before they get tagged or buffed. Most notably, in Williamsburg Cara Tabachnick has set up a 24/7 guard <em>and</em> <a href="https://web.archive.org/web/20141022220347/http://gothamist.com/2013/10/19/building_owner_gets_247_guard_to_pr.php#photo-1">a metal rolling gate</a> over the piece that went up on her building. But it&apos;s not just vandals that these surprise art owners are worried about, it&apos;s the city. </p>
+
+<p>Recently <a href="https://web.archive.org/web/20141022220347/http://gothamist.com/2013/10/18/banksys_911_tributes_gone_defaced.php">the city buffed</a> Banksy&apos;s Twin Towers tribute in Brooklyn Heights, following the NY Post&apos;s front cover plea: &quot;GET BANKSY!&quot; And it seems they want to do more than erase the pieces&#x2014;today the owner of the South Bronx building, David Damaghi, told us an NYPD detective called him out of the blue this afternoon, asking if he wanted to press charges. He says officers warned him about the possibility of more &quot;people coming and do more graffiti on my wall.&quot; One assumes the NYPD investigates this quickly every time someone tags a wall in the Bronx, right?</p>
+
+<p>Over the weekend <a href="https://web.archive.org/web/20141022220347/http://gothamist.com/2013/10/19/steve_mona.php">we spoke with retired NYPD officer Steve Mona</a>, who worked with the NYPD Vandal Squad for 18 years before he retired in 2006. He explained that unless a building owner &quot;files a complaint, then there hasn&#x2019;t been a crime committed. Because graffiti is an art form, what makes it a crime is whether the person had permission to do it to the property that they did it to. So if I walk up to your house and break your window because you said to me, &#x2018;Hey Steve, break my window,&#x2019; I can&#x2019;t be arrested for criminal mischief because you gave me permission to break your window, it&#x2019;s the same with graffiti it&#x2019;s no different.&quot;</p>
+
+<p>Damaghi adds, &quot;They told me somebody has done graffiti on my building. They said it&apos;d been done by a famous artist... I wasn&apos;t even aware of who this person was.&quot; He says the detective asked, &quot;Do you want to press charges?&quot; But Damaghi&#x2014;who was in Brooklyn when the officer called him from the Banksy location&#x2014;told him that &quot;no,&quot; he did not want to press charges. Asked if he likes the piece, Damaghi says, &quot;It looks okay, looks fine. I think [I&apos;ll keep it].&quot; He is currently considering both plexiglass and a gate to protect the piece.</p>					
+										
+									
+				

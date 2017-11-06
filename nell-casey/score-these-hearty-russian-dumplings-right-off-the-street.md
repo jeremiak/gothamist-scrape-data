@@ -1,0 +1,25 @@
+---
+author: Nell Casey
+date: Jul 4, 2016 11:40 am
+title: Score These Hearty Russian Dumplings Right Off The Street
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="062916antons.jpg" src="https://web.archive.org/web/20161027172756im_/http://gothamist.com/attachments/nyc_nellcasey/062916antons.jpg" width="640" height="495"> <br> <i> (<a href="https://web.archive.org/web/20161027172756/http://www.yelp.com/biz_photos/antons-dumplings-new-york?select=PO56fBfqsEh9S938BL96FQ">Yelp</a>)</i></div> <p></p>
+
+<p>Dumplings come in all forms, like ones <a href="https://web.archive.org/web/20161027172756/http://gothamist.com/2016/03/31/how_to_eat_a_xiao_long_bao.php">filled with soup</a> or <a href="https://web.archive.org/web/20161027172756/http://gothamist.com/2015/09/27/photos_potstickers_pierogis_fiddles.php#photo-1">potatoes</a> or even <a href="https://web.archive.org/web/20161027172756/http://gothamist.com/2016/02/27/by_chloe_vegan_dumblings.php">vegan cheeseburgers</a>, hailing from <a href="https://web.archive.org/web/20161027172756/http://gothamist.com/2015/11/09/momo_crawl_2015.php">Tibet</a>, <a href="https://web.archive.org/web/20161027172756/http://gothamist.com/2014/11/13/phumplings.php">Vietnam</a>, <a href="https://web.archive.org/web/20161027172756/http://gothamist.com/2014/08/07/the_best_chinese_dumplings_in_nyc.php">China</a>, <a href="https://web.archive.org/web/20161027172756/http://gothamist.com/2014/10/13/nyc_empanada_guide.php">Latin America</a>, <a href="https://web.archive.org/web/20161027172756/http://gothamist.com/2015/10/08/pierogis_in_your_mouth.php">Eastern Europe</a> (and beyond). It&apos;s to that last region of the world we visit again to talk about <a href="https://web.archive.org/web/20161027172756/http://www.antonsdumplings.com/#home">Anton&apos;s Dumplings</a>, a food cart that&apos;s been cooking up steaming plates of Russian dumplings called pelmeni since the beginning of the year. Inside the cart is Anton Yelyashkevich, a native of Belarus who moved to Brooklyn as a child.</p>
+
+<p>The pelmeni ($6 for a small, $11 for a large) are stuffed with meaty options like the Siberian, with beef and pork, or chicken; there&apos;s also a vegetarian offering made with potato. &quot;A lot of people don&apos;t understand the concept of a Russian dumpling,&quot; partner Alex Shklyar explains. &quot;We get a lot of &apos;is it like a pierogi?&apos; every day.&quot; So there&apos;s no confusion, the truck offers free samples of their dumplings. &quot;It also gets a lot of people talking to us which gives us a chance to show we&apos;re a fun company that enjoys talking to the people and not just another food cart.&quot;</p>
+
+<p>The most popular and most traditional topping is sour cream and a scattering of scallions, both of which are offered free with an order of dumplings like you&apos;d <a href="https://web.archive.org/web/20161027172756/http://gothamist.com/2015/06/22/brighton_beach_eats.php#photo-1">find in Brighton Beach</a>. Also free: less traditional toppers like soy sauce and sriracha. &quot;We also offer the teriyaki sauce as a special,&quot; Shklyar says. &quot;That is a slight bastardization of the original cuisine, but it&apos;s my favorite combination.&quot;</p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="062916truck.jpg" src="https://web.archive.org/web/20161027172756im_/http://gothamist.com/attachments/nyc_nellcasey/062916truck.jpg" width="638" height="500"> <br> <i> (<a href="https://web.archive.org/web/20161027172756/https://www.facebook.com/antonsdumplings/photos/a.1098946506785017.1073741829.1088090311203970/1191104914235842/?type=3&amp;theater">Facebook</a>)</i></div> <p></p>
+
+<p>The only paid topping is a dousing of Smoked Gouda Fondue for an extra $1. The Times <a href="https://web.archive.org/web/20161027172756/http://www.nytimes.com/2016/05/04/dining/antons-dumplings-babushka-cafe-greenwich-village.html">calls it</a> a &quot;strange nexus of nachos and gnocchi.&quot; &quot;Anton and our head chef, Ele, were mad scientists in the testing process,&quot; Shklyar reveals. &quot;We&apos;ve finagled with a ton of combinations and have seen winners and losers.&quot;</p>
+
+<p>One proven winner: the &quot;Drunk Russian&quot; creation they offer on Saturday nights. &quot;We basically throw together the hangover essentials like a fried egg and sauteed onions/mushrooms on top of your choice of dumplings.&quot; Look for a chimichurri special in the works soon. </p>
+
+<p>Anton&apos;s Russian Dumplings parks at 320-338 Avenue of the Americas right next to the West 4th Street subway station Tuesday - Thursday 12 p.m. - 11 p.m. and Fridays and Saturdays 12 p.m. - 2 a.m. or later if they are busy.</p>					
+										
+									
+				

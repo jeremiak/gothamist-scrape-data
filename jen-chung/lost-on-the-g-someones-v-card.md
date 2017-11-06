@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: October 25, 2008  6:46 PM
+title: Lost on the G: Someone's V-Card
+---
+
+<p><img alt="2008_10_subcon.jpg" src="https://web.archive.org/web/20110623145722im_/http://gothamist.com/attachments/jen/2008_10_subcon.jpg" width="130" height="116" class="right">If some faint writing on a subway seat, plus some apparently used condoms, is any indication, then someone got lucky on the G.  Bitchcakes Commutes <a href="https://web.archive.org/web/20110623145722/http://bitchcakescommutes.blogspot.com/2008/10/getting-lucky-on-g-train.html">ran across this littered find</a> on Thursday and acknowledges it could be an &quot;<strong>elaborate display to make it appear they had sex, and quite possibly lost their virginity, on this seat of the G Train</strong>,&quot; but appreciates the effort--and is &quot;considering never EVER sitting on a subway seat again.&quot; But we wonder if it was really an elaborate display, wouldn&apos;t they use the <a href="https://web.archive.org/web/20110623145722/http://gothamist.com/2008/02/13/nyc_wants_you_t_1.php">city&apos;s official condom</a>?  [Via <a href="https://web.archive.org/web/20110623145722/http://www.newyorkshitty.com/?p=10155">New York Shitty</a>]</p>

@@ -1,0 +1,8 @@
+---
+author: Jen Chung
+date: December 18, 2008  9:50 AM
+title: Feds: 650 Fifth Ave. 40% Owned by Terrorist Shell Company
+---
+
+<p><img alt="2008_12_650fifth.jpg" src="https://web.archive.org/web/20120124125704im_/http://gothamist.com/attachments/jen/2008_12_650fifth.jpg" width="150" height="106" class="right">The United State has filed a civil forfeiture action for 40% interest in 650 Fifth Avenue, a Midtown Manhattan skyscraper.  The feds say that the 40% stake is owned by a shell company for Iranian terrorists&#x2014;the stake is owned by Iranian state bank Bank Melli, but, per the FBI, &quot;Bank Melli&apos;s ownership interest was, however, disguised.&quot; (A 1995 law prohibits &quot;any person from exporting or causing to be exported from the United States, to Iran or the Government of Iran, any goods, technology, or services without... a valid<br>
+export license from the United States Department of Treasury.&quot;)  The <a href="https://web.archive.org/web/20120124125704/http://www.nytimes.com/2008/12/18/nyregion/18seize.html?ref=nyregion">NY Times reports</a>, &quot;The seizure was the latest step in the government&#x2019;s broader effort to financially suffocate Iran&#x2019;s biggest banks, several of which have been accused of funneling money to groups like Hamas and financing Iran&#x2019;s nuclear missile program.&quot;  Tenants in the building include Citibank and the Juicy flagship store.</p>

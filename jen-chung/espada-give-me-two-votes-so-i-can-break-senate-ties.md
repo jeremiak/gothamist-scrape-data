@@ -1,0 +1,11 @@
+---
+author: Jen Chung
+date: Jun 17, 2009 12:03 pm
+title: Espada: Give Me Two Votes, So I Can Break Senate Ties
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2009_06_espadahl.jpg" src="https://web.archive.org/web/20150508155807im_/http://gothamist.com/attachments/jen/2009_06_espadahl.jpg" width="140" height="144" class="image-right"> </span>State Senator Pedro Espada Jr. is sending shivers down the spine of New Yorkers today, with his solution to <a href="https://web.archive.org/web/20150508155807/http://gothamist.com/2009/06/15/no_one_knows_wtf_is_going_on_in_alb.php">break the State Senate tie</a>.  <a href="https://web.archive.org/web/20150508155807/http://www.nypost.com/seven/06172009/news/regionalnews/i_can_have_2_votes_174605.htm">Espada told the Post</a>, &quot;<strong>I can have two votes. We&apos;re going to maintain that, as the president pro tempore of the Senate, I am also the acting lieutenant governor, and the lieutenant governor can vote when there&apos;s a tie.</strong>&quot;  Hey, is he suggesting that because he was elected to represent the Bronx, but really (allegedly) <a href="https://web.archive.org/web/20150508155807/http://gothamist.com/2009/04/21/bronx_state_senator_blocking_mta_ba.php">spends his time living in Westchester</a>?!  Democrat-appointed policy adviser and Counsel to the New York State Senate Michael Kink, though, <a href="https://web.archive.org/web/20150508155807/http://twitter.com/mkink/status/2196214754">Twittered</a>, &quot;Justice McNamara&apos;s decision explicitly says <a href="https://web.archive.org/web/20150508155807/http://gothamist.com/2009/06/16/judge_wont_rule_on_senate_coup_tell.php">he&apos;s not deciding</a> who is the NY Senate Temporary President -- it&apos;s up to the Senate to negotiate.&quot; At any rate, why we have a 62-member Senate was <a href="https://web.archive.org/web/20150508155807/http://www.newsday.com/news/local/politics/ny-pojani1612881015jun15,0,5789125.column">explored by Newsday&apos;s Dan Janison</a>: Maybe-majority leader Dean &quot;Skelos [R-Long Island] in 2002 discovered that a 62-seat redistricting scheme would work best for his party,&quot; and managed to create a district in Brooklyn that got Republican Martin Golden elected.</p>					
+										
+									
+				

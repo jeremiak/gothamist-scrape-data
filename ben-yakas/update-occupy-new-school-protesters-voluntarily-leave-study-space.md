@@ -1,0 +1,31 @@
+---
+author: Ben Yakas
+date: Nov 26, 2011 12:40 pm
+title: [Update] Occupy New School Protesters Voluntarily Leave Study Space
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="112611news.jpg" src="https://web.archive.org/web/20150112010654im_/http://gothamist.com/attachments/byakas/112611news.jpg" width="640" height="477"> <br> <i>The Kellen Gallery after students put graffiti on the walls (<a href="https://web.archive.org/web/20150112010654/http://twitpic.com/7ji7nd">@NSFreePress</a>)</i></div> <p></p>
+
+<p><strong>Update</strong>: According <a href="https://web.archive.org/web/20150112010654/http://www.nsfreepress.com/">to the NSFree Press</a>, students voluntarily left the study space permanently yesterday. &quot;The occupiers were not removed,&quot; they quoted New School Director of Communications Peter Taback. &quot;The occupiers left on their own at some point during the night.&quot; They add that some students did indeed head to Kellen Gallery, but that was closed after they &quot;damaged property&quot; (as you can see above). </p>
+
+<p><strong>Update II</strong>: Dan DiMaggio, an Occupy New School insider, confirmed the reports to us. It seems the occupiers are still figuring out what exactly to do next. </p>
+
+<p>Things seem to be getting <a href="https://web.archive.org/web/20150112010654/http://gothamist.com/2011/11/19/nyt_freelancer_is_snitch_according.php">more</a> and <a href="https://web.archive.org/web/20150112010654/http://gothamist.com/2011/11/22/occupy_new_school_demands_include_h.php">more awkward</a> for the New School, who are dealing with Occupy New School students <a href="https://web.archive.org/web/20150112010654/http://gothamist.com/2011/11/18/students_occupy_the_new_school_thir.php">who entrenched themselves</a> in the school&apos;s study space at 90 Fifth Avenue a week and a half ago. New School President David Van Zandt, who has been quite supportive of the protesters efforts, has been <a href="https://web.archive.org/web/20150112010654/http://gothamist.com/2011/11/23/photos_is_occupy_the_new_school_a_f.php#photo-1">trying to negotiate with students</a> to change locations to a New School gallery nearby to no avail. And it seems that other New School students are getting mighty tired of the occupation as well: <strong>&quot;We believe in their rights to Occupy, but when they claim this is for all students city wide, and harass actual New School students the right to enter to study, they are hypocrites.&quot;</strong> </p>
+
+<p>One New School student wrote us saying they had formed a separate student group to try to work with the protesters to move them to the Kellen Gallery on 13th Street&#x2014;but even they had become frustrated in the course of negotiating. Read the whole email below:</p>
+
+<blockquote>I can tell you that the majority of the students at The New School are NOT in support to what has happened to our Study Center at 90 5th Avenue. We have actually formed our own group to try to work with the protestors at 90 5th to move them to a better location, Kellen Gallery, where they can be viewed by the public and engage with the community, however, they refuse to move. Many of us at The New School believe in the actual reason for the OWS movement, and if we do not, we have a clear respect for social engagement and participatory democracy. However, we (the student population) fought 3 years ago to have a study center for our use. The university has very little space where students can go, and read quietly with out distractions, and for that space to be take away from us by force, by those who do not pay tuition or attend the university, is an insult.
+
+<p>We believe in their rights to Occupy, but when they claim this is for all students city wide, and harass actual New School students the right to enter to study, they are hypocrites. David van Zandt offered the occupiers the gallery space in Parsons, through their own voting process at the General Assembly, van Zandt&apos;s proposal won unanimously. However, the occupiers made a few demands. They demanded computers, printers, pull-out couches, tables, chairs, a microwave and no security. Are these truly protestors?? Or are they just bitter 2 year olds throwing a tantrum? In their space at 90 5th Ave, they have refused cameras, media, and recordings of the space. They have become occupiers of themselves, and not of the greater social movement. Their demands, and actions against those that have similar views towards the social inequalities have separated us. What you didn&apos;t see are the drawings and demands to &quot;Kill cops&quot;. They are not New School. Our students are not about violence or hate.</p>
+
+<p>Signed:<br>
+Students who want their study space back.<br>
+WE are the real New School</p></blockquote><p></p>
+
+<p>The study space is in a building owned by Aby Rosen&apos;s RFR Holdings LLC. Van Zandt has said the firm is concerned about fire code violations and unhappy with sleeping bags in the study space and murals being painted on the walls. &quot;It&apos;s always been part of our DNA to foster discourse,&quot; university spokesman Sam Biederman <a href="https://web.archive.org/web/20150112010654/http://online.wsj.com/article/SB10001424052970204452104577058760970253658.html">told the Wall Street Journal</a> Thursday. &quot;We feel that we have a commitment to offer a space for the free expression of ideas.&quot;</p>
+
+<p>Protesters said their reservations included the limited size of the space, the lack of computers, and the fact that they couldn&apos;t sleep there. However, there was a General Assembly meeting Tuesday night which more than 100 people attended. Two-thirds majority voted to accept the offer to move...but several protesters still refused to leave. They told WSJ the administration had &quot;hijacked their democratic process, stacking the General Assembly with students not involved with the movement.&quot;</p>					
+										
+									
+				

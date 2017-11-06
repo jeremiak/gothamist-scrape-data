@@ -1,0 +1,17 @@
+---
+author: Jen Carlson
+date: Jun 1, 2010 10:42 am
+title: Bees Swarm Cipriani Residences Downtown!
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="beeeeeees0510.jpg" src="https://web.archive.org/web/20150427170921im_/http://gothamist.com/attachments/arts_jen/beeeeeees0510.jpg" width="640" height="622" class="image-none"> </span></p>
+
+<p>There&apos;s probably some sort of government cover-up happening with this whole <em>bee thing</em>, but for now let&apos;s just assume that NYPD resident beekeeper Anthony Planakis is telling us the truth (and nothing but). Planakis was on the scene at 55 Wall Street yesterday after 15,000 <a href="https://web.archive.org/web/20150427170921/http://www.gothamist.com/tags/bees">bees</a> swarmed to <a href="https://web.archive.org/web/20150427170921/http://www.ciprianiresidences.com/">Cipriani Residences</a>&apos;s door; he told <a href="https://web.archive.org/web/20150427170921/http://www.nypost.com/video/?vxSiteId=0db7b365-a288-4708-857b-8bdb545cbd0f&amp;vxChannel=NY%20Post&amp;vxClipId=1458_952920&amp;vxBitrate=700">the Post</a>, &quot;it&apos;s a natural split... we had a relatively mild winter, so you had a nice spring build-up, overcrowding inside the hive, possibly a failing queen, and they decided to find a new home.&quot; </p>
+
+<center><object classid="clsid:d27cdb6e-ae6d-11cf-96b8-444553540000" codebase="https://web.archive.org/web/20150427170921oe_/http://fpdownload.macromedia.com/pub/shockwave/cabs/flash/swflash.cab#version=8,0,0,0" id="vxFlashPlayer5759" width="380" height="252"><param name="movie" value="http://publish.vx.roo.com/nypost/viral/2010/flashembed/"><param name="allowScriptAccess" value="always"><param name="allowFullscreen" value="true"><param name="quality" value="high"><param name="scale" value="noScale"><param name="wmode" value="windowed"><param name="flashvars" value="vxTemplate=http://publish.vx.roo.com/nypost/viral/2010/NYPost_Mini_Scalable.swf&amp;vxSiteId=b0debab1-419e-413a-bc36-ecb11d2ff4f8&amp;vxChannel=NY Post&amp;vxClipId=1458_952920&amp;vxClickToPlay=clip&amp;vxTint=&amp;vxServerBase=&amp;vxBitrate=300&amp;vxCore=http://publish.vx.roo.com/nypost/viral/2010/vxCore.swf&amp;"><embed type="application/x-shockwave-flash" src="https://web.archive.org/web/20150427170921oe_/http://publish.vx.roo.com/nypost/viral/2010/flashembed/" width="380" height="252" allowscriptaccess="always" allowfullscreen="true" quality="high" scale="noScale" wmode="windowed" flashvars="vxTemplate=http://publish.vx.roo.com/nypost/viral/2010/NYPost_Mini_Scalable.swf&amp;vxSiteId=b0debab1-419e-413a-bc36-ecb11d2ff4f8&amp;vxChannel=NY Post&amp;vxClipId=1458_952920&amp;vxClickToPlay=clip&amp;vxTint=&amp;vxServerBase=&amp;vxBitrate=300&amp;vxCore=http://publish.vx.roo.com/nypost/viral/2010/vxCore.swf&amp;"></object></center>
+
+<p>Who knows where they were (a <a href="https://web.archive.org/web/20150427170921/http://x-files.wikia.com/wiki/Bee">white dome tent</a> equipped with louver vents?) before they decided to find their new home, but now that they&apos;ve been removed from their temporary city dwelling, they&apos;ve been brought to a bee farm in the &apos;burbs.</p>					
+										
+									
+				

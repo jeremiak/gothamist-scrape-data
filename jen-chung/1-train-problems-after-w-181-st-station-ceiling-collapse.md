@@ -1,0 +1,11 @@
+---
+author: Jen Chung
+date: Aug 17, 2009 8:47 am
+title: 1 Train Problems After W. 181st Station Ceiling Collapse
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2009_08_181s.jpg" src="https://web.archive.org/web/20151108083422im_/http://gothamist.com/attachments/jen/2009_08_181s.jpg" width="140" height="116" class="image-right"> </span>Perhaps you took the 1 train last night and got the rude awakening that 1 service was suspended due to a ceiling collapse onto the tracks at the West 181st Street station.  Or maybe you got the <a href="https://web.archive.org/web/20151108083422/https://a858-nycnotify.nyc.gov/notifynyc/">NotifyNYC</a> alert this morning, &quot;Until further notice, the number 1 train will not be passing through the 181st street station. For the morning rush hour, all passengers are being shuttled 2 blocks east to the A line. The south bound 1 line&apos;s last stop will be the 215th street station. Northbound, the last stop will be the 168th street station.&quot; (More details <a href="https://web.archive.org/web/20151108083422/http://www.mta.info/alert/alertnyct.htm">on the transit alert here</a>.) Either way, 1 train riders on the nine stops north of 168th Street are screwed for the time being. In terms of the collapse, luckily no one was hurt, <a href="https://web.archive.org/web/20151108083422/http://www.nydailynews.com/ny_local/2009/08/17/2009-08-17_shutdown_on_the_no_1_train_after_ceiling_collapse_at_181st_street.html">according to the Daily News</a>, which says &quot;a 20- to 30-foot section of the ceiling, including an old stone arch, caved in about 11 p.m. Bricks covered both uptown and downtown tracks and platforms.&quot; Workers have been trying to clear the tracks since the collapse; you can see more pre-collapse photographs of the station at <a href="https://web.archive.org/web/20151108083422/http://nycsubway.org/perl/stations?6:106">NYC Subway</a>. <span class="photo_caption">Photo: <a href="https://web.archive.org/web/20151108083422/http://nycsubway.org/perl/stations?6:106">NYC Subway</a></span></p>					
+										
+									
+				

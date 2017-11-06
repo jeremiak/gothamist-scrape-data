@@ -1,0 +1,27 @@
+---
+author: Jen Carlson
+date: Apr 24, 2013 12:56 pm
+title: Brooklyn Industries Milking Post-Sandy Rockaway For Profits
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="ROCKindustries0413.jpg" src="https://web.archive.org/web/20140905195141im_/http://gothamist.com/attachments/arts_jen/ROCKindustries0413.jpg" width="640" height="424" class="image-none"> </span></p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="ROCKpullover.jpg" src="https://web.archive.org/web/20140905195141im_/http://gothamist.com/attachments/arts_jen/ROCKpullover.jpg" width="350" height="274" class="image-right"> </span>Brooklyn Industries is using Rockaway (NOT in Brooklyn!) for the backdrop of their new tone-deaf marketing campaign, which comes complete with <a href="https://web.archive.org/web/20140905195141/http://www.brooklynindustries.com/campaign/">a look book</a> and a $68 shirt called the <a href="https://web.archive.org/web/20140905195141/https://brooklynindustries.com/product/rockaway-cotton-slub-pullover">Rockaway Cotton Slub Pullover</a>. But when asked this morning if any profits from sales go towards <a href="https://web.archive.org/web/20140905195141/http://gothamist.com/2012/11/08/photos_hurricane_sandys_wrath_on_th.php#photo-1">Sandy-ravaged Rockaway</a> or the hurricane&apos;s victims, company rep Teddy Vuong told us no, that their &quot;donations budget is tapped.&quot;</p>
+
+<p>The company <em>does</em> work, on some level that was not explained to us, &quot;with AIDS Walk, The Ali Forney Center for Homeless LGBT Youth, and 350.org&quot; already, so no matter how much they claim to love the neighborhood, their hands are tied (in a chic locally sourced nautical rope belt, undoubtedly). So instead they&apos;re choosing to &quot;celebrate the community&quot; (<a href="https://web.archive.org/web/20140905195141/http://gothamist.com/2013/01/17/vogue_shoots_fdny_nypd_sandy_first.php">just like Vogue</a>) by turning catastrophe into a commodity. When does their Boston marathon/Newtown shooting collection debut? Vuong went on to explain:</p>
+
+<blockquote>&quot;Our idea to design the line came last summer because we found that the Rockaways had been a consistent source of inspiration in our personal lives. <strong>We spent a lot of time out there together with coworkers, and friends and family who live on the island [ed. note: Rockaway is not an island].</strong> A few months later when Sandy hit, we were devastated. A number of employees couldn&apos;t come to work for days because they were out there helping their families and their destroyed homes. The same week of <a href="https://web.archive.org/web/20140905195141/http://gothamist.com/tags/hurricanesandy">the hurricane</a>, I personally helped the company organize a donation drive through our stores with the help of co-workers and friends. 
+
+<p>That Sunday, the community came out in droves, and it was incredibly inspiring to see our neighbors were equally invested in the Rockaways. We managed to collect about one 18 wheeler-sized truck worth of goods that day. Because a gas shortage had unexpectedly hit NYC that weekend, even our delivery truck ran out of gas. The next day, we scrambled to call other organizations and contacts that could help drive the goods out there. With the help of a number of people, we were able to get everything out in the following two days directly to the people of the Rockaways (well before the Red Cross showed up), and all of the drivers reported that supplies had been delivered directly to the people who needed them. </p>
+
+<p><strong>Throughout the winter, we continued to visit the island [ed. note: Rockaway is still not an island].</strong> Our owners relatives&apos; house was completely destroyed, and he personally made regular trips to offer assistance. When the summer line finally came out, we did not for a second hesitate about shooting out there. We did not interrupt city crews working on the parks, we shot near the town where the public was allowed. We feel that for this coming summer, one of the things that would benefit the Rockaways is people coming back, spending money, having fun... and we wanted to remind people of the place and not to dismiss it. We wanted to show that regardless of the previous damage, the Rockaways has an innate beauty to it&#x2014;boardwalk or no boardwalk. </p>
+
+<p>The second reason we wanted to shoot out there was to celebrate the resilience of New Yorkers. The most notable thing to occur after every disaster in New York is how the people rise up, come together, and work towards bringing normalcy back to our lives. That, in our opinion, should be celebrated.&quot;</p></blockquote> <p></p>
+
+<p>And what better way to celebrate Sandy survivors than by supporting local business <a href="https://web.archive.org/web/20140905195141/http://www.businessweek.com/smallbiz/content/nov2009/sb20091119_311230.htm">in China</a>? Just <a href="https://web.archive.org/web/20140905195141/http://mashable.com/2012/10/31/gap-tweet-hurricane-sandy/">ask the Gap</a>.</p>
+
+<p><iframe width="640" height="480" src="https://web.archive.org/web/20140905195141if_/http://www.youtube.com/embed/CRUSmltXJOs" frameborder="0" allowfullscreen></iframe></p>					
+										
+									
+				

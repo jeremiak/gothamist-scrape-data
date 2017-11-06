@@ -1,0 +1,15 @@
+---
+author: Jen Carlson
+date: Jun 30, 2008 4:40 pm
+title: Drive-Ins Available in NYC (But it'll Cost Ya)
+---
+
+	
+										<p><img alt="0806carsstars.jpg" src="https://web.archive.org/web/20160301064659im_/http://gothamist.com/attachments/arts_jen/0806carsstars.jpg" width="350" height="140" class="left">This weekend <a href="https://web.archive.org/web/20160301064659/http://www.time.com/time/arts/article/0,8599,1818430,00.html?xid=rss-arts">Time magazine</a> looked at the return of the Drive-in movie theater. A classic viewing option that&apos;s currently only available at 400 places in the U.S., and was invented by Camden, NJ resident Richard M. Hollingshead, Jr. (his first theater was in <a href="https://web.archive.org/web/20160301064659/http://www.drive-ins.com/detail/njtpenn">Pennsauken</a>).</p>
+
+<p>While New York City doesn&apos;t have a traditional Drive-in theater, there is one option around. Last year <a href="https://web.archive.org/web/20160301064659/http://gothamist.com/2007/09/18/driveinto_the_p.php">DRV-IN</a> opened, and this year it&apos;s moving into <a href="https://web.archive.org/web/20160301064659/http://www.139norfolk.com/">a permanent location</a> (allegedly on East 4th Street). While their 1965 convertible four-door Ford Falcon makes it feel like the Old Days, the new <em>larger</em> space still only accommodates 15 people (6 in the car) and charges a hefty $75 ticket price for the private screenings. The new digs will include a concession stand, however, <em>and</em> the company is now offering a 200-person Drive-In theater called <a href="https://web.archive.org/web/20160301064659/http://www.driveinnyc.com/">Cars Under the Stars</a>. <a href="https://web.archive.org/web/20160301064659/http://www.bizbash.com/newyork/content/editorial/e11216.php">BizBash</a> reported that &quot;the company will locate a lot in a particular neighborhood and coordinate cars, screen setup, and film procurement.&quot; The price tag, again, is a little big -- &quot;the series costs $125 <em>per head</em> for an event for 200 people&quot; (kiss those future wedding plans goodbye); the company, who estimate roughly 40 cars per event, is currently seeking sponsors (paging Zipcar!). </p>
+
+<p>In other urban Drive-In news, <a href="https://web.archive.org/web/20160301064659/http://www.thisheartsonfire.com/pages/june2008/080618C.php">one hopeful</a> is lobbying for ex-New Yorker John Young to bring his traveling Guerilla Drive-In to town. Young says that &quot;movies are shown in glorious 16MM film, projected by a clattery old Eiki classroom projector, transported in my 1977 BMW sidecar rig (that&apos;s purely for panache.) Ideally, the movies are shown in appropriate locations -- Repo Man in a junkyard, Caddyshack at... well, you get the idea. In order to get notifications with the title and location, you&apos;ll need to be on the members&apos; list.&quot;</p>					
+										
+									
+				

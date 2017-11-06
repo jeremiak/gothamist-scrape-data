@@ -1,0 +1,11 @@
+---
+author: Jen Carlson
+date: August  6, 2010  9:58 AM
+title: NYC Sees First West Nile Case Of Season
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:300px; "> <img alt="mosquito0810.jpg" src="https://web.archive.org/web/20110628184918im_/http://gothamist.com/attachments/arts_jen/mosquito0810.jpg" width="300" height="219"> <br> <i><span class="photo_caption">Photo via <a href="https://web.archive.org/web/20110628184918/http://www.flickr.com/photos/lift9/103710084/">ghurcomb&apos;s flickr</a></span></i></div> <a href="https://web.archive.org/web/20110628184918/http://gothamist.com/2010/07/06/west_nile_1.php">In July</a> the Department of Health had already detected West Nile virus in city mosquitoes in three of the boroughs: Staten Island, Queens and Brooklyn. Now they&apos;re reporting the first human case of the virus for the season has occurred in the Bronx; a 61-year-old man was hospitalized with meningitis (the 199th West Nile case in a New Yorker since 1999).<p></p>
+
+<p>The DoH warns that those over 50 should take extra precautions to avoid getting bit, and is urging all New Yorkers to protect themselves against getting infected. Dr. Thomas Farley, New York City Health Commissioner, suggests &#x201C;wearing mosquito repellent when you are outdoors, and long sleeves and pants in the morning and evening.&quot; (So good thing we aren&apos;t seeing record-breaking <a href="https://web.archive.org/web/20110628184918/http://gothamist.com/2010/07/31/will_july_2010_be_the_hottest_ever.php">heat</a> this summer.)</p>
+
+<p>There are a growing number of mosquitoes testing positive for the virus, and according to <a href="https://web.archive.org/web/20110628184918/http://newyork.cbslocal.com/2010/08/05/mosquito-population-booming-in-nyc/">WCBS</a>, there&apos;s even a new winged terror in the area: the Asian Tiger mosquito! Unlike others that come out at dusk, this guy is out to bite us all day long. The DoH is monitoring the situation as well as inspecting and treating standing water sites with non-chemical larvicides to kill larval mosquitoes before they emerge as flying adults. They&apos;re also applying small amounts of chemical pesticides to kill adult mosquitoes. Some tips on reducing your exposure to these buggers, below:</p>

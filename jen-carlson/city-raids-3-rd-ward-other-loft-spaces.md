@@ -1,0 +1,11 @@
+---
+author: Jen Carlson
+date: July 21, 2010  6:14 PM
+title: City Raids 3rd Ward, Other Loft Spaces
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-right" style=" width:350px; "> <img alt="wardthird07.jpg" src="https://web.archive.org/web/20130519160416im_/http://gothamist.com/attachments/arts_jen/wardthird07.jpg" width="350" height="263"> <br> <i><span class="photo_caption">Inside 3rd Ward. Photo by Jen Carlson/Gothamist</span></i></div> Last month Governor Paterson signed legislation that required illegally converted loft buildings (think <a href="https://web.archive.org/web/20130519160416/http://gothamist.com/tags/475kent">475 Kent</a>) to get up to code. According to <a href="https://web.archive.org/web/20130519160416/http://www.brooklynpaper.com/stories/33/26/wb_as_loftlaw_2010_06_26_bk.html">the Brooklyn Paper</a>, it was &quot;designed to protect tenants in illegally occupied manufacturing buildings from landlord harassment and rental hikes, but would not prevent evictions if the building itself has significant safety violations&quot;&#x2014;it&apos;s known as the Loft Law.  <p></p>
+
+<p><a href="https://web.archive.org/web/20130519160416/http://www.nypost.com/p/news/local/brooklyn/city_raids_two_illegal_lofts_Qj6a6C3gJrplI8RxXiYccL?CMP=OTC-rss&amp;FEEDNAME=">It&apos;s being reported</a> that the city is getting their hands dirty this week, and raided two lofts today. 3rd Ward (at 573 Metropolitan Avenue) and a building at 151 Kent Avenue were both visited by city inspectors allegedly responding to complaints over illegal conversions. A third building was raided in Clinton Hill, with complaints that an illegal club was operating inside. </p>
+
+<p>According to a 3rd Ward employee, inspectors were checking out the building&apos;s fire escape, which needs repairing. If the repair work isn&apos;t done, people who use the space will be tossed out. Earlier this month they were featured in <a href="https://web.archive.org/web/20130519160416/http://www.nytimes.com/2010/07/03/arts/design/03third.html?src=tptw">a NY Times piece</a>&#x2014;just like the <a href="https://web.archive.org/web/20130519160416/http://gothamist.com/2010/06/04/bklyn_yard_closes_up_shop.php">BKLYN Yard</a> was before <em>it</em> got shut down. Coincidence?</p>

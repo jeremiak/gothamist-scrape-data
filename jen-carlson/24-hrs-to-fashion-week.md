@@ -1,0 +1,15 @@
+---
+author: Jen Carlson
+date: September  4, 2007 10:46 AM
+title: 24 Hrs to Fashion Week
+---
+
+<p><img alt="2007_08_arts_fashionflannel.jpg" src="https://web.archive.org/web/20110811063702im_/http://gothamist.com/attachments/tien/2007_08_arts_fashionflannel.jpg" width="300" height="212" class="left">Just after Pet Fashion Week comes to an end (<a href="https://web.archive.org/web/20110811063702/http://www.villagevoice.com/nyclife/0735,yaeger,77642,15.html">seriously</a>), New York&apos;s (human) <a href="https://web.archive.org/web/20110811063702/http://www.mbfashionweek.com/newyork">Fashion Week</a> begins. The official start is tomorrow, but heels will be hitting the runway <a href="https://web.archive.org/web/20110811063702/http://www.fashionweekdaily.com/events/default.sps?month=9&amp;year=2007">before that</a>. Though far from fashionistas, we&apos;ve been to a runway show or two in the past - and have always heard amazing things about Imitation of Christ&apos;s unusual showings. Tonight IoC&apos;s Matt Damhave and Tara Subkoff will be at <a href="https://web.archive.org/web/20110811063702/http://www.snitchbar.com/">Snitch</a> (which is still open?!) showing off their new rags (maybe Scar Jo will <a href="https://web.archive.org/web/20110811063702/http://www.flickr.com/photos/jensnow/268004624">walk the walk</a> again). </p>
+
+<p>If your invites got lost in the mail and you want to crash a show, check out the schedule <a href="https://web.archive.org/web/20110811063702/http://www.mbfashionweek.com/newyork/spring2008/schedule">here</a>, though <a href="https://web.archive.org/web/20110811063702/http://www.fashionweekdaily.com/">Fashion Week Daily</a> is probably the best way to keep up to the minute on the must-sees. </p>
+
+<p>Like your fashion two-dimensional? The NY Times has <a href="https://web.archive.org/web/20110811063702/http://www.nytimes.com/slideshow/2007/09/03/fashion/20070904_FASHION_SLIDESHOW_index.html">a slideshow</a> showing how the styles under the tents will be knocked off and sold to those with couture-less closets. <a href="https://web.archive.org/web/20110811063702/http://www.amny.com/entertainment/custom/fashion/ny-p2fashion0903,0,6478075.story">amNewYork</a>  previews the upcoming fashion parade with an article on Brooklyn designers Jeffrey Costello and Robert Tagliapietra (pictured). While the design duo favors flannel for themselves, <a href="https://web.archive.org/web/20110811063702/http://jcrt.net/">their line</a> is less Paul Bunyan-chic and more fit for the glossies. </p>
+
+<p>We&apos;ll just be waiting for those knock-offs to hit Forever 21 while trying to garner tips from reality TV&apos;s fashion mascot, Tim Gunn (his new show <a href="https://web.archive.org/web/20110811063702/http://video.bravotv.com/player/?id=144505">starts Thursday</a>). </p>
+
+<p><em>Photo via <a href="https://web.archive.org/web/20110811063702/http://www.flickr.com/photos/psychic_heart/267033347">Psychic Heart&apos;s Flickr</a>.</em></p>

@@ -1,0 +1,11 @@
+---
+author: Jen Chung
+date: May 28, 2009 1:06 pm
+title: Sotomayor's Mother Is "Overwhelmed" With Pride
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2009_05_celinas.jpg" src="https://web.archive.org/web/20141013030252im_/http://gothamist.com/attachments/jen/2009_05_celinas.jpg" width="134" height="132" class="image-right"> </span>Watching her daughter be <a href="https://web.archive.org/web/20141013030252/http://gothamist.com/2009/05/26/obama_nominates_bronx_native_sonia.php">nominated to the Supreme Court</a> by President Obama brought Celina Sotomayor Lopez to <a href="https://web.archive.org/web/20141013030252/http://gothamist.com/2009/05/26/with_sotomayors_nomination_new_york.php">tears on Tuesday</a>. Obama noted her commitment to her children during his introduction of Judge Sonia Sotomayor, &quot;Her mother worked six days a week as a nurse to provide for Sonia and her brother -- who is also here today, is a doctor and a terrific success in his own right. But Sonia&apos;s mom bought the only set of encyclopedias in the neighborhood, sent her children to a Catholic school called Cardinal Spellman out of the belief that with a good education here in America all things are possible.&quot;  Now the 82-year-old is  all smiles, too, <a href="https://web.archive.org/web/20141013030252/http://www.nypost.com/seven/05282009/news/regionalnews/proud_mamacita_171346.htm">telling reporters</a>, &quot;Words cannot tell you how proud I am...I never told them [Sonia and her brother] to do anything for a living. I didn&apos;t tell them to be this or be that. <strong>I just said be the best you can always be. Be honest. If you have to clean toilets, that&apos;s fine</strong>.&quot; <a href="https://web.archive.org/web/20141013030252/http://www.nydailynews.com/news/us_world/2009/05/27/2009-05-27_sotomayor_mother_tells_news_overcoming_odds.html">She added</a>, &quot;I am feeling great, but very tired...I guess the best word is overwhelmed.&quot;  </p>					
+										
+									
+				

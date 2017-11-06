@@ -1,0 +1,17 @@
+---
+author: Jen Chung
+date: Jul 11, 2010 3:15 pm
+title: Video: Meatpacking District Stabber Being Subdued
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2010_07_subdue.jpg" src="https://web.archive.org/web/20160521000827im_/http://gothamist.com/attachments/jen/2010_07_subdue.jpg" width="150" height="164" class="image-left"> </span>The man who allegedly <a href="https://web.archive.org/web/20160521000827/http://gothamist.com/2010/07/09/disturbed_man_stabs_four_people_in.php">went on a stabbing spree last Thursday</a> in the Meatpacking District &quot;was charged with attempted murder, assault and criminal possession of a weapon,&quot; <a href="https://web.archive.org/web/20160521000827/http://origin.ny1.com/content/top_stories/121868/meatpacking-district-stabbing-spree-suspect-charged">according to NY1</a>.  Four civilians were stabbed and/or slashed and were three police officers suffering minor (non-stabbing) injuries; all are expected to survive their injuries.  </p>
+
+<p>Rushane Brown, a 22-year-old Queens resident, is accused of stabbing the manager of the Solstice Sunglasses boutique on 9th Avenue between 14th and 15th Streets after an argument. <a href="https://web.archive.org/web/20160521000827/http://www.nypost.com/p/news/local/manhattan/chaos_in_chelsea_as_crazy_man_knifes_7hbzBdtrCIQKjN0pVnaSlM"> An employee said</a>, &quot;He came in mumbling and tried stabbing everyone in the store. This wasn&apos;t a robbery. He wanted to kill people.&quot; Then he allegedly chased another employee into a neighboring restaurant, where he threw a chair at the door, and finally headed to an outdoor plaza where people were gathered for a weekly salsa event.  Three men were slashed in the plaza as they tried to restrain Brown.  </p>
+
+<p>Paulie Heenan took this video of some of the good Samaritans still restraining Brown until police officers take over.  One witness <a href="https://web.archive.org/web/20160521000827/http://www.nydailynews.com/news/ny_crime/2010/07/08/2010-07-08_four_wounded_in_stabbing_spree_in_front_of_new_york_city_apple_store_thursday_po.html?r=ny_local&amp;utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+nydnrss%2Fny_local+%28NY+Local%29&amp;utm_content=Google+Reader">had said</a>, &quot;This guy was throwing the cops off of him like The Hulk.&quot;</p>
+
+<center><object width="400" height="533"><param name="allowfullscreen" value="true"><param name="allowscriptaccess" value="always"><param name="movie" value="http://vimeo.com/moogaloop.swf?clip_id=13205136&amp;server=vimeo.com&amp;show_title=1&amp;show_byline=1&amp;show_portrait=0&amp;color=&amp;fullscreen=1"><embed src="https://web.archive.org/web/20160521000827oe_/http://vimeo.com/moogaloop.swf?clip_id=13205136&amp;server=vimeo.com&amp;show_title=1&amp;show_byline=1&amp;show_portrait=0&amp;color=&amp;fullscreen=1" type="application/x-shockwave-flash" allowfullscreen="true" allowscriptaccess="always" width="400" height="533"></object><p><a href="https://web.archive.org/web/20160521000827/http://vimeo.com/13205136">W14th Street Stabber</a> from <a href="https://web.archive.org/web/20160521000827/http://vimeo.com/paulievox">paulie heenan</a> on <a href="https://web.archive.org/web/20160521000827/http://vimeo.com/">Vimeo</a>.</p></center>					
+										
+									
+				

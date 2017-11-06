@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: August 28, 2008 10:22 AM
+title: Queens Murder Suspect Captured in Texas
+---
+
+<p><img src="https://web.archive.org/web/20130318080806im_/http://gothamist.com/attachments/NYC_Billy/2008_08_stabber1.jpg" class="right">A man accused of stabbing his 21-year-old girlfriend to <a href="https://web.archive.org/web/20130318080806/http://gothamist.com/2008/08/24/neighbors_mum_as_queens_woman_was_s.php">death over the weekend</a> was <a href="https://web.archive.org/web/20130318080806/http://www.newsday.com/news/local/newyork/ny-nyarre285819213aug28,0,1462614.story">arrested in Brownsville, Texas</a>. U.S. Marshals had received information that 25-year-old Segundo Penafiel was on his way to Mexico, so they stopped and checked buses.  Spokesman Deputy U.S. Marshal Alfredo Perez said, &quot;Penafiel was the third person to walk off the bus, took one look at our Deputy U.S. Marshals and then tried to run away&quot;--with Mexico just a few hundred yards from the bus stop.  Victim Ebony Garcia&apos;s family said they were relieved he was arrested and added that Penafiel had called them, telling them he was sorry.  The NYPD is asking that the suspect be extradited back to Queens.  The case also garnered attention because Garcia allegedly was screaming for a half hour until neighbors called 911.</p>

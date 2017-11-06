@@ -1,0 +1,14 @@
+---
+author: Jen Chung
+date: Jun 14, 2009 1:15 PM
+title: Ruth Madoff: "The Succubus To Bernie’s Incubus"
+---
+
+
+                            
+                            
+                            
+                            <p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2009_05_rmadoff.jpg" src="https://web.archive.org/web/20131203082149im_/http://gothamist.com/attachments/jen/2009_05_rmadoff.jpg" width="125" height="132" class="image-right"> </span>Ruth Madoff, wife of Ponzi schemer Bernard Madoff, <a href="https://web.archive.org/web/20131203082149/http://www.nytimes.com/2009/06/14/fashion/14ruth.html">gets a NY Time Styles section once-over</a>. Banned from her hair salon and by her Hamptons florist, she may be the &quot;most vilified spouse of a financial rogue in history... Although no evidence has emerged to date that she conspired or even knew about <a href="https://web.archive.org/web/20131203082149/http://gothamist.com/2009/03/12/madoff_i_knew_what_i_was_doing_was.php">her husband&#x2019;s crimes</a>...She has been pilloried and turned into a pariah.&quot; U. Chicago cultural anthropologist Prof. Richard Shweder says, &quot;She&#x2019;s perceived as the succubus to Bernie&#x2019;s incubus.&quot; Maybe because she <a href="https://web.archive.org/web/20131203082149/http://gothamist.com/2009/03/03/madoff_wants_wife_to_keep_70_millio.php">withdrew $15 million</a> before her husband&apos;s arrest? Then there are the <a href="https://web.archive.org/web/20131203082149/http://gothamist.com/2009/04/07/ruth_madoff_visits_bernie_in_the_cl.php">rumors she knew about the scheme</a>...since <a href="https://web.archive.org/web/20131203082149/http://abcnews.go.com/Blotter/WallStreet/story?id=7008348&amp;page=1">apparently no secrets</a> were kept between her and Bernie. Still, Ivan Boesky&apos;s ex-wife Seema says, &quot;<strong>My immediate reaction was utter sympathy for this woman. I wanted to write her a letter, reach out to her, take her out to lunch. But my lawyer said, &apos;No.&apos;</strong>&quot; Ruth Madoff&apos;s own lawyer declined to comment and said no comment would be coming from the 68-year-old Queens native, who <a href="https://web.archive.org/web/20131203082149/http://gothamist.com/2009/05/20/ruth_madoff_keeps_visiting_bernie.php">visits her husband</a> in the clink every few weeks. But Bernie&apos;s lawyer said Ruth is sympathetic to her husband&apos;s victims, adding, &quot;There is no question there&#x2019;s an image problem.&quot;  </p>
+                            
+                            
+                            

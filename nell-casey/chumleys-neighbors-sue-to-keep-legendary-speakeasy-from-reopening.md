@@ -1,0 +1,17 @@
+---
+author: Nell Casey
+date: Feb 25, 2014 10:40 am
+title: Chumley's Neighbors Sue To Keep Legendary Speakeasy From Reopening
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left"> <img alt="201104_chumleys2.jpg" src="https://web.archive.org/web/20150305034254im_/http://gothamist.com/attachments/garth/201104_chumleys2.jpg" width="365" height="274"> <br> <i style=" width:365px; ;display:block"> Chumley&apos;s back in the day (<a href="https://web.archive.org/web/20150305034254/http://forgotten-ny.com/2005/03/nys-ancient-bars/">FNY</a>).</i></div> After a <a href="https://web.archive.org/web/20150305034254/http://gothamist.com/2007/04/05/is_chumleys_bei.php">facade collapse</a> in 2007, legendary West Village speakeasy Chumley&apos;s was forced to shut its doors after 85 years on Bedford Street. There have been <a href="https://web.archive.org/web/20150305034254/http://gothamist.com/2011/04/15/is_chumleys_coming_back_as_a_sports.php">attempts to reopen</a> the tavern over the years, but efforts have been repeatedly blocked by a group of vocal neighbors who don&apos;t want another bar opening up opening on their street. Their latest move: a <a href="https://web.archive.org/web/20150305034254/http://nypost.com/2014/02/24/west-villagers-want-legendary-speakeasy-to-stay-closed/">lawsuit against the SLA</a> they hope will force the agency to revoke the bar&apos;s liquor license. <p></p>
+
+<p>Despite <a href="https://web.archive.org/web/20150305034254/http://www.nydailynews.com/new-york/locals-fight-reopening-historic-pub-chumley-article-1.1700083#ixzz2uH9eebk6">operating hours restrictions</a> imposed on the license, the 47 NIMBYs associated with the group Bar Free Bedford have concerns that the &quot;unruly, drunk and extremely loud&quot; crowd from Chumley&apos;s hayday will return to disrupt the quiet of the block. &quot;There is no analysis why the authority believed this bar is needed in this quiet, mid-block location and why it is in the public interest to open a 22nd drinking venue in an area besieged with problems from such establishments,&quot; the suit contends. </p>
+
+<p>Chumley&apos;s owner Jim Miller, a retired firefighter, has been slowly attempting to reopen the iconic bar, which saw visitors like Faulkner and Steinbeck back in the day. &quot;I feel so badly for him,&quot; head of the Bedford Barrow Commerce Block Association Kathryn Donaldson told the Post. &quot;It&apos;s an institution, it&apos;s been here forever, it&apos;s a part of our history.&quot; Certain minds just don&apos;t <a href="https://web.archive.org/web/20150305034254/http://gothamist.com/2014/01/11/soho_dive_miladys_is_closing_on_sun.php">care</a> much for <a href="https://web.archive.org/web/20150305034254/http://gothamist.com/2014/01/08/theres_only_one_grays_papaya_left_i.php">history</a>, sadly. </p>
+
+<p>If Chumley&apos;s succeeds in reopening&#x2014;fingers crossed!&#x2014;at least it will keep some of the neighborhood&apos;s historic character alive. Alternatively, it could be gutted and turned into one of the generic corporate chains that&apos;s opening everywhere else in New York. Will these &quot;good neighbors&quot; welcome their <a href="https://web.archive.org/web/20150305034254/http://gothamist.com/2014/01/09/grays_papaya_couldnt_survive_the_20.php">new juicing overlords</a>? Probably.</p>					
+										
+									
+				

@@ -1,0 +1,13 @@
+---
+author: Jen Carlson
+date: April 20, 2012 10:35 AM
+title: Times Square Tribute To Dick Clark: Write A Note That Will Become New Year's Eve Confetti
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-right" style=" width:300px; "> <img alt="kermitclark09412.jpeg" src="https://web.archive.org/web/20120602144042im_/http://gothamist.com/attachments/arts_jen/kermitclark09412.jpeg" width="300" height="385"> <br> <i>via <a href="https://web.archive.org/web/20120602144042/http://muppet.wikia.com/wiki/Dick_Clark">Muppet Wiki</a></i></div> Earlier this week <a href="https://web.archive.org/web/20120602144042/http://laist.com/2012/04/18/dick_clark_dies_of_a_heart-attack_a.php">Dick Clark died at the age of 82</a>. <a href="https://web.archive.org/web/20120602144042/http://gothamist.com/2012/04/18/dick_clarke_nyc.php">At the time we asked the Times Square Alliance</a> what sort of tribute the Crossroads of the World, which Clark reigned over each New Year&apos;s Eve for four decades, would do to honor him.  We were told the Times Square Alliance would be releasing news about how they will commemorate Clark&apos;s legacy in the coming days, and now they have.<p></p>
+
+<blockquote>New Yorkers and visitors are invited to come to the Times Square Visitor Center and Museum to honor the legacy of entertainment legend Dick Clark.  <strong>The Times Square Alliance has designated an area on its New Year&#x2019;s Eve Confetti Wishing Wall where fans can share their memories and pay their respects to Dick Clark.  These messages will be added to the one ton of confetti that will fall on Times Square at midnight on New Year&#x2019;s Eve in 2013.</strong></blockquote>
+
+<p>&#x201C;We are encouraging New Yorkers and visitors to help us honor his legacy by sharing their messages and memories on our New Year&#x2019;s Eve Confetti Wishing Wall,&#x201D; said Tim Tompkins, president of the Times Square Alliance.  &#x201C;We remember and honor Dick for his lasting contribution to Times Square and his ability to bring us together every year to welcome in the New Year.&#x201D;</p>
+
+<p>Expect many more tributes on the big night; but for now, co-producers of the annual show have also given us this statement: &quot;For 40 years, Dick Clark has been an iconic part of New Year&apos;s Eve in Times Square whose charm and singular presence as a television host have helped make New Year&apos;s Eve what it is today. As co-producers of New Year&apos;s Eve, we will remember Dick each time we welcome in the New Year in Times Square. Our thoughts and best wishes are with his family and the ABC and Dick Clark Productions families.&quot;</p>

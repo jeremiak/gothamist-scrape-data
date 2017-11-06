@@ -1,0 +1,9 @@
+---
+author: Jen Carlson
+date: October  3, 2009 11:00 AM
+title: Alleged Kirsten Dunst Purse Burglar Goes Free!
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="phpRUpkdaAM.jpg" src="https://web.archive.org/web/20130511040830im_/http://gothamist.com/attachments/arts_jen/phpRUpkdaAM.jpg" width="225" height="300" class="image-left"> </span>There was never going to be a real winner in the Kirsten Dunst vs. alleged burglar case. Either millionaire starlet Dunst was going to <a href="https://web.archive.org/web/20130511040830/http://gothamist.com/2009/09/24/dunst_2.php">send someone to jail <em>for 15 years</em></a> for stealing a purse, or a thief was going to get off with a slap on the wrist. <a href="https://web.archive.org/web/20130511040830/http://www.nypost.com/p/news/local/dunst_hotel_theft_suspect_acquitted_qD1m2pJROIRN6Y03W9bGDL">The NY Post</a> is now reporting that 35-year-old Jim Jimenez has been acquitted after playing what they call an &quot;I&apos;m too stupid&quot; card; reportedly submitting letters and grades from his former Special Ed program that backed him up. </p>
+
+<p>After days of deliberating, &quot;the jury could only agree on a misdemeanor trespassing conviction for the special ed dropout from Coney Island charged with taking Dunst&apos;s bag from her unlocked penthouse suite at the SoHo Grand two years ago.&quot; Even though there was DNA and he was caught on tape, Jimenez claimed he <a href="https://web.archive.org/web/20130511040830/http://gothamist.com/2009/09/26/kirsten_dunst_purse_snatching_suspe.php">had no idea</a> he was stealing anything; he claimed to have simply took a Nobu takeout bag (which had Dunst&apos;s purse in it) when his friend Jarrod Beinerman handed it to him. <a href="https://web.archive.org/web/20130511040830/http://gothamist.com/2008/09/04/dunst_1.php">Earlier this year</a>, Beinerman was sentenced to 4 years behind bars for that act.</p>

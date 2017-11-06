@@ -1,0 +1,11 @@
+---
+author: Jen Chung
+date: Apr 28, 2009 11:56 am
+title: Deeply In Debt Craigslist Killer Suspect Still Loved By Fiancee
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2009_04_phimeg.jpg" src="https://web.archive.org/web/20160529005312im_/http://gothamist.com/attachments/jen/2009_04_phimeg.jpg" width="130" height="122" class="image-right"> </span>Yesterday, court papers revealed that medical student Philip Markoff is in <a href="https://web.archive.org/web/20160529005312/http://www.boston.com/news/local/breaking_news/2009/04/markoff_claims.html">$130,000 debt from student loans</a> and therefore needs a court-appointed defense attorney. <a href="https://web.archive.org/web/20160529005312/http://gothamist.com/2009/04/22/craigslist_killer_suspect_held_with.php">Markoff is suspected</a> of <a href="https://web.archive.org/web/20160529005312/http://gothamist.com/2009/04/17/nyc_woman_killed_in_boston_hotel_cr.php">killing NYC resident Julissa Brisman</a> in a Boston hotel room; Brisman was meeting a massage client (via Craigslist).  The Boston Globe observes that while Markoff was living off student loans, he was &quot;living in a $1,400-a-month one-bedroom apartment in a luxury high-rise in Quincy.&quot;  Markoff&apos;s fiancee Megan McAllister <a href="https://web.archive.org/web/20160529005312/http://www.bostonherald.com/news/regional/view.bg?articleid=1168555">released a new statement</a>, &#x201C;In the past two short weeks, my life and what I hoped my life to be has dramatically changed.  I also love my fiance and I will continue to support him throughout this legal process. My heart goes out to all of those afflicted by these events. It is my intent to fully cooperate with my fiance&#x2019;s attorney as well as the Suffolk County District Attorney&#x2019;s Office ... I can only tell them what I know and what is the truth... <strong>What has been portrayed and leaked to the media is not the Philip Markoff that I know... My fiance&#x2019;s fate should not rest in the court of public opinion, but rather in a court of law.</strong>&quot;</p>					
+										
+									
+				

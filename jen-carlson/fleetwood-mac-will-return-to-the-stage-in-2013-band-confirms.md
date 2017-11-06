@@ -1,0 +1,17 @@
+---
+author: Jen Carlson
+date: December  3, 2012  6:44 PM
+title: Fleetwood Mac Will Return To The Stage In 2013, Band Confirms
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="newfwoodmac0712.jpeg" src="https://web.archive.org/web/20130513141637im_/http://gothamist.com/attachments/arts_jen/newfwoodmac0712.jpeg" width="640" height="492" class="image-none"> </span></p>
+
+<p>In the summer of 2011 Lindsey Buckingham hinted that there may be a Fleetwood Mac reunion, <a href="https://web.archive.org/web/20130513141637/http://gothamist.com/2011/08/31/fleetwood_mac_will_tour_next_year.php">saying</a> the band would be doing something the following year &quot;for sure. I wouldn&apos;t be shocked if it was a tour and possibly an album.&quot; By the end of that year <a href="https://web.archive.org/web/20130513141637/http://gothamist.com/2011/11/01/lindsey_buckingham.php">Buckingham told us</a> while &quot;there <em>was</em> quite a bit of talk,&quot; it had faded. Both Buckingham and Stevie Nicks were busy with their solo projects in 2012, so alas, it never did happen&#x2014;but then <a href="https://web.archive.org/web/20130513141637/http://gothamist.com/2012/07/11/stevie_nicks_says_fleetwood_mac_wil.php">this past summer</a> Nicks said that everyone was on board for a 2013 reunion... and now, at last, the band has announced they will definitely be back for a 34-city tour next spring!</p>
+
+<p>They <a href="https://web.archive.org/web/20130513141637/http://www.rollingstone.com/music/news/fleetwood-mac-to-launch-world-tour-in-april-20121203">announced today</a> that the tour will start in Columbus, Ohio on April 4th, with potential for some European dates later in the year as well. The lineup will not include Christine McVie (no surprise there), but will include Nicks, Buckingham, John McVie and Mick Fleetwood. </p>
+
+<p>The band begins rehearsals in February, and may be bringing two new songs out on the road with them, though Buckingham assures fans there will be plenty of classics: &#x201C;We always have to play &#x2018;Dreams,&#x2019; &#x2018;Rhiannon,&#x2019; &#x2018;Don&#x2019;t Stop,&#x2019; &#x2018;Tusk,&#x2019; &#x2018;Big Love,&#x2019; &#x2018;Landslide&#x2019; and all our most famous songs. When you&#x2019;ve gone through all your must-do&#x2019;s, that&#x2019;s 75% of your potential setlist. I think with the other 25%, there are areas of our catalog that are more under-explored.&quot; And then he spoke the two greatest sentences a Fleetwood Mac fan could ever hope for: &quot;Maybe we&#x2019;ll play more songs from Tusk. I&#x2019;d also like to see an extended middle portion of the show that&#x2019;s just me and Stevie.&#x201D; Having just seen Nicks perform <a href="https://web.archive.org/web/20130513141637/http://gothamist.com/2011/09/05/stevie_nicks_1.php">last year</a>, we can confirm she&apos;s STILL GOT IT, as does <em>Tusk</em>:</p>
+
+<p><iframe width="640" height="480" src="https://web.archive.org/web/20130513141637if_/http://www.youtube.com/embed/2pZipYTm_9o" frameborder="0" allowfullscreen></iframe></p>
+
+<p>In New York, they&apos;ll be hitting Madison Square Garden on April 8th, as well as a show at Newark&apos;s Prudential Center on April 24th&#x2014;tickets go on sale December 14th. The rest of the tour dates are listed <a href="https://web.archive.org/web/20130513141637/http://www.rollingstone.com/music/news/fleetwood-mac-to-launch-world-tour-in-april-20121203">at Rolling Stone</a>.</p>

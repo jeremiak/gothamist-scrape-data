@@ -1,0 +1,19 @@
+---
+author: Jen Chung
+date: May 21, 2010 11:14 am
+title: Senate Passes Financial Reform Bill
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:150px; "> <img alt="2010_05_obmole.jpg" src="https://web.archive.org/web/20170926084522im_/http://gothamist.com/attachments/jen/2010_05_obmole.jpg" width="150" height="390"> <br> <i>Rodent runs in during Obama&apos;s Rose Garden moment. (AP)</i></div> Last night, the Senate voted 59-39 to<a href="https://web.archive.org/web/20170926084522/http://www.washingtonpost.com/wp-dyn/content/article/2010/05/20/AR2010052003503.html?hpid=topnews"> approve a &quot;far-reaching&quot; financial reform bill</a>,  with  four Republicans voting for it while two Democrats voting against it.  The next step is for the Senate and House versions of the bill to be reconciled, but Senate Majority Leader Harry Reid (D-Nevada) said the reform will protect Americans from &quot;Wall Street greed that cost middle-class families their homes, their jobs and their retirement savings... It&#x2019;s a choice between learning from the mistakes of the past or letting it happen again. For those who wanted to protect Wall Street, it didn&#x2019;t work... When this bill becomes law, the joy ride on Wall Street will come to a screeching halt.&quot;  in case you didn&apos;t catch that, FU, Wall Street!<p></p>
+
+<p><a href="https://web.archive.org/web/20170926084522/http://www.nytimes.com/2010/05/21/business/21regulate.html?ref=business">According to the NY Times,</a> &quot;The bill seeks to curb abusive lending, particularly in the mortgage industry, and to ensure that troubled companies, no matter how big or complex, can be liquidated at no cost to taxpayers. And it would create a &apos;financial stability oversight council&apos; to coordinate efforts to identify risks to the financial system. It would also establish new rules on the trading of derivatives and require hedge funds and most other private equity companies to register for regulation with the Securities and Exchange Commission.&quot;  </p>
+
+<p><a href="https://web.archive.org/web/20170926084522/http://online.wsj.com/article/SB10001424052748703559004575256983028632328.html?mod=WSJ_hps_MIDDLESecondNews">According to the Wall Street Journal</a>, &quot;The Senate version of financial regulation hits Wall Street harder than expected, with some analysts estimating it could cut the profits of major financial institutions by roughly 20%. Critics of a comparable bill that passed the House in December said the Senate version has fewer escape routes and exceptions that leave room for Wall Street firms to work around new restrictions on their riskiest activities.&quot; (Here&apos;s  <a href="https://web.archive.org/web/20170926084522/http://www.usatoday.com/money/companies/regulation/2010-05-21-financial-reform-comparison_N.htm">comparison of the House and Senate versions</a>.)</p>
+
+<p>President Obama said yesterday, at a Rose Garden press conference with a cameo from a rodent, &quot;The recession we&#x2019;re emerging from was primarily caused by a lack of responsibility and accountability from Wall Street to Washington. That&#x2019;s why I made passage of Wall Street reform one of my top priorities as president, so that a crisis like this does not happen again.&#x201D; </p>
+
+<p>As it happens, the stock market is very volatile right now, with th<a href="https://web.archive.org/web/20170926084522/http://www.nytimes.com/2010/05/22/business/22markets.html?ref=business">e Dow dropping under 10,000 points</a>, due to worries about Europe&apos;s debt crisis in Greece.</p>					
+										
+									
+				

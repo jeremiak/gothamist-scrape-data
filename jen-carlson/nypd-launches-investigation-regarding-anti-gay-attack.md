@@ -1,0 +1,11 @@
+---
+author: Jen Carlson
+date: September 28, 2009 10:47 AM
+title: NYPD Launches Investigation Regarding Anti-Gay Attack
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="mccoys0909hayes.jpg" src="https://web.archive.org/web/20110430202855im_/http://gothamist.com/attachments/arts_jen/mccoys0909hayes.jpg" width="350" height="140" class="image-left"> </span>Yesterday <a href="https://web.archive.org/web/20110430202855/http://gothamist.com/2009/09/27/hate_crime_4.php">we reported</a> on an anti-gay attack that occurred in Hell&apos;s Kitchen this past Friday night. WPLJ DJ Blake Hayes (pictured), cabaret and Broadway performer Danny Calvert, and another friend were attacked by a patron of McCoy&apos;s bar; they claim the police officers who showed up refused to take their attacker&apos;s information, or let them file a claim. They also expressed concern that McCoy&apos;s bouncer (who stopped the attack) allowed the attacker back into the bar.</p>
+
+<p>City Council Speaker <a href="https://web.archive.org/web/20110430202855/http://council.nyc.gov/d3/html/members/home.shtml">Christine Quinn</a> has now <a href="https://web.archive.org/web/20110430202855/http://blakehayes.com/blog.php?id=24">released a statement</a> regarding the incident, saying in part, &quot;I am obviously outraged by news that another bias attack has occurred in our city.  But I am also deeply concerned by reports from the victims that NYPD officers responding to the scene did not appropriately recognize the seriousness of the incident.  In fact, it has been reported that they failed to attempt to apprehend or even to collect contact information from the alleged assailant.  If these reports are true, the behavior of the police officers involved was also outrageous and merits swift action by the police department.&quot;</p>
+
+<p>Regarding their alleged negligence, Police Commissioner Kelly&#x2019;s office has agreed to conduct an investigation. Hayes has <a href="https://web.archive.org/web/20110430202855/http://blakehayes.com/blog.php?id=25">updated his website</a>, giving thanks to those who have come forward to support him since the incident occurred.</p>

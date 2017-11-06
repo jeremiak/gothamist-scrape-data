@@ -1,0 +1,8 @@
+---
+author: Jen Carlson
+date: March 25, 2010  3:50 PM
+title: Brooklyn Bridge Park Bans Barkers
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="dogconcrete.jpg" src="https://web.archive.org/web/20110629185903im_/http://gothamist.com/attachments/arts_jen/dogconcrete.jpg" width="130" height="127" class="image-right"> </span>Wouldn&apos;t the new, lush <a href="https://web.archive.org/web/20110629185903/http://gothamist.com/tags/brooklynbridgepark">Brooklyn Bridge Park</a> be the perfect place to take your pup for a prance? Not so fast, leash holders, the borough hasn&apos;t provided much parkland for your kind <a href="https://web.archive.org/web/20110629185903/http://gothamist.com/2008/10/15/pups.php">in the past</a>, and they aren&apos;t starting now. According to <a href="https://web.archive.org/web/20110629185903/http://yournabe.com/articles/2010/03/24/brooklyn/courier-yn_brooklyn_front_page-bbpopensnodogs.txt">Courier-Life</a>, canines are completely banned from the grass&#x2014;and that&apos;s not all, the director of operations at the park told them, &#x201C;There will be no dogs, no chairs and no big soccer games on the lawn. It&#x2019;s a passive lawn&#x2014;people can use it within reason.&#x201D; Dogs are, however, allowed to be walked on a leash down the concrete walkways of the park... which is just sort of depressing.<br>
+</p>

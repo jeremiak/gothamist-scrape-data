@@ -1,0 +1,24 @@
+---
+author: Jen Carlson
+date: Mar 29, 2011 10:02 am
+title: Hole "Reunites" At MoMA, But Probably Won't Really Reunite Anytime Soon!
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="holemoma0311.jpg" src="https://web.archive.org/web/20150421230822im_/http://gothamist.com/attachments/arts_jen/holemoma0311.jpg" width="640" height="469" class="image-none"> </span><br>
+<span class="photo_caption">Hole arrives at MoMA for the Hit So Hard screening.</span></p>
+
+<p>Before last night it had been <a href="https://web.archive.org/web/20150421230822/http://gothamist.com/2011/03/25/hole_will_reunite_at_moma_for_a_qa.php">13 years</a> since the members of Hole&#x2014;as you likely remember them&#x2014;had been in the same room. In fact, the last time they were all together was when drummer Patty Schemel left the studio during the recording sessions for <em>Celebrity Skin</em>, never to return. Last night Schemel was reunited with Courtney Love, Eric Erlandson, and Melissa auf der Maur at MoMA&apos;s screening of <a href="https://web.archive.org/web/20150421230822/http://www.pattydoc.com/"><em>Hit So Hard</em></a>, the P. David Ebersole directed documentary chronicling the life, and near death, of the drummer.</p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-right" style=" width:365px; "> <img alt="cobainschemel0311.jpg" src="https://web.archive.org/web/20150421230822im_/http://gothamist.com/attachments/arts_jen/cobainschemel0311.jpg" width="365" height="281"> <br> <i><span class="photo_caption">From the film: Cobain, Frances Bean, Schemel</span></i></div> We attended the screening, which Love and Erlandson were nearly one hour late to (or as Schemel pointed out: &quot;the red heads were on time, the blondes were late&quot;). The documentary (<a href="https://web.archive.org/web/20150421230822/http://www.youtube.com/watch?v=qJxpzjrerEQ">trailer</a>) is rooted in footage that Schemel had filmed over her years with the band, and includes everything from her time living with Kurt Cobain and Courtney, to those final days with the band in the studio. There <a href="https://web.archive.org/web/20150421230822/http://www.pattydoc.com/castandcrew.html">are interviews</a> with her family members, musicians (including her former bandmates), and people involved with the scene at the time&#x2014;and while it traces Schemel&apos;s addiction throughout those years, a bulk of it plays out more like a documentary about Hole, their lifespan, and the deaths of bassist Kristen Pfaff, as well as Cobain (who Courtney says, &quot;used to hang around us &apos;cause he hated his band.&quot;) <p></p>
+
+<p>There&apos;s also some amazing footage showing a more playful side of the Nirvana frontman, and you&apos;ll get to hear a never-before-heard duet performed by him and his wife (called &quot;Stinking of You&quot;). The documentary <em>doesn&apos;t</em> turn into the Kurt and Courtney show, however, to the credit of Ebersole.</p>
+
+<p>Love didn&apos;t bring any off-screen drama to the event last night, which included a pretty brief Q&amp;A; (you can watch it in full below); she addressed her poor choice of eye shadow during the time she filmed the interviews in the doc (a time that she didn&apos;t appear to be totally clean and sober), and <em>yes</em>, they all addressed the band getting back together. Schemel recently told <a href="https://web.archive.org/web/20150421230822/http://www.billboard.com/news/hole-reunites-for-drummer-patty-schemel-1005097062.story#/news/hole-reunites-for-drummer-patty-schemel-1005097062.story">Billboard</a>, &quot;Nothing has been discussed, but I have a feeling... Who knows.&quot; Love was even more ambiguous last night, only noting, &quot;If something&apos;s not relevant I don&apos;t want to do it, if it&apos;s not moving forward I don&apos;t want to do it, that&apos;s just not my thing.&quot; As for auf der Maur, she kept on topic with the film, saying, &quot;The only reason why I came to this movie theater is that Patty Schemel is alive.&quot;</p>
+
+<p>Currently no wide release plans have been announced for <em>Hit So Hard</em> (there is <a href="https://web.archive.org/web/20150421230822/http://gothamist.com/gothamlist/2011/03/28.php">another screening tomorrow night</a>), but being a <em>very</em> solid 101 minutes of <strike>sex</strike> drugs and rock n&apos; roll documentation, we&apos;re guessing it&apos;s just any day now...</p>
+
+<p><iframe title="YouTube video player" width="640" height="390" src="https://web.archive.org/web/20150421230822if_/http://www.youtube.com/embed/4IgMz2vIR1E" frameborder="0" allowfullscreen></iframe></p>					
+										
+									
+				

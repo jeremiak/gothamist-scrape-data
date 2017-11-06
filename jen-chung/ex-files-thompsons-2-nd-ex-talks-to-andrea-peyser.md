@@ -1,0 +1,15 @@
+---
+author: Jen Chung
+date: Aug 31, 2009 3:14 pm
+title: Ex-Files: Thompson's 2nd Ex Talks To Andrea Peyser
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2009_08_thompsteam.jpg" src="https://web.archive.org/web/20160305054912im_/http://gothamist.com/attachments/jen/2009_08_thompsteam.jpg" width="180" height="238" class="image-left"> </span>After talking to the <a href="https://web.archive.org/web/20160305054912/http://gothamist.com/2009/08/21/skank_blogger_fully_revealed.php">victim of the &quot;skank blogger&quot; last week</a>, the Post&apos;s Andrea Peyser features a <a href="https://web.archive.org/web/20160305054912/http://www.nypost.com/seven/08312009/news/columnists/bill_jilted_me___and_married_wedding_gue_187285.htm">different kind of New York woman in her column today</a>: The second ex-wife of City Comptroller&#x2014;and mayoral candidate&#x2014;Bill Thompson.  Sylvia Kinard-Thompson, who married Thompson in 1999, says their relationship started to go south in 2002, when he was elected Comptroller, &quot;I wasn&apos;t sure if he was going through a midlife crisis, stress of a new job. I was willing to work on it. You hit a bump in the road, you don&apos;t just bail out... [But by 2004,] he was starting to stay out. He was on trips longer than he should have...<strong> I asked him if he was having an affair. He never acknowledged that he was; he never acknowledged that he wasn&apos;t.</strong>&quot;  </p>
+
+<p>Kinard-Thompson says he told her he wanted to date other women (turning down her suggestion of marital therapy) and informed her that he wanted a divorce by asking her to meet him at his lawyer&apos;s office&#x2014;the same lawyer who said, during divorce proceedings, <a href="https://web.archive.org/web/20160305054912/http://gothamist.com/2008/05/01/thompsons_divor.php">that Thompson wasn&apos;t too smart</a>. Additionally, &quot;As the couple hit divorce court in 2006, Bill moved his first wife, Angela Jeter, into the house in which Sylvia still lived, creating what one friend described as a bizarre &apos;Three&apos;s Company&apos; situation. Angela, who was ill at the time, lived in an apartment upstairs, she said.&quot;  Kinard-Thompson also pointed out that Thompson invited his future third wife, Elsie McCabe-Thompson, to their wedding, &quot;She was always hovering. She was always around.&quot;</p>
+
+<p>Thompson denied most of his ex&apos;s version of events (though admitted the &quot;Three&apos;s Company&quot; part was true), but Kinard-Thompson showed Peyser the signature of an &quot;Elsie McCabe&quot; in her wedding guest book: &quot;<strong>This is why the divorce was pressed so much. There was another agenda growing.</strong>&quot;  As for her ex-husband&apos;s mayoral chances, &quot;He&apos;s done a lot of good things but there are some issues in his personal life that any that any casual eye would say&#x2014;he has problems there. That&apos;s one of his weak areas.&quot;</p>					
+										
+									
+				

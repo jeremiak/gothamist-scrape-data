@@ -1,0 +1,14 @@
+---
+author: Jen Chung
+date: June 24, 2008  9:14 AM
+title: Details about Yesterday's Canal Street Crash 
+---
+
+<p><img alt="2008_06_ctbuscrash.jpg" src="https://web.archive.org/web/20130302025145im_/http://gothamist.com/attachments/jen/2008_06_ctbuscrash.jpg" width="610" height="488"><br>
+<span class="photo_caption">Photograph of Fung Wah bus-dump truck crash by <a href="https://web.archive.org/web/20130302025145/http://www.wcbs880.com/Truck-Hits-Bus--Bus-Crashes-Into-Bank/2463620">Marla Diamond/WCBS 880</a></span></p>
+
+<p>Yesterday morning, a dump truck speeding off the Manhattan Bridge onto Canal Street <a href="https://web.archive.org/web/20130302025145/http://gothamist.com/2008/06/23/bus_vs_building_on_canal_street.php">lost control and hit a Fung Wah bus</a> waiting to pick up passengers.  The bus then jumped the curb and crashed into a building. One woman died and four others were injured, and here are some new details:<br>
+</p><ul><li>The woman who was killed was 57-year-old Lai Ho, a bank manager who lived in Bay Ridge, Brooklyn and was headed her to job.  <a href="https://web.archive.org/web/20130302025145/http://www.nytimes.com/2008/06/24/nyregion/24crash.html?ref=nyregion">The NY Times says</a> she apparently died from a heart attack &quot;after she was struck by a sign that was knocked down as she tried to cross the street.&quot;  The <a href="https://web.archive.org/web/20130302025145/http://www.nydailynews.com/ny_local/2008/06/23/2008-06-23_outofcontrol_truck_rams_chinatown_bus_ki.html">Daily News says</a> the sign fell when the bus hit it.<br>
+</li><li>Another driver who had been near the truck <a href="https://web.archive.org/web/20130302025145/http://www.nysun.com/new-york/chinatown-bus-collision-turns-fatal/80501/">told the Sun</a>, &quot;<strong>I was going 80 and he passed me.</strong> I think he might have been asleep.&quot; <br>
+</li><li>The truck driver, Alejandro Fallo, who passed a Breathalyzer, said his brakes failed.  However, the truck, operated by a NJ company, was over its weight limit and the company was actually banned from interstate travel because of other violations, so it should never have been here in NYC.<br>
+</li><li>The Fung Wah bus <a href="https://web.archive.org/web/20130302025145/http://www.nypost.com/seven/06242008/news/regionalnews/chinatown_nightmare_116934.htm">was illegally parked on Bowery</a>.  </li></ul>In recent days, <a href="https://web.archive.org/web/20130302025145/http://gothamist.com/2008/06/21/cars_vs_pedestrians_on_friday_cars.php">over twenty pedestrians were injured when</a> <a href="https://web.archive.org/web/20130302025145/http://gothamist.com/2008/06/22/carnage_continues_as_more_pedestria.php">out-of-control vehicles hit them</a>.  <p></p>

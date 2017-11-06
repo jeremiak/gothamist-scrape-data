@@ -1,0 +1,21 @@
+---
+author: Nell Casey
+date: Dec 16, 2016 11:55 am
+title: Stay Warm With Filipino Brunch & A Cookie Competition This Weekend
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="121616tosilog.jpg" src="https://web.archive.org/web/20161218212712im_/http://gothamist.com/attachments/nyc_nellcasey/121616tosilog.jpg" width="640" height="427"> <br> <i> Tosilog made with marinated pork (Ahmet Kiranbay)</i></div> <p></p>
+
+<p>New <a href="https://web.archive.org/web/20161218212712/http://gothamist.com/2016/11/10/fob_filipino_carroll_gardens.php#photo-1">Filipino spot</a> <a href="https://web.archive.org/web/20161218212712/http://www.fobbrooklyn.com/"><strong>f.o.b.</strong></a> in Carroll Gardens begins <a href="https://web.archive.org/web/20161218212712/http://www.fobbrooklyn.com/food"><strong>brunch</strong></a> this weekend, offering traditional <a href="https://web.archive.org/web/20161218212712/http://www.filipino-food-lovers.com/longsilog/">silogs</a>, a breakfast dish of meat, garlic rice and a fried egg. Combinations include Tosilog with marinated pork, Cornsilog with corned beef and Spamilog with Spam. Other egg dishes include Tortang Omelet, an omelet stuffed with charred Asian eggplant, and for sweets, the Halo Halo Waffle with fresh fruit, shredded coconut, red bean, jack fruit and ube ice cream.</p>
+
+<p>The <a href="https://web.archive.org/web/20161218212712/http://queensnightmarket.com/"><strong>Queens International Night Market</strong></a> is closed for the season but it&apos;ll be popping up this Sunday at the <a href="https://web.archive.org/web/20161218212712/http://www.queensmuseum.org/">Queens Museum</a> for some last-minute holiday shopping. From 11 a.m. to 4:30 p.m., both levels of the Museum will be taken over by 70 vendors offering handcrafted goods from clothes to art to artisanal foods. Outside the museum, Wood-Fired Edibles and The Dumpling Spot will be cooking up brick oven pizza and Asian dumplings, respectively.</p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="121616cookie.jpg" src="https://web.archive.org/web/20161218212712im_/http://gothamist.com/attachments/nyc_nellcasey/121616cookie.jpg" width="640" height="425"> <br> <i> (<a href="https://web.archive.org/web/20161218212712/https://www.facebook.com/91667049033/photos/a.10152832202724034.1073741838.91667049033/10152832546819034/?type=3&amp;theater">Facebook</a>)</i></div> <p></p>
+
+<p>Calling all cookie-makers (and eaters) to the <a href="https://web.archive.org/web/20161218212712/https://www.facebook.com/RoyalPalmsShuffle/?fref=ts">Royal Palms Shuffleboard Club</a> to compete at the annual <strong><a href="https://web.archive.org/web/20161218212712/http://thetakedowns.com/bkcookietakedown2016/">Brooklyn Cookie Takedown</a></strong> this Sunday. If you&apos;re hip to the (chocolate) chip or squeal for oatmeal (raisin), head on over at noon to sample some cookie offerings from home bakers hoping to win some recognition and some free cookware. It&apos;s <a href="https://web.archive.org/web/20161218212712/http://www.brownpapertickets.com/event/2721729">$20 tickets</a> for entry into cookie Valhalla. </p>
+
+<p>Learn some basic Japanese dishes on Sunday courtesy of a cooking class at the <a href="https://web.archive.org/web/20161218212712/http://courttree.com/">Court Tree Collective</a>. <strong><a href="https://web.archive.org/web/20161218212712/http://courttree.com/product/yumis-umami-club-homestyle-japanese-family-cooking-workshop/">Yumi&#x2019;s Homestyle Japanese Family Cooking Workshop</a></strong> offers an opportunity to learn how to prepare miso soup and seaweed salad in addition to some non-raw fish sushi and inside-out rolls. Attendees also get a bamboo rolling mat so they can recreate the rolls at home. <a href="https://web.archive.org/web/20161218212712/http://courttree.com/product/yumis-umami-club-homestyle-japanese-family-cooking-workshop/">Tickets $45</a>. </p>					
+										
+									
+				

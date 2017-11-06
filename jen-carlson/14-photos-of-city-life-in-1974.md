@@ -1,0 +1,50 @@
+---
+author: Jen Carlson
+date: Oct 1, 2011 11:55 am
+title: 14 Photos Of City Life In 1974
+---
+
+	
+					<div class="galleryEase" id="gallery-491031">
+<!-- gallery js -->
+<script type="text/javascript" src="https://web.archive.org/web/20160113183634js_/http://assets.gothamistllc.com/v5/js/gallery.js"></script>
+<!-- end gallery js -->
+
+<style type="text/css">
+#imgContainer {
+min-height: 300px;
+min-width: 300px;
+background: url('https://web.archive.org/web/20160113183634im_/http://assets.gothamistllc.com/v5/images/progress.gif') center center no-repeat;
+}
+</style>
+
+<!--start of gallery code-->
+<a name="gallery"></a>
+<div class="galleryEaseDisplayed">
+<div id="imgContainer">
+    <img id="galleryImg">
+</div>
+<div class="galleyEaseInfo"></div>
+<div class="galleryEaseNext"></div>
+<div class="galleryEasePrev"></div>
+</div>
+<div class="galleryEaseThumbs">
+		<img src="https://web.archive.org/web/20160113183634im_/http://gothamist.com/assets_c/2011/09/8nyc1974093011-thumb-60x60-662639.jpg" title="" id="photo_1" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":1, "image": "https://web.archive.org/web/20160113183634/http://gothamist.com/upload/2011/09/8nyc1974093011.jpg", "caption": "Original caption: \"Man Lounging on a Park Bench with His Radio on the Reis Park Boardwalk in New York City. 07/1974\"", "credit":"via the U.S. National Archives"};galleryObj['photo_1'] = photo;</script>
+		<img src="https://web.archive.org/web/20160113183634im_/http://gothamist.com/assets_c/2011/09/nyc1974093011-thumb-60x60-662640.jpg" title="" id="photo_2" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":2, "image": "https://web.archive.org/web/20160113183634/http://gothamist.com/upload/2011/09/nyc1974093011.jpg", "caption": "Original caption: \"Midtown Skyline of New York City Seen From Queens. 08/74\"", "credit":"via the U.S. National Archives"};galleryObj['photo_2'] = photo;</script>
+		<img src="https://web.archive.org/web/20160113183634im_/http://gothamist.com/assets_c/2011/09/10NYC1974093011-thumb-60x60-662642.jpg" title="" id="photo_3" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":3, "image": "https://web.archive.org/web/20160113183634/http://gothamist.com/upload/2011/09/10NYC1974093011.jpg", "caption": "Original caption: \"Sports Heroes Are the Motifs in These Wall Paintings on Nostrand Avenue in Brooklyn. 07/74\"", "credit":""};galleryObj['photo_3'] = photo;</script>
+		<img src="https://web.archive.org/web/20160113183634im_/http://gothamist.com/assets_c/2011/09/7nyc1974093011-thumb-60x60-662636.jpg" title="" id="photo_4" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":4, "image": "https://web.archive.org/web/20160113183634/http://gothamist.com/upload/2011/09/7nyc1974093011.jpg", "caption": "Original caption: \"Row Houses on Bond Street in Brooklyn. Brooklyn Remains One of America\'s Best Surviving Examples of a 19th Century City. Some of the Best American Architecture Survives in Her \'Worst\' Neighborhoods, Only Because It Hasn\'t Been Demolished Most of All, the Inner City Environment Is Human Beings, as Beautiful and Threatened as the 19th Century Buildings They Inhabit 07/1974\"", "credit":"via the U.S. National Archives"};galleryObj['photo_4'] = photo;</script>
+		<img src="https://web.archive.org/web/20160113183634im_/http://gothamist.com/assets_c/2011/09/5nyc1974093011-thumb-60x60-662635.jpg" title="" id="photo_5" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":5, "image": "https://web.archive.org/web/20160113183634/http://gothamist.com/upload/2011/09/5nyc1974093011.jpg", "caption": "\"Wall Painting at Division and Forsyth Streets in Lower Manhattan, New York City. This Project Is a Portrait of the Inner City Environment. It Contains Life, Large Wall Murals and People Enjoying Themselves. 06/74\"", "credit":"via the U.S. National Archives"};galleryObj['photo_5'] = photo;</script>
+		<img src="https://web.archive.org/web/20160113183634im_/http://gothamist.com/assets_c/2011/09/16NYC1974093011-thumb-60x60-662649.jpg" title="" id="photo_6" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":6, "image": "https://web.archive.org/web/20160113183634/http://gothamist.com/upload/2011/09/16NYC1974093011.jpg", "caption": "Original caption: \"Turn of the Century Brownstone Apartments Being Painted and Renovated by Their Owners in Brooklyn. 07/74\"", "credit":"via the U.S. National Archives"};galleryObj['photo_6'] = photo;</script>
+		<img src="https://web.archive.org/web/20160113183634im_/http://gothamist.com/assets_c/2011/09/3nyc1974093011-thumb-60x60-662633.jpg" title="" id="photo_7" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":7, "image": "https://web.archive.org/web/20160113183634/http://gothamist.com/upload/2011/09/3nyc1974093011.jpg", "caption": "Original caption: \"Inner City Life on Bond Street in Brooklyn, New York City. 07/74\"", "credit":"via the U.S. National Archives"};galleryObj['photo_7'] = photo;</script>
+<br>		<img src="https://web.archive.org/web/20160113183634im_/http://gothamist.com/assets_c/2011/09/2nyc1974093011-thumb-60x60-662632.jpg" title="" id="photo_8" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":8, "image": "https://web.archive.org/web/20160113183634/http://gothamist.com/upload/2011/09/2nyc1974093011.jpg", "caption": "Original caption: \"Fire Set by the Brooklyn Polytechnic Institute to Test Wires and Insulation in New York City. 06/74\"", "credit":"via the U.S. National Archives"};galleryObj['photo_8'] = photo;</script>
+		<img src="https://web.archive.org/web/20160113183634im_/http://gothamist.com/assets_c/2011/09/9nyc1974093011-thumb-60x60-662638.jpg" title="" id="photo_9" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":9, "image": "https://web.archive.org/web/20160113183634/http://gothamist.com/upload/2011/09/9nyc1974093011.jpg", "caption": "Original caption: \"RKO Bushwick Theater in Brooklyn. 07/74\"", "credit":"via the U.S. National Archives"};galleryObj['photo_9'] = photo;</script>
+		<img src="https://web.archive.org/web/20160113183634im_/http://gothamist.com/assets_c/2011/09/12NYC1974093011-thumb-60x60-662644.jpg" title="" id="photo_10" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":10, "image": "https://web.archive.org/web/20160113183634/http://gothamist.com/upload/2011/09/12NYC1974093011.jpg", "caption": "Original caption: \"An Example of Brooklyn Architecture on Vanderbilt Avenue in New York City. 06/74\"", "credit":"via the U.S. National Archives"};galleryObj['photo_10'] = photo;</script>
+		<img src="https://web.archive.org/web/20160113183634im_/http://gothamist.com/assets_c/2011/09/13NYC1974093011-thumb-60x60-662645.jpg" title="" id="photo_11" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":11, "image": "https://web.archive.org/web/20160113183634/http://gothamist.com/upload/2011/09/13NYC1974093011.jpg", "caption": "Original caption: \"Brooklyn\'s Bushwick Avenue Seen From an Elevated Train Platform. 06/74\"", "credit":"via the U.S. National Archives"};galleryObj['photo_11'] = photo;</script>
+		<img src="https://web.archive.org/web/20160113183634im_/http://gothamist.com/assets_c/2011/09/14NYC1974093011-thumb-60x60-662646.jpg" title="" id="photo_12" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":12, "image": "https://web.archive.org/web/20160113183634/http://gothamist.com/upload/2011/09/14NYC1974093011.jpg", "caption": "Original caption: \"Graffiti with a Supergraphic \'Vail\' and Other Words on a Wall in Brooklyn. 07/74\"", "credit":"via the U.S. National Archives"};galleryObj['photo_12'] = photo;</script>
+		<img src="https://web.archive.org/web/20160113183634im_/http://gothamist.com/assets_c/2011/09/15NYC1974093011-thumb-60x60-662648.jpg" title="" id="photo_13" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":13, "image": "https://web.archive.org/web/20160113183634/http://gothamist.com/upload/2011/09/15NYC1974093011.jpg", "caption": "Original caption: \"Row Houses in Brooklyn. 06/1974\"", "credit":"via the U.S. National Archives"};galleryObj['photo_13'] = photo;</script>
+		<img src="https://web.archive.org/web/20160113183634im_/http://gothamist.com/assets_c/2011/09/17NYC1974093011-thumb-60x60-662650.jpg" title="" id="photo_14" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":14, "image": "https://web.archive.org/web/20160113183634/http://gothamist.com/upload/2011/09/17NYC1974093011.jpg", "caption": "Original caption: \"Kids Enjoying Playground Equipment in East River Park in Manhattan. 07/74\"", "credit":"via the U.S. National Archives"};galleryObj['photo_14'] = photo;</script>
+									
+</div></div>					<p>Travel back to New York City in 1974&#x2014;these photos are all courtesy of the U.S. National Archives, and focus on what they deem &quot;Inner City life&quot; in both Manhattan and Brooklyn. The Brooklyn photos all include this text in their original captions: &quot;Brooklyn remains one of America&apos;s best surviving examples of a 19th century city. Some of the best architecture survives in her &apos;worst&apos; neighborhoods that haven&apos;t been demolished.&quot; How do you think that sentence would be written in 2011?</p>					
+										
+									
+				

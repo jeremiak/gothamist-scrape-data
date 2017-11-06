@@ -1,0 +1,15 @@
+---
+author: Jen Chung
+date: Jul 10, 2010 3:42 pm
+title: Going To School "Saved" James Franco
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:250px; "> <img alt="2010_07_francosleeps.jpg" src="https://web.archive.org/web/20140508065102im_/http://gothamist.com/attachments/jen/2010_07_francosleeps.jpg" width="250" height="204"> <br> <i>Franco sleeping in class (<a href="https://web.archive.org/web/20140508065102/http://www.tmz.com/2009/03/10/james-franco-sleeping-photo/">TMZ</a>)</i></div> <a href="https://web.archive.org/web/20140508065102/http://gothamist.com/tags/jamesfranco">James Franco</a>, the actor/graduate student/ documentarian/ performance art fan/ artist, was <a href="https://web.archive.org/web/20140508065102/http://www.parade.com/celebrity/celebrity-parade/2010/0708-james-franco-exclusive.html">interviewed by Parade magazine</a>. He revealed tidbits about acting <a href="https://web.archive.org/web/20140508065102/http://gothamist.com/2010/01/21/james_franco_discusses_soap_role_de.php">on <em>General Hospital</em></a>, acting (and love scenes) with Julia Roberts, and his life as a student.  Yes, Franco really loves going to school&#x2014;he must, since he&apos;s headed to Yale this fall for a Ph.D. in English at Yale, after recently <a href="https://web.archive.org/web/20140508065102/http://gothamist.com/2009/11/11/franco.php">studying at Columbia&apos;s graduate writing program</a>  and<a href="https://web.archive.org/web/20140508065102/http://gothamist.com/2010/05/13/james_franco_forever.php"> NYU&apos;s Tisch film program</a>.  <p></p>
+
+<p>Franco said, &quot;It saved me in a way.<strong> Going to school grounds me. It exposes me to incredibly smart people who are teaching all the subjects that I&apos;m interested in.</strong> It keeps me focused where, before, I just would get very anxious about needless things.&quot; Of course, he makes some of his fellow students <a href="https://web.archive.org/web/20140508065102/http://gothamist.com/2009/11/11/franco.php">needlessly</a> <a href="https://web.archive.org/web/20140508065102/http://gawker.com/5167491/overworked-james-franco-sleeping-his-way-through-grad-school">anxious</a>.</p>
+
+<p>Franco is currently working on <a href="https://web.archive.org/web/20140508065102/http://www.newyorker.com/talk/2010/07/12/100712ta_talk_goodyear">another <em>General Hospital</em> stint</a> (his character is an artist named Franco), but his first art show is <a href="https://web.archive.org/web/20140508065102/http://gothamist.com/2010/06/17/francos_first_art_show.php">also currently on display</a> in Tribeca.  And, come August,  you&apos;ll be able to see him in the upcoming Julia Roberts movie <em>Eat Pray Love</em> (<a href="https://web.archive.org/web/20140508065102/http://www.youtube.com/watch?v=iZzmqHJ0gPU">he plays a rebound boyfriend</a>!), which comes out in August.  FOREVER FRANCO!</p>					
+										
+									
+				

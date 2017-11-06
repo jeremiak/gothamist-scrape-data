@@ -1,0 +1,11 @@
+---
+author: Jen Carlson
+date: June  4, 2010  1:20 PM
+title: BKLYN Yard Closes Up Shop
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="BKYRD06.jpg" src="https://web.archive.org/web/20111124160150im_/http://gothamist.com/attachments/arts_jen/BKYRD06.jpg" width="350" height="230" class="image-left"> </span>Just as the sun comes out for the season, word comes in that the BKLYN Yard has been forced to shut down not one week after they kicked off the season with a weekend of opening events. Following yesterday&apos;s appearance in <a href="https://web.archive.org/web/20111124160150/http://www.nytimes.com/2010/06/03/fashion/03gowanus.html?partner=rss&amp;emc=rss">the NY Times</a>, the organizers of the outdoor space on the Gowanus Canal have announced <a href="https://web.archive.org/web/20111124160150/http://bklynyard.com/bklyn-yard-shutting-our-doors/">on their website</a> that they&apos;re being forced out by their longtime landlord.</p>
+
+<p>The Yard first opened four years ago, and offered up plenty of live shows, food trucks, and this year even added a new bar and bocce court. It has been a unique and rare outdoor space in the city, so it will surely be missed by the masses this summer. In their announcement, they explained: &quot;Our landlord of the past four years, who used to share our vision for BKLYN Yard, notified us on Tuesday May 1st, that they would no longer honor our lease which had been in place since early this year. They chose not to give us an opportunity to renegotiate, and requested that we take what we have built, and terminate all of our confirmed plans and schedule for this summer.&quot;</p>
+
+<p>The group is determined to revive their vision elsewhere, however, and promise, &quot;our renegade spirit and love for pop-up spaces will come alive again this summer&#x2014;very possibly with the same collaborators and programming you see on our current schedule.&quot; Surely there are other toxic green spaces in the city that could use a little love and drunken debauchery.</p>

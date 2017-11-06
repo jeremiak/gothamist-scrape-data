@@ -1,0 +1,12 @@
+---
+author: Jen Chung
+date: September 18, 2008  9:43 AM
+title: A Block From School, Two Girls Struck in Hit-and-Run
+---
+
+<p><img alt="2008_09_ozhr.jpg" src="https://web.archive.org/web/20111117122009im_/http://gothamist.com/attachments/jen/2008_09_ozhr.jpg" width="300" height="183" class="left">A 12-year-old girl suffered a brain hemorrhage and other injuries after being <a href="https://web.archive.org/web/20111117122009/http://www.nypost.com/seven/09182008/news/regionalnews/nightmare_hit__run_in_qns__129648.htm">hit by a black Nissan</a> while crossing the street to school in South Ozone Park, Queens. </p>
+
+<p>Nisha Chowdhry and her friend had been dropped off by Nisha&apos;s father in the middle of Rockaway Boulevard.  The two girls decided to cross in the middle of the street, managing to pass after a bus, but both were hit by the Nissan.  <a href="https://web.archive.org/web/20111117122009/http://www.nypost.com/video?vxSiteId=a89dc16f-1771-485a-8c76-3ebbf3072361&amp;vxChannel=NY%20Post&amp;vxClipId=1458_382144&amp;vxBitrate=300">Surveillance video</a> shows the NIssan knocking both girls down: The friend gets up immediately but Nisha remains on the ground, while the car doesn&apos;t even stop or slow down.  The manager of a nearby Getty station said, &quot;I heard a loud bang. I saw the girl lying in the middle of the road bleeding and the broken side mirror.&quot;</p>
+
+<p>Nisha&apos;s father <a href="https://web.archive.org/web/20111117122009/http://abclocal.go.com/wabc/story?section=news/local&amp;id=6396556">told WABC 7</a> that he &quot;drops the girls off every Wednesday always insisting they cross at the crosswalk, but today they saw a group of friends and crossed the street in the middle of the road.&quot;  Raj Chowdury, who said his daughter wants to be a teacher, said he returned to road because his &quot;heart said something&quot; and then saw Nisha in the street.  He <a href="https://web.archive.org/web/20111117122009/http://www.nydailynews.com/ny_local/queens/2008/09/17/2008-09-17_two_schoolgirls_injured_one_critically_i-3.html&lt;br /&gt;
+">added to the Daily News</a>, &quot;Accidents happen, but [the driver] has to be given justice. Everybody has to be careful. There&apos;s too much traffic here.&quot;</p>

@@ -1,0 +1,11 @@
+---
+author: Jen Chung
+date: October  7, 2008  9:52 AM
+title: Is the Port Authority Being Bottle-Taunted?
+---
+
+<p><img src="https://web.archive.org/web/20110611050401im_/http://gothamist.com/attachments/jen/2008_10_linctun.jpg" class="left">Last Friday afternoon-into-evening, commuters leaving NYC through the Lincoln Tunnel were <a href="https://web.archive.org/web/20110611050401/http://gothamist.com/2008/10/04/suspicious_package_causes_hours_of.php">treated to hours of delays</a>, because a suspicious package was left on I-495 West.  It turned out to be two bottles filled with an ultimately harmless liquid, but the damage was done: Traffic was diverted to local roads in NJ, commuter bus passengers were hating their devotion to mass transit, and there were still hours of residual delays.</p>
+
+<p>The Post <a href="https://web.archive.org/web/20110611050401/http://www.nypost.com/seven/10072008/news/regionalnews/lincoln_lunatic_132505.htm">dubs the perp</a>, &quot;Lincoln Lunatic.&quot;  Now <a href="https://web.archive.org/web/20110611050401/http://abclocal.go.com/wabc/story?section=news/investigators&amp;id=6435477">WABC 7 wonders</a> if someone is trying to test the Lincoln Tunnel and the Port Authority police, noting that this is just the latest bottle stunt: &quot;The first one occurring four weeks ago, when someone placed &apos;3 plastic heart shaped bottles&apos; of an unknown liquid on the New Jersey side of the Lincoln Tunnel. <strong>One bottle had a &apos;gray wire inside&apos; and a message, &apos;don&apos;t look at me.&apos; </strong>And then again last Wednesday, two &apos;red sealed bottles were glued&apos; near a lamp post.&quot;  </p>
+
+<p>Which also gives Paul Nunziato, of the Port Authority police union, a chance to say, &quot;I would say they&apos;re studying what&apos;s going on at the tunnel. Because they&apos;ve been able to do it, 7 bottles placed on one of the busiest roadways in the world and no one sees them no one caught an eye on them, including the cameras.&quot; The union says patrols have been scaled back at the Lincoln and Holland Tunnels.  </p>

@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: December 21, 2009 12:25 PM
+title: Pedestrian Fatally Struck By Truck On Midtown Sidewalk
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <a href="https://web.archive.org/web/20110611051116/http://gothamist.com/2009_12_accpark50.jpg"> <img alt="2009_12_accpark50.jpg" src="https://web.archive.org/web/20110611051116im_/http://gothamist.com/assets_c/2009/12/2009_12_accpark50-thumb-168x174-467950.jpg" width="93" height="96" class="image-right"> </a> </span>Terrible&#x2014;<a href="https://web.archive.org/web/20110611051116/http://abclocal.go.com/wabc/story?section=news/local&amp;id=7181747">WABC 7 reports</a> that a pedestrian on a sidewalk at Park Avenue and East 50th Street was killed when a box truck jumped a curb.  &quot;A box truck that apparently made an illegal left from Park Avenue to East 50th Street collided with a pickup truck, which was northbound on Park Avenue. The force of the collision pushed the box truck onto the sidewalk, mowing down the victim. Neither driver was injured. Both were tested and came up negative for alcohol consumption. <strong>However, the box truck driver will likely be charged with driving with a suspended license.</strong>&quot;</p>

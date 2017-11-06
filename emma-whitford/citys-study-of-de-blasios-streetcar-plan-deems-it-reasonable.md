@@ -1,0 +1,45 @@
+---
+author: Emma Whitford
+date: Apr 25, 2016 2:25 pm
+title: City's Study Of De Blasio's Streetcar Plan Deems It "Reasonable"
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="042516bqx.jpg" src="https://web.archive.org/web/20161108041408im_/http://gothamist.com/attachments/nyc_arts_john/042516bqx.jpg" width="640" height="356" class="image-none"> </span></p>
+
+<p>City agencies that have <a href="https://web.archive.org/web/20161108041408/http://www.streetsblog.org/2016/02/16/bqx-streetcar-doesnt-make-any-more-sense-now-than-it-did-yesterday/">praised</a> Mayor de Blasio&apos;s <a href="https://web.archive.org/web/20161108041408/http://gothamist.com/2016/02/04/streetcar_named_de_blasio.php#photo-1">$2.5 billion Brooklyn Queens Connector project</a> today released a study [<a href="https://web.archive.org/web/20161108041408/http://www.capitalnewyork.com/sites/default/files/Brooklyn%20Queens%20Connector%20Rapid%20Assessment.pdf">PDF</a>] endorsing the proposed 16 mile light rail track connecting Astoria, Queens to Sunset Park, Brooklyn. The study, acquired by Politico NY, is the City&apos;s assessment of <em>another</em> BQX feasibility study <a href="https://web.archive.org/web/20161108041408/http://gothamist.com/2016/01/06/brooklyn_queens_connector.php">released in 2015</a>, which reportedly has the backing of real estate interests along the corridor who stand to benefit from a sleek new mode of transport. The City took a look at the real estate-backed concept and deemed it by-and-large &quot;reasonable.&quot; </p>
+
+<p>&quot;A streetcar/Light Rail hybrid is the most appropriate transit intervention along this corridor,&quot; the report states. </p>
+
+<p><a href="https://web.archive.org/web/20161108041408/http://www.6sqft.com/tag/friends-of-the-brooklyn-queens-connector/">Friends of the Brooklyn Queens Connector</a> (FBQC), the nonprofit that authored the original study, is <a href="https://web.archive.org/web/20161108041408/http://www.nydailynews.com/new-york/brooklyn-queens-waterfront-streetcar-proposed-article-1.2519542">reportedly supported</a> by Brooklyn developer Jed Walentas, who has both significant DUMBO holdings and a forthcoming mixed-use development at the <a href="https://web.archive.org/web/20161108041408/http://gothamist.com/2014/03/04/de_blasio_eats_rich.php">Domino Sugar refinery</a> in Williamsburg.</p>
+
+<p>Today&apos;s study, conducted by the New York City Economic Development Corporation and the DOT, approves of FBQC&apos;s projections of how many people will utilize the BQX, which is based primarily on capturing ridership from established bus routes along the corridor, like the B62 and B61 in Brooklyn, and the Q69 and Q100 in Queens. However, it makes the assumption that riders will be able to make a free transfer between existing buses and trains and the BQX, which is far from certain.</p>
+
+<p>To date, Mayor de Blasio has said that the BQX will cost $2.75, the cost of a MetroCard swipe, regardless of whether the two transit systems are integrated (the MTA, a state agency, is not under the Mayor&apos;s jurisdiction; in February then-MTA spokesman Adam Lisberg said, &quot;We look forward to learning more about the city&apos;s proposal&quot;). </p>
+
+<p>In February the mayor <a href="https://web.archive.org/web/20161108041408/http://gothamist.com/2016/02/16/it_worked_for_north_haverbrook.php">told reporters</a> that, &quot;Even if this were a thing unto itself, it would still be adding intensely to people&apos;s options and ability to get around. A lot of people are just going to take this from one point to another without transferring. This is progress unto itself.&quot;</p>
+
+<p>Based on the assumption that a chunk of bus riders will switch to the BQX (a route that will have the right-of-way along 70% of its corridor and travel at an estimated 10.5 mph), the current demand for light rail between major hubs along the route is quite low&#x2014;using 2013 data, the report estimates that about 51 commuters would use the BQX to get from Astoria to DUMBO on a typical weekday, and none would take it in the opposite direction. Commuters from Red Hook to DUMBO are projected to number 117, with 26 headed the other way. </p>
+
+<p>Here&apos;s the study&apos;s estimated current demand for travel between all proposed BQX stops: </p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="042516_Ridership.jpeg" src="https://web.archive.org/web/20161108041408im_/http://gothamist.com/attachments/nyc_ewhitford/042516_Ridership.jpeg" width="640" height="396"> <br> <i> (via Rapid Assessment) </i></div> <p></p>
+
+<p>The study&apos;s forecast for daily ridership on the entire line is 24,500 by 2025, and 48,900 by 2035 (for context, the 161st Street B/D/4 train station <a href="https://web.archive.org/web/20161108041408/http://web.mta.info/nyct/facts/ridership/ridership_sub.htm">saw 27,020 average weekday riders</a> in 2015). These projections are based on two major assumptions, in addition to population growth: areas within walking distance of East River Ferry terminals have seen a 7% increase in development compared to nearby locations, and the study assumes the BQX will have the same impact; annual public transit use increases 1% annually in Brooklyn and 0.4% annually in Queens, and BQX ridership will grow apace. </p>
+
+<p>A close read of the report also reveals numerous logistical concerns. For one, the streetcar as-proposed would cross bridges over the Gowanus Canal (the Hamilton Avenue Bridge) and Newtown Creek (the Pulaski Bridge)&#x2014;two notorious superfund sites. According to today&apos;s report, &quot;extensive analysis of the bridge structures and necessary retrofits&quot; will be necessary in order to determine if the crossings are structurally sound for a light rail. Construction work on both bridges is likely, complicating things further since &quot;highly contaminated sites may require significant remediation measures.&quot; </p>
+
+<p>Mayoral officials <a href="https://web.archive.org/web/20161108041408/http://fortgreenefocus.com/blog/2016/02/22/proposed-bridges-for-brooklyn-queens-streetcar-could-be-in-flood-zone/">confirmed earlier this year</a> that much of the proposed route runs through flood-prone areas, but <a href="https://web.archive.org/web/20161108041408/http://newyorkyimby.com/2016/02/new-bridges-and-financial-details-for-brooklyn-queens-streetcar.html">dodged questions about how this issue would be addressed</a>. This week&apos;s report touches on flooding concerns as well, citing flood zone areas in Astoria, Hunters Point, Newtown Creek, Greenpoint, Williamsburg, the Brooklyn Navy Yard, Red Hook, and Sunset Park West. According to the report, &quot;Avoidance and flood protection measures should be considered in these areas.&quot; </p>
+
+<p>The proposed route would also cut through numerous utilities that are challenging and expensive to move, like sewers, gas transmission mains, and underground electrical cables. The FBQC study apparently addressed utility conflicts &quot;in a broad generalization&quot; and &quot;no inventory or analysis of affected utilities was performed.&quot; </p>
+
+<p>Other goodies include &quot;potential damage to tracks due to snowplows and corrosion from salt.&quot; The study also shoots down the possibility of a streetcar spur that would connect  DUMBO to Atlantic Terminal. </p>
+
+<p>Critics of the streetcar have <a href="https://web.archive.org/web/20161108041408/http://gizmodo.com/streetcars-are-the-great-urban-gimmick-of-our-time-1759474436?utm_medium=sharefromsite&amp;utm_source=Gizmodo_twitter">expressed concern</a> that the project will further gentrification by bringing retail and market-rate development to the corridor. Indeed, the city is banking that the streetcar would raise property taxes along its route enough to pay for itself. &quot;This happens to be a place of particularly concentrated population and economic growth, with a particular ability to get that revenue that would pay for the light rail,&quot; de Blasio said in February. </p>
+
+<p>Assessing the tax revenue funding plan for the BQX, today&apos;s report deemed it &quot;reasonable.&quot; </p>
+
+<p>The City hopes to break ground on the light rail in 2019 and begin service in 2024, although today&apos;s report emphasizes the likelihood of &quot;phasing in&quot; sections of the track. <a href="https://web.archive.org/web/20161108041408/http://www.capitalnewyork.com/article/city-hall/2016/04/8597483/city-gives-new-bqx-streetcar-details-and-revs-outreach-plan">Politico NY reports</a> that the City will host its first &quot;visioning session&quot; for the public on May 9th, at the Variety Boys and Girls Club on 30th Road in Astoria. </p>					
+										
+									
+				

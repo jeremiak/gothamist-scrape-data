@@ -1,0 +1,13 @@
+---
+author: Jen Chung
+date: June 12, 2008  9:40 AM
+title: Yankees Want $350 Million More for New Stadium
+---
+
+<p><img alt="2008_06_yankstad.jpg" src="https://web.archive.org/web/20110611061256im_/http://gothamist.com/attachments/jen/2008_06_yankstad.jpg" width="640" height="361"></p>
+
+<p>The NY Yankees has reportedly asked city for $350 million more in public financing for its new stadium.  The $1.3 billion project is currently under construction, and the urgency for additional funds in the form of tax-free bonds ranges from <a href="https://web.archive.org/web/20110611061256/http://www.nypost.com/seven/06112008/news/regionalnews/yankees_seek_more_public_financing_for_n_115059.htm">Assemblyman Richard Brodsky saying</a> &quot;the Yankees said they couldn&apos;t complete the Stadium without additional financing&quot; to the NYC Economic Development Corporation president <a href="https://web.archive.org/web/20110611061256/http://www.newsday.com/sports/baseball/yankees/ny-spystad0612,0,315331.story">saying the Yankees are just making &quot;informal inquiries.&quot;</a>  </p>
+
+<p>An NYC EDC spokesperson said that the Yankees can&apos;t get the additional financing because of an IRS rule that &quot;prohibits more public debt to be incurred for the stadium,&quot; but the city is trying to help the Yankees--not to mention other sports teams--get around the rule.  However, Good Jobs New York director Bettina Damiani told the Post if the IRS reverses that regulation, the &quot;floodgates&quot; would open, &quot;It defies all fiscal common sense to subsidize wealthy sports teams.&quot;</p>
+
+<p>Yankees team president Randy Levine sought to calm things down by explaining, &quot;This issue does not affect completion of the Stadium,&quot; noting the organization always considered &quot;additional bonding.&quot;  Keep in mind that the Yankees have already received $900 million in tax-free bonds (the Mets received $500 million in tax-free bonds for CitiField).  Here&apos;s <a href="https://web.archive.org/web/20110611061256/http://www.fool.com/FoolFAQ/FoolFAQ0010.htm">The Motley Fool on what bonds are</a> and here&apos;s Wikipedia&apos;s entry on <a href="https://web.archive.org/web/20110611061256/http://en.wikipedia.org/wiki/New_Yankee_Stadium#Financing">new Yankee Stadium financing</a>.  More recently, residents near the stadium have complained the new stadium has <a href="https://web.archive.org/web/20110611061256/http://gothamist.com/2008/05/26/community_conti_1.php">robbed them of their park space</a>.</p>

@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: October  4, 2008  1:50 PM
+title: Lehman Employees Say Good-Bye to Severance Packages
+---
+
+<p><img src="https://web.archive.org/web/20130403102336im_/http://gothamist.com/attachments/jen/2008_09_lehbros.jpg" class="right">The <a href="https://web.archive.org/web/20130403102336/http://www.nypost.com/seven/10042008/news/regionalnews/lehman_staff_gets_the_shaft_in_severance_132071.htm">NY Post reports</a> on the overall unfairness of former Lehman Brothers employees&apos; severance being cut off, while &quot;former Lehman Brothers CEO Dick Fuld received a total compensation package of $71.9 million last year.&quot;  Though a former employee--who was laid off in March after 16 years with the firm--had signed a severance agreement giving her pay and health insurance through April 2009, she received a letter last month saying it was ending <a href="https://web.archive.org/web/20130403102336/http://gothamist.com/2008/09/15/panic_on_wall_street_lehman_files_f.php">because of the bankruptcy</a>.  A few weeks ago during the chaos, <a href="https://web.archive.org/web/20130403102336/http://dealbreaker.com/2008/09/no-severance-for-you.php">Dealbreaker heard</a> from more recently laid-off Lehman employees who were told their severance would run out soon or be non-existent.</p>

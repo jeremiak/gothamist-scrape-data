@@ -1,0 +1,7 @@
+---
+author: Jen Carlson
+date: November 12, 2008 10:29 AM
+title: Williamsburg Park Will Close for the Winter
+---
+
+<p><img alt="eriverpark1108.jpg" src="https://web.archive.org/web/20120108055535im_/http://gothamist.com/attachments/arts_jen/eriverpark1108.jpg" width="130" height="86" class="right">Looks like the little park that could...couldn&apos;t. The Williamsburg waterfront park, dubbed <a href="https://web.archive.org/web/20120108055535/http://gothamist.com/2007/05/29/ersp.php">East River Park</a>, opened just last year, but now <a href="https://web.archive.org/web/20120108055535/http://www.nypost.com/seven/11122008/news/regionalnews/wburg_park_budget_victim_138301.htm">the NY Post</a> is saying it &quot;will be shut for the winter as part of Gov. Paterson&apos;s sweeping budget cuts.&quot; While the closure will only be from January to March (clearly not the time to be sitting on the waterfront anyway), the NYC Park Advocates group noted, &quot;Closing a park is unheard of in modern times.&quot; Perhaps when it makes its triumphant comeback it will have <a href="https://web.archive.org/web/20120108055535/http://curbed.com/archives/2007/06/28/burgs_hipster_park_opts_for_full_work_week.php">better landscaping</a>, <a href="https://web.archive.org/web/20120108055535/http://www.nydailynews.com/ny_local/brooklyn/2007/07/31/2007-07-31_new_wburg_park_panned.html">allow pets and extend hours</a> (currently it&apos;s opened from 10 a.m. to dusk).</p>

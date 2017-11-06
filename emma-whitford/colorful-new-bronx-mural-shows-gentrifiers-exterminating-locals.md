@@ -1,0 +1,41 @@
+---
+author: Emma Whitford
+date: Nov 30, 2015 1:32 pm
+title: Colorful New Bronx Mural Shows Gentrifiers Exterminating Locals
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="113015_Mural3.jpeg" src="https://web.archive.org/web/20170828182508im_/http://gothamist.com/attachments/nyc_ewhitford/113015_Mural3.jpeg" width="640" height="427"> <br> <i> Courtesy of the artist. </i></div> <p></p>
+
+<p>A new comic book-inspired mural on Walton Avenue in the Bronx depicts native bees driven from their hives by a so-called &quot;crops developer.&quot; With an ominous tank of chemicals strapped to his back, nozzle in hand, the villain shouts, &quot;Go my HIPSTER-MITES! Gentrify these honeycombs with your cultural appropriation and privilege!&quot; </p>
+
+<p>The mural, which runs the length of one warehouse&apos;s exterior wall, was conceived and executed by cartoon and mural artist Alberto Serrano, a.k.a. <a href="https://web.archive.org/web/20170828182508/http://www.titonarua.com/">Tita Na Rua</a> or &quot;Tito on the Streets.&quot; Serrano collaborated with Bronx graffiti artist Alfredo Bennett a.k.a. <a href="https://web.archive.org/web/20170828182508/http://kingbeeuw.com/">Royal KingBee</a> over the course of nine days in mid-November. </p>
+
+<p>Serrano says he was excited to work on the Walton block in Mount Hope&#x2014;his home before moving to Rio fourteen years ago. &quot;KingBee has been painting murals there for years and it had an impact on how I perceived graffiti art,&quot; he told us this afternoon. &quot;When he suggested we do the art on that wall I freaked.&quot; </p>
+
+<p>Bennet has been tagging his signature bees in the Bronx for more than two decades. In 2013, he became interested in the <a href="https://web.archive.org/web/20170828182508/http://gothamist.com/2015/07/09/climate_change_bees.php">depletion in the bee population worldwide</a>, and took on more politicized projects. The fleeing bees in his new mural are a literal depiction of a species in danger, but here they also represent the negative effects of rampant gentrification. &quot;It&apos;s a double-edged thing for me,&quot; he said. </p>
+
+<p>For Bennett, there&apos;s further significance in the wall&apos;s proximity to Jerome Avenue. The mural stands just one long block from a section of the Bronx slotted for rezoning as part of Mayor de Blasio&apos;s <a href="https://web.archive.org/web/20170828182508/http://gothamist.com/2014/05/07/de_blasios_housing_plan.php">affordable housing plan</a>.  The plan has been met with neighborhood opposition <a href="https://web.archive.org/web/20170828182508/http://gothamist.com/2015/09/21/affordable_housing_east_ny.php">from East New York</a> to the <a href="https://web.archive.org/web/20170828182508/http://gothamist.com/2015/10/15/les_dorm_life.php">Lower East Side</a>, and has <a href="https://web.archive.org/web/20170828182508/http://gothamist.com/2015/08/18/bronx_housing_greed.php">also been criticized</a> in the South Bronx, as it would allow for the development of part-luxury, part-affordable high rises. </p>
+
+<p>&quot;The mural&apos;s literally in the heart of where the rezoning is going to be happening,&quot; Bennett told us. &quot;People who have lived here for over 50 years, mechanics and auto body shops where I take my cars, are all going to be impacted. This is not something that&apos;s going to happen overnight, but in the next five years you&apos;re going to see that.&quot; </p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="113015_Mural7.jpeg" src="https://web.archive.org/web/20170828182508im_/http://gothamist.com/attachments/nyc_ewhitford/113015_Mural7.jpeg" width="640" height="433"> <br> <i> Courtesy of the artist. </i></div> <p></p>
+
+<p>Serrano <a href="https://web.archive.org/web/20170828182508/http://www.nytimes.com/2015/11/30/nyregion/on-a-wall-in-the-west-bronx-a-gentrification-battle-rages.html?_r=0">told the Times</a> that two recent events inspired him to paint an anti-gentrification mural in his old neighborhood&#x2014;an idea he&apos;s had brewing for some time. </p>
+
+<p>In late-April an <a href="https://web.archive.org/web/20170828182508/http://hyperallergic.com/221521/in-the-bronx-a-pop-up-art-show-is-a-lightning-rod-for-fear-of-gentrification/#disqus_thread">art show at the Old Bronx Courthouse</a>&#x2014;a building that had stood empty for nearly 40 years&#x2014;attracted crowds from all over the city, prompting local activists to protest with the chant, &quot;Don&apos;t use art to pimp us out.&#x201D; A party for real estate brokers, intended both to promote the art show and &quot;introduce&quot; brokers to the neighborhood, was canceled in the face of community opposition. </p>
+
+<p>The final straw for Serrano was news of a star-studded <a href="https://web.archive.org/web/20170828182508/http://gothamist.com/2015/11/01/real_estate_developers_south_bronx.php">Halloween rave in a former piano factory in Port Morris</a>, hosted in part by the developers of two forthcoming luxury towers on the Bronx waterfront. Organized around the theme &quot;Bronx is burning&quot; (an allusion to a <a href="https://web.archive.org/web/20170828182508/http://nypost.com/2010/05/16/why-the-bronx-burned/">tactic used by landlords</a> in the 1970s) the party was decorated with burnt-out, bullet-riddled cars and flaming trash barrels. </p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="113015_Mural5.jpeg" src="https://web.archive.org/web/20170828182508im_/http://gothamist.com/attachments/nyc_ewhitford/113015_Mural5.jpeg" width="640" height="427"> <br> <i> Courtesy of the artist. </i></div> <p></p>
+
+<p>Developers Somerset Partners and The Chetrit Group have also banded together to brand Port Morris along the waterfront as the <a href="https://web.archive.org/web/20170828182508/https://twitter.com/Eddie_Small/status/659392201852612608/photo/1?ref_src=twsrc%5Etfw">Piano District</a>, a sort of hopeful Williamsburg equivalent. The fear of gentrification and ensuing displacement has been alive in the South Bronx for <a href="https://web.archive.org/web/20170828182508/http://gothamist.com/2013/12/09/bronx_gentrification_conference.php">several</a> <a href="https://web.archive.org/web/20170828182508/http://gothamist.com/2013/11/22/ask_a_native_new_yorker_will_the_so.php">years</a>, and a 2009 rezoning paved the way for residential, commercial, and <a href="https://web.archive.org/web/20170828182508/http://gothamist.com/2015/07/08/renderings_this_is_what_a_greener_s.php">green-space development</a> in a formerly industrial area. </p>
+
+<p>Serrano said that some of the change has been positive. &quot;Where the mural is located seems to have taken a turn for the worst,&quot; he said. &quot;But in the South Bronx, where I spent my early years playing in the abandoned lots of burnt out buildings, there are now very nice tree-lined streets.&quot; </p>
+
+<p>Still, speech bubbles across Serrano&apos;s mural call out telltale signs of gentrification, with appropriate comic book excitement. &quot;NO... NOT A WHOLEFOODS!&quot; reads one panel followed by &quot;YES... AND CROCHET STREET ART AS WELL.&quot; The latter refers to a wall-length yarn bomb installed, <a href="https://web.archive.org/web/20170828182508/http://gothamist.com/2015/09/18/bushwick_crochet_gentrification.php">without permission</a>, on a private home in Bushwick this summer. The home happened to be adjacent to the Bushwick Flea, and Flea organizer Rob Abner later justified his decision this way: &quot;What we did with the crochet art, is we covered up nasty graffiti with nice graffiti.&quot;</p>
+
+<p>&quot;I have a couple friends who live in Brooklyn, and they&apos;ve seen the rents go up,&quot; Bennet said. &quot;My mother has been living on Burnside Avenue for almost 50 years now, and we see the rent climbing up, too. It&apos;s just a matter of time before we have to relocate as well.&quot; </p>					
+										
+									
+				

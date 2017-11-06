@@ -1,0 +1,34 @@
+---
+author: Emma Whitford
+date: May 12, 2016 2:47 pm
+title: NYC's First City Park Syringe Disposal Unit Is Shaped Like A Daisy 
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="051216_Daisy.jpeg" src="https://web.archive.org/web/20161110103605im_/http://gothamist.com/attachments/nyc_ewhitford/051216_Daisy.jpeg" width="640" height="480"> <br> <i> (via Washington Heights Corner Project). </i></div> <p></p>
+
+<p>A Manhattan nonprofit that provides health services to intravenous drug users unveiled the city&apos;s first public syringe drop box in any city park this week, located in the Haven Park Underpass near 177th Street and New Haven Avenue in Fort Washington Park. Shaped like a daisy with three hollow stems for depositing syringes, the drop box is a 24-hour disposal option for users who might otherwise leave dirty needles on the ground. </p>
+
+<p>The <a href="https://web.archive.org/web/20161110103605/http://www.cornerproject.org/">Corner Project</a>, which has worked with drug users in the neighborhood since the late aughts, collaborated with the Parks Department to install the pilot project. Corner Project member Sarah Deutsch said on Thursday that the location is highly strategic&#x2014;in 2014 her group tracked every single stray syringe in the neighborhood using GPS. The Washington Heights underpass is close to three of the most heavily concentrated syringe pickup spots. </p>
+
+<p>&quot;We chose the daisy shape to be integrated into the design and the landscape of the park,&quot; Deutsch told reporters on Tuesday. &quot;The aesthetic is to be natural and really blend in, but also to stand out to those who know what it is and need to know what it is.&quot;  </p>
+
+<center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">Proud of <a href="https://web.archive.org/web/20161110103605/https://twitter.com/cornerproject">@cornerproject</a> for placing 1st syringe disposal kiosk of this type in US, today in Ft Wash Park: Haven/W177 <a href="https://web.archive.org/web/20161110103605/https://t.co/nc1TzCH2h1">pic.twitter.com/nc1TzCH2h1</a></p>&#x2014; Liz Ritter (@LizRittr) <a href="https://web.archive.org/web/20161110103605/https://twitter.com/LizRittr/status/730155580942385153">May 10, 2016</a></blockquote>
+<script async src="//web.archive.org/web/20161110103605js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<p>Based on a design recently implemented in Vancouver, the drop box has capacity for more than 100 needles, and is lined with a biohazard bag. The Corner Project will check it every day for the first month, and transfer the needles to <a href="https://web.archive.org/web/20161110103605/http://www.amazon.com/b?node=3761841">sharp containers</a> to be incinerated in an upstate facility by the biohazard waste disposal company <a href="https://web.archive.org/web/20161110103605/http://www.stericycle.com/solutions/all-services/?gclid=COa39eud1cwCFVdahgodHGoNnw">Stericycle</a>. </p>
+
+<p>Deutsch clarified on Thursday that while hospitals and health care facilities are <a href="https://web.archive.org/web/20161110103605/http://www.health.ny.gov/diseases/aids/consumers/prevention/needles_syringes/sharps/">technically supposed to</a> accept used syringes for safe disposal, hospitals are busy and tend not to advertise the service. Some nonprofits have drop boxes in front of their offices, but Deutsch only knows of two in Manhattan&#x2014;the <a href="https://web.archive.org/web/20161110103605/http://www.leshrc.org/">Lower East Side Harm Reduction Center </a>on Allen Street, and the <a href="https://web.archive.org/web/20161110103605/http://www.housingworks.org/heal/">Positive Health Project</a> on 37th Street. </p>
+
+<p><a href="https://web.archive.org/web/20161110103605/http://www1.nyc.gov/office-of-the-mayor/news/383-16/mayor-de-blasio-launches-series-initiatives-reduce-drug-overdose">According to city statistics</a>, 886 New Yorkers died of heroin overdoses in 2015, up from 800 in 2014. The city <a href="https://web.archive.org/web/20161110103605/http://gothamist.com/2014/04/03/narcan_heroin_od.php">requires NYPD officers to carry</a> the anti-overdose drug nalaxone, which is <a href="https://web.archive.org/web/20161110103605/http://gothamist.com/2016/02/01/naloxone_nyc_pharmacies.php">also available over-the-counter</a> at city pharmacies. </p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="051216_Daisy2.jpeg" src="https://web.archive.org/web/20161110103605im_/http://gothamist.com/attachments/nyc_ewhitford/051216_Daisy2.jpeg" width="640" height="433"> <br> <i> Making the daisy (via Washington Heights Corner Project). </i></div> <p></p>
+
+<p>Last month Mayor de Blasio <a href="https://web.archive.org/web/20161110103605/http://gothamist.com/2016/04/22/last_night_mayor_bill_de.php">announced a three-year, $5.5 million plan</a> to distribute an additional 7,500 nalaxone kits city-wide. The city&apos;s new <a href="https://web.archive.org/web/20161110103605/http://www1.nyc.gov/office-of-the-mayor/news/919-15/de-blasio-administration-launches-comprehensive-effort-reduce-opioid-misuse-overdose-deaths#/0">Heroin and Prescription Opioid Public Awareness Task Force</a> will also match users who have had nonfatal overdoses with social workers. The Mayor&apos;s plan does <em>not</em> call for <a href="https://web.archive.org/web/20161110103605/http://gothamist.com/2015/09/24/public_injection_heroin.php">supervised injection facilities</a>, where drug users might shoot up safely under the supervision of healthcare workers. The controversial concept has the support of City Council Health Committee Chair Corey Johnson, and Assemblywoman Linda Rosenthal at the state level. </p>
+
+<p>&quot;People need to become more educated and look more deeply into this crisis,&quot; Rosenthal <a href="https://web.archive.org/web/20161110103605/http://gothamist.com/2016/03/11/safe_injection_heroin_nyc.php">told us in a recent interview</a> about SIFs. &quot;It&apos;s the same thing as when the city started giving out free condoms. It didn&apos;t mean people would go out and start having sex, it meant that they were going to have sex with or without. It&apos;s just acknowledging the reality of a behavior, and trying to make it safer.&quot; </p>
+
+<p>The Corner Project isn&apos;t planning on expanding its drop box project until they&apos;ve taken stock of how much use it&apos;s getting, but Deutsch says several syringes have already been collected in the last few days.</p>					
+										
+									
+				

@@ -1,0 +1,13 @@
+---
+author: Jen Chung
+date: September 17, 2008 11:04 AM
+title: After Rescue, Missing Teacher Remains in Hospital
+---
+
+<p><img alt="2008_09_huppsi.jpg" src="https://web.archive.org/web/20111117124043im_/http://gothamist.com/attachments/jen/2008_09_huppsi.jpg" width="270" height="216" class="left">Thank goodness for the eagle eyes of Staten Island Ferry captain Christopher Covella.  His and his crew&apos;s actions led to the <a href="https://web.archive.org/web/20111117124043/http://gothamist.com/2008/09/16/missing_teacher_found_in_water_resc.php">rescue of 23-year-old Hannah Upp</a>, a public school teacher missing since August 29.  </p>
+
+<p>Covella, who was bringing the ferry from Manhattan to Staten Island, said <a href="https://web.archive.org/web/20111117124043/http://www.silive.com/news/index.ssf/2008/09/woman_rescued_from_waters_off.html">he noticed what looked like a head bobbing</a> in upper New York Harbor and he got his binoculars for a better look.  He maneuvered the boat as closer to her as possible and then deckhands Ephrain Washington and MIke Sabatino, in a rescue boat, approached her.  They took her out of the water, and she &quot;took a gasp of air&quot; and started to cry, according to Sabatino who thought she might be dead.  Video of the ferry crew after the jump.</p>
+
+<p>The authorities believe that Upp <a href="https://web.archive.org/web/20111117124043/http://www.nypost.com/seven/09172008/news/regionalnews/ferry_suicide_rescue_129467.htm">jumped from a pier</a> in Staten Island and &quot;that strong currents pulled her one mile out.&quot;  Though she told authorities her name was &quot;Hannah&quot; and that her mother reported her missing, WNBC reports she has <a href="https://web.archive.org/web/20111117124043/http://www.wnbc.com/news/17487917/detail.html?dl=mainclick">refused to speak to detectives</a>.   </p>
+
+<p>Upp was found wearing the same clothes she was last seen in--a red tank top, a black sports bra, and black shorts. The Daily News reports that Upp may have jumped into the water because she was <a href="https://web.archive.org/web/20111117124043/http://www.nytimes.com/2008/09/17/nyregion/17ferry.html?ref=nyregion">spotted at a S.I. Dunkin&apos; Donuts</a>.   Additionally, Upp apparently used the shower at New York Sports Club locations during her time off the grid--the News says, &quot;Each time, Upp told workers she had misplaced her ID and they let her in. She apparently knew cops were on her tail because she did not go to the same club twice, the sources said.&quot;  (Upp had left her id, wallet and phone in her apartment.)</p>

@@ -1,0 +1,23 @@
+---
+author: Jen Carlson
+date: May 21, 2007 3:54 pm
+title: The Whitney Goes Hippie
+---
+
+	
+										<p><img alt="2007_05_arts_summeroflove.jpg" src="https://web.archive.org/web/20150508180245im_/http://www.gothamist.com/attachments/arts_jen/2007_05_arts_summeroflove.jpg" width="110" height="130" class="left">The Summer of Love is back, and taking over New York for a 40th anniversary celebration spanning museums, theaters and screens. The <a href="https://web.archive.org/web/20150508180245/http://www.nytimes.com/2007/05/20/arts/20lela.html?pagewanted=1&amp;ref=arts">NY Times</a> takes a look at what to expect during this retrospective celebration: </p>
+
+<blockquote>The Whitney Museum of American Art is noting the anniversary with &#x201C;Summer of Love: Art of the Psychedelic Era,&#x201D; opening Thursday. The Public Theater, which formed that summer with &#x201C;Hair,&#x201D; is staging a hippie-friendly season of Shakespeare in the Park, with &#x201C;Romeo and Juliet&#x201D; and &#x201C;A Midsummer Night&#x2019;s Dream&#x201D; as well as a concert performance of &#x201C;Hair&#x201D; in September. Jefferson Starship, Quicksilver Messenger Service and other bands will renew the faith in July at the Monterey County Fairgrounds, where their younger selves performed at the 1967 Monterey International Pop Festival.</blockquote>
+
+<p>The original Summer of Love wasn&apos;t a spectator sport, as the anniversary will be. It began in the winter of 1967 (January 14th) with the Human Be-In gathering in Golden Gate Park, San Francisco. The end is marked on October 6th when a mock funeral called the Death of Hippie march was staged in Haight-Ashbury, telling budding flower children to stay at home. The Times narrows it down to &quot;a magical few months [when] tens of thousands of young people left home for San Francisco, where they gave the nation new sounds, new pleasures and new styles. In went adolescent idealism and creative energy; out came a lifetime of ads for cars, Pepsi and retirement plans.&quot;</p>
+
+<p><img alt="2007_05_arts_summeroflove2.jpg" src="https://web.archive.org/web/20150508180245im_/http://www.gothamist.com/attachments/arts_jen/2007_05_arts_summeroflove2.jpg" width="207" height="305" class="right">Events for the anniversary are happening outside the Haight as well this time around, from New York to Pennsylvania to Las Vegas, and any town that has a Starbucks. A 40th anniversary Monterey Pop CD set will be available for purchase there (after all, most hippies became yuppies).</p>
+
+<p>Jann Wenner is contributing to the nostalgia-fest by putting out a Summer of Love double issue of Rolling Stone in June. But perhaps the most interesting look-back will be <a href="https://web.archive.org/web/20150508180245/http://www.whitney.org/www/exhibition/upcoming.jsp">the Whitney&apos;s exhibit</a>, which includes underground magazines, psychedelic light shows, paintings, sculptures, album covers, posters and films of concerts. When <a href="https://web.archive.org/web/20150508180245/http://www.gothamist.com/2007/04/02/interview_joshu.php">we talked to Joshua White</a>, creator of the now famous &quot;liquid light&quot; shows from back in the day, he told us what to expect at The Whitney, where he&apos;ll have an installation: </p>
+
+<blockquote>The Summer of Love show [at the Whitney] is a very interesting show because it presents, essentially in frames or on pedestals, art objects and things that are typical of the Summer of Love, which was 40 years ago. We did art experiments at the Fillmore from time to time because we were so good &#x2013; and this sounds immodest &#x2013; but we were so strong with the music that we could afford to let <a href="https://web.archive.org/web/20150508180245/http://en.wikipedia.org/wiki/Yayoi_Kusama">Kusama</a> come out and do a happening on stage and see what happens. We literally did a light show behind a Kusama happening. I&#x2019;m told that at the Whitney, the Joshua Light Show is right there when you come out of the elevator on the second floor. And I&#x2019;m honored.</blockquote>
+
+<p>While many will flock to the Summer of Love events, bask in remembrance and purchase  reprints of their favorite concert posters - it&apos;s hard to imagine this wouldn&apos;t spur some unplanned, underground events tapping more in to the foundation of what the Summer of Love was about (peace in a time of war). <a href="https://web.archive.org/web/20150508180245/http://www.villagevoice.com/specials/0543,50thmcneill,69181,31.html">Be-In, anyone</a>? </p>					
+										
+									
+				

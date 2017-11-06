@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: July 24, 2010  2:27 PM
+title: Man Struck By Lightning In Brooklyn
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2010_07_lightne.jpg" src="https://web.archive.org/web/20111117141909im_/http://gothamist.com/attachments/jen/2010_07_lightne.jpg" width="101" height="99" class="image-right"> </span>There was a victim from <a href="https://web.archive.org/web/20111117141909/http://gothamist.com/2010/07/24/last_nights_storm_lightning_action.php">last night&apos;s sudden, violent storm</a>:  A 54-year-old man walking in Crown Heights <a href="https://web.archive.org/web/20111117141909/http://www.nydailynews.com/ny_local/brooklyn/2010/07/24/2010-07-24_lightning_strikes_man_in_bklyn.html">was struck by lightning</a>.  According to the Daily News, he was &quot;walking under some trees in the median of Eastern Parkway near Bedford Ave. A witness who was in her home at the time described, &quot;His feet were smoking and he was bleeding from the mouth. It was terrifying.&quot; The Post says a Good Samaritan <a href="https://web.archive.org/web/20111117141909/http://www.nypost.com/p/news/local/brooklyn/lightning_hit_man_is_saved_v4FTKs2EJDxoD6fgtEy97O?CMP=OTC-rss&amp;FEEDNAME=">started CPR on him</a> and then medics showed up and were able to revive in him the ambulance with the debibrillator.  Lt. Joe Cengiz of EMS Station 38 said, &quot;You could smell burning flesh. His heart stopped.&quot; The man is at Kings County Hospital on a respirator.</p>

@@ -1,0 +1,21 @@
+---
+author: Nell Casey
+date: Nov 20, 2012 1:10 pm
+title: Butcher's Daughter: Your New Source For Vegan "Charcuterie" And Fresh Juices
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="112012butchersdaughter.jpeg" src="https://web.archive.org/web/20150508123231im_/http://gothamist.com/attachments/nyc_nellcasey/112012butchersdaughter.jpeg" width="640" height="422" class="image-none"> </span></p>
+
+<p>All children want to rebel against their parents, so it makes perfect sense that Nolita newcomer <a href="https://web.archive.org/web/20150508123231/http://thebutchersdaughter.com/">The Butcher&apos;s Daughter</a> serves anything but what Daddy would. Heather Tierney&#x2014;the boozy brain behind Pulqueria and the red hot (<a href="https://web.archive.org/web/20150508123231/http://gothamist.com/tags/apotheke">literally</a>) Apotheke&#x2014;has partnered with Brandi Kowalski and Joya Carlton to create a menu of juices and light cafe fare in a cheery, sun-filled space on Kenmare at Elizabeth Street. Don&apos;t let the meat hooks on the ceiling fool you: the menu is entirely meat-free.</p>
+
+<p>Inside the white washed walls, diners can imbibe a selection of freshly-pressed juices&#x2014;the &quot;Rubies in the Dust&quot; combines beet, carrot, ginger, local berries, plum, flax seed oil and rosemary&#x2014;smoothies, nut milks and &quot;Elixir&quot; shots while seated at butcher&apos;s block tables. The mostly vegan menu has nods to classical meat dishes, including a Vegetable Charcuterie and Cheese Board ($16) with vegetable terrine and peppercorn cashew-chevre and a Butcher&apos;s Burger ($16) made with Kasha-Portobello mushroom and non-cheddar &quot;cheese.&quot; Pop by in the morning for organic muesli and other breakfast items or swing through to grab a sandwich, salad or soup to go in the afternoon. </p>
+
+<p><em>19 Kenmare Street // 212-219-3434</em></p>
+
+<p>    <a title="View The Butcher&apos;s Daughter - Drink Menu on Scribd" href="https://web.archive.org/web/20150508123231/http://www.scribd.com/doc/113911598/The-Butcher-s-Daughter-Drink-Menu" style="margin: 12px auto 6px auto; font-family: Helvetica,Arial,Sans-serif; font-style: normal; font-variant: normal; font-weight: normal; font-size: 14px; line-height: normal; font-size-adjust: none; font-stretch: normal; -x-system-font: none; display: block; text-decoration: underline;">The Butcher&apos;s Daughter - Drink Menu</a>    <iframe class="scribd_iframe_embed" src="https://web.archive.org/web/20150508123231if_/http://www.scribd.com/embeds/113911598/content" data-aspect-ratio="" scrolling="no" id="113911598" width="100%" height="500" frameborder="0"></iframe>  <script type="text/javascript">(function() { var scribd = document.createElement("script"); scribd.type = "text/javascript"; scribd.async = true; scribd.src = "https://web.archive.org/web/20150508123231/http://www.scribd.com/javascripts/embed_code/inject.js"; var s = document.getElementsByTagName("script")[0]; s.parentNode.insertBefore(scribd, s); })();</script></p>
+
+<p>    <a title="View The Butcher&apos;s Daughter - Eat Menu on Scribd" href="https://web.archive.org/web/20150508123231/http://www.scribd.com/doc/113911661/The-Butcher-s-Daughter-Eat-Menu" style="margin: 12px auto 6px auto; font-family: Helvetica,Arial,Sans-serif; font-style: normal; font-variant: normal; font-weight: normal; font-size: 14px; line-height: normal; font-size-adjust: none; font-stretch: normal; -x-system-font: none; display: block; text-decoration: underline;">The Butcher&apos;s Daughter - Eat Menu</a>    <iframe class="scribd_iframe_embed" src="https://web.archive.org/web/20150508123231if_/http://www.scribd.com/embeds/113911661/content" data-aspect-ratio="" scrolling="no" id="113911661" width="100%" height="500" frameborder="0"></iframe>  <script type="text/javascript">(function() { var scribd = document.createElement("script"); scribd.type = "text/javascript"; scribd.async = true; scribd.src = "https://web.archive.org/web/20150508123231/http://www.scribd.com/javascripts/embed_code/inject.js"; var s = document.getElementsByTagName("script")[0]; s.parentNode.insertBefore(scribd, s); })();</script></p>					
+										
+									
+				

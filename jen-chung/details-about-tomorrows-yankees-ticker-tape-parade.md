@@ -1,0 +1,15 @@
+---
+author: Jen Chung
+date: November  5, 2009 12:10 PM
+title: Details About Tomorrow's Yankees Ticker Tape Parade
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="2009_11_arodccaj.jpg" src="https://web.archive.org/web/20110623150609im_/http://gothamist.com/attachments/jen/2009_11_arodccaj.jpg" width="640" height="483"> <br> <i>Photograph of AJ Burnett, Alex Rodriguez and CC Sabathia celebrating in the Yankees clubhouse by David J. Phillip/AP</i></div> <p></p>
+
+<p>With another <a href="https://web.archive.org/web/20110623150609/http://gothamist.com/2009/11/05/last_nights_action_yankees_win_world_series.php">Yankees World Series win</a> to celebrate, the city is putting on a ticker tape parade tomorrow.  According to the city, &quot;the parade will begin on Broadway at Battery Place at 11:00 a.m. and continue northbound up the Canyon of Heroes to Chambers Street. The parade will be followed by a ceremony at City Hall Plaza, at which the Mayor will present the Yankees with Keys to the City.&quot;  </p>
+
+<p>All the streets along the &quot;Canyon of Heroes&quot; will be open to the public and there will also be a large screen near City Hall Park.  The city will release a <em>limited</em> number of tickets to see the ceremony on the plaza, but that information is forthcoming.  Also, the city wants to make clear, &quot;There have been reports in the past of fraudulent offers for tickets to the parade - including access to floats - and to the ceremony. There are no tickets or passes to any portion of the parade, and any such offers are fake. Ceremony tickets are not for resale. If you are aware of any tickets or passes being sold, please call 311.&quot;</p>
+
+<p>The city&apos;s last ticker tape parade was after the Giants Super Bowl victory; that<a href="https://web.archive.org/web/20110623150609/http://www.amny.com/urbanite-1.812039/city-eyeing-massive-ticker-tape-parade-if-yanks-win-1.1568695"> cost about $331,000</a>, and the city says that millions in business are generated from a world championship.  Inside The Apple has a little write-up on the <a href="https://web.archive.org/web/20110623150609/http://blog.insidetheapple.net/2009/11/history-of-yankee-ticker-tape-parades.html">history of Yankees ticker tape parades</a>.</p>
+
+<p>Mayor Bloomberg, who was on the podium when the World Series trophy was  congratulated the team &quot;for bringing the world championship back home to New York City, where it belongs,&quot; adding, &quot;The Phillies were a tough team to beat, but I must admit I look forward to seeing Mayor Nutter in pinstripes as he joins me and some of our public schools students as we paint the Albert Einstein School in the Bronx.&quot; The two mayors had a public service bet, instead of one involving cheesesteaks or cheesecakes.</p>

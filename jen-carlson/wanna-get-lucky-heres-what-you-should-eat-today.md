@@ -1,0 +1,27 @@
+---
+author: Jen Carlson
+date: Jan 1, 2012 11:18 am
+title: Wanna Get Lucky? Here's What You Should Eat Today
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2goodlucksalad12.jpg" src="https://web.archive.org/web/20150422205218im_/http://gothamist.com/attachments/arts_jen/2goodlucksalad12.jpg" width="640" height="471" class="image-none"> </span><br>
+<span class="photo_caption">Good luck salad: black-eyed peas, corn, fried okra, tomato, onion, parsley, and lemon-paprika mayo. (Jen Carlson/Gothamist)</span></p>
+
+<p>The best thing you can do to bring in the new year with some luck is... eat! So, since you were probably planning on eating anyway today, why not make it one of the below foods (and if you want to spend some time in the kitchen, <a href="https://web.archive.org/web/20150422205218/http://www.saveur.com/article/-/Good-Luck-Recipes-for-the-New-Year?cmpid=tw">Saveur</a> offers up some good luck recipes for today). There are very specific foods that are believed to bring luck for the year if you eat them on January 1st, and they vary culture to culture&#x2014;<a href="https://web.archive.org/web/20150422205218/http://www.epicurious.com/articlesguides/holidays/newyearsday/luckyfoods">Epicurious</a> notes that the six major lucky food categories across the globe are grapes, greens, fish, pork, legumes, and cakes.</p>
+
+<p><strong>Grapes</strong> are typically eaten at midnight, but it wouldn&apos;t hurt to have some today (12 is enough, one for each stroke of the clock, though some insist on 13 for extra good luck). In the south, <strong>black-eyed peas</strong> are considered good luck (dating back to the Civil War when a town in Mississippi survived on them), and you can <a href="https://web.archive.org/web/20150422205218/http://www.nytimes.com/2008/12/29/health/nutrition/29recipehealth.html">make a salad</a> with them for even more luck&#x2014;cooked greens like <strong>collards, kale and swiss chard</strong> represent money and are considered symbolic of economic fortune. <strong>Lentils</strong> are also considered to be symbolic of money, as is <strong>okra</strong>.</p>
+
+<p>In many Asian countries, <strong>long noodles</strong> are eaten on New Year&apos;s Day... though be careful, <a href="https://web.archive.org/web/20150422205218/http://www.goodhousekeeping.com/holidays/new-years-ideas/good-luck-foods#slide-1">Good Housekeeping</a> notes you can&apos;t break the noodle before it&apos;s all in your mouth. So you may want to slurp up your good luck with a noodle soup recipe&#x2014;<a href="https://web.archive.org/web/20150422205218/http://www.nytimes.com/2009/12/30/health/nutrition/30recipehealth.html?ref=fitnessandnutrition">here&apos;s one</a> using soba noodles.</p>
+
+<p>Moving on to the meat: <strong>pork</strong> is considered a good luck in countries like Portugal, Cuba, Spain, and Austria, with the pig symbolizing progress. And if you&apos;re vegetarian, in Austria they include miniature pigs made of marzipan. Chicken, turkey (and all fowl) <a href="https://web.archive.org/web/20150422205218/http://www.foodtimeline.org/newyear.html">should be avoided</a>, as &quot;fowl scratch backward as they search for their food,&quot; and you don&apos;t want to spend 2012 dwelling in the past. On that note, this day is really for <strong>seafood</strong> lovers. Try cod, herring, shrimp or dried sardines... just stay away from lobster! They also move backwards.</p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="luckcake1212.jpg" src="https://web.archive.org/web/20150422205218im_/http://gothamist.com/attachments/arts_jen/luckcake1212.jpg" width="640" height="427" class="image-none"> </span><br>
+<span class="photo_caption">Vasilopita cake (Jen Carlson/Gothamist)</span></p>
+
+<p>Why not skip all that and go straight for the dessert? <strong>Ring-shaped and round cakes</strong> are seen as good luck around the world, so at the very least, get yourself a doughnut today. If you want to get more specific, in Holland the <strong>doughnuts</strong> are stuffed with apples, raisins, and currants. Over in Italy they make <strong><a href="https://web.archive.org/web/20150422205218/http://italianfood.about.com/od/tastysweettreats/r/blr0150.htm">chiacchiere</a></strong>, or &quot;honey-drenched balls of pasta dough fried and dusted with powdered sugar.&quot; Last year, we made this <strong><a href="https://web.archive.org/web/20150422205218/http://vasilopita.com/recipe.html">vasilopita</a></strong> (pictured), which is a Greek tradition, and has a coin hidden inside&#x2014;just make sure to wrap it in foil. In Sweden, they hide a whole almond in rice pudding, and in Mexico, treasures are hidden inside of a ring-shaped <a href="https://web.archive.org/web/20150422205218/http://www.thedailymeal.com/15-delicious-new-year-s-eve-traditions-2011-slideshow"><strong>rosca de reyes</strong></a>&#x2014;whoever gets these &quot;prizes&quot; receives good fortune for the year.</p>
+
+<p>Lastly, if you&apos;re starting the new year on a new diet but still have a soft spot for sweets, simply have <a href="https://web.archive.org/web/20150422205218/http://www.goodhousekeeping.com/holidays/new-years-ideas/good-luck-foods#slide-5">a pomegranate</a> today.</p>					
+										
+									
+				

@@ -1,0 +1,40 @@
+---
+author: Jen Carlson
+date: May 27, 2016 12:25 pm
+title: A Brief History Of The Amphicar: Part Car, Part Boat, All Whimsy
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="amphicar16amain.jpg" src="https://web.archive.org/web/20161006141424im_/http://gothamist.com/attachments/arts_jen/amphicar16amain.jpg" width="640" height="406" class="image-none"> </span></p>
+
+<p>&quot;He has fun with the Amphicar,&quot; <a href="https://web.archive.org/web/20161006141424/http://query.nytimes.com/mem/archive/pdf?res=9D01E2DB123CEE3ABC4950DFB667838E679EDE">the NY Times</a> declared of Lyndon B. Johnson in a lengthy profile they ran in 1965. The writer, Robert Semple, goes on to describe a scene that was so frequently playing out near his Texas ranch grounds, that it was featured in the recent HBO movie starring Bryan Cranston.</p>
+
+<p>Semple explains: &quot;The scenario is familiar now. Unsuspecting guest is lured into Amphicar. President says they&apos;re going for a little spin. President heads for water. Guest cries, &apos;Hey, you&apos;re going into the water!&apos; President flips a lever that locks doors, prevents leakage. Car hits water with a whoosh. Guest gasps, then realizes he isn&apos;t sinking. Color returns to face, and he and President go putt-putting along at about 5 knots.&quot;</p>
+
+<p>The Amphicar was never quite celebrated as a boat <em>or</em> a car, its charm and intrigue was simply that it existed as both. While it was a product of West Germany, the hybrid was marketed in the U.S. in the 1960s (how did this not make it into the offices of <a href="https://web.archive.org/web/20161006141424/http://gothamist.com/tags/madmen">Sterling Cooper</a>?). Almost all of the Amphicars made were imported to the U.S., where they sold for around $2,800 (that&apos;s closer to $20,000 today). During the company&apos;s fairly brief run, 3,878 were made, and it remains &quot;the only civilian amphibious passenger automobile ever to be mass produced.&quot; </p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="amphicar16amm.jpg" src="https://web.archive.org/web/20161006141424im_/http://gothamist.com/attachments/arts_jen/amphicar16amm.jpg" width="640" height="506" class="image-none"> </span></p>
+
+<p>Heralding its arrival, <a href="https://web.archive.org/web/20161006141424/http://blog.modernmechanix.com/this-boat-is-a-car/">Modern Mechanix</a> announced in the summer of 1960: &quot;It&#x2019;s a boat! It&#x2019;s a car! It does everything but fly!&quot; They noted that the car was 15.5-feet long and weighed around 1,738-lbs. When a driver was about to hit the water, all they needed to do was double seal the doors with a handle in one quick motion.</p>
+
+<p>The Amphicar&apos;s first showing in New York appears to have been on Long Island, off College Point, at the International Motor Show. A few years later it would show up during <a href="https://web.archive.org/web/20161006141424/http://www.worldsfairphotos.com/nywf64/amphicar.htm">the second season</a> of the World&apos;s Fair in Queens, where visitors could take a ride in Meadow Lake. And the company eventually opened a Manhattan base: &quot;A ground-floor showroom at 1838-44 Broadway, opposite the Coliseum, has been leased by the Amphicar Corporation of America, a new sports car,&quot; <a href="https://web.archive.org/web/20161006141424/http://query.nytimes.com/mem/archive/pdf?res=9E04E1DC1E39E632A05754C1A96E9C946391D6CF">the NY Times</a> announced in their lease listings on August 17th, 1962. </p>
+
+<p><iframe width="640" height="360" src="https://web.archive.org/web/20161006141424if_/https://www.youtube.com/embed/B5q3geu4Z2o" frameborder="0" allowfullscreen></iframe><br>
+<span class="photo_caption">The Amphicar in Long Island in the 1960s.</span></p>
+
+<p>In 1963, <a href="https://web.archive.org/web/20161006141424/http://www.newyorker.com/magazine/1963/11/23/amphibious-2">The New Yorker</a> &quot;took an educational spin&quot; in the Amphicar:</p><blockquote>&quot;The watertight nose of the car hit the water and became a bow, and as the rear wheels slid free of the land, Mr. Ball reached down to the floor to shove the marine-transmission gear lever into forward and to pull the automobile-transmission lever back into neutral. Then he let out the clutch, whereupon a furious white wake boiled up behind us, and the Amphicar began to churn out into the center of the river. We unclenched our fingers... grateful to be alive.&quot;</blockquote>They also noted that they didn&apos;t take the Hudson to get from Amphicar America&apos;s NJ headquarters to Manhattan, which would have been the most appealing feature in these parts. Instead, they took the Lincoln Tunnel&#x2014;&quot;I get a little embarrassed myself,&quot; the rep explained, &quot;Some of the toll-takers know me by now, and one of them always asks me why I waste my money going under the river when I could go across it for nothing. One of these days I just might, if we can arrange suitable ramps on both sides.&quot; Having accessible waterways for these boat-cars was one problem, but he also admitted: &quot;To be honest, we don&apos;t know exactly who our primary market is going to be.&quot; For whatever reason, they didn&apos;t quite take off, and then environmental concerns came into play.<p></p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="amphicar16a.jpg" src="https://web.archive.org/web/20161006141424im_/http://gothamist.com/attachments/arts_jen/amphicar16a.jpg" width="640" height="461" class="image-none"> </span><br>
+<span class="photo_caption">In Long Island, 1960s. (Getty)</span></p>
+
+<p>By the time the 1968 model rolled out, the vehicles were no longer being imported here&#x2014;according to <a href="https://web.archive.org/web/20161006141424/http://www.amphicar.com/history.htm">Amphicar.com</a>, this is when the U.S. Government&apos;s EPA and DOT regulations went into effect, and Amphicars failed to meet the emissions and safety regulations. The Berlin factory shut down and &quot;the remaining inventory of unused parts was eventually purchased by Hugh Gordon of Sante Fe Springs, California. Hugh&apos;s Gordon Imports remains the Amphicar owner&apos;s primary source for spare parts.&quot; </p>
+
+<p>Today, there are an estimated 600 or fewer seaworthy Amphicars out there, and many owners will meet up at &quot;swim-in&quot; events&#x2014;there are at least five <a href="https://web.archive.org/web/20161006141424/http://www.amphicar.com/?page_id=3629">scheduled for this summer</a>. The largest one is typically in Ohio, and it sure does <a href="https://web.archive.org/web/20161006141424/http://ohiowins.com/largest-amphicar-gathering-world/">look surreal</a>.</p>
+
+<p>If you don&apos;t have $100,000 or so to spend on one yourself, Disney Springs <a href="https://web.archive.org/web/20161006141424/http://blog.hemmings.com/index.php/2015/12/08/up-close-with-the-amphicars-of-disney-springs/">just introduced them</a> to their Boathouse in Florida, where each car was given around a $70,000 upgrade. &#x201C;We&#x2019;ve taken all of the intricacies from the history of Amphicars, and came up with [solutions]... We kept the integrity of the original design, but we had engineers, and we consulted with all kinds of people to make certain that what we did was the best that could possibly be done.&#x201D;</p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="disneyamphi.jpg" src="https://web.archive.org/web/20161006141424im_/http://gothamist.com/attachments/arts_jen/disneyamphi.jpg" width="640" height="481" class="image-none"> </span><br>
+<span class="photo_caption">Amphicar Boathouse Launch at the Walt Disney World, April 2016 in Orlando, Florida. (Getty)</span></p>					
+										
+									
+				

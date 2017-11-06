@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: April 12, 2009  6:50 PM
+title: Original "Kid" Chloe Sevigny On The East Village
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2009_03_kids.jpg" src="https://web.archive.org/web/20110623145501im_/http://gothamist.com/attachments/jen/2009_03_kids.jpg" width="135" height="137" class="image-right"> </span>Besides saying that she supports the Beatrice Inn (run by her brother Paul), actress Chloe Sevigny <a href="https://web.archive.org/web/20110623145501/http://www.observer.com/2009/daily-transom/chloe-sevigny-miss-east-village-waxes-changing-nabe-and-embattled-beatrice">discussed the East Village with the Observer</a> (while hosting a party for Kiehl&apos;s) last week.  She summed up how the neighborhood has changed, &quot;Oh, you know, it&apos;s bank, nail salon, bank, nail salon, bank, nail salon. The Subway across the street from Veselka, it&apos;s just an eyesore. The bigger chains coming in everywhere, it&apos;s depressing. <strong>You know what really bugs me about the neighborhood, actually? The students! The N.Y.U. kids and they&apos;ve opened an SVA dorm near my house, so now it&apos;s even more.</strong>&quot;  The <i>Big Love</i> wife says that if she did move from the EV, she&apos;d go back to Gramercy Park.  [Via <a href="https://web.archive.org/web/20110623145501/http://evgrieve.com/2009/04/oh-you-know-its-bank-nail-salon-bank.html">EV Grieve</a>]</p>

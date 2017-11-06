@@ -1,0 +1,47 @@
+---
+author: Emma Whitford
+date: Aug 16, 2016 2:58 pm
+title: Would A New Federal Affordable Housing Proposal Backfire In NYC?
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="081616_HUD.jpg" src="https://web.archive.org/web/20161021134921im_/http://gothamist.com/attachments/nyc_ewhitford/081616_HUD.jpg" width="640" height="484"> <br> <i> (via nrv lowdown&apos;s <a href="https://web.archive.org/web/20161021134921/https://www.flickr.com/photos/nrvlowdown/1904812547/in/photolist-3UjEpD-44rGvw-3LxPx3-3VA48v-474x4v-4soxuY-2zgCa8-8AYnWH-9vLgew-3LtzmF-3LzXHY-845SEf-3S9Mrq-3T8Gtu-3S9QX1-3LtAkB-8FMDqL-3KY4dy-3Xa5qG-c95rzq-3Uijqe-4DkdXQ-3MDijs-8uhX2G-3KppRk-8RXoJb-3MDfSm-i7nrQE-3UjAG6-3bpn7S-842MaB-3UnqYS-8tDBLi-3KwjaQ-3Muztv-7ns3NC-3T9xL8-3UjzjV-3TaWyG-3LvWXr-3Trpwz-3Lv4sT-7YAaZA-4nn7HW-3LAbeu-3LvVQZ-3UoPZj-3SauXy-3VZWBD-3Ui5rp">Flickr</a>). </i></div> <p></p>
+
+<p>The federal government has <a href="https://web.archive.org/web/20161021134921/http://portal.hud.gov/hudportal/HUD?src=/press/press_releases_media_advisories/2016/HUDNo_16-092">proposed</a> increasing <a href="https://web.archive.org/web/20161021134921/https://www1.nyc.gov/site/nycha/section-8/about-section-8.page">Section 8 rental subsidies</a> in high-income neighborhoods and decreasing them in low-income neighborhoods as a way to help low-income Americans, the majority of whom live in cities&apos; poorest neighborhoods, move into neighborhoods with higher rents, better performing schools and higher-paying jobs. But Mayor de Blasio, state democrats, housing lawyers and nonprofit housing organizations are all pushing back, saying this change is untenable in New York City, where the vacancy rate is extremely low. </p>
+
+<p>In a <a href="https://web.archive.org/web/20161021134921/http://gothamist.com/2015/06/11/brooklyn_rent_obscene_forever.php">brutal housing market</a> like New York&apos;s, they argue, voucher holders in low-income neighborhoods would suddenly face higher rents, and have nowhere to turn. Even if higher subsidies were available in wealthier neighborhoods, there simply <a href="https://web.archive.org/web/20161021134921/http://gothamist.com/2016/04/21/nyc_rent_burden_map.php">aren&apos;t enough apartments available</a> in those neighborhoods to serve New York&apos;s 119,000 voucher holders. The current vacancy rate in New York City is less than 3.5 percent. </p>
+
+<p>&quot;In New York, where there are few affordable housing options, the neediest residents will not have realistic alternatives, and will be faced with having either to pay more rent out of their own pocket or leaving the city altogether,&quot; said mayoral spokeswoman Aja Worthy-Davis in a statement. </p>
+
+<p>Under current law, Section 8 holders pay 30% of their monthly income in rent. The subsidy covers the balance of that rent check, but only up to a threshold that&apos;s set by the <a href="https://web.archive.org/web/20161021134921/https://www.huduser.gov/portal/datasets/fmr.html">Fair Market Rent (FMR)</a>, or average rent for the entire metropolitan area. The new <a href="https://web.archive.org/web/20161021134921/http://portal.hud.gov/hudportal/HUD">Department of Housing and Urban Development (HUD)</a> proposal would instate Small Area Fair Market Rents, or average rents set according to zip code. </p>
+
+<p>The Daily News <a href="https://web.archive.org/web/20161021134921/http://www.nydailynews.com/new-york/disaster-predicted-obama-desegregation-plan-city-poor-article-1.2751146?utm_content=buffer92a60&amp;utm_medium=social&amp;utm_source=twitter.com&amp;utm_campaign=NYDailyNewsTw">provided a solid example</a> of how the change would increase subsidies in some NYC neighborhoods, and decrease them in others: </p>
+
+<blockquote>For instance, the rule change in zip code 10451 in the South Bronx would lower the average rent cutoff from $1,727 to $1,287. Tenants would have to either make up the $440-a-month difference, or move. At the same time, in the higher-income downtown Brooklyn zip code 11201, the average rent cutoff eligible for subsidy would rise from $1,815 to $2,365.</blockquote>
+
+<p>&quot;Tenants in low-income neighborhoods would have their FMRs decreased,&quot; said Victor Bach, the housing policy analyst for the <a href="https://web.archive.org/web/20161021134921/http://www.cssny.org/issues/entry/affordable-housing">Community Service Society</a>, an affordable housing advocacy group opposing the idea. &quot;The owners might drop out of the Section 8 program, or the tenants would have their rent substantially increased. Many of these tenants are elderly and disabled.&quot; </p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="42116rent.jpg" src="https://web.archive.org/web/20161021134921im_/http://gothamist.com/attachments/nyc_ewhitford/42116rent.jpg" width="640" height="426"> <br> <i>(via brunocerous&apos;s <a href="https://web.archive.org/web/20161021134921/https://www.flickr.com/photos/bdawg/2511819950/in/photolist-4PXJyw-BKMS6-oGUFiC-mQNoqr-rZjVrG-a5DgbQ-6TgxsK-5HNz61-82r9Bb-4dS5dL-fMMnAP-a5Ew3q-8TjkMY-bYrfAs-9zDTGz-67c9v2-a32U5t-6gcnJD-8AqoQf-8s572E-33c9Xh-afvo6V-9TPUyz-9Y6ZzD-nSsnFg-adMi1b-acMMbq-abmi5B-7WNdPG-7KMhkR-6nEPCG-9cTt2j-asiyHy-8WSM8p-oub4S-bkR1om-a1hAyB-ta3mT-ta3mA-ta3mu-8q6qKu-4P68qR-8GtAJi-e72e7M-9xjSpb-bwRNew-9YqQNA-5nbJtr-dXNDYN-d1yMm9">Flickr</a>).</i></div> <p></p>
+
+<p>The Small Area Fair Market Rents proposal is being considered for 30 cities in total, and Bach clarified that he believes it has potential to work in cities with higher rental vacancies, like Baltimore. Dallas instated zip code-based vouchers in 2011, and <a href="https://web.archive.org/web/20161021134921/http://www.nytimes.com/2015/07/08/business/economy/housing-program-expansion-would-encourage-more-low-income-families-to-move-up.html?_r=0">the NY Times recently reported</a> that its been largely successful&#x2014;Dallas voucher holders lived in 163 zip codes in 2015, up from 129 zip codes in 2011. </p>
+
+<p>In <a href="https://web.archive.org/web/20161021134921/https://velazquez.house.gov/media-center/press-releases/velazquez-schumer-question-section-8-changes">an open letter to HUD</a>, New York Representative Nydia Velazquez and Senator Chuck Schumer predicted a different outcome for New York City. According to the duo, the shift in Section 8 payouts would decrease voucher amounts for more than 56,000 Section 8 tenants. </p>
+
+<p>&quot;This means, that within 13 to 24 months of the final rule taking effect, these individuals and families will be expected to move to a higher-income neighborhood, be forced to re-negotiate with their landlord for a lower rent, or assume a significantly higher rent burden in order to stay in their home,&quot; the letter states. </p>
+
+<p>A spokesman for HUD countered Tuesday that New York City would have the ability, under the proposed change, to &quot;grandfather&quot; current Section 8 holders, meaning these renters would not be impacted by the change in subsidies. &quot;This helps ensure that in low-vacancy localities, families will not be displaced from their existing apartments,&quot; he said.  </p>
+
+<p>This clarification is in line with the Community Service Society&apos;s recommendation that HUD &quot;hold harmless all current tenants.&quot;</p>
+
+<p>HUD said that grandfathering would not apply to tenants who move, but predicted that the switch to staggered vouchers would still be gradual. Section 8 rental vouchers have been <a href="https://web.archive.org/web/20161021134921/http://www1.nyc.gov/nyc-resources/service/2142/nycha-section-8-program-cuts">closed to NYC applicants</a> since 2009, and the waiting list is <a href="https://web.archive.org/web/20161021134921/http://www.marketplace.org/2015/12/01/wealth-poverty/long-wait-section-8">notoriously long</a>&#x2014;in NYC, about 120,000 residents. </p>
+
+<p>But Bach argued that cities with low vacancy rates also tend to have high turn-back rates&#x2014;meaning, many vouchers are ultimately returned and re-issued because voucher holders simply can&apos;t find a suitable apartment that will take Section 8. Landlord <a href="https://web.archive.org/web/20161021134921/http://gothamist.com/2015/12/20/landlord_voucher_discrimination.php">discrimination against voucher holders</a> is common in NYC, despite <a href="https://web.archive.org/web/20161021134921/http://www.nyc.gov/html/dcas/downloads/pdf/misc/psb_100_13_8_107.pdf">legislation specifically outlawing the practice</a>. </p>
+
+<p>&quot;Opportunities in low rent neighborhoods would shrink because of lower owner incentives,&quot; he predicted. &quot;Voucher apartment seekers would have a tougher time, and opportunities in better neighborhoods would not substantially increase.&quot; </p>
+
+<p>Monday marked the deadline for public comment on proposed Section 8 alterations, but HUD said that the review period is ongoing. </p>
+
+<p>&quot;HUD will carefully review comments submitted in response to the proposed rule and will work closely with affected cities to craft a rule that increases housing choice and mobility while avoiding negative impacts on current voucher holders,&quot; the agency stated. </p>					
+										
+									
+				

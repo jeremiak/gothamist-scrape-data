@@ -1,0 +1,15 @@
+---
+author: Jen Carlson
+date: Oct 30, 2007 2:15 pm
+title: Sufjan Spruces Up the BQE...in Song
+---
+
+	
+										<p><img alt="200710bqesufjan.jpg" src="https://web.archive.org/web/20150502124913im_/http://gothamist.com/attachments/arts_jen/200710bqesufjan.jpg" width="350" height="158" class="right">The serenader of the 50 states, Sufjan Stevens, grew his midwestern roots and reached New York in the late 90s -- where he has resided since. So it&apos;s only fitting a tribute to our state has arrived, after nearly a decade of soaking up the city. And perhaps separating himself from the rest of the city, he&apos;s found something special in the Brooklyn-Queens Expressway. As announced <a href="https://web.archive.org/web/20150502124913/http://gothamist.com/2007/06/01/gothamists_week_20.php">this summer</a>, Sufjan&apos;s latest muse is none other than the BQE, something he chose when commissioned by <a href="https://web.archive.org/web/20150502124913/http://www.bam.org/events/08SUFJ/08SUFJ.aspx">BAM</a> to create an arrangement with a Brooklyn theme. </p>
+
+<p><a href="https://web.archive.org/web/20150502124913/http://www.nysun.com/article/65490">The NY Sun</a> reports that the crooner has &quot;always been obsessed with roadways&quot; and he chose the BQE when it &quot;occurred to him that all he ever heard about the expressway was its negative side &#x2014; like the way its construction destroyed neighborhoods as the project wound along an 11.7-mile path across the four decades it took to complete.&quot;</p><blockquote>It&apos;s a good way to read the history of Brooklyn from pre-war to World War II to the postwar era. Originally, it was built for transportation purposes, but during the war it served defense purposes. After the war, it was there to create jobs. I think it&apos;s much more relevant now than ever, with the building boom around the city, and the Atlantic Yards project. It&apos;s hard to imagine we&apos;re living in an era with hundreds of projects going on simultaneously.</blockquote>The three-night run begins Thursday as part of the 2007 Next Wave Festival and will be somewhat of a virtual roadtrip, performed by an orchestra as projections of film shot by Sufjan himself serve as a backdrop. To learn more than you ever wanted to know about the BQE, <a href="https://web.archive.org/web/20150502124913/http://www.nycroads.com/roads/brooklyn-queens/">read about its history here</a> (there are also some old photos from when it first opened). <p></p>
+
+<p>Also worth noting, PEN American Center will be hosting an evening with Rick Moody, Wesley Stace and Sufjan Stevens next month. More info on that event, <a href="https://web.archive.org/web/20150502124913/http://pen.org/viewmedia.php/prmMID/1660/prmID/148">here</a>. </p>					
+										
+									
+				

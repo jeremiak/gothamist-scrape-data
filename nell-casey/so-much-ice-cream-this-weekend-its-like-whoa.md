@@ -1,0 +1,23 @@
+---
+author: Nell Casey
+date: Jul 15, 2016 11:30 am
+title: So Much Ice Cream This Weekend It's Like Whoa
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="0715icecream.jpg" src="https://web.archive.org/web/20161025133530im_/http://gothamist.com/attachments/nyc_nellcasey/0715icecream.jpg" width="640" height="427"> <br> <i> Ice &amp; Vice (Scott Lynch / Gothamist)</i></div> <p></p>
+
+<p><strong>The Greenmarket in Union Square <a href="https://web.archive.org/web/20161025133530/http://www.grownyc.org/summerfridays">celebrates 40 years</a></strong> this weekend with a big birthday celebration this evening beginning at 4 p.m. Alongside the usual cast of farms and food purveyors, area restaurants including Tocqueville, Wassail and Palo Santo serving seasonal fare and beer, wine and cider from the likes of Brooklyn Brewery, Nine Pin Cider Works and Anthony Road Winery. There&apos;ll also be a cake cutting at 5 p.m.</p>
+
+<p>If you&apos;re an ice cream fan, there are three different festivals geared towards brain freeze this weekend. Brooklyn Flea&apos;s doing their <strong><a href="https://web.archive.org/web/20161025133530/http://brooklynflea.com/2016/07/12/national-ice-cream-day-bonanza/">National Ice Cream Day Bonanza</a></strong> Saturday in Fort Greene and Sunday in Dumbo, with scoops, sandwiches, etc. from Malai, Phin &amp; Phebes and Blue Marble and more. Hester Street Fair&apos;s throwing an <a href="https://web.archive.org/web/20161025133530/https://www.eventbrite.com/e/hester-street-fair-presents-ice-cream-social-tickets-25895385796"><strong>Ice Cream Social</strong></a> on Saturday, with folks like Ice &amp; Vice, Mikey Likes It, Noona&apos;s and others. And finally, LIC Flea &amp; Food has an <strong><a href="https://web.archive.org/web/20161025133530/http://licflea.com/?tribe_events=july-food-festival-cool-lic-flea">Ice Festival</a></strong> Saturday and Sunday with Lezzetli Mediterranean Ice Cream, Dessert Kitchen NYC and Gramwich, among others.</p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="071516BBBG.jpg" src="https://web.archive.org/web/20161025133530im_/http://gothamist.com/attachments/nyc_nellcasey/071516BBBG.jpg" width="640" height="426"> <br> <i> (<a href="https://web.archive.org/web/20161025133530/http://claywilliams.photoshelter.com/">Clay Williams</a>/Gothamist)</i></div> <p></p>
+
+<p>The <a href="https://web.archive.org/web/20161025133530/http://gothamist.com/2015/07/23/grand_prospect_hall_beer_garden_1.php#photo-1">verdant new beer garden</a> at Brooklyn&apos;s Grand Prospect Hall celebrates one year this weekend with a birthday bash on Saturday. The <a href="https://web.archive.org/web/20161025133530/http://brooklynbavarianbiergarten.com/">Brooklyn Bavarian Beer Garden</a> promises &quot;DJ, Dancing, Dining, Drinks, Drafts...&quot; for their celebration, which begins at 8 p.m. Say <a href="https://web.archive.org/web/20161025133530/https://www.instagram.com/p/5lEpYbkoOY/?taken-by=nellcasey">hi to Mr. H and his horse</a> while you&apos;re there.</p>
+
+<p>Guzzle all the wine you please at Saturday&apos;s <a href="https://web.archive.org/web/20161025133530/http://uncorkedwinefestivals.com/"><strong>Uncorked Wine Festival</strong></a> hitting Metropolitan Pavilion with over 100 different wines from 50 wineries. The walk-around tasting event means sips of all different kinds of wines, a champagne bar and a food bazaar with bites from Tres Carnes, Murray&apos;s Cheese, Haru Sushi and a few others. The lively event begins at 2 p.m. and tickets are <a href="https://web.archive.org/web/20161025133530/https://www.eventbrite.com/e/uncorked-ny-wine-festival-tickets-24938014272">$60-70</a>.</p>
+
+<p>If mezcal and BBQ are more your speed, check out the <strong>Running with the Beef &amp; La Puesta Del Sol</strong>, where there&apos;ll be over 20 different mezcals to sample alongside Spanish-inspired BBQ from eight NYC restaurants. Toloache, Mesa Coyoacan, Jimmy&apos;s No. 42 and Rosa Mexicano are among the spots serving up savory treats, with options for vegetarians as well. Those unfamiliar with the <em>other</em> <a href="https://web.archive.org/web/20161025133530/http://www.newyorker.com/magazine/2016/04/04/the-mezcal-tour-of-oaxaca">agave spirit</a> can get a crash course courtesy of Illegal Mezcal, Koch, Del Maguey and others. <a href="https://web.archive.org/web/20161025133530/http://www.cookoutnyc.com/">Tickets $65 - 85</a>.</p>					
+										
+									
+				

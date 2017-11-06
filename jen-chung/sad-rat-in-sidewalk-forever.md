@@ -1,0 +1,64 @@
+---
+author: Jen Chung
+date: Oct 24, 2009 3:30 pm
+title: Sad Rat In Sidewalk Forever
+---
+
+	
+					<div class="galleryEase" id="gallery-376994">
+<!-- gallery js -->
+	<script type="text/javascript" src="https://web.archive.org/web/20170713071005js_/http://assets.gothamistllc.com/v5/js/gallery5v8.js"></script>
+<!-- end gallery js -->
+
+<style type="text/css">
+#imgContainer {
+min-height: 300px;
+min-width: 300px;
+background: url('https://web.archive.org/web/20170713071005im_/http://assets.gothamistllc.com/v5/images/progress.gif') center center no-repeat;
+}
+</style>
+
+<!--start of gallery code-->
+<a name="gallery"></a>
+<div class="galleryEaseDisplayed">
+<div id="imgContainer">
+    <img id="galleryImg">
+</div>
+<div class="galleyEaseInfo"></div>
+<div class="galleryEaseNext"></div>
+<div class="galleryEasePrev"></div>
+</div>
+<div class="galleryEaseThumbs galleryV5">
+		<img src="https://web.archive.org/web/20170713071005im_/http://gothamist.com/assets_c/2009/10/2009_10_rat2-thumb-60x60-451246.jpg" title="" id="photo_1" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":1, "image": "https://web.archive.org/web/20170713071005/http://gothamist.com/attachments/jen/2009_10_rat2.jpg", "caption": "dlee paid homage to the Last Supper", "credit":""};galleryObj['photo_1'] = photo;</script>
+		<img src="https://web.archive.org/web/20170713071005im_/http://gothamist.com/assets_c/2009/10/2009_10_rat22-thumb-60x60-451264.jpg" title="" id="photo_2" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":2, "image": "https://web.archive.org/web/20170713071005/http://gothamist.com/attachments/jen/2009_10_rat22.jpg", "caption": "lchance went meta", "credit":""};galleryObj['photo_2'] = photo;</script>
+		<img src="https://web.archive.org/web/20170713071005im_/http://gothamist.com/assets_c/2009/10/2009_10_rat5-thumb-60x60-451248.jpg" title="" id="photo_3" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":3, "image": "https://web.archive.org/web/20170713071005/http://gothamist.com/attachments/jen/2009_10_rat5.jpg", "caption": "Chicagoist\'s Lauri decided to make Sad Rat a Fashion Week watcher with Karl Lagerfeld", "credit":""};galleryObj['photo_3'] = photo;</script>
+		<img src="https://web.archive.org/web/20170713071005im_/http://gothamist.com/assets_c/2009/10/2009_10_rat3-thumb-60x60-451249.jpg" title="" id="photo_4" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":4, "image": "https://web.archive.org/web/20170713071005/http://gothamist.com/attachments/jen/2009_10_rat3.jpg", "caption": "\"Mr. Ades Forever\" by Jake ", "credit":""};galleryObj['photo_4'] = photo;</script>
+		<img src="https://web.archive.org/web/20170713071005im_/http://gothamist.com/assets_c/2009/10/2009_10_rat6-thumb-60x60-451250.jpg" title="" id="photo_5" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":5, "image": "https://web.archive.org/web/20170713071005/http://gothamist.com/attachments/jen/2009_10_rat6.jpg", "caption": "Jason thinks Sad Rat is just playing XBox", "credit":""};galleryObj['photo_5'] = photo;</script>
+		<img src="https://web.archive.org/web/20170713071005im_/http://gothamist.com/assets_c/2009/10/2009_10_rat4-thumb-60x60-451247.jpg" title="" id="photo_6" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":6, "image": "https://web.archive.org/web/20170713071005/http://gothamist.com/attachments/jen/2009_10_rat4.jpg", "caption": "Of course, Kanye would have to weigh in; created by Seamus ", "credit":""};galleryObj['photo_6'] = photo;</script>
+		<img src="https://web.archive.org/web/20170713071005im_/http://gothamist.com/assets_c/2009/10/2009_10_rat12-thumb-60x60-451257.jpg" title="" id="photo_7" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":7, "image": "https://web.archive.org/web/20170713071005/http://gothamist.com/attachments/jen/2009_10_rat12.jpg", "caption": "Jill gave Sad Rat a canine friend", "credit":""};galleryObj['photo_7'] = photo;</script>
+<br>		<img src="https://web.archive.org/web/20170713071005im_/http://gothamist.com/assets_c/2009/10/2009_10_rat9-thumb-60x60-451253.jpg" title="" id="photo_8" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":8, "image": "https://web.archive.org/web/20170713071005/http://gothamist.com/attachments/jen/2009_10_rat9.jpg", "caption": "Brian thinks Sad Rat is just doing kitchen prep", "credit":""};galleryObj['photo_8'] = photo;</script>
+		<img src="https://web.archive.org/web/20170713071005im_/http://gothamist.com/assets_c/2009/10/2009_10_rat10-thumb-60x60-451256.jpg" title="" id="photo_9" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":9, "image": "https://web.archive.org/web/20170713071005/http://gothamist.com/attachments/jen/2009_10_rat10.jpg", "caption": "Animal New York\'s Bucky brought in a cat", "credit":""};galleryObj['photo_9'] = photo;</script>
+		<img src="https://web.archive.org/web/20170713071005im_/http://gothamist.com/assets_c/2009/10/2009_10_rat11-thumb-60x60-451252.jpg" title="" id="photo_10" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":10, "image": "https://web.archive.org/web/20170713071005/http://gothamist.com/attachments/jen/2009_10_rat11.jpg", "caption": "Demetri was inspired by a certain 1997 Oscar winner", "credit":""};galleryObj['photo_10'] = photo;</script>
+		<img src="https://web.archive.org/web/20170713071005im_/http://gothamist.com/assets_c/2009/10/2009_10_rat15-thumb-60x60-451258.jpg" title="" id="photo_11" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":11, "image": "https://web.archive.org/web/20170713071005/http://gothamist.com/attachments/jen/2009_10_rat15.jpg", "caption": "T. sent us a Sad Rat with Cat Playing Piano...", "credit":""};galleryObj['photo_11'] = photo;</script>
+		<img src="https://web.archive.org/web/20170713071005im_/http://gothamist.com/assets_c/2009/10/2009_10_rat16-thumb-60x60-451259.jpg" title="" id="photo_12" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":12, "image": "https://web.archive.org/web/20170713071005/http://gothamist.com/attachments/jen/2009_10_rat16.jpg", "caption": "as did Lactose the Intolerant!", "credit":""};galleryObj['photo_12'] = photo;</script>
+		<img src="https://web.archive.org/web/20170713071005im_/http://gothamist.com/assets_c/2009/10/2009_10_rat17-thumb-60x60-451260.jpg" title="" id="photo_13" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":13, "image": "https://web.archive.org/web/20170713071005/http://gothamist.com/attachments/jen/2009_10_rat17.jpg", "caption": "Chicagoist\'s Lauri also gave Sad Rat some festive holiday cheer", "credit":""};galleryObj['photo_13'] = photo;</script>
+		<img src="https://web.archive.org/web/20170713071005im_/http://gothamist.com/assets_c/2009/10/2009_10_rat19-thumb-60x60-451261.jpg" title="" id="photo_14" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":14, "image": "https://web.archive.org/web/20170713071005/http://gothamist.com/attachments/jen/2009_10_rat19.jpg", "caption": "Andre wanted the Brain to make an appearance", "credit":""};galleryObj['photo_14'] = photo;</script>
+		<img src="https://web.archive.org/web/20170713071005im_/http://gothamist.com/assets_c/2009/10/2009_10_rat20-thumb-60x60-451262.jpg" title="" id="photo_15" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":15, "image": "https://web.archive.org/web/20170713071005/http://gothamist.com/attachments/jen/2009_10_rat20.jpg", "caption": "Chris G. got a little political", "credit":""};galleryObj['photo_15'] = photo;</script>
+		<img src="https://web.archive.org/web/20170713071005im_/http://gothamist.com/assets_c/2009/10/2009_10_rat24-thumb-60x60-451263.jpg" title="" id="photo_16" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":16, "image": "https://web.archive.org/web/20170713071005/http://gothamist.com/attachments/jen/2009_10_rat24.jpg", "caption": "A rodent friend was introduced to Sad Rat by Robert", "credit":""};galleryObj['photo_16'] = photo;</script>
+		<img src="https://web.archive.org/web/20170713071005im_/http://gothamist.com/assets_c/2009/10/2009_10_rat8-thumb-60x60-451251.jpg" title="" id="photo_17" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":17, "image": "https://web.archive.org/web/20170713071005/http://gothamist.com/attachments/jen/2009_10_rat8.jpg", "caption": "Matte wondered if it was Sad Rat\'s birthday", "credit":""};galleryObj['photo_17'] = photo;</script>
+		<img src="https://web.archive.org/web/20170713071005im_/http://gothamist.com/assets_c/2009/10/2009_10_rat25-thumb-60x60-451265.jpg" title="" id="photo_18" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":18, "image": "https://web.archive.org/web/20170713071005/http://gothamist.com/attachments/jen/2009_10_rat25.jpg", "caption": "edEx reimagined Sad Rat as a mascot for unions...", "credit":""};galleryObj['photo_18'] = photo;</script>
+		<img src="https://web.archive.org/web/20170713071005im_/http://gothamist.com/assets_c/2009/10/2009_10_rat26-thumb-60x60-451266.jpg" title="" id="photo_19" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":19, "image": "https://web.archive.org/web/20170713071005/http://gothamist.com/attachments/jen/2009_10_rat26.jpg", "caption": "edEx also put him in a cartoony situation", "credit":""};galleryObj['photo_19'] = photo;</script>
+		<img src="https://web.archive.org/web/20170713071005im_/http://gothamist.com/assets_c/2009/10/2009_10_rat27-thumb-60x60-451267.jpg" title="" id="photo_20" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":20, "image": "https://web.archive.org/web/20170713071005/http://gothamist.com/attachments/jen/2009_10_rat27.jpg", "caption": "Chris P. went old school with the animated film references", "credit":""};galleryObj['photo_20'] = photo;</script>
+		<img src="https://web.archive.org/web/20170713071005im_/http://gothamist.com/assets_c/2009/10/2009_10_rat28-thumb-60x60-451268.jpg" title="" id="photo_21" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":21, "image": "https://web.archive.org/web/20170713071005/http://gothamist.com/attachments/jen/2009_10_rat28.jpg", "caption": "And lchance thinks Larry King is the next stop for Sad Rat.", "credit":""};galleryObj['photo_21'] = photo;</script>
+									
+</div></div>					<p>When Gothamist reader Wayne sent us a <a href="https://web.archive.org/web/20170713071005/http://gothamist.com/2009/10/23/possibly_the_saddest_thing_ever_rat.php">picture of a rat stuck in a sidewalk</a>, apparently trying to emerge, others readers decided it was depressing, hilarious, tempting, disgraceful, an opportunity for considering ethics and morals, and time to bait other commenters.  Finally, we have an update from Wayne plus a number of Photoshop renderings of the Sad Rat:<br>
+</p><blockquote>It was on my block on the Upper West Side. 82nd Street between CPW and Columbus. I thought it was alive, but after getting up the nerve to poke it with a (long) stick, I realized he was dead. I did what any wonderful caring masculine New Yorker would do, I told the doorman about it and ran off to work. That night the sidewalk with spic and span. I hear the Eulogy was beautiful and moved some to tears.</blockquote>So there&#x2014;he <em>did</em> check out Sad Rat&apos;s condition!  <p></p>
+
+<center><script type="text/javascript" charset="utf-8" src="https://web.archive.org/web/20170713071005js_/http://static.polldaddy.com/p/2163576.js"></script><noscript>
+<a href="https://web.archive.org/web/20170713071005/http://answers.polldaddy.com/poll/2163576/">If you saw a rat struggling to emerge from a sidewalk, what would you do?</a><span style="font-size:9px;">(<a href="https://web.archive.org/web/20170713071005/http://answers.polldaddy.com/">trends</a>)</span>
+</noscript></center>
+
+<p>And thank you to all the readers who spent some time on their Friday nights and Saturday mornings creating ways we can remember Sad Rat forever.</p>					
+										
+									
+				

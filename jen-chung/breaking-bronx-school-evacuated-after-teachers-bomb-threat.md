@@ -1,0 +1,17 @@
+---
+author: Jen Chung
+date: April 24, 2009 11:10 AM
+title: BREAKING: Bronx School Evacuated After Teacher's Bomb Threat
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2009_04_bronxsch.jpg" src="https://web.archive.org/web/20130511042507im_/http://gothamist.com/attachments/jen/2009_04_bronxsch.jpg" width="250" height="188" class="image-left"> </span>Earlier this morning, a teacher <a href="https://web.archive.org/web/20130511042507/http://www.nypost.com/seven/04242009/news/regionalnews/bronx_teacher_barricades_himself_inside__166013.htm">made a bomb threat at JHS 145</a> in the Bronx, prompting the school to be evacuated.  The Post reports the threat was &quot;called in to police by the teacher, who locked himself into a second floor computer room. Cops are communicating with the teacher, whose identity has not yet been released... The man told police he is protesting the mistreatment of teachers.&quot;</p>
+
+<p><a href="https://web.archive.org/web/20130511042507/http://www.myfoxny.com/dpp/news/local_news/nyc/090424_school_evacuated_in_the_bronx">According to MyFoxNY</a>, &quot;Dept. of Ed. officials say there is no indication of a bomb or weapon inside.&quot;  </p>
+
+<p><a href="https://web.archive.org/web/20130511042507/http://cityroom.blogs.nytimes.com/2009/04/24/bronx-school-evacuated-after-teachers-threat/">CityRoom says</a> the teacher works at <a href="https://web.archive.org/web/20130511042507/http://schools.nyc.gov/SchoolPortals/09/X328/default.htm">New Millenium Business Academy Middle School</a>, which is located inside JHS 145 (Teller Avenue and 165th Street).  Besides JHS 145 and New Millennium Business Academy, the  Urban Science Academy is also in the building&#x2014;with about 1,200 middle school students.  </p>
+
+<p>Police spokesman Paul Browne tells CityRoom the teacher &quot;initially claimed he had planted a bomb, but that does not appear to be the case.&quot; Additionally, the teacher wanted to the principal &quot;ousted&quot; and &quot;said he was on a hunger strike because of some disciplinary case.&quot;  Apparently the teacher, who is the union chapter chairman, may have received a notice that he was being<a href="https://web.archive.org/web/20130511042507/http://gothamist.com/2007/04/26/teachers_gettin.php"> transferred to a &quot;rubber room,&quot;</a> where teachers go and sit all day (while paid) when removed from their duties.  </p>
+
+<p>The Daily News <a href="https://web.archive.org/web/20130511042507/http://www.nydailynews.com/ny_local/bronx/2009/04/24/2009-04-24_bronx_middle_school_teacher_barricades_himself_in_classroom_bomb_squad_on_scene_.html">has a few more details</a>: The teacher is a 55-year-old who teaches computer classes and he reportedly &quot;<strong>was furious that he was disciplined Thursday after he was accused of grabbing a student around the neck</strong>.&quot;</p>
+
+<p><b>Update</b>:  CityRoom says the teacher surrendered to cops around 11:15 a.m.; he was arrested.  The <a href="https://web.archive.org/web/20130511042507/http://www.nypost.com/seven/04242009/news/regionalnews/bronx_teacher_barricades_himself_inside__166013.htm">NY Post now identifies him</a> as Francisco Garabitos.</p>

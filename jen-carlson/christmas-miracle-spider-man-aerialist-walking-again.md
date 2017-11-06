@@ -1,0 +1,11 @@
+---
+author: Jen Carlson
+date: Dec 25, 2010 1:10 pm
+title: Christmas Miracle: Spider-Man Aerialist Walking Again!
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="spideywalking.jpg" src="https://web.archive.org/web/20150919102616im_/http://gothamist.com/attachments/arts_jen/spideywalking.jpg" width="125" height="126" class="image-right"> </span>The stunt actor who was the <a href="https://web.archive.org/web/20150919102616/http://gothamist.com/2010/12/21/spider-man_adds_a_fourth_accident_t.php">latest casualty</a> of <a href="https://web.archive.org/web/20150919102616/http://gothamist.com/tags/spidermanturnoffthedark">the Spider-Man musical</a> this week is walking again! Aeralist Christopher Tierney fell 30 feet and broke his ribs while playing Spider-Man on Broadway <a href="https://web.archive.org/web/20150919102616/http://gothamist.com/2010/12/21/spider-man_adds_a_fourth_accident_t.php">earlier this week</a> (the show <a href="https://web.archive.org/web/20150919102616/http://gothamist.com/2010/12/22/tonights_spider-man_show_canceled_a.php">shut down for a day</a> as a result), but now <a href="https://web.archive.org/web/20150919102616/http://www.playbill.com/news/article/146115-Spider-Mans-Christopher-Tierney-Is-Walking-Following-Back-Surgery">his father says</a> he walked for the first time yesterday. He&apos;s <a href="https://web.archive.org/web/20150919102616/http://www.myfoxny.com/dpp/news/local_news/manhattan/Spider-Man-Fall-20101225-apx">spending Christmas</a> in the hospital recovering from back surgery, with his parents and brother, <a href="https://web.archive.org/web/20150919102616/http://broadwayworld.com/article/SPIDERMANs_Christopher_Tierney_is_Walking_Again_20101225">who says</a> he &quot;is expected to make a full recovery and will surely return to the stage.&quot; As for the rest of the Spider-Man cast, they&apos;re scheduled to be back on stage tonight&#x2014;but <a href="https://web.archive.org/web/20150919102616/http://gothamist.com/2010/12/24/video_spider-man_survivors_sling_so.php">ticket buyer beware</a>.</p>					
+										
+									
+				

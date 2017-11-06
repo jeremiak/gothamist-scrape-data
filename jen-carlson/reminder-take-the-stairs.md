@@ -1,0 +1,13 @@
+---
+author: Jen Carlson
+date: October 18, 2010 10:35 AM
+title: Reminder: Take The Stairs
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="stairs1010a.jpg" src="https://web.archive.org/web/20120119082239im_/http://gothamist.com/attachments/arts_jen/stairs1010a.jpg" width="250" height="229" class="image-left"> </span>Earlier this year shocking reports came out that <a href="https://web.archive.org/web/20120119082239/http://gothamist.com/2010/02/02/stairs_1.php">taking the stairs</a> is a healthier, more slimming alternative to, say, taking an elevator. Now <a href="https://web.archive.org/web/20120119082239/http://www.usatoday.com/yourlife/fitness/exercise/2010-10-18-stairs18_ST_N.htm">USA Today</a> is pretty much calling stairs the next exercise trend. The American Council on Exercise claims that stair climbing is one of the more effective ways to strengthen the glutes and leg muscles&#x2014;it also provides a good calorie-burning cardio workout (better than walking or jogging).</p>
+
+<p>One woman training to climb the 103 floors of Chicago&apos;s Willis Tower during a competition next month told the paper that stair climbing can help reduce stress&#x2014;she also &quot;dropped a full dress size to a size 6. I definitely lost weight on my hips.&quot; Though you won&apos;t benefit too much unless you do cardio 3 to 5 days a week, warns an exercise physiologist, adding, &quot;And it has to be a habit to get the full health benefits.&quot;</p>
+
+<p>In 1977 an annual <a href="https://web.archive.org/web/20120119082239/http://gothamist.com/2010/02/02/runners_take_the_empire_state_build.php">stair running event</a> kicked off at the Empire State Building&#x2014;if you want to competitively climb the 1,576 steps to the observation deck, you have <a href="https://web.archive.org/web/20120119082239/http://www.esbnyc.com/tourism/tourism_specialevents_runup.cfm">until February</a> to get in shape. (Those at the top of a 6th floor walkup, you&apos;ve got a head start.) [via <a href="https://web.archive.org/web/20120119082239/http://www.patspapers.com/story_stack/item/save_your_gym_money_take_the_stairs/">Pat&apos;s Papers</a>]</p>
+
+<p><object width="640" height="505"><param name="movie" value="http://www.youtube.com/v/eEICiN9JgO0?fs=1&amp;hl=en_US"><param name="allowFullScreen" value="true"><param name="allowscriptaccess" value="always"><embed src="https://web.archive.org/web/20120119082239oe_/http://www.youtube.com/v/eEICiN9JgO0?fs=1&amp;hl=en_US" type="application/x-shockwave-flash" allowscriptaccess="always" allowfullscreen="true" width="640" height="505"></object></p>

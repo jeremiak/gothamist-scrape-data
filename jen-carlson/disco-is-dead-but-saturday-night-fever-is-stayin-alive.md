@@ -1,0 +1,13 @@
+---
+author: Jen Carlson
+date: Dec 17, 2007 3:21 pm
+title: Disco is Dead, But Saturday Night Fever is Stayin' Alive
+---
+
+	
+										<p><img alt="200712discodancinyeah.jpg" src="https://web.archive.org/web/20150508175232im_/http://gothamist.com/attachments/arts_jen/200712discodancinyeah.jpg" width="250" height="367" class="right">Two years ago the famed <em>Saturday Night Fever</em> dance floor was sold <a href="https://web.archive.org/web/20150508175232/http://gothamist.com/2005/02/22/saturday_night_fever_floor_stays_alive.php">at auction</a> for $188,000 when the Brooklyn club where the movie was filmed, Odyssey 2001 (later called Spectrum), was closed. Just yesterday the legendary movie turned 30 and <a href="https://web.archive.org/web/20150508175232/http://www.amny.com/entertainment/movies/am-saturdaynight1214,0,2870241.story">amNewYork</a> got nostalgic looking back at the Bay Ridge kid, Tony Manero, who sought refuge on that dance floor.</p><blockquote>Thirty years ago this weekend, a tough young kid from Bay Ridge strutted across America&apos;s movie screens and struck his finger in the air to announce a new moment in the country&apos;s culture. Disco had been bubbling in the underground for a few years before the film came out, opening the sub-culture to a mass audience.<p></p>
+
+<p>Alex Marchak, 50, who as a teenager hung out at the 2001 Odyssey dance club featured in the movie and was an extra in the film, recalled the era: &quot;You made sure you were dressed up, you cared about the way you carried yourself. You don&apos;t have that any more. We took pride in the way we presented ourselves, the whole aura of the way we were.&quot;</p></blockquote>The movie didn&apos;t all take root from &quot;the scene&quot; though, it started with <a href="https://web.archive.org/web/20150508175232/http://nymag.com/arts/all/process/17386/">&quot;a mostly fictional&quot; NY Mag piece</a> written by Nik Cohn in 1976. If you want to travel back in time we suggest reading the original article, putting on some flares, popping some Bee-Gees on the iPod and heading over to some of the film&apos;s locations to relive the glory (albeit short-lived) days of disco. (Don&apos;t forget to strut.) Aside from the Verrazano Narrows Bridge, you can check out the spot that once held the Odyssey 2001 club, which was located at 802 64th Street in Brooklyn. And the backdrop for Tony&apos;s place of employment (a hardware store, since closed down) was located at 7309 5th Ave in Brooklyn. Can you dig it?<p></p>					
+										
+									
+				

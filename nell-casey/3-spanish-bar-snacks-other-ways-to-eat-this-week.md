@@ -1,0 +1,25 @@
+---
+author: Nell Casey
+date: Apr 3, 2017 10:20 am
+title: $3 Spanish Bar Snacks & Other Ways To Eat This Week
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="061815huertas1.jpg" src="https://web.archive.org/web/20170403205618im_/http://gothamist.com/attachments/nyc_nellcasey/061815huertas1.jpg" width="640" height="427"> <br> <i> (Sydney Kramer)</i></div> <p></p>
+
+<p>In celebration of its <a href="https://web.archive.org/web/20170403205618/http://gothamist.com/2014/04/23/huertas.php#photo-1">third birthday</a>, East Village pintxos (Spanish bar snacks) spot <a href="https://web.archive.org/web/20170403205618/http://www.huertasnyc.com/"><strong>Huertas</strong></a> will offer specials and special events throughout the month, beginning Monday night with a pintxos takeover by Fung Tu chef Jonathan Wu. All the pintxos will be $3 including Char Siu Albondigas, Scallop Escabeche and Chinese Sweet Potato Bravas. Stop by anytime in April and the restaurant&apos;s <a href="https://web.archive.org/web/20170403205618/http://gothamist.com/2015/06/18/snag_horchata_slushies_spanish_hot.php">Basque Dogs</a> are just $3, with $3 pours of Huertas vermouth, Collaboration Cider, GinTonic, and manzanilla sherry, which are all on tap.</p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="022515porchlight2.jpg" src="https://web.archive.org/web/20170403205618im_/http://gothamist.com/attachments/nyc_nellcasey/022515porchlight2.jpg" width="640" height="427"> <br> <i> <span class="photo_caption">Sherry Cobbler (Andrew Kist)</span></i></div> <p></p>
+
+<p>Danny Meyer&apos;s way-on-the-west side of Chelsea cocktail bar <a href="https://web.archive.org/web/20170403205618/http://porchlightbar.com/">Porchlight</a> is throwing a drinking and dining fundraiser Monday night in conjunction with Tertulia&apos;s Seamus Mullen. The <strong><a href="https://web.archive.org/web/20170403205618/https://www.universe.com/events/porchlight-chefs-cycle-fundraiser-tickets-CPYGRX">Chefs Cycle Benefit for No Kid Hungry</a></strong> event includes passed tapas created by Mullen and four drink tickets to enjoy a cocktail or a glass of wine or beer from Porchlight. <a href="https://web.archive.org/web/20170403205618/https://www.universe.com/events/porchlight-chefs-cycle-fundraiser-tickets-CPYGRX">Tickets $50</a>.</p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="040317taste5th.jpg" src="https://web.archive.org/web/20170403205618im_/http://gothamist.com/attachments/nyc_nellcasey/040317taste5th.jpg" width="640" height="427"> <br> <i> (courtesy <a href="https://web.archive.org/web/20170403205618/https://www.flickr.com/photos/park_slope_5th_avenue_bid/26199300792/in/album-72157664591922843/">A Taste of Fifth</a>)</i></div> <p></p>
+
+<p>Tuesday evening, <strong><a href="https://web.archive.org/web/20170403205618/http://parkslopefifthavenuebid.com/event/taste-of-fifth-2017/">A Taste Of Fifth</a></strong> celebrates businesses along Park Slope&apos;s 5th Avenue with a walk-around tasting event at the famous <a href="https://web.archive.org/web/20170403205618/https://grandprospect.com/">Grand Prospect Hall</a>. Over 45 neighborhood bars and restaurants will be participating in the event, which doubles as a fundraiser (either $20 or $30 per ticket, depending) for 17 different local charities. Food will be provided by places includes Bricolage, Calexico, Gristmill, Empanada Loca, Palo Santo and more, with unlimited beer, wine and vodka. <a href="https://web.archive.org/web/20170403205618/http://www.brownpapertickets.com/event/2875655">Tickets $60 online</a> and $70 at the door.</p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="040317gct.jpeg" src="https://web.archive.org/web/20170403205618im_/http://gothamist.com/attachments/nyc_nellcasey/040317gct.jpeg" width="640" height="427"> <br> <i> Beer Table at GCT (<a href="https://web.archive.org/web/20170403205618/http://www.navidbaraty.com/">Navid Baraty</a> / Gothamist)</i></div> <p></p>
+
+<p>Grand Central Terminal observes <strong><a href="https://web.archive.org/web/20170403205618/http://www.grandcentralterminal.com/event/national-beer-day/2145470617">National Beer Day</a></strong> on Friday with specials all around the terminal&apos;s many dining options. Of the many deals on offer, Beer Table will be doing 20% off takeaway growlers and capped mason jars; Cafe Spice will offer a Samosa &amp; Beer for $5.99; all the beers at the Great Northern Food Hall will be just $8, in addition to a beer and its roasted pork sandwich with apple and red cabbage for $20; and Shiro of Japan will sell 12 ounce Sapporro cans for $1.99 with the purchase of any chirashi or pok&#xE9; bowl. See the full lineup of specials <a href="https://web.archive.org/web/20170403205618/http://www.grandcentralterminal.com/event/national-beer-day/2145470617">here</a>. </p>					
+										
+									
+				

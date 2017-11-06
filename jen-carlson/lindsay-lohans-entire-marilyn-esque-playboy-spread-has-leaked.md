@@ -1,0 +1,13 @@
+---
+author: Jen Carlson
+date: December  9, 2011  3:26 PM
+title: Lindsay Lohan's Entire Marilyn-esque Playboy Spread Has Leaked
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="lilomarilyn1211.jpeg" src="https://web.archive.org/web/20111210174630im_/http://gothamist.com/attachments/arts_jen/lilomarilyn1211.jpeg" width="640" height="419" class="image-none"> </span></p>
+
+<p>Earlier this week Lindsay Lohan&apos;s Playboy cover leaked, and now the entire spread has found its way onto the internet. The <a href="https://web.archive.org/web/20111210174630/http://gothamist.com/2011/10/25/lindsay_lohan_bares_all_for_1_milli.php">January/February issue</a> features ten photos of the actress baring her breasts and butt for Heffner&apos;s cameras. There are also words, <em>hilarious words</em>, describing Lohan&#x2014;like the words that call her a &quot;silver screen siren,&quot; and &quot;America&apos;s most fascinating celebrity.&quot; They also claim this is a story of the rise, the fall, and <em>the redemption</em> of the fallen starlet. What do you think they mean by &quot;the redemption&quot;? </p>
+
+<p>In the past few years Lohan hasn&apos;t managed to accomplish much more than breaking her probation, losing her <a href="https://web.archive.org/web/20111210174630/http://gothamist.com/2010/06/17/carvel_black_card_is_real_lohans_ab.php">Carvel black card</a>, and starring in <em>Labor Pains</em> (<a href="https://web.archive.org/web/20111210174630/http://www.youtube.com/watch?v=fNvvZ7Bi4es">have you seen <em>Labor Pains</em></a>)? So presumably this redemption they speak of comes from getting naked, thus the headline: Lindsay Reborn.</p>
+
+<p><a href="https://web.archive.org/web/20111210174630/http://www.tmz.com/2011/12/09/lindsay-lohan-naked-photo-leak-playboy/#.TuJktXO-Y0U">TMZ reports</a> that Playboy is just furious over the leaked photos from the &quot;highly classified Playboy photo shoot,&quot; and the head honchos are &quot;freaking out&quot; since the issue isn&apos;t hitting newsstands until next week. Check out the entire leaked spread <a href="https://web.archive.org/web/20111210174630/http://imgur.com/a/y2PNH#238Al">right here</a> while you can. It&apos;s very Marilyn Monroe (<a href="https://web.archive.org/web/20111210174630/http://gothamist.com/2008/02/18/lindsay_lohan_r.php">again</a>), if Marilyn Monroe were an airbrushed trainwreck. (You can check out <a href="https://web.archive.org/web/20111210174630/http://vintagesonia.tumblr.com/post/4318919711">this NSFW photo</a> from Monroe&apos;s shoot.)</p>

@@ -1,0 +1,27 @@
+---
+author: Emma Whitford
+date: Mar 8, 2016 6:35 pm
+title: New MTA Buses Will Have Wi-FI, Charging Ports
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="030816_Cuomo3.jpeg" src="https://web.archive.org/web/20170312035637im_/http://gothamist.com/attachments/nyc_ewhitford/030816_Cuomo3.jpeg" width="640" height="427"> <br> <i> (via Governor&apos;s Office) </i></div> <p></p>
+
+<p>Governor Cuomo on Tuesday <a href="https://web.archive.org/web/20170312035637/http://gothamist.com/2016/01/08/subway_facelift_shutdown.php">continued</a> to fetishize cosmetic improvements to the public transit system, introducing a Wi-Fi-equipped city bus augmented with charging ports and LCD information screens. The <a href="https://web.archive.org/web/20170312035637/http://gothamist.com/2015/08/25/cuomo_bus_ted.php">Governor Who Has Probably Never Taken The Bus</a> even got a little giggly comparing renderings of NYC&apos;s next iteration of public buses to a Ferrari with European flair. </p>
+
+<p>&quot;These are not gonna be your father&apos;s buses,&quot; Cuomo said, addressing reporters. Eying the rendering of a royal-blue articulated bus with a gold wave-like swoosh detail and prominent Wi-Fi logo, he added, &quot;It has a European flair to it. I think it has almost a <a href="https://web.archive.org/web/20170312035637/https://www.google.com/search?q=blue+ferrari&amp;espv=2&amp;biw=1588&amp;bih=905&amp;tbm=isch&amp;imgil=R3hdBhbP4-_uXM%253A%253Brq69awVjHOQLQM%253Bhttp%25253A%25252F%25252Fwww.thesupercars.org%25252Fferrari%25252Fblue-ferrari%25252F&amp;source=iu&amp;pf=m&amp;fir=R3hdBhbP4-_uXM%253A%252Crq69awVjHOQLQM%252C_&amp;usg=__BQP3hhc7Z-cRROeWnEMUs3UTGA0%3D&amp;ved=0ahUKEwjEleS24LHLAhUBcj4KHbNJDQIQyjcILw&amp;ei=ex7fVoTsAoHk-QGzk7UQ#imgrc=R3hdBhbP4-_uXM%3A">Ferrari-like look</a>. Aerodynamic. Well done.&quot; And later, after the subject had turned to boring questions about bus capacity and travel times, &quot;It <em>is</em> an attractive bus, right?&quot; </p>
+
+<p>According to the MTA, 75 of these new buses will roll out in Queens before the end of the year, followed by 70 buses in Brooklyn, 209 in the Bronx, and 18 in Manhattan over the next two years. The remaining 1,670 will hit the road by 2020, across all five boroughs. And aside from a few new safety measures&#x2014;200 buses will emit &quot;audible voice alerts&quot; when turning to warn nearby pedestrians, another 100 will test a <a href="https://web.archive.org/web/20170312035637/http://abc7ny.com/traffic/mta-testing-new-safety-technology-on-buses/1011492/">collision avoidance system</a>&#x2014;this really seems to be about enhanced access to the NY Times Crossword Puzzle App. That, and LCD screens flashing advertisements and system updates. </p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="030816_Bus.jpeg" src="https://web.archive.org/web/20170312035637im_/http://gothamist.com/attachments/nyc_ewhitford/030816_Bus.jpeg" width="640" height="414"> <br> <i> It&apos;s like a Ferrari full of millennials (via MTA). </i></div> <p></p>
+
+<p>&quot;From a performance standpoint, these will be similar to what we have already,&quot; admitted MTA Chairman Tom Prendergast, before launching into a description of the MTA ridership as he perceives it, which might go a long way in explaining the MTA&apos;s obsession with &quot;connectivity,&quot; and definitely recalls Dawn of the Dead. &quot;Many of the young people using the system today grew up with a smartphone in one hand and a tablet in the other,&quot; he said, matter-of-factly. &quot;They&apos;re demanding more Wi-Fi... more apps, more screens.&quot; </p>
+
+<p>Prendergrast did not detail on Tuesday how many of the new buses will be articulated, or which Queens routes will be updated first. He did, however, maintain his track-record of praising the as-yet-unfunded <a href="https://web.archive.org/web/20170312035637/http://gothamist.com/2016/01/26/report_cuomos_budget_punts_on_mta_c.php">2015-19 Capital Plan</a>, which will help &quot;bring the system into the 21st Century.&quot; After all, these new buses&#x2014;which will replace 40% of the city&apos;s fleet for a cool $1.3 billion&#x2014;are going to be funded out of that <a href="https://web.archive.org/web/20170312035637/http://gothamist.com/2016/02/26/state_on_cuomos_26_billion_mta_plan.php">elusive pot</a>. </p>
+
+<p>&quot;At the end of the day, we&apos;re worried about issues that are really important to riders like speed and frequency, and none of those issues can be addressed without a funded Capital Plan,&quot; said Masha Burina, an organizer for the Riders Alliance. &quot;It&apos;s like putting USB ports on the Titanic,&quot; quipped Alliance member Nick Sifuentes. </p>
+
+<p>In recent statements to the press, both the MTA and the Governor&apos;s office have insisted that the <a href="https://web.archive.org/web/20170312035637/http://gothamist.com/2015/10/10/at_last_cuomo_and_de_blasio_have_ag.php">Capital Plan proposal</a> is &quot;iron-clad&quot; in its eventual funding commitment.</p>					
+										
+									
+				

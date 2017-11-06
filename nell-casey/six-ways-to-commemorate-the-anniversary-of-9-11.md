@@ -1,0 +1,24 @@
+---
+author: Nell Casey
+date: Sep 6, 2012 3:47 pm
+title: Six Ways To Commemorate The Anniversary Of 9/11 
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="090612_911guide.jpg" src="https://web.archive.org/web/20150505144725im_/http://gothamist.com/attachments/nyc_nellcasey/090612_911guide.jpg" width="640" height="426"> <br> <i> (<a href="https://web.archive.org/web/20150505144725/http://www.flickr.com/photos/enoh/4983360646/">.Nano.</a> / Flickr)</i></div> <p></p>
+
+<p>Tuesday marks the 11th anniversary <a href="https://web.archive.org/web/20150505144725/http://gothamist.com/tags/september11">of the attacks</a> on the World Trade Center and the Pentagon, and around the city folks are putting together different ways to remember the victims and observe the anniversary. The Official World Trade Center Site Memorial Ceremony and Remembrance will happen again at the site, and the reading of the names and moments of silence will be broadcast on television beginning at 8:46 a.m. To commemorate the event away from your couch, here are some memorials and happenings going on now through September 11th. </p>
+
+<ul><li>On Sunday, September 9th, musicians are <a href="https://web.archive.org/web/20150505144725/http://www.facebook.com/events/397696076952454/">gathering in Tompkins Square</a> park for <strong>an afternoon of live music to commemorate the event</strong>. The free concert begins at 2 p.m. with performances by Wombat In Combat, Comrades, Mans Gin and David Peel and more.</li>
+<li>Also on Sunday, the <a href="https://web.archive.org/web/20150505144725/http://interfaithcenter.org/">Interfaith Center of New York</a> organizes a <a href="https://web.archive.org/web/20150505144725/http://interfaithcenter.org/archives/3425"><strong>Unity Walk</strong></a> that &quot;strive[s] to involve members of our mutual religious communities in this building up of understanding and cooperating between religious traditions and faiths.&quot; The walk downtown begins in Washington Square Park at 3 p.m., stopping to visit religious communities along the way and concluding with a 5 p.m. service at St. Peter&apos;s church near the WTC site.</li> 
+<li>For a real-time look back at the harrowing events of the day, the Museum of the City of New York will <a href="https://web.archive.org/web/20150505144725/https://boxoffice.mcny.org/public/show.asp"><strong>screen <em>In Memoriam</em></strong></a>&#x2014;the 2002 HBO documentary that chronicles the day through first-hand accounts&#x2014;all day on Tuesday. Interviews, photographs and video from witnesses in and around the city are presented and narrated by former Mayor Rudy Giulliani. The screening is free with museum admission.</li></ul>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="090612911mem.jpg" src="https://web.archive.org/web/20150505144725im_/http://gothamist.com/attachments/nyc_nellcasey/090612911mem.jpg" width="640" height="427"> <br> <i> (Jake Dobkin)</i></div> <p></p>
+
+<ul>
+<li>Watch the film adaptation of Jonathan Safran Foer&apos;s novel <a href="https://web.archive.org/web/20150505144725/http://www.jccmanhattan.org/film?page=cat-content&amp;progID=26431"><strong><strong><em>Extremely Loud and Incredibly Close</em></strong></strong> at the Jewish Community Center of Manhattan</a> Tuesday evening. The film follows a young boy searching for the lock that fits the key left by his father [Tom Hanks] who was killed in the September 11th attacks.</li>
+<li>The American Contemporary Music Ensemble (ACME)&#x2014;a group that &quot;presents cutting-edge literature by living composers alongside the &apos;classics&apos; of the contemporary&#x2014;will take the stage the (le) poisson rouge Tuesday evening to <a href="https://web.archive.org/web/20150505144725/http://lepoissonrouge.com/events/artist/92">perform <strong>WTC 9/11</strong></a>, the world premiere, all-live version, conducted by Donato Cabrera. Composer Steve Reich will also be in attendance.</li>
+<li>And finally, Tuesday at sunset, the iconic <a href="https://web.archive.org/web/20150505144725/http://mas.org/programs/tributeinlight/"><strong>&quot;Tribute In Light&quot;</strong></a> will shine upward from downtown as a visual reminder of where the buildings once stood. Eighty-eight 7,000-watt xenon light bulbs blaze four miles into the sky in the shape of two, 48-foot squares representing the two towers. The beams, which the Municipal Art Society has passed over to the 9/11 Museum, stay lit through sunrise.</li></ul>					
+										
+									
+				

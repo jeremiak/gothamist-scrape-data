@@ -1,0 +1,9 @@
+---
+author: Jen Carlson
+date: September 15, 2010  6:00 PM
+title: Woody Allen Talks The City's Cost of Filming
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2010_09_manattan.jpg" src="https://web.archive.org/web/20130619021428im_/http://gothamist.com/attachments/jen/2010_09_manattan.jpg" width="278" height="181" class="image-left"> </span>In an interview yesterday, the now 74-year-old <a href="https://web.archive.org/web/20130619021428/http://gothamist.com/tags/woodyallen">Woody Allen</a> was asked about his comment about shooting movies in New York becoming too expensive (<a href="https://web.archive.org/web/20130619021428/http://gothamist.com/2009/06/18/woody_allen_talks_new_york.php">again</a>). He told <a href="https://web.archive.org/web/20130619021428/http://www.nytimes.com/2010/09/15/movies/15woody.html?_r=1&amp;partner=rss&amp;emc=rss">the NY Times</a>, &quot;My first choice would always be New York. It would be my fondest wish&#x2014;to work where you live is of course the most luxurious privilege, and I&#x2019;m sure I will film here again. But the few dollars I have go further in certain places.... London, Paris, Barcelona&#x2014;these are very cosmopolitan, and they&#x2019;re like New York.&quot;</p>
+
+<p>He also said, &quot;To me it&#x2019;s a privilege to shoot in New York, and I don&#x2019;t mind it being extra. I just have to have it, to be able to afford it. I would always make the picture in New York for $15 million that I could make elsewhere for $12 million, if I had $15 million. But if I don&#x2019;t have the money, then I can&#x2019;t do it.&quot; Guess that means no <em>Manhattan 2</em>!</p>

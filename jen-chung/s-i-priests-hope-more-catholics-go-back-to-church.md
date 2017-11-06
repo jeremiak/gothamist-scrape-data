@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: November  3, 2008  5:45 PM
+title: S.I. Priests Hope More Catholics Go Back to Church
+---
+
+<p><img alt="2008_11_popediddy.jpg" src="https://web.archive.org/web/20110811085710im_/http://gothamist.com/attachments/jen/2008_11_popediddy.jpg" width="125" height="131" class="right">Staten Island Roman Catholic parishes are <a href="https://web.archive.org/web/20110811085710/http://www.silive.com/news/index.ssf/2008/11/straying_from_the_flock_your_c.html">hoping to encourage Catholics</a> to come back to the church in a borough-wide &quot;parish mission.&quot;  The Staten Island Advance reports that 35 &quot;priests from the Redemptorist order, and one Augustinian, have taken up residence at two dozen parishes for the mission.&quot;  They are trying to remind Roman Catholics that in spite of &quot;sins,&quot; they are not &quot;unforgivable.&quot;  This includes women who have had abortions  and people who get divorces; one priest explains, &quot;Say you have a Catholic celebrity who gets married before a justice of the peace and then divorced.  <strong>There is no need to annul that marriage because it did not take place in church. So even if that celebrity remarries, he is still welcome to receive communion.</strong>&quot;  Well, that clears everything up!  Semi-related: P. Diddy was seen dressed as the Ponitff for Halloween at Pacha.</p>

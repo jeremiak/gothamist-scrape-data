@@ -1,0 +1,11 @@
+---
+author: Jen Carlson
+date: June 13, 2008  2:15 PM
+title: Crime at Pratt on the Rise
+---
+
+<p><img alt="0806prattins.jpg" src="https://web.archive.org/web/20110611054954im_/http://gothamist.com/attachments/arts_jen/0806prattins.jpg" width="233" height="350" class="right"><a href="https://web.archive.org/web/20110611054954/http://gothamist.com/2008/06/12/williamsburg_stabber_strikes_again.php">Williamsburg</a> isn&apos;t the only Brooklyn nabe with a rash of violent assaults; <a href="https://web.archive.org/web/20110611054954/http://www.brownstoner.com/brownstoner/archives/2008/06/pratt.php">Brownstoner</a> reports that last Friday Pratt Institute students and faculty received a warning about an increase of violent activity near the Clinton Hill campus, as reported by the 88th Precinct. </p>
+
+<p>The email stated that &quot;the robberies are reported to be committed by a group of black males and females approximately 15-16 years of age. It has been reported that the group runs up to the victim, assaults them by kicking, punching, and scratching; then taking anything of value. These occurrences have happened during various times of the day. All students and Pratt community members are recommended to travel in pairs or groups. If you must travel alone consider using a car service. Avoid traveling late at night.&quot; <a href="https://web.archive.org/web/20110611054954/http://community.livejournal.com/pratt/987334.html">Pratt&apos;s community board</a> has a thread on the recent crimes, and one student posted an update:</p><blockquote>&quot;The girls (yeah that&apos;s right, 15 year old girls) have all been spoken to by the police. The one who mugged my room mate last week will be spending the rest of her summer in counseling and with a sort-of-probation officer on her tail all the time. I know that all 3 of the girls were brought into the precinct, but my room mate and our other friend who was mugged only identified the one.&quot;</blockquote>In less than a month around 26 robberies were reported, a 37% increase from the year prior.<p></p>
+
+<p><span class="photo_caption"><a href="https://web.archive.org/web/20110611054954/http://www.flickr.com/photos/mariaspix/474192939">Photo via mariaspix&apos;s flickr</a>.</span></p>

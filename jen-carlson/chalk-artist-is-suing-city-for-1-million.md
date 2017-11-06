@@ -1,0 +1,15 @@
+---
+author: Jen Carlson
+date: Nov 26, 2010 5:00 pm
+title: Chalk Artist Is Suing City For $1 Million
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:200px; "> <img alt="chalkgrafellis.jpg" src="https://web.archive.org/web/20150428161058im_/http://gothamist.com/attachments/arts_jen/chalkgrafellis.jpg" width="200" height="226"> <br> <i><span class="photo_caption">via Ellis G</span></i></div> Not to point fingers, but after six-year-old <a href="https://web.archive.org/web/20150428161058/http://gothamist.com/2007/10/12/move_over_ket_c.php">Natalie Shea</a> was busted for chalking up a sidewalk back in 2007, it&apos;s been rough going for the rest of the city&apos;s chalk artists. The (adult) chalk artist <a href="https://web.archive.org/web/20150428161058/http://gothamist.com/tags/ellisg">Ellis Gallagher</a> has been arrested three times since then, and now he&apos;s fighting back by bringing the NYPD to court. All summonses have been dismissed, but he&apos;s now suing the city for $1 million as a punishment to the force that forced him behind bars for a legal art form, according to <a href="https://web.archive.org/web/20150428161058/http://www.brooklynpaper.com/stories/33/48/dtg_chalkartist_2010_12_03_bk.html">the Brooklyn Paper</a>. <p></p>
+
+<p>Gallagher has recently moved to Williamsburg from Cobble Hill &#x201C;because of so much harassment from the 84th and 76th precincts.&#x201D; But is the chalk art legal? City law doesn&apos;t give a definitive answer&#x2014;it states that sidewalk chalk <em>can</em> be deemed &#x201C;graffiti&#x201D; if it&apos;s not consented to by the property owner. However, Gallagher&apos;s attorney says there must be an &quot;intent to damage&quot;&#x2014;and, well, what damage can chalk <em>really</em> do? (Ellis&apos;s <a href="https://web.archive.org/web/20150428161058/http://gothamist.com/2009/04/09/fire_tagging.php">fire tagging</a>, on the other hand, wouldn&apos;t fare so well in the courtroom.)</p>
+
+<p>While Gallagher would make some nice bank with the $1 million, his lawyer&#x2014;Paul Hale&#x2014;says that figure was chosen in an effort to change the system and put a halt to future illegal summonses&#x2014;ot to put it in his own words: &quot;The only way to stop the city&#x2019;s blatant and illegal activity is by going for the pocketbook.&#x201D; And he should know&#x2014;the last time he helped Ellis sue the city it was for a paltry $5,000. At the time, the artist told us, &quot;I was arrested for chalking the sidewalk with sidewalk chalk which is 100% legal in New York, so in essence my constitutional and civil rights were violated. I, in turn, sued the NYPD and the city and was granted a check from the comptroller of the city of New York for 5G. I paid off a couple credit cards with it.&quot;</p>					
+										
+									
+				

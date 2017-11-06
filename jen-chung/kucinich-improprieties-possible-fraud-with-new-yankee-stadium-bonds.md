@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: September 19, 2008  2:33 PM
+title: Kucinich:"Improprieties, Possible Fraud" With New Yankee Stadium Bonds
+---
+
+<p><img alt="2008_09_kucinich.jpg" src="https://web.archive.org/web/20111117122411im_/http://gothamist.com/attachments/jen/2008_09_kucinich.jpg" width="120" height="125" class="right">Representative Dennis Kucinich suggested <a href="https://web.archive.org/web/20111117122411/http://www.nydailynews.com/ny_local/bronx/2008/09/18/2008-09-18_dennis_kucinich_says_yankee_stadium_tax_.html">approval for $924 million in tax-exempt bonds</a> for the construction of the new Yankee Stadium could be rescinded, due to some questions about the land&apos;s value.  He said his probe found &quot;substantial evidence of improprieties and possible fraud by the financial architects of the new Yankees Stadium.&quot; Last week, the Daily News&apos; <a href="https://web.archive.org/web/20111117122411/http://www.nydailynews.com/money/2008/09/11/2008-09-11_yanks_land_deal_aint_fair_ball.html">Juan Gonzalez had a column</a> noting the city&apos;s assessment of the land <strong>worked out to be $275/square foot -- but city assessors previously valued it at $25/square foot</strong>.  The IRS noted the different valuations ($40 million vs. $204 million) and may investigate further.  And speaking of new Yankee Stadium, WCBS 880 <a href="https://web.archive.org/web/20111117122411/http://www.wcbs880.com/Sneak-Peek-Inside-New-Yankee-Stadium-PHOTOS/2992266">went on a tour and took some photos</a>.</p>

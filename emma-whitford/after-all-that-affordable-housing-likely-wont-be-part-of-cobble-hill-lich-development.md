@@ -1,0 +1,33 @@
+---
+author: Emma Whitford
+date: Nov 4, 2016 5:25 pm
+title: After All That, Affordable Housing Likely Won't Be Part Of Cobble Hill LICH Development
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2013_07_deblasioarrest1.jpg" src="https://web.archive.org/web/20161107065944im_/http://gothamist.com/attachments/nyc_ewhitford/2013_07_deblasioarrest1.jpg" width="640" height="480"> <br> <i> Then-Public Advocate de Blasio being arrested outside LICH in July 2013 (via Public Advocate&apos;s office). </i></div> <p></p>
+
+<p>Much has transpired since then-Public Advocate Bill de Blasio <a href="https://web.archive.org/web/20161107065944/http://gothamist.com/2013/07/10/de_blasio_yeah_that_guy_running_for.php">got arrested</a> during a protest against the possible closure of Long Island College Hospital in Cobble Hill in July 2013. &quot;This community needs its hospital. People&#x2019;s health&#x2014;not the profits of the real estate industry&#x2014;needs to be our priority,&quot; de Blasio <a href="https://web.archive.org/web/20161107065944/http://gothamist.com/2013/07/18/lich.php">said at the time</a>. While the hospital&apos;s fate ultimately rested with the state, de Blasio ran on a platform defending it. Then, in 2014, he voiced support for a developer for the site, <a href="https://web.archive.org/web/20161107065944/http://fortispropertygroup.com/">Fortis Group</a>, he&apos;d openly opposed the year previous. In October of that year State University of New York <a href="https://web.archive.org/web/20161107065944/http://www.politico.com/states/new-york/city-hall/story/2014/10/ag-comptroller-sign-off-on-lich-deal-016986">sold the 506-bed hospital</a>, founded in 1860, to Fortis Property Group for $240 million.</p>
+
+<p>While community advocates have questioned de Blasio&apos;s change of heart, the mayor points to his efforts to incorporate affordable housing and healthcare facilities into the final, mixed-use development. But today, Fortis <a href="https://web.archive.org/web/20161107065944/http://www.politico.com/states/new-york/city-hall/story/2016/11/in-disappointing-turn-for-de-blasio-long-island-college-hospital-will-not-include-affordable-housing-107092">announced</a> that it will not seek to rezone the former hospital site. Under current zoning, the developer has no obligation to build affordable housing. </p>
+
+<p>&quot;We have decided to move forward with an as-of-right redevelopment plan for the LICH site,&quot; said Fortis Property Group President Joel Kestenbaum in a statement Friday. &quot;Based on the high demand for community facility space at this premier location, timing and other development factors, an as-of-right redevelopment is the most profitable. We will provide additional details in the near future as we finalize our plans.&quot;</p>
+
+<p>In the past, Fortis as floated the possibility of dorms, parkland, a school, and retail. </p>
+
+<p>&quot;This is not the plan we wanted, and nobody won here,&quot; said de Blasio spokeswoman Melissa Grace. </p>
+
+<p>Within the past year, the de Blasio administration has <a href="https://web.archive.org/web/20161107065944/http://www.politico.com/states/new-york/city-hall/story/2016/01/city-hall-encouraging-negotiations-on-brooklyn-hospital-development-030273">pushed</a> for rezoning at the LIC Hospital site that would allow for greater density in exchange for some affordable housing&#x2014;the type of project that&apos;s <a href="https://web.archive.org/web/20161107065944/http://gothamist.com/2016/07/26/affordable_housing_deblasio.php">typified</a> his affordable housing plan. Two plans presented by Fortis last spring&#x2014;one in compliance with current zoning, the other not&#x2014;got a cold response from community members who deemed the development too dense and tall for the neighborhood. The non-compliant plan <a href="https://web.archive.org/web/20161107065944/http://ny.curbed.com/2015/5/19/9959772/finally-a-look-at-lichs-hated-residential-conversion">called for</a> 600 market-rate unions and 220 affordable units: a 60/40 split. </p>
+
+<p>&quot;This is going to be a decade-long battle,&quot; one man <a href="https://web.archive.org/web/20161107065944/http://gothamist.com/2015/05/19/lich_cobble_hill_war.php">shouted</a> during the developer&apos;s presentation. &quot;This is war! Eighty percent of the people in this room are attorneys and they will be up your ass every step of the way.&quot;</p>
+
+<p>Councilmember Brad Lander, who represents the neighborhood, <a href="https://web.archive.org/web/20161107065944/http://www.politico.com/states/new-york/city-hall/story/2016/11/in-disappointing-turn-for-de-blasio-long-island-college-hospital-will-not-include-affordable-housing-107092">told Politico Friday</a> that he&apos;d been out of touch with Fortis since early in the year, and would consider suing to block the development if final plans are comparable to the most recent ones he&apos;s seen. </p>
+
+<p>&quot;To move forward without having talked to anyone in the community in months, it continues a pattern of disrespect that made it difficult to trust them in negotiations from the beginning,&quot; he said. </p>
+
+<p>NYU Langone has been operating an emergency care facility on the site since the hospital&apos;s closure. Regardless of the final mixed-use design, NYU will build a new small-scale facility on the property. &quot;We engaged in a fight to save health care at this site, and locked in more than most thought possible,&quot; Grace stated Friday. </p>
+
+<p>Over the summer, U.S. Attorney Preet Bharara <a href="https://web.archive.org/web/20161107065944/http://www.nydailynews.com/new-york/brooklyn/feds-investigating-de-blasio-long-island-college-hospital-sale-article-1.2725903?cid=bitly">reportedly issued a subpoena</a> to SUNY for all communications between the school and City Hall regarding the sale of the hospital site. The inquiry is <a href="https://web.archive.org/web/20161107065944/http://gothamist.com/2016/04/09/de_blasio_fund-raising_corruption.php">part of a larger investigation</a> into de Blasio&apos;s fundraising methods. De Blasio&apos;s since-disbanded political non-profit, Campaign for One New York, got <a href="https://web.archive.org/web/20161107065944/http://www.nytimes.com/2016/07/30/nyregion/brooklyn-hospitals-sale-backed-by-de-blasio-and-cuomo-is-drawing-federal-scrutiny.html?smid=fb-share&amp;_r=0">sizable donations</a> from the union SEIU 1199, which supported Fortis&apos;s bid. </p>					
+										
+									
+				

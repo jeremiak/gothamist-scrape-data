@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: April 22, 2009  8:59 AM
+title: Freddie Mac CFO Found Dead
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2009_04_fredmac.jpg" src="https://web.archive.org/web/20120118122818im_/http://gothamist.com/attachments/jen/2009_04_fredmac.jpg" width="130" height="79" class="image-right"> </span>The acting chief financial officer for Freddie Mac<a href="https://web.archive.org/web/20120118122818/http://www.wusa9.com/news/local/story.aspx?storyid=84706&amp;catid=158"> was found dead</a> in his Vienna, VA home this morning. David Kellerman had been with the mortgage giant for 16 years and was made acting CFO last September, when the company, troubled by its subprime mortgages, was <a href="https://web.archive.org/web/20120118122818/http://gothamist.com/2008/09/08/world_markets_happy_about_fannie_ma.php">taken over by the U.S. Treasury</a>.  While Kellerman&apos;s wife <a href="https://web.archive.org/web/20120118122818/http://www.cnbc.com/id/30344311">reportedly called about an apparent suicide</a>, authorities say they are still investigating the incident and that the final determination about whether this was a suicide will come from the medical examiner.  <a href="https://web.archive.org/web/20120118122818/http://www.wtop.com/?nid=25&amp;sid=1657033">WTOP Radio says</a> that Freddie Mac has no comment at this time.  </p>

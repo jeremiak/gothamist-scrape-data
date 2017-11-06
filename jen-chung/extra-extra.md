@@ -1,18 +1,17 @@
 ---
 author: Jen Chung
-date: July 27, 2010  5:54 PM
+date: August 25, 2008  6:47 PM
 title: Extra, Extra
 ---
 
-<span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <div class="image-none" style=" width:640px; "> <img alt="2010_07_xx0727.jpg" src="https://web.archive.org/web/20110623144645im_/http://gothamist.com/attachments/jen/2010_07_xx0727.jpg" width="640" height="422"> <br> <i>Photograph by <a href="https://web.archive.org/web/20110623144645/http://www.flickr.com/photos/thechickenkid/4834996873/in/pool-97886303@N00/">sea kay on Flickr</a></i></div> </span>
-<br>
-<ul>
-	<li>From the <a href="https://web.archive.org/web/20110623144645/http://gothamist.com/map">Gothamist Newsmap</a>: A scaffold accident at  E97th St in Manhattan, shots fired on  Georgia Av in Brooklyn and a bank robbery on Lexington Ave in Manhattan.</li>
-	<li>Snooki, the Situation, JWoww and the gang <a href="https://web.archive.org/web/20110623144645/http://www.1010wins.com/Stocks-Close-Slightly-Down/7782761">may have rung the opening bell</a> of the New York Stock Exchange, but <a href="https://web.archive.org/web/20110623144645/http://www.1010wins.com/Stocks-Close-Slightly-Down/7782761">stocks fell a bit</a>.</li>
-<li>The NYPD cop accused of having <a href="https://web.archive.org/web/20110623144645/http://gothamist.com/2010/07/26/are_cop_sex_charges_just_smokescree.php">lots of sex with his underling</a> says his boss <a href="https://web.archive.org/web/20110623144645/http://www.nydailynews.com/ny_local/2010/07/27/2010-07-27_internal_affairs_ask_chief_sex_cop_atty.html">had sex with his underlings</a> too!</li>
-	<li>The Imagination Playground near South Street Seaport has <a href="https://web.archive.org/web/20110623144645/http://ny.curbed.com/archives/2010/07/27/burling_slips_imagination_playground_opens_its_mind_to_downtown.php">officially opened</a>.</li>
-	<li>Capital New York <a href="https://web.archive.org/web/20110623144645/http://www.capitalnewyork.com/article/culture/2010/07/250786/boston-screamer-news-nabs-convey-pummel-post">offers a look at the incoming Daily News editor</a>: &quot;He&apos;s not, at heart, a British tabloid guy, and the News will never be a British tabloid, either.&quot;</li>
-	<li>Former vice president Al Gore was <a href="https://web.archive.org/web/20110623144645/http://politicalticker.blogs.cnn.com/2010/07/27/report-gore-interviewed-by-police/">reportedly interviewed</a> by Portland, OR police regarding claims that he molested a massage therapist.</li>
-	<li>Why do crazy cat ladies always <a href="https://web.archive.org/web/20110623144645/http://bodyodd.msnbc.msn.com/_news/2010/07/27/4757325-crazy-cat-ladies-why-always-cats-why-always-ladies-">seem to be ladies</a>?</li>
-	<li>According to BloombergBussinessWeek, the <a href="https://web.archive.org/web/20110623144645/http://images.businessweek.com/ss/10/07/0722_laziest_states/2.htm">country&apos;s laziest state is Lousiana</a>: &quot;Time sleeping: 8 hours, 44 minutes; Time watching TV: 3 hours, 5 minutes; Time relaxing and thinking: 29 minutes.&quot; Plus, it&apos;s #5 on the obesity ranking.</li>
-</ul>
+<p><img alt="2008_08_xx0825.jpg" src="https://web.archive.org/web/20110611063211im_/http://gothamist.com/attachments/jen/2008_08_xx0825.jpg" width="640" height="421"><br>
+<span class="photo_caption">Photograph by <a href="https://web.archive.org/web/20110611063211/http://flickr.com/photos/shveckle/2789675444/">shveckle on Flickr</a></span></p>
+
+<ul><li>From the <a href="https://web.archive.org/web/20110611063211/http://gothamist.com/labs/map">Gothamist Newsmap</a>: A stolen tanker in the 72nd Precinct area of Brooklyn, an unconscious firefighter on Pitt Street in Manhattan, and an unusual trauma on  Putnam Place in the Bronx.
+</li><li>Airlines are <a href="https://web.archive.org/web/20110611063211/http://www.ny1.com/content/top_stories/85084/airlines-to-ground-dozens-of-nonstop-flights/Default.aspx">cutting many non-stop flights</a> because of fuel costs and the economy.
+</li><li>It&apos;s a <a href="https://web.archive.org/web/20110611063211/http://www.nypost.com/seven/08252008/news/regionalnews/whats_up__docs_126003.htm">bonanza of documentaries at movie theaters</a> (the docs need to play at least two times a day for a week in order to be eligible for Oscar consideration).
+</li><li>The Observer says even the NY Times is <a href="https://web.archive.org/web/20110611063211/http://www.observer.com/2008/politics/monserrates-ambitious-introduction">pooling its few floor passes</a> among its reporters at the DNC.  Also: City Councilman Hiram Monserrate <a href="https://web.archive.org/web/20110611063211/http://www.observer.com/2008/politics/monserrates-ambitious-introduction">introduced himself</a> as a future mayor.
+</li><li>The NYPD&apos;s Skywatch Tower is <a href="https://web.archive.org/web/20110611063211/http://animalnewyork.com/news/2008/08/cops-look-down-on-ridgewood-sk.php">now in Ridgewood, Queens.</a>
+</li><li>Despite their proximity to Nathan&apos;s, the hot dog vending machines off the Coney Island boardwalk <a href="https://web.archive.org/web/20110611063211/http://nymag.com/daily/food/2008/08/are_you_willing_to_go_this_far.html">sold out of, uh, &quot;food&quot;</a> this weekend.
+</li><li>And Goldman Sachs is fine with <a href="https://web.archive.org/web/20110611063211/http://www.nytimes.com/2008/08/25/nyregion/25goldman.html?ref=nyregion">little buzz on their skyscraper construction</a> near Ground Zero. Of course, when there has been buzz, it&apos;s been when debris fell onto a Little League playing field on one occasion and tons of falling steel paralyzed an architect on another. 
+</li></ul>

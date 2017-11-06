@@ -1,0 +1,7 @@
+---
+author: Jen Carlson
+date: September 17, 2008 11:16 AM
+title: From Concerts to Crime at McCarren Park
+---
+
+<p><img alt="vigilantemccarren.jpg" src="https://web.archive.org/web/20111117122445im_/http://gothamist.com/attachments/arts_jen/vigilantemccarren.jpg" width="130" height="88" class="right">The music <a href="https://web.archive.org/web/20111117122445/http://gothamist.com/2008/08/25/goodbye_mccarren_ool_arties_hello_p.php">has stopped</a> at McCarren Park Pool, the hipsters have moved on to other concrete pastures, and it looks like crooks have been taking advantage of the area. <a href="https://web.archive.org/web/20111117122445/http://www.brooklynpaper.com/stories/31/37/31_37_bm_94_blot.html">The Brooklyn Paper</a> has two accounts of recent muggings, reporting that &quot;a thug shoved a woman and stole her purse at around 2 am...he threw her to the ground and warned, &apos;If you don&#x2019;t stop struggling I&#x2019;m really gonna hurt you.&apos;&quot; That same day someone attacked a 63-year-old man, demanding, in Polish, &#x201C;Give me money.&#x201D; When the man refused he was left with a black eye, but the police now have that suspect in custody. Looks like we&apos;re going back to <a href="https://web.archive.org/web/20111117122445/http://www.brooklynvegan.com/archives/2007/07/video_mccarren.html"><em>Vigilante</em> times</a>, kids, at least <a href="https://web.archive.org/web/20111117122445/http://gothamist.com/2008/02/14/mccarren_3.php">until 2011</a>.</p>

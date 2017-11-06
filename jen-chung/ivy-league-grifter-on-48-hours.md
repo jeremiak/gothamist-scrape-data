@@ -1,0 +1,11 @@
+---
+author: Jen Chung
+date: May 8, 2009 2:20 pm
+title: "Ivy League" Grifter On 48 Hours
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2009_05_ivy.jpg" src="https://web.archive.org/web/20150522171841im_/http://gothamist.com/attachments/jen/2009_05_ivy.jpg" width="135" height="129" class="image-right"> </span>Before there was <a href="https://web.archive.org/web/20150522171841/http://gothamist.com/tags/hipstergrifter">hipster grifter Kari Ferrell</a>, there was Esther Elizabeth Reed, the <i>Ivy League</i> grifter.  Reed faked her way into attending Harvard, Cal State and most recently Columbia University, by <a href="https://web.archive.org/web/20150522171841/http://gothamist.com/2007/01/08/strange_id_thef.php">using a dead woman&apos;s identity</a>.  She claimed to be a chess champion (a boyfriend&apos;s father became suspicious when she didn&apos;t know what an opening gambit was) and was suspected of being a spy (she kept dating West Point cadets!). But when Reed, under the name &quot;Brooke Henson,&quot; applied for a job as a housekeeper in Manhattan, her employer did a background check and she went on the lam (she left everything except her combs and toothbrush&#x2014;things that would have her DNA).  <a href="https://web.archive.org/web/20150522171841/http://www.cbsnews.com/stories/2009/05/07/48hours/main4998227.shtml">48 Hours Mystery interviewed</a> Reed, who said, &quot;I planned on being Brooke Henson for the rest of my life... <strong>I&apos;m going to create an identity. I didn&#x2019;t think I could get into any trouble for that.</strong>&quot;  She was <a href="https://web.archive.org/web/20150522171841/http://gothamist.com/2008/02/04/grifter_found.php">eventually found a year and a half</a> in Chicago; when the cops found her, she recalled, &quot;It was overwhelming. There was absolute panic and I said, &apos;I&apos;m Esther Reed.&apos;&quot; Reed, who had <a href="https://web.archive.org/web/20150522171841/http://www.nypost.com/seven/05082009/news/regionalnews/ivy_con_gal_planned_a_lifelong_lie_168194.htm">$100,000 in fraudulent loans and credit card debt</a>, claims she would have paid it all back.</p>					
+										
+									
+				

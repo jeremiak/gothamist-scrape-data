@@ -1,0 +1,14 @@
+---
+author: Jen Carlson
+date: Dec 8, 2011 4:19 pm
+title: There's A Swingers Club Above A Pop Burger In Midtown
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="swingin120811.jpeg" src="https://web.archive.org/web/20160927193646im_/http://gothamist.com/attachments/arts_jen/swingin120811.jpeg" width="640" height="450" class="image-none"> </span><br>
+<span class="photo_caption">The only SFW photo from <a href="https://web.archive.org/web/20160927193646/http://www.skinparty.com/gallery.php?id_gal=189#photo">the Skin party website</a></span></p>
+
+<p>Feeling unfulfilled after a Pop Burger dinner? Well if you&apos;re at the East 58th Street location just head upstairs to Pop Lounge, where you&apos;ll be able to sink your teeth into a much more sinful scene. <a href="https://web.archive.org/web/20160927193646/http://www.urbandaddy.com/nyc/nightlife/15841/Skin_An_X_Rated_Party_Above_Pop_Burger_New_York_City_NYC_Midtown_Center_Nightclub#ixzz1fyZxgLRs">Urban Daddy</a> (<em>of course</em>) points us to a swingers party, which you&apos;ll find after crossing over a small, purple, velvet rope next to the Pop Burger storefront. Sadly, this one <a href="https://web.archive.org/web/20160927193646/http://gothamist.com/2009/02/25/brooklyn_sex_club_has_good_times_bu.php">doesn&apos;t offer up a buffet</a>&#x2014;they describe the scene:</p><blockquote>And if you must, know that up the two dark flights of stairs and in the attic of this establishment is a party. Salacious in nature. Couples. Meeting couples. An <em>Eyes Wide Shut</em> affair. With a bar-side body-painting professional, a banquette-ringed &#x201C;dance&#x201D; floor and a pole. Of course, for those with low inhibitions and a high tolerance for pleather, there&#x2019;s a discreet, seductive, red-light annex in the back called the Playroom.</blockquote>A few years ago a Brooklyn swingers club got <a href="https://web.archive.org/web/20160927193646/http://gothamist.com/2009/04/21/brooklyn_sex_club_shut_down_by_judg.php">shut down</a> after the NY Times wrote about it and &quot;three undercover inspectors investigating Club Casbar observed more than 150 incidents of prohibited sexual activity.&quot; According to The Man: &quot;No establishment shall make facilities available for the purpose of sexual activities in which... high risk sexual activity takes place.&quot; Does that include whatever is happening <a href="https://web.archive.org/web/20160927193646/http://www.skinparty.com/gallery.php?id_gal=189#photo">in these photos</a>? Oh well, <a href="https://web.archive.org/web/20160927193646/http://gothamist.com/2011/04/28/even_platos_retreat_sex_club_had_ru.php">everything must come to an end</a>.<p></p>					
+										
+									
+				

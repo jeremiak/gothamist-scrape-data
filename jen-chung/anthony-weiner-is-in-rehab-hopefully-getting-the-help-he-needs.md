@@ -1,0 +1,21 @@
+---
+author: Jen Chung
+date: Nov 2, 2016 5:10 pm
+title: Anthony Weiner Is In Rehab, Hopefully Getting The Help He Needs
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2016_11_weiner.jpg" src="https://web.archive.org/web/20171016022504im_/http://gothamist.com/attachments/jen/2016_11_weiner.jpg" width="640" height="427"> <br> <i> Anthony Weiner at the 2016 Democratic National Convention in Philadelphia (Getty Images)</i></div> <p></p>
+
+<p>After wrecking his <a href="https://web.archive.org/web/20171016022504/http://gothamist.com/2011/06/16/anthony_weiner_resigns.php">Congressional career</a>, <a href="https://web.archive.org/web/20171016022504/http://gothamist.com/2013/05/22/anthony_weiner_announces_mayoral_ru.php">mayoral campaign</a> and <a href="https://web.archive.org/web/20171016022504/http://gothamist.com/2016/08/29/huma_abedin_weiner_separation.php">marriage</a> with his addiction to sexting, Anthony Weiner is now reportedly in rehab. <a href="https://web.archive.org/web/20171016022504/http://www.dailymail.co.uk/news/article-3890444/Anthony-Weiner-checked-facility-SEX-ADDICTION-treatment-sexting-relationship-15-year-old-girl-triggered-FBI-investigation-wife-Huma-Abedin-Hillary-Clinton.html">The Daily Mail says</a> he is at a facility in Florida, which &quot;separates men and women and its program includes counseling for those addicted to  cybersex and exhibitionism as well as addictions to anonymous sex and porn.&quot;</p>
+
+<p>Weiner&apos;s alleged <a href="https://web.archive.org/web/20171016022504/http://gothamist.com/2016/09/21/anthony_t_dog_weiner_sext.php">sexting relationship with a 15-year-old girl</a> is being <a href="https://web.archive.org/web/20171016022504/http://gothamist.com/2016/10/19/anthony_weiner_reportedly_faces_fed.php">investigated by the federal authorities</a>, who during the course of their investigation discovered <a href="https://web.archive.org/web/20171016022504/http://gothamist.com/2016/10/29/anthony_weiner_returns_to_wreak_som.php">emails related to the FBI&apos;s probe of Hillary Clinton&apos;s private email server</a> on the laptop Weiner shared with his estranged wife, top Clinton aide Huma Abedin. That led FBI Director James Comey to <a href="https://web.archive.org/web/20171016022504/http://gothamist.com/2016/10/30/emails_update_everyone_hates_james.php">make an unprecedented and vague announcement</a> to Congress, 11 days from the election, that there was a possible new development <a href="https://web.archive.org/web/20171016022504/http://dcist.com/2016/10/fbi_is_reopening_investigation.php">in the (never officially closed) Clinton server</a> investigation. </p>
+
+<p>Earlier in the day, the Daily Mail <a href="https://web.archive.org/web/20171016022504/http://www.dailymail.co.uk/news/article-3897678/It-takes-village-Smiling-Huma-Abedin-school-run-parents-Anthony-Weiner-s-mom-estranged-husband-MIA-SIX-WEEKS.html">published photographs of Abedin</a> with their young son Jordan, remarking, &quot;Weiner has not been seen in almost six weeks, with the disgraced politician going into hiding soon after DailyMail.com revealed he was sexting a teen.&quot; </p>
+
+<p>The 15-year-old who says she traded sexts with Weiner <a href="https://web.archive.org/web/20171016022504/https://www.buzzfeed.com/davidmack/teen-who-allegedly-got-weiner-sexts-upset-with-comey?utm_term=.aum8Q44dr#.nqzGRbbNK">told Buzzfeed today</a> that she was very unhappy, &quot;The FBI asked for me to speak to the media as little as possible. I have tried to stay quiet, but Comey has upset me. The last thing that I wanted was to have this become political propaganda.&quot; </p>
+
+<p>Some psychologists say that <a href="https://web.archive.org/web/20171016022504/https://www.psychologytoday.com/blog/close-and-personal/201609/anthony-weiner-is-not-sex-addict-neither-is-anyone-else-0">sex addiction isn&apos;t real</a> and that calling it &quot;sex addiction&quot; <a href="https://web.archive.org/web/20171016022504/http://nymag.com/scienceofus/2016/08/dont-call-anthony-weiner-a-sex-addict-over-his-sexting.html">ignores bigger issues that are at play</a>.</p>					
+										
+									
+				

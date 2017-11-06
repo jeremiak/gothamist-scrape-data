@@ -1,0 +1,12 @@
+---
+author: Jen Carlson
+date: January 12, 2010 12:30 PM
+title: Flashback: Old Edison Studios Revisited
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="bronxfrankie0110.jpg" src="https://web.archive.org/web/20130301052122im_/http://gothamist.com/attachments/arts_jen/bronxfrankie0110.jpg" width="640" height="292" class="image-none"> </span><br>
+<span class="photo_caption">Pictured: Edison Studios in the Bronx, and the first Frankenstein.</span></p>
+
+<p>Before the movie industry moved West, and before <a href="https://web.archive.org/web/20130301052122/http://gothamist.com/tags/taxcredits">tax credits</a> lured it back here from time to time &#x2014; two of the most successful production companies resided right in New York City, according to <a href="https://web.archive.org/web/20130301052122/http://theboweryboys.blogspot.com/2010/01/100-years-ago-frankenstein-stalks-bronx.html">the Bowery Boys</a>. The American Vitagraph Company (at 140 Nassau Street, and later in Midwood), and Edison Studios (41 East 21st St, and later the Bronx) both thrived in the city in the early 1900s. </p>
+
+<p>The latter, owned by inventor Thomas Edison, landed in the Bronx by 1908 &#x2014; stationed inside of a studio at Decatur Avenue and Oliver Place. And it was at that studio in 1910 that the very first film adaptation <a href="https://web.archive.org/web/20130301052122/http://www.filmbuffonline.com/Features/EdisonsFrankenstein1.htm">of Mary Shelley&apos;s <em>Frankenstein</em></a> was shot (100 years ago this month)! Watch the full movie after the jump... it&apos;s just over 12 minutes long. The studio closed up shop in 1918, and sadly <a href="https://web.archive.org/web/20130301052122/http://maps.google.com/maps?hl=en&amp;source=hp&amp;q=Decatur+Avenue+and+Oliver+Place+bronx,+ny&amp;ie=UTF8&amp;hq=&amp;hnear=Decatur+Ave+%26+Oliver+Pl,+Bronx,+New+York+10458&amp;gl=us&amp;ei=toBLS96hLJS6lAfcr-SMDQ&amp;ved=0CAsQ8gEwAA&amp;ll=40.867696,-73.885074&amp;spn=0.004089,0.008551&amp;t=h&amp;z=17&amp;layer=c&amp;cbll=40.867065,-73.885774&amp;panoid=p8sS09TY5DZfijiJinUGAw&amp;cbp=12,82.15,,0,1.03">it looks as though</a> there&apos;s no trace of the building left.</p>

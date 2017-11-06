@@ -1,0 +1,15 @@
+---
+author: Jen Carlson
+date: Jan 28, 2009 2:02 pm
+title: Astroland Rocket Gets Donated to City
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="phpBYIfEtPM.jpg" src="https://web.archive.org/web/20150916002342im_/http://gothamist.com/attachments/arts_jen/phpBYIfEtPM.jpg" width="350" height="232" class="image-right"> </span>The <a href="https://web.archive.org/web/20150916002342/http://gothamist.com/2008/12/12/more_on_the_astroland_rocket.php">Astroland Rocket</a> is as good a mascot as any for the disintegrating state of Coney Island. After <a href="https://web.archive.org/web/20150916002342/http://gothamist.com/2008/12/11/astroland_rocket_asscrap_metal.php">questions</a> about where it would be housed once Astroland was dismantled, it has finally found a new home. From our inbox:</p><blockquote>In a ceremony at noon today, Carol Hill Albert, co-owner of Astroland, donated Astroland&#x2019;s most famous icon, the 71 foot Astroland Rocket to the City of New York.  Robert Lieber accepted the rocket on behalf of the <a href="https://web.archive.org/web/20150916002342/http://www.nycedc.com/Web">City Economic Development Corp</a>.  <br>
+<p><br>
+Mrs. Albert said &#x201C;This one of a kind Rocket simulator was the very first ride to arrive at Astroland Park, when it was founded by my late father in-law Dewey Albert in 1962.  My husband Jerome and myself are donating this in his honor and on behalf the <a href="https://web.archive.org/web/20150916002342/http://www.coneyislandhistory.org/index.php">Coney Island History Project</a>.  It is especially fitting that this Rocket, which was the first to arrive, will be the last item to leave Astroland Park. On the sad occasion of closing Astroland, which has been Coney Island&apos;s largest amusement park for 47 years, my husband Jerome and I are heartened to know that the City will be displaying the Rocket in a prominent location as part of the new Coney Island where it can continue to educate and entertain.&#x201D;   A bronze plaque inscribing the Rocket donation is honor of Dewey Albert, Astroland&apos;s founder will be attached sometime in the next few months.</p></blockquote><p></p>Before it aims to the future, learn more about the rocket in its glory days <a href="https://web.archive.org/web/20150916002342/http://www.flickr.com/photos/27583836@N08/3101191892/in/photostream/">here</a>. <strong>UPDATE:</strong> <a href="https://web.archive.org/web/20150916002342/http://curbed.com/archives/2009/01/28/astroland_rocket_update_staten_island_exile_looms_for_a_while.php">Curbed&apos;s sources</a> tell them the rocket is &quot;leaving tonight for shipment to Staten Island, where it will remain until it comes back as part of the amusement park the city wants to build...this means it could be a loooooooong time before it returns to Coney Island.&quot;<p></p>
+
+<p><span class="photo_caption">Photo via <a href="https://web.archive.org/web/20150916002342/http://www.flickr.com/photos/dreher21/3195065911/">luluinnyc&apos;s flickr</a>.</span></p>					
+										
+									
+				

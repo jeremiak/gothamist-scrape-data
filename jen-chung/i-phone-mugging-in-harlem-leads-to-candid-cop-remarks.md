@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: October  7, 2008 10:52 AM
+title: iPhone Mugging in Harlem Leads to Candid Cop Remarks
+---
+
+<p><img alt="2008_10_iphon.jpg" src="https://web.archive.org/web/20110611051948im_/http://gothamist.com/attachments/jen/2008_10_iphon.jpg" width="105" height="128" class="right">NYC the Blog <a href="https://web.archive.org/web/20110611051948/http://nyctheblog.blogspot.com/2008/10/iphone-in-harlem-changes-ownership-via.html">details a mugging on 145h Street</a> in Harlem.  When a man was leaving the subway station, one person grabbed his iPhone, a second assailant tried to steal his wallet, and a third punched him and punched him again when he was lying on the ground.  Luckily, a passer-by yelled, called the police (the perps fled) and helped the victim.  The passer-by also asked, &quot;I thought this area was getting better?&quot; but the cop responded, &quot;No. And unfortunately, this tends to happen a lot, and often they will pick on people who look like they don&apos;t live in the neighborhood.&quot;  The cop also mentioned a man, who had been mugged three times, called the precinct to ask for the police to escort him since he&apos;s so scared: <strong>&quot;The officer responded slightly sheepishly, &apos;we don&apos;t do that,&apos; suggesting instead that &apos;he move out of the neighborhood.&apos;</strong>&quot;</p>

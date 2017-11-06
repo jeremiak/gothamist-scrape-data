@@ -1,0 +1,7 @@
+---
+author: Jen Carlson
+date: September 15, 2008 12:51 PM
+title: For Some, No Coffee from Lehman Brothers Coffee Cart Man
+---
+
+<p>There&apos;s a <a href="https://web.archive.org/web/20111117121731/http://nymag.com/daily/intel/2008/09/food_cart_owners_to_wsj_no_cof.html">coffee cart man</a> who has declared (via a sign on his cart) that he will not serve coffee to those reporting on the <a href="https://web.archive.org/web/20111117121731/http://gothamist.com/2008/09/15/panic_on_wall_street_lehman_files_f.php">Lehman Brothers</a> (<a href="https://web.archive.org/web/20111117121731/http://nymag.com/daily/intel/2008/09/the_wall_street_journal_covera.html">ahem, WSJ</a>). Now <a href="https://web.archive.org/web/20111117121731/http://dealbreaker.com/2008/09/coffee-cart-man-doesnt-think-w.php">Dealbreaker</a> has gone to the caffeine source, named Leon, to get the real deal on his declaration of solidarity. The coffee purveyor told them, &quot;When they suffer I suffer,&quot; and that he &quot;thinks the bankruptcy filing &apos;sucks, but what can you do?&apos;&quot; He also noted that &quot;it&apos;s probably going to get worse,&quot; and said there were specific reporters he will continue to refuse to serve. There&apos;s also an <em>aw</em>-factor in the story, however, as the website gave him &quot;a few hundred&quot; dollars.</p>

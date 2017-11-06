@@ -1,0 +1,17 @@
+---
+author: Ben Yakas
+date: Nov 26, 2011 4:45 pm
+title: LI Man Sues Fertility Clinic After He Discovers Accidental Pregnancy Wasn't So Accidental
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:260px; "> <img alt="112611sperm.jpg" src="https://web.archive.org/web/20170326035630im_/http://gothamist.com/attachments/byakas/112611sperm.jpg" width="260" height="244"> <br> <i>Joe Pressil (<a href="https://web.archive.org/web/20170326035630/http://www.click2houston.com/news/Dad-Twins-came-from-stolen-sperm/-/1735978/4810498/-/a5ypjj/-/index.html">via</a>)</i></div> <a href="https://web.archive.org/web/20170326035630/http://www.youtube.com/watch?v=K8JkB-OR7H4">Accidents <em>will</em> happen</a>, but not all accidents are actually accidents: a Long Island man is suing the fertility clinic which he claims his ex-girlfriend used to store his &quot;stolen&quot; sperm. Joseph Pressil, 36, says his ex Anetria Burnett used the stolen sperm to get herself pregnant after they broke up, and then sued him for child support. &#x201C;A gold digger is an understatement. She was trying to get community property and alimony. She&#x2019;s ruthless...This is more than a nightmare&#x2014;it&#x2019;s a horror story,&quot; Pressil <a href="https://web.archive.org/web/20170326035630/http://www.nypost.com/p/news/local/ex_gal_is_rubber_robber_DCGfEDf4vcBl12VJaiIo2N#ixzz1epVsUBZp">told the Post.</a><p></p>
+
+<p><a href="https://web.archive.org/web/20170326035630/http://abcnews.go.com/Health/surprise-twins-man-sues-fertility-clinic/story?id=15015147#.TtFM-KNWp4U">According to ABC</a>, Pressil says he and Burnett, an exotic dancer, only dated for six months when he was living in Texas in 2006. Pressil, a telecommunications manager, was surprised when she informed him she was pregnant with twins after they had broken up: &#x201C;We always used condoms,&#x201D; he noted. But when a DNA test proved he was definitely the father, Pressil said he began paying $800 a month in child support: &#x201C;At first, I doubted [the children were mine], but I figured I would wait until the twins were born. But when the kids were born, they looked just like me.&#x201D;</p>
+
+<p>Pressil <a href="https://web.archive.org/web/20170326035630/http://www.dailymail.co.uk/news/article-2065293/New-father-Joe-Pressil-sues-fertility-clinic-girlfriend-stole-sperm-got-pregnant-gave-birth-twins-IVF.html">then received a strange receipt</a> in the mail for sperm cryopreservation from the Advanced Fertility Center of Texas. That&apos;s where he discovered Burnett had been taking his sperm: &quot;She was taking [the semen in condoms] after the fact and running down to the clinic with it,&#x201D; said Jason Gibson, who is representing Pressil in the lawsuit. Pressil confronted his ex, who according to him said, &quot;Oh you&apos;re not stupid. I thought you knew.&quot;</p>
+
+<p>Gibson calls it a case of theft: &quot;If they&apos;ve got him listed as a patient they need his consent to do anything. They violated their own policies and procedures by not getting that consent.&quot; Pressil currently has joint custody with Burnett, but plans to fight for full custody now &quot;because of all her scandalous ways.&quot;</p>					
+										
+									
+				

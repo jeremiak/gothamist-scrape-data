@@ -1,0 +1,25 @@
+---
+author: Ben Yakas
+date: Nov 12, 2011 1:00 pm
+title: NYPD Investigating Anti-Semitic Midwood Vandalism As Hate Crime
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="111211midwood.jpeg" src="https://web.archive.org/web/20160210094050im_/http://gothamist.com/attachments/byakas/111211midwood.jpeg" width="640" height="427"> <br> <i>Arsonists torched three cars and tried to burn a fourth yesterday in Midwood (<a href="https://web.archive.org/web/20160210094050/http://twitter.com/#!/nyc911">nyc911</a>)</i></div> <p></p>
+
+<p>Yesterday morning in Midwood, on the anniversary of the end of Kristallnacht, <a href="https://web.archive.org/web/20160210094050/http://gothamist.com/2011/11/11/vandals_celebrate_kristallnacht_by.php#photo-1">vandals torched three cars</a>, tried to burn a fourth, and scrawled anti-semitic graffiti on a nearby van and benches. The attack took place around 5:30 a.m. in the heavily Orthodox Jewish section of Ocean Parkway. The NYPD Hate Crimes Task Force, along with 66th NYPD Police Precinct, are <a href="https://web.archive.org/web/20160210094050/http://online.wsj.com/article/SB10001424052970204224604577032433059227066.html?mod=WSJ_NY_LEFTTopStories">currently investigating</a> the vandalism as a hate crime. &#x201C;I think it&#x2019;s a jealousy of wealth, and then the use of anti-Semitism as a way to express that jealousy,&#x201D; Bobby Tebeli, whose mother&#x2019;s BMW X5 was burned, <a href="https://web.archive.org/web/20160210094050/http://www.nypost.com/p/news/local/brooklyn/ny_kristallnacht_ziHgJrXKKx5zqAqh5zas2M?CMP=OTC-rss&amp;FEEDNAME=">told the Post.</a></p>
+
+<p>The graffiti written near the cars included swastikas and lines like &quot;f the Jews.&quot; A van nearby had &quot;KKK&quot; written on it. Police recovered at least four gas containers&#x2014;as well as a dozen beer bottles&#x2014;from the block of Ocean Parkway, between Avenues I and J. &#x201C;There were Coronas everywhere. Looks like they had a party,&#x201D; one detective <a href="https://web.archive.org/web/20160210094050/http://www.nydailynews.com/new-york/brooklyn/vandals-torch-vehicles-midwood-brooklyn-scrawl-anti-semitic-graffiti-article-1.976207">told the Daily News</a>. Bobby Tebeli&apos;s 18-year-old sister Arlette said she was in an upstairs bedroom in her home that overlooks the street when she heard &#x201C;laughing and screaming&quot; when the vandalism was happening: &#x201C;It was a group of kids. There was a series of explosions. The three cars were all on fire. It spread from the first car, to the second car, to the third,&#x201D; she said.</p>
+
+<p><iframe width="640" height="360" src="https://web.archive.org/web/20160210094050if_/http://www.youtube.com/embed/aJeJREYgB0g" frameborder="0" allowfullscreen></iframe></p>
+
+<p>Politicians including Councilman Dov Hikind (who lives nearby), Councilman David Greenfield, and Congressman Bob Turner (in the video above) all spoke out against the vandalism. Mayor Bloomberg released the following statement yesterday:</p>
+
+<blockquote>New York City is home to more than 8 million of the most open and tolerant people in the world. But even here, there are occasional incidents involving actions that are hateful or vicious or both. The NYPD&#x2019;s Hate Crimes Task Force is actively investigating the twisted person or people who attacked cars, benches, and a sidewalk on a block of Ocean Parkway early this morning. The Hate Crimes Task Force, like so many other teams at our Police Department, is the world&#x2019;s best, as today&#x2019;s arrest for swastikas painted in Queens during October and early November shows. In fact, hate crimes are down nearly 30 percent citywide so far this year and are down roughly 33 percent in Brooklyn&#x2019;s 66th Precinct.
+
+<p>The fact that this most recent attack came on the heels of the 73rd anniversary of Kristallnacht may or may not be a coincidence. Either way, this kind of hateful act has no place in the freest city in the freest country in the world.</p></blockquote><p></p>
+
+<p>Public Advocate Bill De Blasio also released a statement, calling the vandalism a &quot;truly hateful act of prejudice,&#x201D; and argued that since it took place on the anniversary of Kristallnacht, it leaves no doubt it was a hate crime. Brooklyn State Sen. Martin Golden, Councilman Greenfield and police <a href="https://web.archive.org/web/20160210094050/http://newyork.cbslocal.com/2011/11/11/police-investigate-anti-semitic-arson-attacks-and-graffiti-in-midwood/">are offering $2,000 in reward money</a> for information leading to an arrest: &#x201C;So this was intentional. They knew the community they were in, and they knew what they were doing. And there&#x2019;s a price to pay for that. This is a hate crime and there&#x2019;s a lot of damage, property damage,&#x201D; Golden said.</p>					
+										
+									
+				

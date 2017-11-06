@@ -1,0 +1,15 @@
+---
+author: Jen Carlson
+date: June 22, 2011  2:06 PM
+title: Park Slopers: A Pigeon Killer Is Amongst You
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="smdexpigeon.jpg" src="https://web.archive.org/web/20110629170335im_/http://gothamist.com/attachments/arts_jen/smdexpigeon.jpg" width="325" height="263" class="image-right"> </span>A self-confessed pigeon murderer has taken to the Brooklynian message board to chastise the &quot;sinners&quot; who feed the pigeons in JJ Byrne Park. Oh and also, he&apos;s slowly murdering the pigeons, claiming it is &quot;for the greater good.&quot; <a href="https://web.archive.org/web/20110629170335/http://www.fuckedinparkslope.com/home/park-vigilante-poisons-pigeons-confesses-in-blog-forum.html">FIPS</a> aptly describes this man as the Dexter of the avian world. Here&apos;s his proclamation:</p>
+
+<blockquote>It is with heavy heart that I have to resort to coming onto a forum to voice my opinion. I have lived in this wonderful neighborhood for over 25 years and I have seen it change drastically in that time. <strong>My only gripe is with the people who seem hell bent on trying to erase their life&apos;s sins by feeding the nasty population of pigeons at JJ Byrne Park.</strong> I have tried man many times but to no avail to try and talk to these individuals but they refuse to stop feeding these winged rodents. I explained to them that they carry vile diseases but this notion does not seem to sink in. 
+
+<p>Frankly, I grow tired of cleaning bird poop off my stoop where there is a tree where upon these vile creatures have set up shop. I don&apos;t even dare park my car under this tree unless I want it to be encrusted with bird fecal matter. <strong>Sadly I and a few other residents have taken it upon ourselves to try and control the pigeon population by sprinkling rat poison in the park where the bird feeders usually spread their bread banquet. We hope to use the very bird feeders to dispense our poison. We understand the dangers of this tactic but we are willing to accept the collateral damage to the surrounding innocent wildlife.</strong> It is after all for the greater good. </p>
+
+<p>My neighbor Mike has also implemented a way to get rid of the pigeons from the trees by our building. He basically has constructed a few bird feeders that would hang from the trees that would dispense water laced with anti freeze. The results have been quite remarkable.</p></blockquote><p></p>
+
+<p>Maybe PETA and Mike Tyson <a href="https://web.archive.org/web/20110629170335/http://gothamist.com/2010/03/22/peta_takes_on_tyson.php">can become friends</a> and track this guy down. In the meantime, <a href="https://web.archive.org/web/20110629170335/http://gothamist.com/2010/02/22/bird_feeding.php">it <em>is</em> legal</a> to feed pigeons as long as there are no signs stating otherwise. Although if you&apos;re in JJ Bryne Park, it seems you may become an accessory to the crime if you do.</p>

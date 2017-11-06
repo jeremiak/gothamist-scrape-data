@@ -1,0 +1,16 @@
+---
+author: Jen Carlson
+date: December 27, 2011 11:07 AM
+title: Looking For A Hip, Yet Money Losing Venture? Brooklyn's Coco66 Is For Rent
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="coco66rent1211.jpeg" src="https://web.archive.org/web/20120104091242im_/http://gothamist.com/attachments/arts_jen/coco66rent1211.jpeg" width="640" height="293" class="image-none"> </span><br>
+<span class="photo_caption">Coco66 (photo on right via <a href="https://web.archive.org/web/20120104091242/http://www.heresgreenpoint.com/home/2011/12/26/for-rent-coco-66.html">Here&apos;s Greenpoint</a>)</span></p>
+
+<p>If there&apos;s anything we learned from <em>American Horror Story</em>, it&apos;s that someone else&apos;s nightmare may just be your dream come true (actually we&apos;re too scared to watch the show&#x2014;but that house looks really pretty!). After being shuttered for a while following <a href="https://web.archive.org/web/20120104091242/http://gothamist.com/2011/07/15/greenpoints_coco_66_raided_owner_ar.php">a raid and a liquor license snafu</a>, <a href="https://web.archive.org/web/20120104091242/http://www.heresgreenpoint.com/home/2011/12/26/for-rent-coco-66.html">Coco66 is for rent</a>. About that liquor license&#x2014;back in July it was noted that the bar&apos;s owner, David Kelleran, had been operating without one, and one promoter familiar with the place declared, &quot;They&apos;ll never get a liquor license there again. [Kelleran&apos;s] family owns the building, so no one is going to buy it from him and get a license. It&apos;s majorly screwed, for many years at least.&quot; </p>
+
+<p>So, any potential renters will have to be prepared to start some sort of prohibition era speakeasy. Like a real deal one, not the kind that&apos;s totally legal and has charges $16 for a drink mixed by some young, mustached Brooklynite wearing a vest and suspenders. Bonus: with a speakeasy, you could also institute a &quot;no last call&quot; policy&#x2014;which as we all know, is the dream:</p>
+
+<p><iframe width="640" height="480" src="https://web.archive.org/web/20120104091242if_/http://www.youtube.com/embed/8dsjWRinnVs" frameborder="0" allowfullscreen></iframe></p>
+
+<p><strong>UPDATE:</strong> We emailed Coco66, and we&apos;re told, &quot;[We] never had to close. It has 2 fully functioning liquor licenses. The secondary license at 68 was not reissued for 30 days  as a check the secretary had written to the liquor authority for that license had bounced. Hence causing the ensuing trouble&#x2014;despite Coco66 having a letter from the SLA granting a 10 day grace period for the 68 license to submit certified funds. The primary license at Coco66 has been fully functioning for 5+ years. <strong>The police throwing out $20,000 of booze &amp; the ensuing defamation by the police &amp; several nefarious irresponsible characters &amp; magazines&#x2014;both on line &amp; in print put Coco66 out of business.</strong>&quot; Also, rent is $8,000/month.</p>

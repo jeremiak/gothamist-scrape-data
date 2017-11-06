@@ -1,0 +1,17 @@
+---
+author: Jen Chung
+date: Sep 29, 2008 9:55 am
+title: Chinese Food Delivery Man Shot in Head; Police Search for Suspects
+---
+
+	
+										<p><img alt="2008_09_cfdm.jpg" src="https://web.archive.org/web/20150429162746im_/http://gothamist.com/attachments/jen/2008_09_cfdm.jpg" width="200" height="174" class="left">A Chinese food delivery man who was shot in the head while delivering an order in the Bronx is expected to survive, but <a href="https://web.archive.org/web/20150429162746/http://www.nydailynews.com/news/ny_crime/2008/09/28/2008-09-28_police_looking_for_thugs_in_bronx_food_d.html">lawmakers are demanding justice</a>.  City Councilman Larry Seabrook said, &quot;Someone knows [the shooting suspects], and they need to give them up,&quot; while City Councilman John Liu said, &quot;Not again. Not another vicious attack against a hard-working individual supporting his family while on the job serving the community.&quot;</p>
+
+<p>The <a href="https://web.archive.org/web/20150429162746/http://www.nydailynews.com/news/ny_crime/2008/09/27/2008-09-27_bronx_deliveryman_shot_in_head_but_likel-1.html">Daily News reported</a> that Fangwang Chen, 31, was bringing a $22 order to a home on E.229th Street in Williamsbridge, &quot;when he was cornered about 7:20 p.m.&quot;  A source said, &quot;Apparently they fought him for the food.  Somebody placed a food order to the address, but nobody there said they ordered it. We believe it was two persons who waylayed him.&quot; The suspects tried grab the food and shot Chen in the head.  Chen managed to call the restaurant owner at New China Garden, &quot;He said, &apos;I can&apos;t breathe. I&apos;m uncomfortable. I need the police.&apos;&quot;</p>
+
+<p>Chen&apos;s wife, who is at Jacobi Medical Center as her husband remains in critical condition, <a href="https://web.archive.org/web/20150429162746/http://www.wnbc.com/news/17576503/detail.html?dl=headlineclick">said</a>, &quot;He works hard for us. I can&apos;t believe something like this could happen, and to happen on his last day of work before moving on&quot;--Saturday was supposed to be his last night at New China Garden before working at a new restaurant.  Chen has been a NYC resident for 10 years, and he and his wife have two children.</p>
+
+<p>The Chinese Restaurant Association said, &quot;The senseless violence targeting Chinese food delivery people has got to stop now,&quot; and is offering a $3,000 reward for information leading to the arrest of the attackers (the police are <a href="https://web.archive.org/web/20150429162746/http://wcbstv.com/topstories/Mets.Manager.Manuel.2.827916.html">also offering $2,000</a>). Fujian American Association said, &quot;The attackers didn&apos;t even take Mr. Chen&apos;s money, which makes this an even more outrageous and senseless act.&quot; In 2005, a Chinese food delivery man bringing a $9 order to a Bronx apartment building was <a href="https://web.archive.org/web/20150429162746/http://gothamist.com/2005/10/11/chinese_food_delivery_man_shot_in_the_eye.php">shot in the eye</a>; the 52-year-old <a href="https://web.archive.org/web/20150429162746/http://gothamist.com/2005/10/13/chinese_food_delivery_man_dies_shooters_still_on_the_loose.php">died from his injuries</a>.</p>					
+										
+									
+				

@@ -1,0 +1,19 @@
+---
+author: Nell Casey
+date: Dec 4, 2013 4:52 pm
+title: Umami Burger-Owned Pizza Chain 800 Degrees Coming To NYC
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="120413800deg.jpg" src="https://web.archive.org/web/20150509040903im_/http://gothamist.com/attachments/nyc_nellcasey/120413800deg.jpg" width="640" height="480"> <br> <i> <span class="photo_caption">Cautiously optimistic (via <a href="https://web.archive.org/web/20150509040903/http://www.yelp.com/biz_photos/800-degrees-neapolitan-pizzeria-los-angeles?select=J0f6DtjJrbOWMNAEctw_5w#blcnqUbSk_4nN83Pas7nZQ">Yelp</a>)</span></i></div> <p></p>
+
+<p>Not content with invading our <a href="https://web.archive.org/web/20150509040903/http://gothamist.com/tags/shakeshack">already well-established burger scene</a>, the California-based group behind Umami Burger announced they&apos;re going to dip their toes into our <a href="https://web.archive.org/web/20150509040903/http://gothamist.com/2013/11/21/daily_show_pizza.php">magical pizza wonderland</a> as well. The <a href="https://web.archive.org/web/20150509040903/http://www.800degreespizza.com/">800 Degrees</a> chain is already well-established in Los Angeles, with <a href="https://web.archive.org/web/20150509040903/http://laist.com/2013/11/12/umami_burger_chain_plans_to_expand.php">further expansion plans</a> already in motion on the West Coast. But everyone who&apos;s anyone knows that for ultimate pizza domination, you must conquer the discerning palates of New Yorkers, who&apos;ve been known to <a href="https://web.archive.org/web/20150509040903/http://gothamist.com/tags/pizzawar">start wars</a> over their precious pies.</p>
+
+<p>The group secured the financing to build the first of five proposed locations in New York City&#x2014;go big or go home?&#x2014;starting with the first outpost somewhere in NoMad. &#x201C;New Yorkers have an ingrained pizza culture but we see an opportunity,&#x201D; Anthony Carron, co-creator of 800 Degrees, said in a release. &#x201C;There are a lot of $1 slice joints and expensive boutique pizzerias. We have an unusual mix of authentic Neapolitan pizza with fresh, amazing ingredients, fast service and an incredible price for the quality.&quot;  </p>
+
+<p>Unlike the <a href="https://web.archive.org/web/20150509040903/http://gothamist.com/2013/07/23/a_sneak_peek_at_nycs_first_umami_bu.php">rigid no substitutions menu</a><a> at Umami Burger, 800 Degrees lets customers choose all their own bases and toppings. Bases ($5.35 - $7.35 in LA) include the standard margherita to a verde with pinenut-basil pesto. Toppings go for just a buck, including fancy proteins like bacon, rosemary ham and meatballs; cheese including fontina, ricotta and smoked provolone; and a slew of veggies including eggplant, broccolini and red onions. Oh, they also have four different burrata salads.</a></p><a>
+
+</a><p><a>&quot;We believe 800 Degrees will be as big a hit in New York as it has been in California,&quot; Carron went on to say. That&apos;s West Coast optimism for ya, folks! Who knows if they&apos;ll stack up to </a><a href="https://web.archive.org/web/20150509040903/http://gothamist.com/2013/09/18/the_best_pizza_in_nyc.php">the best of the best</a> or even make a blip in this over-saturated market. But hey, at least this pizza is actually <em>pizza</em>, despite its Cali provenance; they&apos;ll just have to <a href="https://web.archive.org/web/20150509040903/http://gothamist.com/2013/11/14/jon_stewart_pizza_chicago.php">make nice with Jon Stewart</a>.</p>					
+										
+									
+				

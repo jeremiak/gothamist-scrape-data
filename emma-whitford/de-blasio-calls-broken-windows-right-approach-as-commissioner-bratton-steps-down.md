@@ -1,0 +1,43 @@
+---
+author: Emma Whitford
+date: Sep 16, 2016 4:38 pm
+title: De Blasio Calls Broken Windows 'Right Approach' As Commissioner Bratton Steps Down
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="080216bratton1.jpg" src="https://web.archive.org/web/20170823170309im_/http://gothamist.com/attachments/nyc_ewhitford/080216bratton1.jpg" width="640" height="427"> <br> <i> (Getty)</i></div> <p></p>
+
+<p>NYPD Commissioner Bill Bratton <a href="https://web.archive.org/web/20170823170309/http://abc7ny.com/news/bratton-to-officially-retire-friday-as-nypd-commissioner/1513500/">stepped down this afternoon</a>, following the <a href="https://web.archive.org/web/20170823170309/http://gothamist.com/2016/08/02/bill_bratton_resigning.php">announcement last month</a> that he&apos;d accepted a post as executive chairman of risk management for an international consulting firm. The outgoing top cop rounded out his tenure with a strong defense of <a href="https://web.archive.org/web/20170823170309/http://gothamist.com/tags/brokenwindows">Broken Windows</a>&#x2014;the controversial theory that aggressive policing of low-level violations reduces crime overall. </p>
+
+<p>A Department of Investigation study <a href="https://web.archive.org/web/20170823170309/http://gothamist.com/2016/06/22/broken_windows_stats.php">cut against this assumption in June</a>. Reviewing arrest data from the last six years, investigators found no correlation between the rate of misdemeanor summonses and arrests, and that of felony crime. The report also reinforced a <a href="https://web.archive.org/web/20170823170309/http://gothamist.com/2016/08/01/broken_windows_still_racist.php">major critique of the practice</a>: that it continues to be disproportionately applied against African-American and Hispanic New Yorkers. </p>
+
+<p>Bratton commissioned an internal critique of the report, concluding that the study period was too narrow to reveal Broken Windows&apos; true impact. &quot;Believe me, I think I know what I&apos;m doing,&quot; he <a href="https://web.archive.org/web/20170823170309/http://newyork.cbslocal.com/2016/09/07/bratton-broken-windows-policy/">said last week</a>. &quot;Broken Windows and quality-of-life policing have been integral to the changes this city has seen since the 1990s, and the changes we&apos;ve seen over the past two and a half years.&quot; </p>
+
+<center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">A standing ovation for NYPD Police Commissioner Bratton as he exits his final CompStat <a href="https://web.archive.org/web/20170823170309/https://t.co/96rhaWomuz">pic.twitter.com/96rhaWomuz</a></p>&#x2014; NYPD NEWS (@NYPDnews) <a href="https://web.archive.org/web/20170823170309/https://twitter.com/NYPDnews/status/776398582370934784">September 15, 2016</a></blockquote>
+<script async src="//web.archive.org/web/20170823170309js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<p>Speaking on The Brian Lehrer Show this morning, Mayor de Blasio praised Bratton, as he often has, for doing &quot;more than anyone in the history of this city to make the city safer.&quot; The soon-to-be former commissioner has been a large proponent of <a href="https://web.archive.org/web/20170823170309/http://www.gothamist.com/tags/compstat">CompStat crime data-tracking</a>, briefing the press once a month on the percentage peaks and dips in various arrests: for shootings, robberies, assaults, thefts, etc. Last week, the NYPD <a href="https://web.archive.org/web/20170823170309/http://gothamist.com/2016/09/06/jourvert_shooting_arrest.php">dubbed summer 2016</a> the safest of any in the CompStat era, dating back to 1994. </p>
+
+<p>De Blasio went on to call Broken Windows &quot;quality-of-life policing that helped us to address the problem of disorder that was plaguing us for decades,&quot; adding: </p>
+
+<blockquote>It constantly has to be updated. And it must be applied fairly and consistently across all communities. There is more to do to make Broken Windows a better strategy, but it is still the right approach.</blockquote>
+
+<p>A small group of protesters gathered behind police barriers near Commissioner Bratton&apos;s <a href="https://web.archive.org/web/20170823170309/http://newyork.cbslocal.com/2016/09/16/nypd-bratton-ceremonial-send-off/">farewell ceremony</a> on Friday to critique his legacy, which they said was defined by arrests for minor infractions like <a href="https://web.archive.org/web/20170823170309/http://gothamist.com/2016/06/21/teen_fare_jumper_escapes_police_cus.php">turnstile jumping</a>, and <a href="https://web.archive.org/web/20170823170309/http://gothamist.com/2016/04/19/nypd_cop_sentencing_gurley.php">inadequate punishment</a> for police officers who injure and kill civilians. </p>
+
+<center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">Public defender Noha here talking about <a href="https://web.archive.org/web/20170823170309/https://twitter.com/hashtag/BrattonsLegacy?src=hash">#BrattonsLegacy</a> outside NYPD HQ &amp; saying <a href="https://web.archive.org/web/20170823170309/https://twitter.com/hashtag/ByeKen?src=hash">#ByeKen</a>. <a href="https://web.archive.org/web/20170823170309/https://t.co/0kbXyK7uFt">pic.twitter.com/0kbXyK7uFt</a></p>&#x2014; Ash J (@AshAgony) <a href="https://web.archive.org/web/20170823170309/https://twitter.com/AshAgony/status/776828653514743808">September 16, 2016</a></blockquote>
+<script async src="//web.archive.org/web/20170823170309js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<p>Towards the end of Bratton&apos;s tenure, the City Council <a href="https://web.archive.org/web/20170823170309/http://gothamist.com/2016/05/25/nyc_decriminalized_low_level_offenses.php">voted to decriminalize several quality of life offenses</a>. However, the new regulations preserve NYPD officers&apos; ability to make arrests as they deem appropriate. &quot;The rights, responsibilities, and capabilities of my police officers don&apos;t change at all,&quot; Bratton <a href="https://web.archive.org/web/20170823170309/http://www.wnyc.org/story/commissioner-bratton-nypd/">told WNYC recently</a>, adding, &quot;My officers still have the right to make an arrest if the behavior is egregious or inappropriate.&quot;</p>
+
+<p>Advocates and City Council members were <a href="https://web.archive.org/web/20170823170309/http://gothamist.com/2016/07/13/mark-viverito_nypd_reform.php">surprised in July</a>, when Council Speaker Melissa Mark-Viverito tabled a vote on a police reform bills with wide support. The bills would compel police officers to get consent before searching people&apos;s homes when they lack a warrant or probable cause, and to <a href="https://web.archive.org/web/20170823170309/http://changethenypd.org/RightToKnowAct">identify themselves and explain their reasons for stops</a>.</p>
+
+<p>Bratton has called these and other police reform bills &quot;<a href="https://web.archive.org/web/20170823170309/http://gothamist.com/2015/06/30/bratton_opposes_chokehold_ban_bill.php">unprecedented intrusions</a>&quot; on police work. Today, <a href="https://web.archive.org/web/20170823170309/http://www.nytimes.com/2016/09/16/opinion/william-j-bratton-how-to-reform-policing-from-within.html?smid=tw-share">in a New York Times op-ed</a>, he made a case for leaving police reform to the police. </p>
+
+<p>&quot;There are police reformers from outside the profession who think that changing police culture is a matter of passing regulations, establishing oversight bodies and more or less legislating a new order,&quot; he said. &quot;It is not.&quot; </p>
+
+<p>Bratton&apos;s successor is <a href="https://web.archive.org/web/20170823170309/http://gothamist.com/2016/08/02/james_oneill_nypd.php">James O&apos;Neill</a>, formerly Chief of Patrol and a proponent of <a href="https://web.archive.org/web/20170823170309/https://www.youtube.com/watch?v=XxHuJopPK60">neighborhood policing</a>, which sets aside designated time for beat cops to talk with people who live and work in their precincts. Under this strategy, cops are not assessed solely on the <a href="https://web.archive.org/web/20170823170309/http://gothamist.com/tags/quotas">number of arrests they make</a>. </p>
+
+<p>Last week, O&apos;Neill backed up Bratton&apos;s defense of Broken Windows. &quot;This is a tool that we have to keep using,&#x201D; he <a href="https://web.archive.org/web/20170823170309/http://newyork.cbslocal.com/2016/09/07/bratton-broken-windows-policy/">said</a>. </p>					
+										
+									
+				

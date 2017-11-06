@@ -1,0 +1,11 @@
+---
+author: Jen Carlson
+date: January 24, 2012  3:50 PM
+title: Historic Tips To Help You Shrink Your Waistline, Tonight At AMNH
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-right" style=" width:300px; "> <img alt="colonialdiet0112.jpeg" src="https://web.archive.org/web/20120128163142im_/http://gothamist.com/attachments/arts_jen/colonialdiet0112.jpeg" width="300" height="225"> <br> <i><a href="https://web.archive.org/web/20120128163142/http://www.fourpoundsflour.com/the-battle-creek-diet-day-4/">Diet food?</a></i></div> Looking for a last minute culinary adventure tonight? Head over to the American Museum of Natural History at 6:30 p.m. for an event titled: <a href="https://web.archive.org/web/20120128163142/http://www.amnh.org/calendar/event/Tonics-and-Tinctures:-Historic-Remedies-for-Your-Expanding-Waistline/">Historic Remedies For Your Expanding Waistline</a>. For 30 bucks you&apos;ll learn straight from historic gastronomist Sarah Lohman (author of the blog <a href="https://web.archive.org/web/20120128163142/http://www.fourpoundsflour.com/">Four Pounds Flour</a>) about how Americans traditionally tried to shed a unwanted weight&#x2014;&quot;from William Banting&#x2019;s &#x201C;Letter on Corpulence&#x201D; to &#x201C;Fletcherizing&#x201D; with John Harvey Kellogg, explore and taste some of the best (and worst) historic diet trends in America.&quot;<p></p>
+
+<p>The menu for tonight&apos;s event includes: Graham Bread with Cold Water and Dr. Kellogg&#x2019;s Protose Meatless Balls. Until then, here&apos;s <a href="https://web.archive.org/web/20120128163142/http://www.fourpoundsflour.com/drink-like-a-colonial-american-day/">how to drink like a colonial American</a> (it&apos;s all about 10-proof hard cider, apparently)... and <a href="https://web.archive.org/web/20120128163142/http://www.fourpoundsflour.com/tomorrow-drinking-like-a-colonial-american/">they drank <em>a lot</em></a>:</p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="alcoholconsumption0112.jpeg" src="https://web.archive.org/web/20120128163142im_/http://gothamist.com/attachments/arts_jen/alcoholconsumption0112.jpeg" width="640" height="523" class="image-none"> </span></p>

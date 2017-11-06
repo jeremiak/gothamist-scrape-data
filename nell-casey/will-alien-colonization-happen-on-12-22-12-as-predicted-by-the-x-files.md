@@ -1,0 +1,17 @@
+---
+author: Nell Casey
+date: Dec 4, 2012 12:43 pm
+title: Will Alien Colonization Happen On 12/22/12, As Predicted By The X-Files?
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="120412xfilesmain.jpg" src="https://web.archive.org/web/20150428131752im_/http://gothamist.com/attachments/nyc_nellcasey/120412xfilesmain.jpg" width="638" height="472"> <br> <i> <span class="photo_caption">This is all of us in 18 days</span></i></div> <p></p>
+
+<p>Consumed with fear about the upcoming Mayan Doomsday? Have your <a href="https://web.archive.org/web/20150428131752/http://gothamist.com/2011/08/24/does_anyone_actually_have_a_go_bag.php">Go Bag</a> packed for the first sign of locusts? Not to add to your growing paranoia, but a little show called <em>The X-Files</em> also made some predictions about this month concerning&#x2014;what else?&#x2014;<em>alien colonization</em>. So set your iCal reminders for December 22nd, 2012, when the aliens will return to <strike>re-colonize earth</strike>, <strike>wipe out the human race</strike>, <strike>enslave us all</strike>, <strike>bring Donald Trump back to his home planet</strike>&#x2026;probably do something really bad. </p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-right"> <img alt="120412alien.jpg" src="https://web.archive.org/web/20150428131752im_/http://gothamist.com/attachments/nyc_nellcasey/120412alien.jpg" width="250" height="182"> <br> <i style=" width:250px; ;display:block"> <span class="photo_caption">Who&apos;s your Daddy?</span></i></div> Though Chris Carter&apos;s increasingly convoluted alien conspiracy show had enough red herrings to feed an army of paranoid Swedes, it did offer up the official colonization date in <em>The X-Files</em> series finale, &quot;The Truth.&quot; And even though yesterday the U.S. Government&apos;s blog <a href="https://web.archive.org/web/20150428131752/http://www.amny.com/urbanite-1.812039/u-s-government-the-world-will-not-end-on-december-21-1.4287858">officially stated the world would not end this month</a>, it goes without saying they just want to keep us quiet before our new alien overlords arrive to <a href="https://web.archive.org/web/20150428131752/http://x-files.wikia.com/wiki/Purity">pump us full of black oil</a> and <a href="https://web.archive.org/web/20150428131752/http://x-files.wikia.com/wiki/Requiem">impregnate us with alien-human hybrids</a>. <p></p>
+
+<p>But is it too late to fight the future? According to the first <em>X-Files</em> movie, infected bees would carry the alien DNA to new hosts, who would in turn become vessels for an alien body to gestate and mature. Could this explain the uptick in <a href="https://web.archive.org/web/20150428131752/http://gothamist.com/2012/06/03/cost_of_homemade_honey_city_bracing.php">urban beekeeping</a> that&apos;s been sweeping the city recently? Has the Syndicate&apos;s colonization operation been going on right under our noses in the form of delicious, locally-produced alien honey? If that&apos;s the case, at least we can use our dying breath to officially <a href="https://web.archive.org/web/20150428131752/http://gothamist.com/2012/11/18/ny_times_trys_on_thought_catalogue.php">blame the hipsters</a>.</p>					
+										
+									
+				

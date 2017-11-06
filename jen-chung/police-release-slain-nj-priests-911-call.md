@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: November  5, 2009 10:13 AM
+title: Police Release Slain NJ Priest's 911 Call
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2009_11_911cell.jpg" src="https://web.archive.org/web/20110623142916im_/http://gothamist.com/attachments/jen/2009_11_911cell.jpg" width="89" height="89" class="image-right"> </span>NJ State Police <a href="https://web.archive.org/web/20110623142916/http://www.nj.com/news/index.ssf/2009/11/chatham_priest_killed_911_tape.html">released 911 tapes</a> between murdered Chatham, NJ pastor Father Ed Hinds and a 911 dispatcher.  Hinds, who was <a href="https://web.archive.org/web/20110623142916/http://gothamist.com/2009/10/25/janitor_arrested_in_nj_priests_murd.php">allegedly killed by the church&apos;s janitor</a> Jose Feliciano, called 911 from his cellphone; he managed to give his address, but the phone disconnected before the dispatcher could confirm the location.  So the dispatcher called back, and on the second attempt, Feliciano answered.  The dispatcher asked, &quot;Sir, this is the State Police. You called 911. Do you have an emergency?&quot; and Feliciano responded, &quot;No, we don&apos;t. Thank you&quot;&#x2014;but Hinds&apos; voice is &quot;barely be heard [in the background] saying, &apos;Yes we do [have an emergency].&apos;&apos;&apos;</p>

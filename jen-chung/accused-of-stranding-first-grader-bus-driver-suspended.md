@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: September 24, 2008  8:42 AM
+title: Accused of Stranding First Grader, Bus Driver Suspended
+---
+
+<p><img alt="2008_09_busdriv.jpg" src="https://web.archive.org/web/20110811102923im_/http://gothamist.com/attachments/jen/2008_09_busdriv.jpg" width="130" height="97" class="right">The school bus driver who apparently <a href="https://web.archive.org/web/20110811102923/http://gothamist.com/2008/09/23/bus_driver_drops_first_grader_two_m.php">dropped off a 5-year-old child</a> at the end of her route--even though he was on the bus by accident and actually lives across from the school--has been <a href="https://web.archive.org/web/20110811102923/http://www.nydailynews.com/ny_local/education/2008/09/23/2008-09-23_driver_i_didnt_know_boy_was_alone_.html">suspended without pay</a> as the incident is investigated.  The Daily News reports that driver Kimba Ewers claims little Jaeden Vasquez was dropped off with other children and that adults were waiting for them (adults must be present to pick them up at the stop). Ewers&apos;s bus company also says the school is at fault, since the child says a school aide told him to get on the bus.   The DOE went to supervise dismissal and school bus boarding yesterday--&quot;The kids who belong on the buses are supposed to be checked off as they board.&quot;</p>

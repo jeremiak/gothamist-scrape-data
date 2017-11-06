@@ -1,0 +1,23 @@
+---
+author: Ben Yakas
+date: Nov 2, 2011 1:14 pm
+title: NYPD Arrests Student For 36 Hours Because She Didn't Have ID
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="11211park.jpg" src="https://web.archive.org/web/20150815021624im_/http://gothamist.com/attachments/byakas/11211park.jpg" width="640" height="423"> <br> <i>Riverside Park <a href="https://web.archive.org/web/20150815021624/http://www.flickr.com/photos/fsln/313426681/">street stars&apos;s flickr</a></i></div> <p></p>
+
+<p>Extending the courtesy of ticket-fixing to fellow officers, pepper-spraying peaceful protesters, and planting drugs on innocent suspects to meet arrest quotas are but three of the <a href="https://web.archive.org/web/20150815021624/http://gothamist.com/tags/nypd">NYPD&apos;s less savory on-the-job exploits</a> which have been put under the microscope via recent high-profile cases. But the <a href="https://web.archive.org/web/20150815021624/http://www.nytimes.com/2011/11/02/nyregion/dismal-tale-of-arrest-for-tiniest-of-crimes.html?hp">NYTimes&apos; Jim Dwyer points us in the direction of</a> one person&apos;s smaller story of a particularly frivolous arrest which seems just as ridiculous as those bigger cases: a 21-year-old female student was arrested and held by NYPD for 36 hours for not carrying ID. And as Dwyer so simply puts it, once she finally reached a courtroom, <strong>&quot;the judge proceeded to dismiss the ticket in less than a minute.&quot;</strong></p>
+
+<p><a href="https://web.archive.org/web/20150815021624/http://www.behance.net/srzucker">Samantha Zucker</a>, who is from Westchester but goes to school at Carnegie Mellon University, was visiting NYC on October 22 with a group of seniors looking for jobs in design industries when she had her fateful run-in with cops. She and friend Alex Fischer were walking in Riverside Park after its 1 a.m. closing when they were confronted by police. &#x201C;We&#x2019;re there five minutes when a police car came up and told us we had to leave because the park was closed,&#x201D; Fischer said. &#x201C;We said, &#x2018;O.K., we didn&#x2019;t know,&#x2019; and turned around to leave. Almost immediately, a second police car pulls up.&#x201D; </p>
+
+<p>The students were given tickets for trespassing, and the officers demanded their IDs. While Fischer was allowed to leave after showing his, Zucker had left her wallet in a hotel two blocks away. Police wouldn&apos;t allow Fischer to go get it for her, and Zucker was handcuffed and forced to spend the next 36 hours locked up shuffled between a cell in the 26th Precinct station house on West 126th Street and central booking in Lower Manhattan. It&apos;s as if she had been <a href="https://web.archive.org/web/20150815021624/http://gothamist.com/2011/06/06/ticketed_for_eating_a_doughnut_in_a.php">eating doughnuts in a playground while unaccompanied by a minor!</a></p>
+
+<p>The arresting officer, identified as Police Officer Durrell of the 26th Precinct in court papers, also allegedly made fun of Zucker while she was being held: &#x201C;He was telling me that I needed to get a new boyfriend, that I should get a guy who takes me out to dinner,&#x201D; Zucker said. &#x201C;He mocked me for being from Westchester.&#x201D; After two nights in custody, the judge dismissed all charges in seconds.</p>
+
+<p>Dwyer describes Zucker&apos;s pointless arrest in poetic terms, calling it indicative of a larger cancer choking the effectiveness of the NYPD: &quot;the staggering waste of spirit, the squandering of public resources, the follies disguised as crime-fighting.&quot; He also connects that with the controversial <a href="https://web.archive.org/web/20150815021624/http://gothamist.com/tags/stopandfrisks">stop-and-frisk policy,</a> which accounted for more than 600K arrests last year.</p>
+
+<p>According to NYPD spokesman Paul Browne, officers can allow a friend or relative to retrieve ID. Zucker isn&apos;t only upset with the arresting officer however&#x2014;she also blames a culture of complacency which prevented anyone from helping her during those 36 hours: &#x201C;<strong>While it may have been one out-of-control officer that began the process, no other officer had the courage to stand up against what they knew was a poor decision,</strong>&#x201D; she said. </p>					
+										
+									
+				

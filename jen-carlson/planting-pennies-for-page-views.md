@@ -1,0 +1,9 @@
+---
+author: Jen Carlson
+date: June  3, 2008  5:05 PM
+title: Planting Pennies for Page Views
+---
+
+<p><img alt="0806zoompenny.jpg" src="https://web.archive.org/web/20120309131046im_/http://gothamist.com/attachments/arts_jen/0806zoompenny.jpg" width="247" height="189" class="right">Ex-Road Ruler, and current-prankster, Jake Bronstein was back on the streets recently. This time he wasn&apos;t trying to get laid by wearing <a href="https://web.archive.org/web/20120309131046/http://gothamist.com/2008/05/19/forcing_missed.php">a wookie suit on the subway</a>, he was getting strangers lucky!</p>
+
+<p>Putting $50 of pennies to use, he &quot;affixed little messages to the underside (the &apos;tails&apos; side) using spray adhesive and gobs, and gobs, of patience.&quot; What would the lucky penny-picker-upper get? A message saying &quot;It&apos;s Your Lucky Day&quot; immediately followed by a plug for Bronstein&apos;s website! The penny plug did yield some unsubstantiated facts about the oft cast-aside coin, however:</p><ul><li>A lone penny is more likely to be picked up then a penny placed in a group.</li><li>People instantly understand what it is you&#x2019;re doing when you put a penny down&#x2026; and they smile.</li><li>People are almost twice as likely to pick up a penny in Soho than they are in Williamsburg.</li><li>Homeless people aren&#x2019;t nearly as interested in pennies as one might think. In fact, they find them borderline insulting.</li></ul>More than you ever wanted to know about pennies and Bronstein&apos;s &quot;luck-vertizing&quot; scheme, <a href="https://web.archive.org/web/20120309131046/http://zoomdoggle.com/2008/06/luck-vertizing/">here</a>.<p></p>

@@ -1,0 +1,11 @@
+---
+author: Jen Carlson
+date: May 18, 2010  5:48 PM
+title: Glass Exploding Thunderdome Coming To Brooklyn
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:200px; "> <img alt="thunderdom0510.jpg" src="https://web.archive.org/web/20110811123147im_/http://gothamist.com/attachments/arts_jen/thunderdom0510.jpg" width="200" height="179"> <br> <i><span class="photo_caption">Not Brooklyn&apos;s Thunderdome</span></i></div> That group that made a splash (sorry) with their <a href="https://web.archive.org/web/20110811123147/http://gothamist.com/2009/07/20/dumpster_diving_1.php">dumpster pool</a> in Gowanus last year are back with a new toy... and you&apos;re probably not invited, again. Last summer dumpster divers needed an invite to get their feet wet, and this year their Thunderdome-housed project is in a secret location. <a href="https://web.archive.org/web/20110811123147/http://www.nydailynews.com/ny_local/brooklyn/2010/05/18/2010-05-18_recycled_shattered_glass_thunderdome_project_is_a_smash_hit_in_brooklyn.html">The Daily News</a> reports that their project, called Glassphemy, is all about bringing onlookers face-to-face with recycling <p></p>
+
+<p>To do that, the creators have fashioned a Thunderdome-like cage of bulletproof glass and steel, where people can smash recyclables. Artist/co-creator David Belt says, &quot;Everybody&apos;s a little suspicious of whether when you put things in the recycling bin, they actually get recycled. So the idea that you could have a physical experience was appealing to me. Plus, everyone loves to smash stuff.&quot;  While there will be a limited, hand-picked audience, Belt hints at who he&apos;d like to drop by, saying: &quot;I&apos;d like to get the Hasids and hipsters who are warring over that bike lane in Williamsburg over here and have them throw bottles at each other.&quot;</p>
+
+<p>The idea is that participants can stand on a platform and smash bar-donated beer bottles &quot;into the clear, rectangular box, firing them at the walls or aiming for people standing safely on the other side.&quot; Upon impact, the bottles allegedly get obliterated into a glittery explosion of glass. First lawsuit in 3, 2...</p>

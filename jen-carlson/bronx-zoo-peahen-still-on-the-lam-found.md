@@ -1,0 +1,18 @@
+---
+author: Jen Carlson
+date: May 11, 2011 11:55 AM
+title: Bronx Zoo Peahen Still on The Lam Found!
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="missingpeahen0511.jpg" src="https://web.archive.org/web/20110512035747im_/http://gothamist.com/attachments/arts_jen/missingpeahen0511.jpg" width="640" height="433" class="image-none"> </span><span class="photo_caption">Original photo via <a href="https://web.archive.org/web/20110512035747/http://www.flickr.com/photos/27616403@N00/1583860252/">f.r.a.n.k&apos;s flickr</a></span></p>
+
+<p><strong>[UPDATE BELOW]</strong> Yesterday a peacock, or as it turns out <em>peahen</em>, <a href="https://web.archive.org/web/20110512035747/http://gothamist.com/2011/05/10/peacock_escapes_bronx_zoo_foils_wou.php">escaped the Bronx Zoo</a>, and as of this morning it&apos;s still on the loose! HIDE YOUR FLOWER PETALS (because that is what they eat). This is the second escapee the zoo has seen this year, with <a href="https://web.archive.org/web/20110512035747/http://gothamist.com/tags/missingcobra">Mia the cobra</a> disappearing back in March. Following the snake&apos;s lead, the feathered one has started a Twitter (<a href="https://web.archive.org/web/20110512035747/http://twitter.com/#!/BronxZooPeacock">@BronxZooPeacock</a>), saying: &quot;The cobra gave me some escape tips. I&apos;m a peahen with dreams of fame and fortune (seriously, Broadway, here I come!) that will not stand for nets and cages!&quot; (Also, hide your cobras, because as it turns out, peafowl also <a href="https://web.archive.org/web/20110512035747/http://en.wikipedia.org/wiki/Peafowl#Diet">eat reptiles</a>.)</p>
+
+<p><a href="https://web.archive.org/web/20110512035747/http://newyork.cbslocal.com/2011/05/11/female-peacock-or-peahen-escapes-from-bronx-zoo/">CBS News</a> reports that the peahen has been missing since &quot;at least Monday,&quot; and the zoo handlers are back out there looking to capture her today. Good look folks, seems life on the lam is treating her pretty well, last night she Tweeted: &quot;Life is good! Freedom and a Yankees win!&#x201D;</p>
+
+<center><script type="text/javascript" src="https://web.archive.org/web/20110512035747js_/http://video.newyork.cbslocal.com/global/video/videoplayer.js?rnd=467851;hostDomain=video.newyork.cbslocal.com;playerWidth=500;playerHeight=332;isShowIcon=true;clipId=5838593;flvUri=;partnerclipid=;adTag=News;advertisingZone=CBS.NY%252Fworldnowplayer;enableAds=true;landingPage=;islandingPageoverride=false;playerType=STANDARD_EMBEDDEDscript;controlsType=fixed"></script></center>
+
+<p><a href="https://web.archive.org/web/20110512035747/http://www.nytimes.com/2011/05/11/nyregion/peahen-escapes-bronx-zoo.html">The Daily Mail</a> has more photos of the escapee, and one even shows her running into a feral cat!</p>
+
+<p><strong>UPDATE:</strong> Jim Breheny, Director of the Bronx Zoo, has released the following statement:<br>
+</p><blockquote>&#x201C;We thank our Bronx neighbors and the New York Police Department for helping us retrieve our peahen this morning. We recovered her in the garage of a local business where she was safely corralled. She has been examined by our veterinarians at our Wildlife Health Center where she is resting comfortably. Preliminary indications are that she is in good condition. We will keep our tradition of free-roaming peafowl at the Bronx Zoo. We are confident that after this peahen&apos;s recent adventure, she won&apos;t want to wander from her home at the zoo.&#x201D;</blockquote><p></p>

@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: September  2, 2009  8:18 AM
+title: Truck Driver Lost Brakes At Verrazano Toll Booth
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2009_09_truckinpl.jpg" src="https://web.archive.org/web/20130527060006im_/http://gothamist.com/attachments/jen/2009_09_truckinpl.jpg" width="135" height="128" class="image-right"> </span>Some details about the truck that somehow <a href="https://web.archive.org/web/20130527060006/http://gothamist.com/2009/09/01/oops_truck_stuck_in_verrazano_toll.php">crashed into a booth at the Verrazano Narrows Bridge toll plaza</a> yesterday. A source <a href="https://web.archive.org/web/20130527060006/http://www.silive.com/news/index.ssf/2009/09/truck_driver_in_toll_booth_cra.html">told the Staten Island Advance</a> the &quot;driver apparently lost his brakes, then jumped the curb at the plaza, near lane 17, and struck the toll booth... The accident caused traffic tie-ups heading into Staten Island.&quot;  The driver was not pinned, though his door was &quot;pressed against the toll booth&quot;&#x2014;it turns out that emergency responders &quot;were hesitant to remove him through the passenger-side door&quot; due to the driver&apos;s shoulder injuries.</p>

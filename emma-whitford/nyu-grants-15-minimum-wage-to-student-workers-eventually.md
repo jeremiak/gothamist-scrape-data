@@ -1,0 +1,29 @@
+---
+author: Emma Whitford
+date: Mar 25, 2016 3:45 pm
+title: NYU Grants $15 Minimum Wage To Student Workers... Eventually 
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="032516_NYU.jpeg" src="https://web.archive.org/web/20170402220608im_/http://gothamist.com/attachments/nyc_ewhitford/032516_NYU.jpeg" width="640" height="480"> <br> <i> (via <a href="https://web.archive.org/web/20170402220608/https://www.facebook.com/nyuSLAM/photos/a.407953919266900.95837.293158904079736/860662150662739/?type=3&amp;theater">Facebook</a>)</i></div> <p></p>
+
+<p>In a move that NYU president Andrew Hamilton has proudly dubbed &quot;a further step on affordability,&quot; Business Insider&apos;s <a href="https://web.archive.org/web/20170402220608/http://www.businessinsider.com/most-expensive-colleges-in-america-2015-8">#3 Most Expensive College</a>&#x2014;where matriculating freshman stare down a staggering annual tuition and board cost north of $65,000&#x2014;has agreed to phase in a $15 hourly wage for student workers over the next three years. </p>
+
+<p>Student workers at NYU, including tour guides, clerical workers, library attendants and office assistants, currently make as little as $9 per hour, according to current students. The average student debt at NYU is about $35,000, <a href="https://web.archive.org/web/20170402220608/http://www.villagevoice.com/news/nyu-students-debt-and-debtor-6433471">reportedly</a> $11,000 over the national average.</p>
+
+<p>&quot;The topic that recurs most often in my meetings with students is affordability,&quot; said President Hamilton in his <a href="https://web.archive.org/web/20170402220608/https://www.nyu.edu/about/leadership-university-administration/office-of-the-president/redirect/communications/a-further-step-on-affordability-15-per-hour-minimum-wage-for-student-workers.html">Thursday memo to students</a>. According to his announcement, student worker minimum wages will be $12/hour in 2016-17, $13.50/hour in 2017-18, and $15.00/hour in 2018-19. According to the University, facilities, food service, and graduate student workers already have a $15 minimum wage. </p>
+
+<p>In a December 2013 <a href="https://web.archive.org/web/20170402220608/https://nyuslam.wordpress.com/2013/12/12/we-demand-solutions-to-the-student-debt-crisis/">letter to the administration</a>, New York University&apos;s <a href="https://web.archive.org/web/20170402220608/https://nyuslam.wordpress.com/student-debt/">Student Labor Action Movement (SLAM)</a>&#x2014;which has <a href="https://web.archive.org/web/20170402220608/https://docs.google.com/a/gothamist.com/forms/d/1ljwrX3Wn2BGInXcOTq0VeU1DVufClEKHhmwQhe5ehyw/viewform?c=0&amp;w=1">long pushed</a> for a $15 minimum for student workers&#x2014;urged the administration to adjust its spending priorities. </p>
+
+<p>For context, former president John Sexton recently transitioned into retirement with a comfortable <a href="https://web.archive.org/web/20170402220608/http://www.thewire.com/national/2013/08/john-sexton-will-officially-leave-nyu-2016/68346/">$800,000 annual pension</a>, and in 2013 the NY Times <a href="https://web.archive.org/web/20170402220608/http://www.nytimes.com/2013/06/18/nyregion/nyu-gives-stars-loans-for-summer-homes.html?_r=0">reported on</a> massive loans distributed to faculty and star professors for vacation homes in the Hamptons and Fire Island. The school&apos;s controversial <a href="https://web.archive.org/web/20170402220608/http://www.nyu.edu/nyu2031/nyuinnyc/growth/the-plan.php#Intro">NYU 2031</a> plan has directed billions in resources to campus expansion as tuition continues to <a href="https://web.archive.org/web/20170402220608/http://www.nbcnewyork.com/news/local/Prospective-NYU-Student-Bill-71K-Attendance-Change-Org-297555521.html">creep up</a>. </p>
+
+<p>Sexton was also at the helm when 10,000 migrant workers constructing his massive Abu Dhabi campus were <a href="https://web.archive.org/web/20170402220608/http://gothamist.com/2015/04/16/report_labor_conditions_at_nyu_abu.php">found to be subject</a> to deplorable working conditions&#x2014;from poorly-compensated and unwanted overtime, to squalid living quarters. </p>
+
+<p>Hamilton, who lives in a <a href="https://web.archive.org/web/20170402220608/http://www.nytimes.com/2015/12/22/us/nyu-presidents-penthouse-gets-a-1-1-million-face-lift.html">newly-renovated penthouse</a> in Greenwich Village, reiterated this week that he&apos;s secured the &quot;lowest increase in cost-of-attendance in 20 years&quot; at NYU&#x2014;2%, down from the typical 3.5-3.9%. </p>
+
+<p>According to SLAM, NYU is the first private school in their national network to instate a $15 minimum wage for student workers (the public University of Washington <a href="https://web.archive.org/web/20170402220608/http://www.washington.edu/news/2015/09/28/uw-to-raise-minimum-wage-for-workers-to-15-an-hour/">instated a $15 minimum</a> last fall). Asked if he felt that Hamilton&apos;s investment in affordability is genuine, SLAM member and NYU Junior Drew Weber said that at this point, it&apos;s hard to say. </p>
+
+<p>&quot;He&apos;s definitely trying to give the impression of caring more about affordability than his predecessors,&quot; Weber said. &quot;On one level I appreciate it, and it&apos;s great that we&apos;ve gotten to this point after months of campaigning. But on another, I&apos;m very skeptical. After all, he&apos;s chosen by <a href="https://web.archive.org/web/20170402220608/http://www.nytimes.com/2014/04/13/education/edlife/the-power-broker-of-nyu.html">the same board</a> that chose every other president.&quot; </p>					
+										
+									
+				

@@ -1,0 +1,13 @@
+---
+author: Jen Chung
+date: July 19, 2008 12:08 PM
+title: Lawyer Ran Strip Club-Brothel in Midtown
+---
+
+<p><img alt="2008_07_danceclub.jpg" src="https://web.archive.org/web/20130417023932im_/http://gothamist.com/attachments/jen/2008_07_danceclub.jpg" width="280" height="206" class="left">At the Hot Lap Dance Club on West 38th Street, police say customers could indulge not just in hot lap dances but <a href="https://web.archive.org/web/20130417023932/http://www.nydailynews.com/news/ny_crime/2008/07/18/2008-07-18_cops_say_lawyers_ran_midtown_brothel.html">some more intimate fun by the hour</a> in cubicles, private bedrooms or even &quot;off-premises.&quot;  And what&apos;s more, the joint was run by a group of people, including <a href="https://web.archive.org/web/20130417023932/http://www.nytimes.com/2008/07/19/nyregion/19brothel.html?ref=nyregion">one who started a voter reform advocacy group</a> after the 2000 election and a <a href="https://web.archive.org/web/20130417023932/http://www.nypost.com/seven/07192008/news/regionalnews/lap_dance_bordello_120559.htm">private police force cop</a>.  </p>
+
+<p>Undercover cops posing as men having a bachelor party were told, per the Daily News, &quot;they could have a private room - with a bed - for $250 an hour, plus whatever they spent on the women.&quot;  The club also had a &quot;house dealer of cocaine&quot; and, if you tipped, alcohol (otherwise it was BYOB).  Also, there were live sex shows and sex toys abound--all for a $50 cover and $20 membership fee, on top of whatever else one would spend.  The money was apparently laundered through lawyer Louis Posner&apos;s Voter March, and money found in Posner&apos;s and his wife&apos;s bank accounts and safe deposit boxes could allegedly be traced back to the club.  </p>
+
+<p><a href="https://web.archive.org/web/20130417023932/http://www.nypost.com/seven/07192008/news/regionalnews/lap_dance_bordello_120559.htm">The Post spoke</a> to one regular, who was upset the club was padlocked, &quot;It was f- - -ing awesome!  This was the greatest establishment.&quot;   However, some employees were thrilled; one stripper said Posner was a &quot;a sleazy, disgusting and disloyal boss.&quot;  And some neighbors in the building claimed they knew it was a den of sin, while tenant said to the Times, &apos;&#x201C;I always see beautiful ladies coming in and well-dressed guys. But I didn&#x2019;t know what it was. I heard it was for a photography studio.&#x201D;</p>
+
+<p>Besides the Posners, managers and a few women, including porn star Alexia Moore, were arrested.  The <a href="https://web.archive.org/web/20130417023932/http://www.hotlapdance.com/">website for the club</a> is extremely NSFW.</p>

@@ -1,0 +1,9 @@
+---
+author: Jen Carlson
+date: December 16, 2010  2:46 PM
+title: Real Housewife Defends Deadbeat Husband
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="1210teresa.jpg" src="https://web.archive.org/web/20110412172224im_/http://gothamist.com/attachments/arts_jen/1210teresa.jpg" width="250" height="192" class="image-right"> </span>It&apos;s been a pleasantly long time since we last heard of New Jersey&apos;s <em>Real Housewife</em> <a href="https://web.archive.org/web/20110412172224/http://gothamist.com/tags/teresaguidice">Teresa Guidice</a>, who in June was coping with her newly declared <a href="https://web.archive.org/web/20110412172224/http://gothamist.com/2010/06/08/real_housewife_looks_on_bright_side.php">bankruptcy</a>. Now <a href="https://web.archive.org/web/20110412172224/http://www.nypost.com/p/news/local/it_real_fake_8LPvHIKnHEEXsKMrhk9haL?CMP=OTC-rss&amp;FEEDNAME=">the NY Post</a> reports that the tantrum-throwing reality starlet was back in court yesterday claiming that her husband forged her name on mortgages and other documents, and that she was blissfully unaware of their financial woes. She was in front of the judge not because her husband Joe forged her name, however, but because he forged the name of an employee, a notary, <em>and</em> of his ex-business partner, who is suing him. </p>
+
+<p>The family is now $11 million in debt, but the lady of the house seems to be sticking with her deadbeat hubby, saying, &#x201C;My husband, if he had to tell me something, I&#x2019;m sure he would.&quot; The ex-business partner suing Mr. Guidice believes Teresa is just acting, and was a part of his shady scams the entire time&#x2014;but is she really that good of an actress?</p>

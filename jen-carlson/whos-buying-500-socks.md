@@ -1,0 +1,7 @@
+---
+author: Jen Carlson
+date: October 18, 2010  4:21 PM
+title: Who's Buying $500 Socks?
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="socksexpensive1010.jpg" src="https://web.archive.org/web/20110412163359im_/http://gothamist.com/attachments/arts_jen/socksexpensive1010.jpg" width="110" height="124" class="image-right"> </span>Are there really people buying $500 pairs of socks out there? <a href="https://web.archive.org/web/20110412163359/http://www.nypost.com/p/news/local/getting_hosed_U21gM19rt3h0ofNDsbEjEN">The NY Post</a> is reporting on some sort of expensive sock trend, pointing to Rodarte&apos;s $500 multicolored hand-crocheted ones (pictured), and noting most high end retailers carry something similar. One New York PR girl told the paper, &quot;They last forever, and they look amazing and feel comfortable. If you think about all the times you buy cheap socks and six months later they have holes in it, these don&apos;t.&quot; But... these crocheted socks <em>come with holes</em>, and besides, the editor of <em>Elle</em> warns, &quot;The open-toe [shoe with] sock trend is very season-specific, and by the end of the fall, the trend is most likely to look dated or pass&#xE9;.&quot;</p>

@@ -1,0 +1,23 @@
+---
+author: Jen Chung
+date: Nov 5, 2014 2:40 pm
+title: Gigi Jordan Convicted Of Killing Autistic 8-Year-Old Son 
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2014_11_gigijordan1.jpg" src="https://web.archive.org/web/20150510012053im_/http://gothamist.com/attachments/jen/2014_11_gigijordan1.jpg" width="640" height="428"> <br> <i> Gigi Jordan in 2011 (AP)</i></div> <p></p>
+
+<p>Four and a half years after an eight-year-old boy&apos;s death, his mother, Gigi Jordan, has been found guilty of killing him. Manhattan DA Cy Vance said, &quot;The jury, by its verdict of guilty to Manslaughter in the First Degree, has finally held the defendant accountable for killing her non-verbal, autistic child. Gigi Jordan showed no mercy to her son, and should receive none at the time of her sentencing.&quot;</p>
+
+<p>In February 2010, Jordan <a href="https://web.archive.org/web/20150510012053/http://www.nydailynews.com/news/crime/gigi-jordan-feeds-son-8-fatal-dose-pills-leaves-strange-2-page-note-botched-murder-suicide-article-1.194159">was found &quot;babbling incoherently&quot;</a> next to the body of her son Jude Mirra in a $2,300/night suite at the Peninsula Hotel. The room &quot;was littered with pill bottles and &#x201C;thousands&#x201D; of loose pills and scattered documents &#x2014; including a suicide note penned by Jordan,&quot; <a href="https://web.archive.org/web/20150510012053/http://nypost.com/2010/02/06/rich-ma-kills-kid-in-slay-suicide-bid/">the Post reported at the time</a>. Jordan had apparently attempted to kill herself, but she was found with a a faint pulse and revived. It was determined that Jude had been given, the DA&apos;s office said, &quot;extremely high doses of prescription medications,&quot; many of which were forced down his throat with a syringe.</p>
+
+<p>A rambling suicide note stated the Jude told her that <a href="https://web.archive.org/web/20150510012053/http://gothamist.com/2010/03/13/murder-suicide_moms_crazy_letter_re.php">he was sexually abused</a> (it&apos;s believed that Jordan actually just wrote the so-called notes from Jude). Jordan, who made millions as a health care entrepreneur, pleaded not guilty and insisted she had her reasons. <a href="https://web.archive.org/web/20150510012053/http://www.nytimes.com/2014/11/06/nyregion/gigi-jordan-found-guilty-of-manslaughter-in-death-of-autistic-son.html?partner=rss&amp;emc=rss">From the NY Times</a>:</p><blockquote>The killing, she said, was an act of mercy toward her son, who was autistic and did not speak. She testified that one ex-husband had threatened to kill her, and another ex-husband &#x2014; whom she suspected of sadistically abusing the boy &#x2014; would then gain custody.<p></p>
+
+<p>&#x201C;I didn&#x2019;t see any way out of this situation,&#x201D; she testified. &#x201C;I made a decision that I was going to end my life and Jude&#x2019;s life.&#x201D;...</p>
+
+<p>To prove Ms. Jordan acted during an extreme emotional disturbance, defense lawyers had to show not only that her state of mind was violently disturbed, but also that her emotions were reasonable and based on objective evidence. The classic law-school example is a man who grabs a gun and kills his wife immediately after finding her in bed with a friend.</p></blockquote><a href="https://web.archive.org/web/20150510012053/http://nypost.com/2014/11/05/gigi-jordan-convicted-of-manslaughter-in-death-of-autistic-son/">Prosecutors pointed out</a> that Jordan transferred money between bank accounts while her son was dying, &quot;extended her hotel stay and even calmly requested a bottle of water from room service.&quot; However, her defense lawyer Allen Brenner said, &quot;She did it because she loved Jude. He was then and remains now the one great love of her life. She did it because the burden of the torment that he had been through and the fear that she had been through became more than she could bear. She did it out of love &#x2026; she is here alone, lost, broken, awaiting your judgment, she is awash in a sea of regret, remorse, sadness, despair.&quot;<p></p>
+
+<p>The jury deliberated for four days before giving the verdict. Now Jordan faces between five and 25 years in prison. Jordan said <a href="https://web.archive.org/web/20150510012053/http://newyork.cbslocal.com/2014/10/31/cbs2-gigi-jordan-gives-one-on-one-interview-as-she-stands-trial-for-murder/">in a jailhouse interview last week</a>, &quot;There&#x2019;s no freedom for me, really, at the end of the day. I hope God can forgive me for what I did... I died the day Jude died.&quot;</p>					
+										
+									
+				

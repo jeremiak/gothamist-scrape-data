@@ -1,0 +1,19 @@
+---
+author: Ben Yakas
+date: Nov 10, 2011 11:10 am
+title: Former Butcher Who Admitted To Dismembering His Wife Gets 20 Years In Jail
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:250px; "> <img alt="111011butcher.jpg" src="https://web.archive.org/web/20150615020553im_/http://gothamist.com/attachments/byakas/111011butcher.jpg" width="250" height="304"> <br> <i>Edwin Fuentes</i></div> A former butcher and Queens resident <a href="https://web.archive.org/web/20150615020553/http://www.nydailynews.com/news/crime/butcher-convicted-chopping-wife-hiding-remains-sentenced-20-years-prison-article-1.975468">was sentenced to 20 years in prison</a> for the choking death and dismemberment of his wife. Edwin Fuentes, 44, pleaded guilty last month to choking Reina De Los Santos to death in June 2007, and then chopping her up, putting her body parts into bags, and burying them in a wooded area of Forest Park near their Woodhaven home. &#x201C;<strong>I&#x2019;m hoping that, maybe, they cut you up like you did my sister</strong>...Your mother must be turning over knowing she carried a demon like you in her womb. If it was up to me, you would go to hell,&#x201D; said the victim&apos;s sister, Marisol De Los Santos, before the plea-bargained sentencing.<p></p>
+
+<p>As part of his plea deal, Fuentes <a href="https://web.archive.org/web/20150615020553/http://articles.nydailynews.com/2011-11-01/news/30347903_1_plea-deal-cops-forest-park">had to lead police</a> to where he buried his wife&apos;s body last week. Initially, De Los Santos was reported missing by Fuentes in 2007, claiming she never returned after a night out with friends&#x2014;you can see a creepy photo of Fuentes with a <a href="https://web.archive.org/web/20150615020553/http://theforumnewsgroup.com/2011/10/27/woodhaven-man-admits-to-killing-wife-in-2007/">&quot;Missing Person&quot; sign for his wife here.</a> Fuentes even gave an interview at the time begging for her to come home, saying he was perplexed by her disappearance: &#x201C;She is a very loving and supportive mother, everyone knows that. I don&#x2019;t understand where she could be.&#x201D; </p>
+
+<p>Then in 2008, some teenagers found a suitcase holding a human skull and other remains in Forest Park. According to police reports, Fuentes admitted he was a former butcher, and when officers asked if he thought he would get away with the murder, he allegedly replied: &#x201C;I sure as hell am going to try.&#x201D;</p>
+
+<p>Fuentes and De Los Santos had two children together, including a 13-year-old girl and a son with autism. Part of the reason prosecutors struck the plea deal with him was so the 13-year-old wouldn&apos;t have to testify. Nevertheless, many were unhappy he wasn&apos;t being punished further, including the judge in the case: &#x201C;It&#x2019;s horrific. It&#x2019;s sick. I&#x2019;ve never seen anything like this. No sentence could punish him for what he did.&#x201D;</p>
+
+<p>Enrique Lugo, a director of the Corona National Community Center who was deeply involved with the search for De Los Santos and had long suspected Fuentes for the crime, <a href="https://web.archive.org/web/20150615020553/http://www.timesledger.com/stories/2011/44/fuentesfolo_all_2011_11_3_q.html">told the Times Ledger</a> there could have been a much longer sentence given: &quot;What appears to be a triumph for justice in reality is not a victory in a double-standard system when Latina women are the victims. Although I&#x2019;m not satisfied with the outcome of the trial, I will not raise the accusatory finger of what went wrong in this case.&#x201D;</p>					
+										
+									
+				

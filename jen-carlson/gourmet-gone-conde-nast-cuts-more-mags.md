@@ -1,0 +1,9 @@
+---
+author: Jen Carlson
+date: October  5, 2009 11:26 AM
+title: Gourmet GONE: Condé Nast Cuts More Mags
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="magazinecutting.jpg" src="https://web.archive.org/web/20110629092124im_/http://gothamist.com/attachments/arts_jen/magazinecutting.jpg" width="102" height="139" class="image-left"> </span>The magazine massacre rolls on at publishing empire Cond&#xE9; Nast, with the company reportedly cutting three more magazines: Gourmet, Cookie and Modern Bride. While NY1&apos;s <a href="https://web.archive.org/web/20110629092124/http://twitter.com/patkiernan/status/4628783001">Pat Kiernan is sad</a> about Cookie crumbling, the gourmands out there will not be happy with the news of the nearly 70-year-old Gourmet folding, a mag <a href="https://web.archive.org/web/20110629092124/http://mediadecoder.blogs.nytimes.com/2009/10/05/conde-nast-to-close-gourmet-magazine/">the Times</a> declares reached &quot;biblical status in the food world.&quot; </p>
+
+<p>Back in February when rumors whirled around about more cuts, Gourmet&apos;s in-house rival, Bon App&#xE9;tit&apos;s publisher Paul Jowdy, said &quot;They would never do that. They&#x2019;re both very important magazines in the culinary world, and they&#x2019;re very different magazines, and they&#x2019;re both very healthy ... if you think of two of the most prestigious, credible, trusted magazines in the industry, you&#x2019;re going to say Bon App&#xE9;tit and Gourmet.&#x201D;  Of course, prestige, credibility and trust are nothing compared to the <a href="https://web.archive.org/web/20110629092124/http://www.observer.com/2009/media/mckinsey-proffers-pie-graphs-several-conde-mags-cut-25-ish-percent">sharp blade of McKinsey consultants</a>!</p>

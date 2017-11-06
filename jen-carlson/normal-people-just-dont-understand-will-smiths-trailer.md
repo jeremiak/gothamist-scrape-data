@@ -1,0 +1,13 @@
+---
+author: Jen Carlson
+date: May 11, 2011  4:58 PM
+title: Normal People Just Don't Understand... Will Smith's Trailer
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="trailer0511mib.jpg" src="https://web.archive.org/web/20120119111502im_/http://gothamist.com/attachments/arts_jen/trailer0511mib.jpg" width="640" height="487" class="image-none"> </span></p>
+
+<p>How can you tell if <em>Men In Black III</em> is shooting in your neighborhood? Check for the massive, invasive, double-decker trailers that Will Smith is rolling around town with him. One made the <a href="https://web.archive.org/web/20120119111502/http://www.newseum.org/todaysfrontpages/hr.asp?fpVname=NY_NYP&amp;ref_pge=gal&amp;b_pge=7">front page</a> of <a href="https://web.archive.org/web/20120119111502/http://www.nypost.com/p/news/local/monster_that_ate_soho_VdW5POGj4kk2YKCD1R0g6I">the NY Post</a> today, after being parked in SoHo, about a block from the luxury apartment he&apos;s renting for $9,000/week. Maybe he&apos;s just giving <a href="https://web.archive.org/web/20120119111502/http://gothamist.com/2007/08/06/scientology_und.php">free stress tests</a> inside! </p>
+
+<p>Anyway, the portable apartment is a whopping 1,150 square feet, contains a movie room, offices, bedroom, bathroom, and marble floors throughout. Also, it&apos;s called The Heat. The 53-footer is taking up valuable parking spots, and neighbors want it out. One told the paper, &quot;This thing is like a duplex. How would Will Smith feel if I parked that thing out in front of his house? People forget this is a residential neighborhood, not a film lot&#x2014;<strong>that thing is taking up half our gasoline reserve</strong>.&quot; Apparently it smells like a gas station, according to another local, who also told the paper, &quot;I really like Will Smith, but <strong>I would be embarrassed if that was my trailer. A little modesty goes a long way.</strong>&quot; Also, there is a lounge/bar, and a totally separate 55-foot trailer housing his personal gym.  A real estate agent told the paper that&apos;s nothing compared to some of Smith&apos;s requests when looking for a rental&#x2014;allegedly &quot;he did not want to share an elevator with normal people.&quot;</p>
+
+<p>Back in happier times, <em>Men In Black III</em> was delighting Coney Island folks with a trip back <a href="https://web.archive.org/web/20120119111502/http://gothamist.com/2011/05/02/men_in_black_iii_bring_coney_island.php">to the 1960s</a>.</p>

@@ -1,0 +1,22 @@
+---
+author: Jen Chung
+date: October 30, 2008 12:20 PM
+title: Body ID'd as Missing Teacher, Husband Arrested
+---
+
+<p><img alt="2008_10_libody.jpg" src="https://web.archive.org/web/20130602061745im_/http://gothamist.com/attachments/jen/2008_10_libody.jpg" width="600" height="400"><br>
+<span class="photo_caption">Photograph of Nassau County police removing a body found in an embankment by Rick Maiman/AP</span></p>
+
+<p>Police say that the body <a href="https://web.archive.org/web/20130602061745/http://gothamist.com/2008/10/29/during_search_for_missing_woman_pol.php">discovered yesterday morning</a> in North Hills is that of teacher Leah Walsh, who had been <a href="https://web.archive.org/web/20130602061745/http://gothamist.com/2008/10/28/long_island_man_begs_for_missing_wi.php">missing since Monday morning</a>.  And her husband, Bill Walsh, was <a href="https://web.archive.org/web/20130602061745/http://www.nypost.com/seven/10292008/news/regionalnews/marital_trouble_135888.htm">arrested and charged with her murder</a>.</p>
+
+<p><img alt="2008_10_lwalsh2.jpg" src="https://web.archive.org/web/20130602061745im_/http://gothamist.com/attachments/jen/2008_10_lwalsh2.jpg" width="240" height="214" class="left">Leah Walsh, 29, never showed up to her job as a teacher to autistic children in Glen Cove; the school contacted her family, who reported her missing.  As <a href="https://web.archive.org/web/20130602061745/http://wcbstv.com/breakingnewsalerts/schoolteacher.husband.body.2.852015.html">WCBS 2 explains</a>, &quot;Her car was found -- coincidentally by her father, a bus driver who happened to be on the highway later Monday morning. Her purse was found in a ditch nearby.&quot;</p>
+
+<p>Her husband, Bill Walsh, also 29, had made tearful pleas begging for her return and hanging posters of her picture, &quot;I miss her more than anything. I need everybody&apos;s help. Anybody that could have seen anything, just let us know.&quot; However, police apparently <a href="https://web.archive.org/web/20130602061745/http://www.nypost.com/seven/10302008/news/regionalnews/teachers_husband_busted_135987.htm">found inconsistencies with his story</a> and say he lied about their marital problems.</p>
+
+<p>Leah Walsh&apos;s friend Lucas Bean told the Daily News he received text messages from her over the weekend that indicated trouble in the marriage, &quot;She told me the marriage is over. [She said] &apos;I&apos;ll tell you why when I talk to you. It&apos;s something really, really bad.&apos;  [She said] she was definitely getting a divorce, there was no way she could stay with him after what he&apos;d done.&quot;  Bean indicated that Leah Walsh found her husband had been cheating on her.  </p>
+
+<p>Hours before his arrest, Bill Walsh told WCBS 2, &quot;I don&apos;t know what to do. I just keep talking to the cops. I keep asking questions. I wish I could give them more. I don&apos;t know where to look. I don&apos;t know what to do. I just want my wife back. I miss her more than anything.&quot;</p>
+
+<p><b>Update</b>:  The Nassau County police had a press conference, saying that Walsh choked his wife to death on Sunday, fabricating the text message he received from her on Monday morning, leaving her car on the Seaford-Oyster Expressway with the flat tire and making &quot;phony emotional pleas in the media.&quot;  <a href="https://web.archive.org/web/20130602061745/http://www.newsday.com/news/local/nassau/ny-liwals1031,0,2133978.story">From Newsday</a>:</p><blockquote>Leah Walsh, 29, was killed by her husband at their Bethpage home early Sunday after he returned home from a trip to Atlantic City and the couple argued over his possible infidelity, Nassau police said.<p></p>
+
+<p>Walsh dumped her body in the woods in North Hills on Sunday night and then staged her disappearance Monday morning. His wife&apos;s body was found Wednesday.</p></blockquote>Police Commissioner Lawrence Mulvey added that Walsh &quot;should not enjoy one nanosecond of freedom for the rest of his life.&quot;  However, the suspect&apos;s family <a href="https://web.archive.org/web/20130602061745/http://wcbstv.com/breakingnewsalerts/schoolteacher.husband.body.2.852015.html">says the police coerced him</a> into confession (cops say they have a written confession) without a lawyer present.<p></p>

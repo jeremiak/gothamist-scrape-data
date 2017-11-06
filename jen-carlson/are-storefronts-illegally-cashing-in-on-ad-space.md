@@ -1,0 +1,7 @@
+---
+author: Jen Carlson
+date: March 13, 2009 10:40 AM
+title: Are Storefronts Illegally Cashing In On Ad Space?
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="0309snickers.jpg" src="https://web.archive.org/web/20110623131354im_/http://gothamist.com/attachments/arts_jen/0309snickers.jpg" width="155" height="83" class="image-right"> </span>Looks like the Mars Company has some illegal advertising going up around town, whether they know it or not. The <a href="https://web.archive.org/web/20110623131354/http://www.publicadcampaign.com/2009/03/cant-rent-your-storefront-make-it.html">Public Ad Campaign</a> spotted these ads on University Place in an otherwise empty storefront, noting that &quot;as the economic crisis leaves storefronts abandoned and landlords without income&quot; some unique ad spaces are popping up. &quot;These locations are treated by the Department of buildings the same way billboards are treated and thus require permits. If permits are not obtained the signage is considered illegal and is subject to the same fines and violations associated will illegal billboards.&quot; And guess what, this Snickers building wrap has no permits <em>and</em> is reportedly &quot;larger than most billboards even in Times Square.&quot; So would <a href="https://web.archive.org/web/20110623131354/http://gothamist.com/2009/01/19/video_poster_boy_deconstructs_billb.php">Poster Boy</a> be <em>for</em> or <em>against</em> this?</p>

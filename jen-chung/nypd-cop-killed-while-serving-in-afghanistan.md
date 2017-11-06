@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: October 24, 2008  8:25 AM
+title: NYPD Cop Killed While Serving in Afghanistan
+---
+
+<p><img alt="2008_10_dtaylor.jpg" src="https://web.archive.org/web/20110521081115im_/http://gothamist.com/attachments/jen/2008_10_dtaylor.jpg" width="115" height="136" class="right">The family of Deon Taylor, a police officer who was serving his second tour in Afghanistan, is <a href="https://web.archive.org/web/20110521081115/http://www.nydailynews.com/ny_local/2008/10/23/2008-10-23_nypd_officer_deon_l_taylor_killed_in_afg.html">now grieving his death</a>.  The Humvee that Taylor, serving with the Army National Guard, and two other soldiers were traveling in was hit by a roadside bomb.  The 30-year-old Brooklyn resident was a narcotics cop, <a href="https://web.archive.org/web/20110521081115/http://www.nypost.com/seven/10242008/news/regionalnews/nypd_hero_is_slain_in_afghanistan_135068.htm">working undercover at Brooklyn North</a>, had an 8-year-old son, and was planning an August wedding with his fiance.  His uncle, a 20-year veteran detective with the NYPD, Mo Weathers said, &quot;He wanted to do the right thing.&quot;  The Daily News reports that there are &quot;258 police officers currently on military leave&quot;--Taylor is the third to die in Iraq or Afghanistan.</p>

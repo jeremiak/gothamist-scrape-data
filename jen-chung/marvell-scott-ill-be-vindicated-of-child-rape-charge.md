@@ -1,0 +1,17 @@
+---
+author: Jen Chung
+date: Feb 25, 2010 12:15 pm
+title: Marvell Scott: I'll Be Vindicated Of Child Rape Charge
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2010_02_marvellscott.jpg" src="https://web.archive.org/web/20171010100755im_/http://gothamist.com/attachments/jen/2010_02_marvellscott.jpg" width="150" height="176" class="image-left"> </span>On Tuesday, former WABC 7 sportscaster Marvell Scott <a href="https://web.archive.org/web/20171010100755/http://gothamist.com/2010/02/24/marvell_scott_denies_rape_charge_cl.php">pleaded not guilty</a> to charges including statutory rape of a 14-year-old girl, with his lawyer claiming that he had been set up by a child prostitute and a pimp.  Now Scott is <a href="https://web.archive.org/web/20171010100755/http://www.nypost.com/p/news/local/manhattan/ex_sportscaster_denies_child_rape_92TLcqgBWTxpTxED8OSIkI">speaking out, telling the Post</a>, &quot;I will definitely be vindicated in court. I have no doubt in my mind.&quot;</p>
+
+<p>According to prosecutors, two girls&#x2014;ages 14 and 16&#x2014;ran away from upstate New York and were out of cash when they met a pimp in Times Square. The pimp then allegedly made a deal with Scott for the two girls, and Scott took the girls to his apartment on West 47th Street, where he allegedly assaulted the younger one.  But Scott says he <a href="https://web.archive.org/web/20171010100755/http://www.nypost.com/p/news/local/manhattan/ex_sportscaster_denies_child_rape_92TLcqgBWTxpTxED8OSIkI">only invited the girls to his home</a> because &quot;one of the girls was crying profusely. She was obviously in great distress. <strong>I&#x2019;m, in the medical profession, for me if you stop on the street and see someone in distress, it is not uncommon to try and find out what is going on.</strong>&quot; </p>
+
+<p>He said something <a href="https://web.archive.org/web/20171010100755/http://www.nydailynews.com/news/ny_crime/2010/02/24/2010-02-24_marvell_scott__charged_with_raping_14yearold_hooker_claims_he_tried_to_help_not_.html">similar to the Daily News </a>, adding that the girl asked to use his bathroom, &quot;If the girl wasn&apos;t in some sort of immediate distress, I wouldn&apos;t have invited her up. I was trying to get to the bottom of why she was in so much distress and why she was crying. I&apos;m a medical doctor. For me to lend a helping hand, it&apos;s not abnormal... It&apos;s pretty obvious that [the pimp] sent the girls to make money from me any way they could.&quot;</p>
+
+<p>Scott points out he gave a sample of his DNA, which didn&apos;t match evidence (prosecutors say he used a condom), and says that the reason why he called the pimp a few days after the alleged incident will &quot;come out when the time is right&quot; (prosecutors say Scott was inquiring about seeing the 14-year-old again). He added to the Post that this case was hurting his attempts to start a sports medicine practice, &quot;It&#x2019;s going to be a challenge getting through this. I&#x2019;m not like Tiger Woods, I can&#x2019;t just stand through it and let it end. I have the same challenges that many other people would.&quot;</p>					
+										
+									
+				

@@ -1,0 +1,15 @@
+---
+author: Jen Chung
+date: May 13, 2010  6:06 PM
+title: Jets, Giants Make 2014 Super Bowl Pitch
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="2010_05_elimark.jpg" src="https://web.archive.org/web/20111212013102im_/http://gothamist.com/attachments/jen/2010_05_elimark.jpg" width="640" height="499"> <br> <i>Photograph of Giants quarterback Eli Manning and Jets quarterback Mark Sanchez by Bill Kostroun/AP</i></div> <p></p>
+
+<p>Yesterday, the Jets and Giants presented their <a href="https://web.archive.org/web/20111212013102/http://gothamist.com/2010/02/26/will_new_yorkernew_jerseyhost_the_s.php">bid for the 2014 Super Bowl</a>.  Jets owner Woody Johnson <a href="https://web.archive.org/web/20111212013102/http://www.nydailynews.com/sports/football/2010/05/12/2010-05-12_giants_and_jets_unveil_joint_super_bowl_bid.html">said</a>, &quot;One thing we really know how to do in New York, we know how to deal with snow. We may not be doing everything really well, but snow we know how to deal with. We know snow. We&apos;ll be lucky if it snows. It probably won&apos;t snow, but we can always hope, right?&quot;</p>
+
+<p>Giants quarterback Eli Manning said <a href="https://web.archive.org/web/20111212013102/http://www.newsday.com/sports/football/giants/jets-giants-kick-off-bid-to-host-2014-super-bowl-1.1908439">one of his most memorable games</a> was the <a href="https://web.archive.org/web/20111212013102/http://gothamist.com/2008/01/20/giants_bag_pack.php">frigid, below-zero NFC Championship</a> at Lambeau Field in 2008, &quot;It&apos;s one of my all-time favorite games. Not just because it was the NFC Championship Game. It was being in Green Bay, playing a game in negative 20 degrees. All those factors make a game special... Those experiences make a game more special. They make it memorable for players and for fans.&quot;</p>
+
+<p>But will fans, who pay big bucks for tickets, want to sit in a freezing stadium?  The Daily News reports, &quot;The plan includes handing out hand and feet-warmers to fans, having thousands of blankets ready to be distributed,&quot; plus having heated seat cushions and &quot;1,000 people standing by with shovels to clear the stadium and parking lot, if needed. Both Super Bowl teams will have indoor practice facilities (at the Jets&apos; and Giants&apos; training complexes).&quot; </p>
+
+<p>NFL owners will vote on May 25 on having the game either in NYC, Tampa or South Florida. <a href="https://web.archive.org/web/20111212013102/http://www.nytimes.com/2010/05/13/sports/football/13nfl.html">According to the NY Times</a>, &quot;If none of the three cities receive 75 percent of the vote (24 of the 32 owners) on the first ballot &#x2014; no one can recall a site winning on the first ballot &#x2014; the bid with the fewest votes will be eliminated and the winner will be determined by simple majority on the second ballot.&quot;</p>

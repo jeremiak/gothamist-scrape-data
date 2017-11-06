@@ -1,0 +1,7 @@
+---
+author: Jen Carlson
+date: September  3, 2010  3:11 PM
+title: Google Confirms Bed Bugs
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="googlebug.jpg" src="https://web.archive.org/web/20110611045138im_/http://gothamist.com/attachments/arts_jen/googlebug.jpg" width="140" height="92" class="image-right"> </span>A spokeswoman at the company has confirmed <a href="https://web.archive.org/web/20110611045138/http://gothamist.com/2010/09/02/google_hq.php">yesterday&apos;s reports</a> that the Google offices in New York have become the latest stomping ground for bed bugs. <a href="https://web.archive.org/web/20110611045138/http://blogs.wsj.com/metropolis/2010/09/03/bedbugs-infest-googles-new-york-office/">The Wall Street Journal</a> reports that she said: &#x201C;Like several other businesses in New York City, we&#x2019;ve discovered bedbugs in a small area of our office. We have notified employees and are taking steps to treat the affected area.&#x201D; The 9th Avenue offices are filled with toys like Lego sets... and ball pits. <em>What will happen to <a href="https://web.archive.org/web/20110611045138/http://www.flickr.com/photos/reelgeek/3244670041/">the ball pits</a>!</em> Google Employees, a tip for your holiday weekend: don&apos;t Google anything bed bug related, it&apos;s not worth the trauma!</p>

@@ -1,0 +1,28 @@
+---
+author: Emma Whitford
+date: Jan 26, 2016 1:40 pm
+title: We've Reached The "Passive-Aggressive Note" Phase Of Blizzard Cleanup
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="012616_Snow.jpeg" src="https://web.archive.org/web/20160708075909im_/http://gothamist.com/attachments/nyc_ewhitford/012616_Snow.jpeg" width="640" height="358"> <br> <i>(via <a href="https://web.archive.org/web/20160708075909/https://twitter.com/Mottel">@Mottel</a>)</i></div> <p></p>
+
+<p>The snow mounds piled up at the corner of Crown and Albany Streets in Crown Heights on Monday were formidable, but the sidewalk would have been completely impassible were it not for the work of one brave, anonymous young hero. &quot;THIS PATH WAS MADE BY AN UNKNOWN YOUNG WOMAN WITH HER OWN SHOVEL AND NO HELP FROM ANYONE,&quot; a sign stuck into the snow declared in all-caps. &quot;THANK YOU FOR MAKING THIS CROSSING POSSIBLE!&quot; </p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="012616sign.jpg" src="https://web.archive.org/web/20160708075909im_/http://gothamist.com/attachments/nyc_arts_john/012616sign.jpg" width="640" height="602"> <br> <i> (via <a href="https://web.archive.org/web/20160708075909/https://twitter.com/Mottel">@Mottel</a>)</i></div> <p></p>
+
+<p>Brooklyn Rabbi Mordechai Lightstone, who took the photo above, told us that the corner had been obstructed by a mountain of snow, <a href="https://web.archive.org/web/20160708075909/http://gothamist.com/2016/01/25/clearing_snow_for_cars.php">one of many</a> city-wide likely created by a Sanitation Department plow. The cleared path was just wide enough for a stroller, he estimated.</p>
+
+<p>While some citizens lashed out at the City for its <a href="https://web.archive.org/web/20160708075909/http://gothamist.com/2016/01/25/clearing_snow_for_cars.php">perceived prioritization of car owners</a> over pedestrians, others publicly <a href="https://web.archive.org/web/20160708075909/https://www.dnainfo.com/new-york/20160125/park-slope/park-slope-shames-slow-snow-shovelers-on-social-media">shamed business owners</a> for failing to address the drifts outside their shops. And car owners were at each other&apos;s throats.</p>
+
+<p>Gothamist videographer Jessica Leibowitz returned home on Monday night to a Rolling Stone subscription form on her windshield scrawled with an anonymous, &quot;Thank you can&apos;t even see my car now.&quot; Leibowitz shoveled our her car on Sunday, and believes the anonymous note-leaver might own the car that&apos;s been parked behind her. &quot;We were talking to the neighbors about how there&#x2019;s no place to put the snow,&quot; she recalled. &quot;Some got in the street but we tried to keep it between the cars or on the snow piled on the sidewalk.&quot; </p>
+
+<blockquote class="instagram-media" data-instgrm-captioned="" data-instgrm-version="6" style=" background:#FFF; border:0; border-radius:3px; box-shadow:0 0 1px 0 rgba(0,0,0,0.5),0 1px 10px 0 rgba(0,0,0,0.15); margin: 1px; max-width:658px; padding:0; width:99.375%; width:-webkit-calc(100% - 2px); width:calc(100% - 2px);"><div style="padding:8px;"> <div style=" background:#F8F8F8; line-height:0; margin-top:40px; padding:50.0% 0; text-align:center; width:100%;"> <div style=" background:url(data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAACwAAAAsCAMAAAApWqozAAAAGFBMVEUiIiI9PT0eHh4gIB4hIBkcHBwcHBwcHBydr+JQAAAACHRSTlMABA4YHyQsM5jtaMwAAADfSURBVDjL7ZVBEgMhCAQBAf//42xcNbpAqakcM0ftUmFAAIBE81IqBJdS3lS6zs3bIpB9WED3YYXFPmHRfT8sgyrCP1x8uEUxLMzNWElFOYCV6mHWWwMzdPEKHlhLw7NWJqkHc4uIZphavDzA2JPzUDsBZziNae2S6owH8xPmX8G7zzgKEOPUoYHvGz1TBCxMkd3kwNVbU0gKHkx+iZILf77IofhrY1nYFnB/lQPb79drWOyJVa/DAvg9B/rLB4cC+Nqgdz/TvBbBnr6GBReqn/nRmDgaQEej7WhonozjF+Y2I/fZou/qAAAAAElFTkSuQmCC); display:block; height:44px; margin:0 auto -44px; position:relative; top:-22px; width:44px;"></div></div> <p style=" margin:8px 0 0 0; padding:0 4px;"> <a href="https://web.archive.org/web/20160708075909/https://www.instagram.com/p/BA-8U_dgJPr/" style=" color:#000; font-family:Arial,sans-serif; font-size:14px; font-style:normal; font-weight:normal; line-height:17px; text-decoration:none; word-wrap:break-word;" target="_blank">An anonymous neighbor blamed the blizzard on me. Guess he&apos;s not renewing his Rolling Stone subscription.</a></p> <p style=" color:#c9c8cd; font-family:Arial,sans-serif; font-size:14px; line-height:17px; margin-bottom:0; margin-top:8px; overflow:hidden; padding:8px 0 7px; text-align:center; text-overflow:ellipsis; white-space:nowrap;">A photo posted by Jessica Leibowitz (@jssica) on <time style=" font-family:Arial,sans-serif; font-size:14px; line-height:17px;" datetime="2016-01-26T01:16:19+00:00">Jan 25, 2016 at 5:16pm PST</time></p></div></blockquote>
+<script async defer src="//web.archive.org/web/20160708075909js_/http://platform.instagram.com/en_US/embeds.js"></script>
+
+<p>&quot;Don&apos;t tell me you can&apos;t see your car,&quot; she challenged retrospectively. &quot;I couldn&apos;t see<em> my</em> car.&quot; </p>
+
+<p>The silver lining: the sun is reaching its Tuesday zenith, and you&apos;re probably already <a href="https://web.archive.org/web/20160708075909/http://gothamist.com/2016/01/26/slush_olympiad_nyc.php">knee deep in a slush lagoon</a>. And D.C., as always, is somehow more insufferable. </p>					
+										
+									
+				

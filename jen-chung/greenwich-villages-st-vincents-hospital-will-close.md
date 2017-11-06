@@ -1,0 +1,19 @@
+---
+author: Jen Chung
+date: Apr 7, 2010 6:52 am
+title: Greenwich Village's St. Vincent's Hospital Will Close
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2010_04_stvin.jpg" src="https://web.archive.org/web/20160523204553im_/http://gothamist.com/attachments/jen/2010_04_stvin.jpg" width="200" height="285" class="image-left"> </span>The board of directors of St. Vincent&apos;s Medical Centers decided to close its <a href="https://web.archive.org/web/20160523204553/http://gothamist.com/tags/stvincents">Greenwich Village location</a>, after months of trying to find a way to stay afloat. According to a press release (see below), all &quot;inpatient services including all acute, rehab, and behavioral health&quot; will be closed, but &quot;the other facilities and programs&quot;&#x2014;like its Cancer Center and the HIV/AIDS Center&#x2014;&quot;of Saint Vincent Catholic Medical Centers will continue as the organization seeks new sponsorship to operate them as continuing service providers.&quot;</p>
+
+<p>The <a href="https://web.archive.org/web/20160523204553/http://www.nytimes.com/2010/04/07/nyregion/07vincents.html?ref=nyregion">NY Times reports</a>, &quot;With its vote, the board effectively closed the last Roman Catholic general hospital in New York, a beacon in Greenwich Village that has treated victims of calamities from the sinking of the Titanic to Sept. 11. In recent years, its management troubles were worsened by the difficult economics of the health care industry, changes in the fabric of a historic neighborhood and the low profit in religious work.&quot;</p>
+
+<p>Last week, after Mt. Sinai Hospital announced it <a href="https://web.archive.org/web/20160523204553/http://gothamist.com/2010/04/02/mt_sinai_decides_against_saving_st.php">would not enter a partnership</a> with St. Vincent&apos;s, chances for saving the institution seemed slim.  Governor Paterson said, &quot;While we are disappointed that we were unable to find a partner for the acute care inpatient services, we should use this as an opportunity to ensure that the health care needs of this community are met by creating an urgent care center combined with other vital health care services the community needs. To that end, I have directed the Department of Health to solicit proposals for this new model of care.&quot;</p>
+
+<p>Here&apos;s the press release:</p><blockquote>The Board of Directors of Saint Vincent Catholic Medical Centers (Saint Vincent&#x2019;s) reluctantly voted to authorize the closure of St. Vincent&#x2019;s Hospital Manhattan inpatient services including all acute, rehab, and behavioral health.  The vote came after a six-month long effort to save the financially troubled institution, which has operated in the Village for over 160 years. The closure only affects St. Vincent&#x2019;s Hospital Manhattan inpatient services- the other facilities and programs of Saint Vincent Catholic Medical Centers will continue as the organization seeks new sponsorship to operate them as continuing service providers.      <p></p>
+
+<p>&#x201C;The decision to close St. Vincent&#x2019;s Hospital Manhattan inpatient services was made only after the board, management and our advisors exhausted every possible alternative,&#x201D; said Alfred E. Smith IV, Chairman of the Board of Saint Vincent Catholic Medical Centers. &#x201C;We are deeply saddened that we were unable to come up with a viable plan to save the inpatient services at the hospital that has proudly served Manhattan&#x2019;s West Side and Downtown for 160 years.&#x201D; </p></blockquote><p></p>					
+										
+									
+				

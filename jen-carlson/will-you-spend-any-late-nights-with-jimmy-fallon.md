@@ -1,0 +1,17 @@
+---
+author: Jen Carlson
+date: Mar 3, 2009 1:55 pm
+title: Will You Spend Any Late Nights with Jimmy Fallon?
+---
+
+	
+										<p>So, <a href="https://web.archive.org/web/20150405014136/http://gothamist.com/2009/02/19/fallons_new_studio_is_sue_simmonss.php"><em>Late Night with Jimmy Fallon</em></a>. Aside from the mannerisms we loved to hate when he was on SNL (talking too fast, constant fidgeting, laughing at his own jokes), how did he do on his first night filling Conan&apos;s big shoes? If you made it through the &quot;Lick it for Ten&quot; game, in which Our Host brings up three audience members to lick sponsor products for ten bucks, then you may have seen that the kid did alright! Yes expectations were low, but the general consensus is that Fallon is going to do his job well. You can <a href="https://web.archive.org/web/20150405014136/http://www.nbc.com/late-night-with-jimmy-fallon/video/episodes/?vid=1049062#vid=1049062">watch the full episode here</a>.</p>
+
+<center><object type="application/x-shockwave-flash" data="https://web.archive.org/web/20150405014136im_/http://widgets.nbc.com/o/4727a250e66f9723/49ad7516b95e00d5/49ad3d6883cd7e09/9df363a/-cpid/997ff580ee0eabee" id="W4727a250e66f972349ad7516b95e00d5" width="384" height="283"><param name="movie" value="http://widgets.nbc.com/o/4727a250e66f9723/49ad7516b95e00d5/49ad3d6883cd7e09/9df363a/-cpid/997ff580ee0eabee"><param name="wmode" value="transparent"><param name="allowNetworking" value="all"><param name="allowScriptAccess" value="always"></object></center>
+
+<p>Okay, so the Robert De Niro interview was awkward/painful/confusing, but once Justin Timberlake (<a href="https://web.archive.org/web/20150405014136/http://www.mypartypost.com/watchvideo/2611/SNL-_The_Barry_Gibb_Talk_Show">his old fake talk show co-host</a>) hit the stage, the show seemed to hit its stride (sidenote: JT should seriously consider being the Andy to Jimmy&apos;s Conan, he maybe have saved the show last night&#x2014;clip after the jump). <a href="https://web.archive.org/web/20150405014136/http://gawker.com/5163323/best-of-jimmy-fallons-first-late-night">Gawker</a> has some of the high points (the Slow News Jam with the Roots, clip above, was a definite winner), and overall says the show has some promise. <a href="https://web.archive.org/web/20150405014136/http://www.hollywoodreporter.com/hr/tv-reviews/tv-review-late-night-with-jimmy-fallon-1003946915.story">The Hollywood Reporter</a> follows that tune, saying the show &quot;displays the host&apos;s charm and potential.&quot; <a href="https://web.archive.org/web/20150405014136/http://tunedin.blogs.time.com/2009/03/03/jimmy-fallon-thinks-you-are-awesome-america/">TIME</a> also says Fallon showed &quot;glimmers of potential.&quot; Maybe he really <em>did</em> <a href="https://web.archive.org/web/20150405014136/http://www.eatmedaily.com/2009/03/setting-rachael-ray-on-fire-video/#more-11431">win people over</a> by setting Rachael Ray on fire.</p>
+
+<center><script type="text/javascript" charset="utf-8" language="javascript" src="https://web.archive.org/web/20150405014136js_/http://static.polldaddy.com/p/1421789.js"></script><noscript> <a href="https://web.archive.org/web/20150405014136/http://answers.polldaddy.com/poll/1421789/">How did Jimmy Fallon do on his first night as a talk show host?</a>  <br/> <span style="font-size:9px;"> (<a href="https://web.archive.org/web/20150405014136/http://www.polldaddy.com/">  surveys</a>)</span></noscript></center>					
+										
+									
+				

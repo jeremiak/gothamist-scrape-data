@@ -1,0 +1,19 @@
+---
+author: Ben Yakas
+date: Sep 4, 2011 3:25 pm
+title: How To Fight Obesity? Maybe Try Smoking Marijuana
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="9411pot.jpg" src="https://web.archive.org/web/20160617135333im_/http://gothamist.com/attachments/byakas/9411pot.jpg" width="640" height="424"> <br> <i><a href="https://web.archive.org/web/20160617135333/http://www.flickr.com/photos/thechickenkid/3996439715/">sea kay&apos;s flickr</a></i></div> <p></p>
+
+<p>The rapture is still <a href="https://web.archive.org/web/20160617135333/http://www.familyradio.com/x/whathappened.html">right around the corner</a>, but even if we somehow get past that cataclysmic event, America has other problems&#x2014;like the fact that half the population <a href="https://web.archive.org/web/20160617135333/http://gothamist.com/2011/08/31/study_half_of_america_will_obese_by.php">will be obese by 2030</a>. But there may be a solution: start smoking <a href="https://web.archive.org/web/20160617135333/http://gothamist.com/tags/marijuana">marijuana</a>! </p>
+
+<p>That&apos;s what <a href="https://web.archive.org/web/20160617135333/http://bodyodd.msnbc.msn.com/_news/2011/09/01/7562355-pot-smokers-skinnier-than-non-tokers-study-says">new research out of France suggests</a>, although researchers decidedly do not recommend that course. Because marijuana increases appetite, researchers hypothesized that users would be more obese than non users. But they discovered the opposite: &quot;We found that cannabis users are less likely to be obese than non-users. We were so surprised, we thought we had [made] a mistake. Or that our results were due to the sample we studied. So we turned to another completely independent sample and found exactly the same association,&quot; says Dr. Yann Le Strat, a psychiatrist at Louis-Mourier Hospital in Colombes, France and co-author of a new study in the American Journal of Epidemiology. </p>
+
+<p><a href="https://web.archive.org/web/20160617135333/http://www.nydailynews.com/lifestyle/health/2011/09/04/2011-09-04_marijuana_smokers_are_thinner_less_likely_to_be_obese_than_nonsmokers_according_.html">Obesity rates among participants</a> in the two surveys who didn&apos;t smoke pot were 22 percent and 25.3 percent; those who do smoking pot at least three days a week had obesity rates of 14.3 percent and 17.2 percent. Le Strat warns that there could be &quot;confounding factors&quot;&#x2014;pot users might exercise more, be outdoors more, eat more fruits and vegetables&#x2014;and doesn&apos;t think the take-home message should be &apos;smoke cannabis, it will help you lose weight.&apos; </p>
+
+<p>But Andrea Giancoli, a Los Angeles-based registered dietitian and spokesperson for the American Dietetic Association, says that maybe it&apos;s time we started thinking differently about the typical pot head: &quot;I know when we think about smoking pot, one of the jokes is that it gives you the munchies and dry mouth so you drink a bunch of water and eat a bunch of Cheetos. Maybe we need to adjust the stereotype.&quot; And while neither Le Strat nor Giancoli recommend people start smoking pot to lose weight, we can&apos;t help but wonder what might happen if <a href="https://web.archive.org/web/20160617135333/http://gothamist.com/2011/07/29/chris_christie_i_weigh_too_much_bec.php">a certain overweight Governor stayed away from</a> the helicopters, fatty foods, and beaches for awhile and got in touch with his <a href="https://web.archive.org/web/20160617135333/http://gothamist.com/tags/snoopdogg">inner Snoop Dogg.</a></p>					
+										
+									
+				

@@ -1,0 +1,11 @@
+---
+author: Jen Carlson
+date: February 22, 2011  5:27 PM
+title: Knock Knock: It's Lady Porn Day!
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="ladypornday0211a.jpg" src="https://web.archive.org/web/20110225191159im_/http://gothamist.com/attachments/arts_jen/ladypornday0211a.jpg" width="365" height="408" class="image-right"> </span>It&apos;s so hard to keep up with all the holidays lately. Today is <a href="https://web.archive.org/web/20110225191159/http://gothamist.com/2011/02/22/national_margarita_day_happy.php">Margarita Day</a> <em>and</em> <a href="https://web.archive.org/web/20110225191159/http://gothamist.com/2011/02/22/puppy_fans_save_this_puppy.php">Spay Day</a>... and we went through most of the day not even knowing it&apos;s also Lady Porn Day! </p>
+
+<p><a href="https://web.archive.org/web/20110225191159/http://thehairpin.com/2011/02/happy-lady-porn-day/">The Hairpin</a> has the rundown and says this holiday was made official by Rachel Rabbit White, who created it with her very own imagination. But why? White says it&apos;s &quot;a day about exploring porn and masturbation. Because It&#x2019;s tough trying to explore porn as a girl... ask your friends: &apos;hey what do you think about porn&#x2014;and what sites can you recommend?&apos;&quot; (Pro tip: Prefacing your question by letting your friend know it&apos;s Lady Porn Day will make things slightly less awkward.)</p>
+
+<p>The holiday comes with <a href="https://web.archive.org/web/20110225191159/http://rabbitwrite.com/ladypornday/">a website</a> (that ironically features zero lady porn, but plenty of NSFW links), helpful <a href="https://web.archive.org/web/20110225191159/http://twitter.com/#!/rabbitwhite">Tweets from White</a>, and all the bandwidth you can handle, courtesy of your internet provider. We suggest you also order a pizza... because <a href="https://web.archive.org/web/20110225191159/http://www.youtube.com/watch?v=mXvxCAlwTE0"><em>you never know</em></a>.</p>

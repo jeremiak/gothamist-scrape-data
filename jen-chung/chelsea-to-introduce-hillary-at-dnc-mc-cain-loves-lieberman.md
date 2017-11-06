@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: August 10, 2008  1:53 PM
+title: Chelsea to Introduce Hillary at DNC, McCain Loves Lieberman
+---
+
+<p><img alt="2008_08_chelsea.jpg" src="https://web.archive.org/web/20110521105902im_/http://gothamist.com/attachments/jen/2008_08_chelsea.jpg" width="95" height="119" class="right">The <a href="https://web.archive.org/web/20110521105902/http://www.nydailynews.com/news/politics/2008/08/09/2008-08-09_chelsea_clinton_not_bill_clinton_to_intr.html">Daily News reports</a> that Hillary Clinton&apos;s Democratic National Convention appearance will be introduced not by former president Bill but daughter Chelsea. The former First Daughter was active in campaigning for her mother, winning kudos for her poise. And apparently it was Hillary&apos;s idea--a source said, &quot;<b>[Barack Obama] has a problem with Hillary&apos;s more fanatical women supporters, and this is a way to help with that</b>.&quot;  And in other campaign news, the a <a href="https://web.archive.org/web/20110521105902/http://www.clevelandleader.com/node/6383">Financial Times source claims</a> McCain has added <strong>Joe Lieberman to the VP shortlist</strong>, &quot;[McCain] loves Lieberman. And he is on the [short]list because Lieberman has never embarrassed anyone, never misspoken. The first rule is, don&apos;t take anyone who costs you votes.&quot;</p>

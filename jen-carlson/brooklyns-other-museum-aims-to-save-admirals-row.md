@@ -1,0 +1,11 @@
+---
+author: Jen Carlson
+date: October  4, 2009  3:47 PM
+title: Brooklyn's Other Museum Aims to Save Admiral's Row
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="phpYlS2QOPM.jpg" src="https://web.archive.org/web/20110629204119im_/http://gothamist.com/attachments/arts_jen/phpYlS2QOPM.jpg" width="251" height="350" class="image-right"> </span>For two hours a week, there&apos;s a museum off the BQE that opens its doors and fights for the preservation of <a href="https://web.archive.org/web/20110629204119/http://gothamist.com/tags/admiralsrow">Admiral&apos;s Row</a> in the Brooklyn Navy Yard. <a href="https://web.archive.org/web/20110629204119/http://www.nytimes.com/2009/10/03/nyregion/03metjournal.html?_r=1&amp;ref=nyregion">The NY Times</a> reports on Scott Witter&apos;s cause, which is displayed on a sign in his museum; it reads: &#x201C;Don&#x2019;t let Pirate Mike steal our heritage.&#x201D; </p>
+
+<p><a href="https://web.archive.org/web/20110629204119/http://www.brooklynsothermuseumofbrooklyn.com/">Brooklyn&#x2019;s Other Museum of Brooklyn</a> (B.O.M.B.) is located at 109 Hall Street, and comes to life Tuesday nights (7 to 9 p.m.), featuring &quot;a collection of somewhat random artifacts including porcelain smoking pipes dug from a nearby backyard and an almost-drivable 1920 Briggs &amp; Stratton Flyer.&quot; Witter adds: &#x201C;The museum is dedicated to landmarking and preserving Admiral&#x2019;s Row and the sane development of Brooklyn. But the stuff in the museum is just the stuff in the museum.&#x201D;</p>
+
+<p>As the city moves forward in taking control of Admiral&apos;s Row from the National Guard, with plans to demolish 9 of the 11 buildings in order to make room for a parking lot and <a href="https://web.archive.org/web/20110629204119/http://gothamist.com/2009/05/27/admirals_row_update.php">supermarket</a>, Witter hopes to turn back time and <a href="https://web.archive.org/web/20110629204119/http://gothamist.com/2009/02/02/inside_admirals_row.php">save the houses</a>; believing the government is in violation of the National Historic Preservation Act process. Until Admiral&apos;s Row is landmarked he vows to keep his museum up and running.</p>

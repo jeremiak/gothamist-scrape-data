@@ -1,0 +1,21 @@
+---
+author: Nell Casey
+date: Mar 18, 2016 11:15 am
+title: Korean Chicken & Waffles Will Sate Your Hungry Belly This Weekend
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="031816waffles.jpeg" src="https://web.archive.org/web/20161108043223im_/http://gothamist.com/attachments/nyc_nellcasey/031816waffles.jpeg" width="640" height="480"> <br> <i> (courtesy Yooeating)</i></div> <p></p>
+
+<p>Even if you&apos;ve got <em>Cafe Bustelo 4evr</em> tattooed on your eyelids, take a day to embrace the finer side of caffeination at the <strong><a href="https://web.archive.org/web/20161108043223/http://www.coffeeandteafestival.com/nyc/">NYC Coffee and Tea Festival</a></strong> this Saturday and Sunday. From pour-overs to cold brews, aeropress to percolators, just about every style of brewed coffee will be served up and sipped thanks to 60+ vendors. As you make your way through the crowd, admiring the subtle blueberry undertones of a biodynamic Colombian roast, there will also be seminars on everything from tea blending to Turkish coffee, and a latte art throwdown amongst some of the best baristas from across the country. The two-day extravaganza is expecting thousands of attendees, but if you&apos;ve only got an hour or two, consider getting a &quot;rush hour&quot; ticket to get in, get buzzed, and get out in record time. <a href="https://web.archive.org/web/20161108043223/http://www.coffeeandteafestival.com/nyc/tickets.html">Tickets $10 - $35</a>. <em>(Scott Heins)</em></p>
+
+<p>A Korean take on chicken and waffles is popping up at Williamsburg&apos;s <a href="https://web.archive.org/web/20161108043223/http://www.reclamationbarbrooklyn.com/">Reclamation Bar</a> on Saturday evening. Irene Yoo of <a href="https://web.archive.org/web/20161108043223/http://www.yooeating.com/">Yooeating</a> takes inspiration from LA institution Roscoe&apos;s Chicken N&apos; Waffles, making a <strong>Pork N&apos; Waffles</strong> with fried pork cutlet on kimchi scallion waffles. &quot;Donkatsu is one of my dad&apos;s favorite dishes&#x2014;a Korean adaptation of the Japanese tonkatsu, a kind of schnitzel that&apos;s usually served with rice and a sweet and tangy brown gravy,&quot; Yoo says. She&apos;s serving her version with donkatsu sauce and sambal maple syrup, plus sides including Korean chive &quot;coleslaw&quot;, soy pickled jalapenos, and kkadugi (radish kimchi). The pop-up runs from 6 p.m. until 9p.m.; cash only.</p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="031816freud.jpeg" src="https://web.archive.org/web/20161108043223im_/http://gothamist.com/attachments/nyc_nellcasey/031816freud.jpeg" width="640" height="427"> <br> <i> (courtesy Freud)</i></div> <p></p>
+
+<p>New <a href="https://web.archive.org/web/20161108043223/http://gothamist.com/2016/02/11/freud_greenwich_village.php#photo-1">Austrian eatery</a> <a href="https://web.archive.org/web/20161108043223/http://www.freudnyc.com/">Freud</a> <strong>takes on eggs</strong> starting this weekend with the launch of their new brunch service. On the menu, Eggs Baked en Cocotte with braised chicken and mushrooms or Poached Eggs with house-smoked seabass, rye and sauce Bavaroise. The classic BEC gets a shakeup here with a Vegetarian Breakfast Sandwich with cauliflower, egg, 5 spoke Tumbleweed cheese and smoked onions on a Kaiser roll. </p>
+
+<p>Serious ballers only need show up for this Sunday&apos;s <strong><a href="https://web.archive.org/web/20161108043223/http://thetakedowns.com/brooklynmeatballtd16/">Brooklyn Meatball Takedown</a></strong>, the next in the series of home-cook culinary showdowns. Balls of all shapes, sizes and proteins will be vying to be the best balls in the borough from noon until 2 p.m. at the <a href="https://web.archive.org/web/20161108043223/http://www.royalpalmsshuffle.com/">Royal Palms</a>. Stuff lots of balls in your mouth <a href="https://web.archive.org/web/20161108043223/http://www.brownpapertickets.com/event/2511752">with a $20 ticket</a> and be prepared to determine which balls dominate the competition. </p>					
+										
+									
+				

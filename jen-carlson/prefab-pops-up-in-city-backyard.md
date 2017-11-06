@@ -1,0 +1,7 @@
+---
+author: Jen Carlson
+date: August 27, 2008  5:01 PM
+title: Prefab Pops Up in City Backyard
+---
+
+<p><img alt="08kithaus.jpg" src="https://web.archive.org/web/20110624102717im_/http://gothamist.com/attachments/arts_jen/08kithaus.jpg" width="130" height="97" class="right">Sure, there&apos;s a lot of prefab housing on display <a href="https://web.archive.org/web/20110624102717/http://gothamist.com/2008/07/15/fabricating_the_modern_dwelling_in.php">at MoMA</a> right now, but have you seen any of the modular structures inhabited in New York? Design*Sponge points out <a href="https://web.archive.org/web/20110624102717/http://www.kithaus.com/">a Kithaus</a> in Williamsburg, whose &quot;location required each module to be carried, by hand, through a 3 story brick rowhouse. The builders then added custom decks and wedged it in between warehouses and light industrial buildings to create this compact urban oasis.&quot; Prepare to be jealous as you feast your eyes <a href="https://web.archive.org/web/20110624102717/http://www.designspongeonline.com/2008/08/kithaus-brooklyn.html">upon the results</a>. If you want one of your own, a basic kit runs around $40K. [via <a href="https://web.archive.org/web/20110624102717/http://www.brownstoner.com/brownstoner/archives/2008/08/designsponge_ch.php">Brownstoner</a>]</p>

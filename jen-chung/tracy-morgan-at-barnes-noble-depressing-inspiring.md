@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: October 23, 2009  1:19 PM
+title: Tracy Morgan At Barnes & Noble: "Depressing," "Inspiring"
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2009_10_tmord.jpg" src="https://web.archive.org/web/20110629174543im_/http://gothamist.com/attachments/jen/2009_10_tmord.jpg" width="80" height="79" class="image-right"> </span>Gawker readers weigh in on Tracy Morgan&apos;s Barnes &amp; Noble appearance, for his new book <a href="https://web.archive.org/web/20110629174543/http://www.amazon.com/Am-New-Black-Tracy-Morgan/dp/0385527772/?tag=gothamist03-20">I Am The New Black</a>.  <a href="https://web.archive.org/web/20110629174543/http://gawker.com/5388586/tracy-morgans-book-reading-wasnt-the-laugh-fest-youd-expect">One says</a>, &quot;Wow. I wasn&apos;t expecting him to dance like a monkey, but neither was I expecting to leave the bookstore depressed... At one point, while talking about his father and his mother, he broke down crying,&quot; while another says, &quot;I left feeling slightly inspired. He spoke at length about how we need to interact more as a community, that we need to get off the computer and stop listening to our iPods and interact with fellow New Yorkers.&quot;</p>

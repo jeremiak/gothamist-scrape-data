@@ -1,0 +1,11 @@
+---
+author: Jen Carlson
+date: April  7, 2011 10:32 AM
+title: A Cursed (Allegedly!) Men In Black III Returns To Queens
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-right" style=" width:365px; "> <img alt="mib3queens0411.jpg" src="https://web.archive.org/web/20110409081510im_/http://gothamist.com/attachments/arts_jen/mib3queens0411.jpg" width="365" height="242"> <br> <i><span class="photo_caption">Original photo via <a href="https://web.archive.org/web/20110409081510/http://www.flickr.com/photos/geneko/3221031749/">geneko&apos;s flickr</a></span></i></div> The on again/off again third installment of the <em>Men In Black</em> series is back in production around town (they&apos;ve been filming at the Marcy Armory in Brooklyn and, for the most part, Kaufman Astoria Studios in Queens). The film will star Will Smith and Tommy Lee Jones once again, and <a href="https://web.archive.org/web/20110409081510/http://www.hollywoodreporter.com/news/why-men-black-iii-started-166112">the Hollywood Reporter</a> has a pretty lengthy piece on the seemingly cursed project&#x2014;which thus far has included script rewrites, delayed filming, a money-sucking hiatus, and also Will Smith reportedly hates the writing! Not to mention the butting of heads between the director and the producer.<p></p>
+
+<p>Reps say that everything is going &quot;smoothly&quot; now, however, and <a href="https://web.archive.org/web/20110409081510/http://www.nydailynews.com/ny_local/queens/2011/04/07/2011-04-07_black_for_more_sequel_to_scifi_blockbuster_will_film_in_borough.html#ixzz1IqPdGUUw">the Daily News</a> looks at the franchise&apos;s relationship with Queens. Not only are they filming a bulk of the movie in Astoria, but the paper believes they&apos;ll be revisiting 1969 in the new installment, and may be flying over Shea Stadium as the Mets win their first World Series. (Oops, too bad we tore that thing down!) </p>
+
+<p>Meanwhile, preservationists are hoping the production returns to the New York State Pavilion&#x2014;the site of the 1964 <a href="https://web.archive.org/web/20110409081510/http://gothamist.com/tags/worldsfair">World&apos;s Fair</a> is for the most part neglected by the city. One told the paper, &quot;I would love it. The more exposure we get, the better it is.&quot;</p>

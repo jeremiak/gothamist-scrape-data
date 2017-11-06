@@ -1,0 +1,11 @@
+---
+author: Jen Chung
+date: March 14, 2010  1:00 PM
+title: Jets Coach Rex Ryan Has Gastric Band Surgery
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:150px; "> <img alt="2010_03_jumbojet.jpg" src="https://web.archive.org/web/20111016094529im_/http://gothamist.com/attachments/jen/2010_03_jumbojet.jpg" width="150" height="220"> <br> <i>From Daily News cover</i></div> The larger-than-life Jets coach Rex Ryan is working on his mid-section with some help from modern medical technology.  The <a href="https://web.archive.org/web/20111016094529/http://www.nydailynews.com/sports/football/jets/2010/03/13/2010-03-13_band_on_the_tum_jets_coach_has_surgery_to_trim_weight.html">Daily News found out</a> that &quot;Ryan underwent weight-loss surgery Saturday at NYU Medical Center... A scheduled lap-band procedure was performed on Ryan, team spokesman Bruce Speight said Saturday night.&quot;<p></p>
+
+<p>Ryan is reportedly 340 pounds and <a href="https://web.archive.org/web/20111016094529/http://gothamist.com/2010/01/20/rex_ryan_and_his_reported_7000_calo.php">would follow a 7,000 calorie-a-day diet</a>&#x2014; the <a href="https://web.archive.org/web/20111016094529/http://www.nypost.com/p/news/local/ryan_worth_his_weight_in_gold_Fy1W4Ect6LCWRfP7Rl5q2I">Post recalled this anecdote</a>, &quot;While dieting a few years ago, an assistant spied Ryan toting a pizza to his hotel room. When confronted, Ryan claimed it was for his son Seth. But the next day, when the assistant asked Seth about the pie, the boy replied, &apos;What pizza?&apos;&quot; </p>
+
+<p>Ryan has previously said he&apos;s concerned about his weight but, &quot;The thing that gets me is, my cholesterol is fine, my blood pressure is fine. I&apos;m a genetic freak, I guess.&quot;  If you want to see Ryan&apos;s belly, check out this <a href="https://web.archive.org/web/20111016094529/http://gothamist.com/2010/02/28/rex_ryan_discusses_fingergate_belly.php">video of him changing into a hockey jersey</a>.</p>

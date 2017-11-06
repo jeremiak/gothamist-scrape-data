@@ -1,0 +1,22 @@
+---
+author: Ben Yakas
+date: Sep 21, 2011 2:35 PM
+title: "Gunpoint Rape" Cop Implies Sex Was Consensual, Pleads Not Guilty
+---
+
+
+                            
+                            
+                            
+                            <p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="92111cop.jpg" src="https://web.archive.org/web/20131104142613im_/http://gothamist.com/attachments/byakas/92111cop.jpg" width="640" height="480"> <br> <i>Michael Pena in court in August (<a href="https://web.archive.org/web/20131104142613/http://www.dnainfo.com/20110824/washington-heights-inwood/cop-accused-of-rape-did-not-intend-hurt-lawyer-says">via DNAInfo</a>)</i></div> <p></p>
+
+<p>In late August, a 27-year-old police officer <a href="https://web.archive.org/web/20131104142613/http://gothamist.com/2011/08/19/off-duty_cop_accused_of_raping_woma.php">was accused of</a> raping a woman at gunpoint while off-duty in Manhattan. Today, officer Michael Pena <a href="https://web.archive.org/web/20131104142613/http://www.nypost.com/p/news/local/manhattan/cop_pleads_not_guilty_to_rape_charge_5LhuK2RHiOZEIfMGjVv59H">pleaded not guilty to charges</a> that he forced the 25-year-old teacher into a courtyard behind an Inwood building at gunpoint early that morning and raped her. It was also revealed today that Pena, <a href="https://web.archive.org/web/20131104142613/http://gothamist.com/2011/08/20/off-duty_cop_who_allegedly_raped_wo.php">who admitted</a> he had been drinking that morning, implied after his arrest that the encounter was consensual.</p>
+
+<p>On August 19th, the day he was arrested, <a href="https://web.archive.org/web/20131104142613/http://www.nydailynews.com/news/ny_crime/2011/09/21/2011-09-21_michael_pena_offduty_cop_charged_with_raping_teacher_at_gunpoint_told_cops_sex_w.html">the News reports that</a> Pena told police he was afraid to call his girlfriend because he had been with another woman: <strong>&quot;I wanted to call my girlfriend, but how am I going to call her when I got arrested for cheating?&quot; </strong> At least two neighbors <a href="https://web.archive.org/web/20131104142613/http://gothamist.com/2011/08/19/off-duty_cop_accused_of_raping_woma.php">told police</a> that they heard &quot;loud noises&quot; and called police when they saw the situation in the courtyard; when confronted by the neighbors, Pena allegedly flashed his gun, and his badge could be seen as well.</p>
+
+<p>Pena, who is being investigated in <a href="https://web.archive.org/web/20131104142613/http://gothamist.com/2011/08/25/gunpoint_rape_cop_being_investigate.php">two other sex attacks</a>, has maintained his innocence with vague notions of conspiracies, claiming <a href="https://web.archive.org/web/20131104142613/http://gothamist.com/2011/08/22/new_rape_cop_says_the_truth_will_co.php">in a jailhouse interview</a> that, &quot;The DA is arresting cops, indicting cops. They&apos;re trying to make an example out of me&quot; and &quot;the truth will come out.&quot; Pena&apos;s lawyers previously told reporters that their client <a href="https://web.archive.org/web/20131104142613/http://gothamist.com/2011/08/24/gunpoint_rape_cop_didnt_intend_to_h.php">never intended to hurt anyone</a>: &#x201C;There is absolutely no doubt that there was no intent on the part of Michael Pena to hurt anyone. There was certainly no intent to sexually abuse anybody on that day.&quot;</p>
+
+<p>Today, his lawyer Ephraim Savitt implied that those witness testimonies were contradictory, and got a jab in at the Manhattan DA&apos;s office: &quot;It remains to be seen if it&apos;s strike three for the DA&apos;s office or a base hit,&quot; Savitt said, referring to failed rape prosecutions against <a href="https://web.archive.org/web/20131104142613/http://gothamist.com/2011/09/08/gothamist_features_presents_confess.php">two other cops</a> and Dominique Strauss-Kahn. But DA Cy Vance vowed to be unrelenting in prosecuting the case: &quot;The brazenness of the horrific attack charged by the grand jury is truly shocking. <strong>It is all the more disturbing that the defendant in this case was a law enforcement officer.&quot;</strong></p>
+                            
+                            
+                            

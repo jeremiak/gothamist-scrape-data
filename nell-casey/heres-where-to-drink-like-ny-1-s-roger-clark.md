@@ -1,0 +1,51 @@
+---
+author: Nell Casey
+date: Jan 8, 2014 3:29 pm
+title: Here's Where To Drink Like NY1's Roger Clark
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="010814roger.jpg" src="https://web.archive.org/web/20150307165621im_/http://gothamist.com/attachments/nyc_nellcasey/010814roger.jpg" width="640" height="415"> <br> <i> <span class="photo_caption">Clark shows off his Air Guitar skillz at Gothamist Trivia (<a href="https://web.archive.org/web/20150307165621/http://www.navidbaraty.com/">Navid Baraty</a>/Gothamist)</span></i></div> <p></p>
+
+<p><em>We&apos;re asking a few notable New Yorkers where they like to get their drink on, from the casual neighborhood pub to the trendy cocktail bar. Who knows, maybe they&apos;ll be at the adjacent bar stool next time you&apos;re out on the town.</em></p>
+
+<p>You can find NY1 reporter and <a href="https://web.archive.org/web/20150307165621/http://gothamist.com/2013/07/02/videos_air_guitar_god_roger_clark_h.php">all around cool dude</a> <a href="https://web.archive.org/web/20150307165621/http://www.ny1.com/content/news/548/roger-clark---general-assignment-reporter">Roger Clark</a> just about anywhere when he&apos;s on assignment, but he also roams far and wide in his off hours, too. If he&apos;s not playing a gig <a href="https://web.archive.org/web/20150307165621/https://www.facebook.com/pages/Perp-Walk/215387071834255">with his band</a> he&apos;s out and about <a href="https://web.archive.org/web/20150307165621/https://twitter.com/RogerClark41/status/412204729645957120">throwing dollars into jukeboxes</a> at one of the city&apos;s many dive bars. </p>
+
+<p>As a man about town, we wanted to know just which barstools Clark enjoys and see if he had any interesting stories (spoiler: he does!) about his time spent on the pine. </p>
+
+<p><strong>What do you look for in a bar?</strong> I definitely am not a club guy, and look for a basic pub set-up. Don&apos;t need couches or comfy chairs, just some bar stools. I like sports so always nice to have a few tvs with ESPN on or some game. Doesn&apos;t have to be a typical sports bar, just some TVs to maybe keep me occupied if I slip into a place alone and it&apos;s dead there. And music is key. I love a great jukebox, or at least satellite radio or Pandora playing some good stuff. For me, good stuff is rock, punk, or oldies from the 60&apos;s, 70&apos;s and 80&apos;s.  <br>
+ <br>
+<strong>Do you have a &quot;usual&quot; order?</strong> I basically am pretty boring. I am a beer guy and mainly stick with Bud Light. At Reif&apos;s you can get a bucket of &quot;nips&quot; for ten bucks.  If I am at a brew pub or someplace with a good beer selection I will experiment, but usually I stick to the basics at my regular places. Also, cheap is good, so I won&apos;t pass up a three dollar can of PBR. <br>
+ <br>
+<strong>What&apos;s been your most &quot;New York&quot; (read: oddest) bar experience?</strong> One of the cool NYC moments I had was at a place called the Sin Bin on First Avenue and 58th Street.  It was Halloween and this guy walks in with a sports coat and a crazy mask on. He was dancing around and having a ball. Then he took his mask off to<br>
+order a drink and it was Bill Murray! I was freaking out because I am a huge fan, but I wimped out and didn&apos;t talk to him. He bought some drinks for people and danced for a couple of hours. We talked about it for weeks. I think the term we used was Bill &quot;effin&quot; Murray.  <br>
+ <br>
+From the odder file, at the same bar three guys were trying to impress the bartender by withstanding pain, and they convinced her to staple them. She was literally putting staples into their flesh and they were screaming and laughing. It was one of the most ridiculous things I have ever seen outside of college.   <br>
+ <br>
+<strong>What are your go-to jukebox favorites?</strong> I usually aim to please and play to the crowd. For instance, I know at Reif&apos;s there is a group of guys who love 60&apos;s rock/pop, so I will go with &quot;I Fought the Law&quot; by the Bobby Fuller Four usually or some stuff by the Kinks, Hollies, Rascals, etc. Then I go for some 70&apos;s one hit wonders like &quot;The Night Chicago Died&quot; by Paper Lace or &quot;Magic&quot; by Pilot.  I throw in some disco occasionally or even some cheese like &quot;Xanadu&quot; by Olivia Newton-John and ELO.  When I can though, I like the Punkier stuff like Misfits, Buzzcocks, Ramones, Descendents, etc. I have been known to play &quot;I Saw Your Mommy&quot; by Suicidal Tendencies but that sometimes scares people.</p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="010814reifs.jpg" src="https://web.archive.org/web/20150307165621im_/http://gothamist.com/attachments/nyc_nellcasey/010814reifs.jpg" width="640" height="480"> <br> <i> <span class="photo_caption">Reif&apos;s Tavern (via <a href="https://web.archive.org/web/20150307165621/https://www.facebook.com/photo.php?fbid=396202917076259&amp;set=pb.113225692040651.-2207520000.1389207553.&amp;type=3&amp;theater">Facebook</a>)</span></i></div> <p></p>
+
+<p>Of course I have to include <strong><a href="https://web.archive.org/web/20150307165621/http://bobreif.wix.com/reifs">Reif&apos;s Tavern</a></strong> since that is my regular place. <em>[Ed. Note: He loves it so much he <a href="https://web.archive.org/web/20150307165621/https://twitter.com/RogerClark41/status/357661400295948290">plays on their softball team</a> and <a href="https://web.archive.org/web/20150307165621/https://twitter.com/RogerClark41/status/417443270219030528">spent his wedding anniversary there</a>!]</em></p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="010814manitoba.jpg" src="https://web.archive.org/web/20150307165621im_/http://gothamist.com/attachments/nyc_nellcasey/010814manitoba.jpg" width="640" height="427"> <br> <i> <span class="photo_caption">Manitoba&apos;s (via <a href="https://web.archive.org/web/20150307165621/http://www.yelp.com/biz_photos/manitobas-new-york?select=KE9IJLojtXJwZKrvwFSh_Q#IKMGZMxd8Voum9jQ65uNbQ">Facebook</a>)</span></i></div> <br>
+ <br>
+<a href="https://web.archive.org/web/20150307165621/http://www.manitobas.com/"><strong>Manitoba&apos;s</strong></a> on LES where I don&apos;t get as often as I used to but still love for the jukebox and cool punk rock photos. [The jukebox] has a great selection and people don&apos;t mind it...it is a great mix of punk, metal and 50&apos;s and 60&apos;s rock. And of course you never know when Handsome Dick Manitoba himself of the Dictators will be hanging around. <em>99 Avenue B between 6th and 7th Streets</em><p></p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="010814kinsale.jpg" src="https://web.archive.org/web/20150307165621im_/http://gothamist.com/attachments/nyc_nellcasey/010814kinsale.jpg" width="640" height="400"> <br> <i> <span class="photo_caption">Kinsale Tavern (via <a href="https://web.archive.org/web/20150307165621/https://foursquare.com/v/kinsale-tavern/3fd66200f964a52008eb1ee3/photos?openPhotoId=4d30891778422da18d106c52">Foursquare</a>)</span></i></div> <br>
+ <br>
+<a href="https://web.archive.org/web/20150307165621/http://kinsale.com/"><strong>The Kinsale Tavern</strong></a> has two great regular bartenders named Shirley and Pauline. They are amazing and I could go a couple of months not going in and they always remember what beer I drink and ask how my son is doing. Plus they always have soccer on there to occupy your mind if you are sipping a beer alone. I love the Buffalo Chicken Sandwich there and the sliders and the fries are great too; I also bring the family there for lunch in the back room. <em>1672 3rd Avenue between 93rd and 94th Streets</em><p></p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="010814freddys.jpg" src="https://web.archive.org/web/20150307165621im_/http://gothamist.com/attachments/nyc_nellcasey/010814freddys.jpg" width="640" height="427"> <br> <i> <span class="photo_caption">Freddy&apos;s (<a href="https://web.archive.org/web/20150307165621/http://www.samhorine.com/">Sam Horine</a>/Gothamist)</span></i></div> <br>
+ <br>
+In Brooklyn there is <a href="https://web.archive.org/web/20150307165621/http://freddysbar.com/"><strong>Freddy&apos;s</strong></a>, where my little duo has played several times. Great music and again some good cheap food there. They have pigs in a blanket on the menu. That does it for me! I actually would hang out there more if I lived closer. <em>627 5th Avenue between 18th and 17th Streets, Park Slope</em><p></p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="010814rudys.jpg" src="https://web.archive.org/web/20150307165621im_/http://gothamist.com/attachments/nyc_nellcasey/010814rudys.jpg" width="640" height="426"> <br> <i> <span class="photo_caption">Rudy&apos;s (via <a href="https://web.archive.org/web/20150307165621/http://www.yelp.com/biz_photos/rudys-bar-and-grill-new-york#3mof6dPjHW0l8FMf-rNVww">Yelp</a>)</span></i></div> <p></p>
+
+<p>In Hell&apos;s Kitchen if I ever wind up on the West Side I usually pop into <a href="https://web.archive.org/web/20150307165621/http://www.rudysbarnyc.com/"><strong>Rudy&apos;s</strong></a>. Total dive but cheap beer and free hot dogs. Plus the giant pig outside is always cool. <em>627 9th Avenue between 44th and 45th Streets</em><br>
+ <br>
+Roger also threw Queens some love, citing <a href="https://web.archive.org/web/20150307165621/http://www.saintsandsinnerspub.com/">Saints and Sinners</a> as a Woodside favorite, as well as or <a href="https://web.archive.org/web/20150307165621/http://www.yelp.com/biz/o-hanlons-bar-astoria">O&apos;Hanlons</a> in Astoria. &quot;I wish I had some in the Bronx or Staten Island but I&apos;m not there all that often.&quot; <br>
+ </p>					
+										
+									
+				

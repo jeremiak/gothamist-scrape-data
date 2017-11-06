@@ -1,0 +1,7 @@
+---
+author: Jen Carlson
+date: February  4, 2010  8:05 AM
+title: Fake "Paul Simon" Busted At Bank
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="phpYgZXGkAM.jpg" src="https://web.archive.org/web/20130327080504im_/http://gothamist.com/attachments/arts_jen/phpYgZXGkAM.jpg" width="150" height="111" class="image-right"> </span>This story would be a lot cooler if our protagonist actually attempted to look anything at all like Paul Simon, and had Chevy Chase lip-syncing next to him. As it is, <a href="https://web.archive.org/web/20130327080504/http://www.nypost.com/p/news/local/manhattan/paul_simon_bank_hoax_0wPHVUYybb634HHQtBFcEI">the NY Post</a> reports a man <em>over 6-feet-tall</em> tried to steal the (5&apos;3&quot;) singer&apos;s identity and withdraw money from his bank account. 54-year-old Rafael Ramos attempted to take out $4,300 from a Citibank on Broadway and West 86th Street using Simon&apos;s name, account <em>and</em> Social Security number, but the teller was suspicious since, you know, he looked nothing like one of the most famous musicians of our time. Ramos tried to escape the scene of his foiled caper but cops busted him. He was charged with attempted larceny and taken to the hospital after telling the officers he was depressed.</p>

@@ -1,0 +1,7 @@
+---
+author: Jen Carlson
+date: October 28, 2010  4:00 PM
+title: Tag Leaves Locals Wondering If They Should Be Offended
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="GOOSETAG1010.jpg" src="https://web.archive.org/web/20110412163120im_/http://gothamist.com/attachments/arts_jen/GOOSETAG1010.jpg" width="125" height="100" class="image-right"> </span>Some new vandalism popped up in Park Slope over the weekend, it reads: Geese First, Jews Next. Locals aren&apos;t sure if they&apos;re offended yet, <a href="https://web.archive.org/web/20110412163120/http://www.brooklynpaper.com/stories/33/44/dtg_goosegraffiti_2010_10_29_bk.html">the Brooklyn Paper</a> reports that it&apos;s unclear if the tag is anti-Semitic, or a sincere attempt to link the <a href="https://web.archive.org/web/20110412163120/http://gothamist.com/tags/canadageese">recent goose extermination</a> to the Holocaust. Rabbi Andy Bachman at Congregation Beth Elohim on Garfield Place, however, thinks the words are in bad taste either way. He told the paper, &#x201C;It&#x2019;s either a bad joke in poor taste that falls flat, or someone too easily making reference to the extermination of Jews.&quot;</p>

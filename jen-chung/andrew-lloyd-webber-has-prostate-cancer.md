@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: October 25, 2009 12:15 PM
+title: Andrew Lloyd Webber Has Prostate Cancer
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2009_10_alw.jpg" src="https://web.archive.org/web/20110629180407im_/http://gothamist.com/attachments/jen/2009_10_alw.jpg" width="80" height="80" class="image-right"> </span>A publicist for British musical composer Andrew Lloyd Webber announced that the 61-year-old was diagnosed with prostate cancer, noting &quot;the condition is in its very early stages. Andrew is now undergoing treatment and expects to be fully back at work before the end of the year.&quot; Back at work probably means back at work on his new <em>Phantom of the Opera</em> sequel, <em>Love Never Dies</em>, <a href="https://web.archive.org/web/20110629180407/http://gothamist.com/2009/10/08/the_phantom_of_the_opera_is_here_in.php">which is set in Coney Island</a>, which he recently <a href="https://web.archive.org/web/20110629180407/http://gothamist.com/2009/10/20/andrew_lloyd_webber_disses_coney_is.php">dissed by saying</a>, &quot;Of course, Coney Island today is nothing at all.&quot; <em>Love Never Dies</em> is expected to premiere on Broadway next November.</p>

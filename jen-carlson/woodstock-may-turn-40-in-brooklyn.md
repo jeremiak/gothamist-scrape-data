@@ -1,0 +1,15 @@
+---
+author: Jen Carlson
+date: Apr 6, 2009 1:12 pm
+title: Woodstock May Turn 40 in Brooklyn
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:350px; "> <img alt="0409woodstockbk.jpg" src="https://web.archive.org/web/20150522162956im_/http://gothamist.com/attachments/arts_jen/0409woodstockbk.jpg" width="350" height="263"> <br> <i><span class="photo_caption">Original photo via <a href="https://web.archive.org/web/20150522162956/http://www.flickr.com/photos/pjcoleman/1320974827/">pjcoleman&apos;s flickr</a>.</span></i></div> This should be interesting. As <a href="https://web.archive.org/web/20150522162956/http://gothamist.com/2009/03/06/draft_gothamists_week_in_rock.php">previously mentioned</a>, the 40th Anniversary of Woodstock is upon us, and there&apos;s been talk of bringing the concert to New York City. It seems one of the original organizers (and Bensonhurst native), Michael Lang, wants Prospect Park&apos;s Long Meadow to be the Brooklyn substitute for Max Yasgur&apos;s 600-acre farm when the anniversary concert takes place later this year. <a href="https://web.archive.org/web/20150522162956/http://www.nydailynews.com/ny_local/brooklyn/2009/04/05/2009-04-05_prospect_park_may_host_woodstocks_40th_a.html">The Daily News</a> reports that he&apos;s currently looking for enough sponsor support, and he told the paper, &quot;It&apos;s big, it&apos;s convenient. There&apos;s public transportation - and Brooklyn&apos;s cool. I&apos;d love to do it. But it&apos;s been a very tough year.&quot; The show would be free, and he would need around $10 million to make it happen. <p></p>
+
+<p>If Lang gets miracle&apos;d with his sponsor money, he&apos;s expecting up to 150,000 people to fill up the nearly 90-acres of Long Meadow. Some of the acts he&apos;s interested in booking include Crosby, Stills and Nash, along with Neil Young, as well as what the Daily News calls &quot;newer bands&quot; like Phish (who have only been around a paltry 26 years). Lang noted that the infamous 1999 riot-laden Woodstock was &quot;more of an MTV event. The music was much too angry for me.&quot;</p>
+
+<p>There is one other little glitch if this does happen, the real anniversary date of August 15th has already been booked! But Lang &amp; Co. have pulled off bigger things before&#x2014;later this year the movie <em>Taking Woodstock</em> will hit the big screen, get a little glimpse of how the show came to be in the trailer after the jump (where Lang will be played by <em>Spring Awakening</em>&apos;s Jonathan Groff). In the meantime, we propose that the organizers take inspiration from Civil War reenactors and stage a Woodstock <em>reenactment</em> instead. Cover bands like Dark Star Orchestra (The Dead) could help keep the event under budget, without compromising any of that authentic hippie crowd smell.</p>					
+										
+									
+				

@@ -1,0 +1,11 @@
+---
+author: Jen Carlson
+date: Jul 23, 2009 6:44 pm
+title: Breastfeeding Woman Banished to IKEA Bathroom
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="phphvyjptPM.jpg" src="https://web.archive.org/web/20150531024758im_/http://gothamist.com/attachments/arts_jen/phphvyjptPM.jpg" width="188" height="187" class="image-right"> </span>The big bad Big Box IKEA is the latest to ostracize breastfeeding moms from their establishment. One Brooklyn mom <a href="https://web.archive.org/web/20150531024758/http://groups.yahoo.com/group/brooklynbabyhui/message/28899">tells her recent story</a> of being banished to the bathroom when she tried to feed her 6 1/2 month old something other than Swedish meatballs at the store:</p><blockquote>On Wednesday I was in IKEA Red Hook in the middle of breastfeeding, fully covered, when I was told I had to stop doing &quot;that&quot; and go to the nearby family bathroom. The IKEA employee and security guards were extremely rude to us. I was hustled off to the bathroom and then had to wait because someone else was using it. I was humiliated, my daughter was upset from being interrupted in the middle of her feed. When eventually I gave up and headed for the car to finish feeding, the security guards who had seen the entire event insisted on checking my receipts. I&apos;m putting together a formal complaint to IKEA. I was wondering if this has happened to anyone else?</blockquote>This from an establishment <a href="https://web.archive.org/web/20150531024758/http://www.independent.co.uk/life-style/food-and-drink/news/ikea-under-fire-for-selling-reindeer-meat-1048851.html">selling reindeer meat</a> during the holiday season. For the record, public breastfeeding is legal anytime and anywhere (<a href="https://web.archive.org/web/20150531024758/http://www.nyclu.org/files/breastfeedingcard.jpg">here&apos;s a handy card</a> to carry around from the NYCLU). We reached out to IKEA for a comment on this incident, but have yet to hear back. <a href="https://web.archive.org/web/20150531024758/http://gothamist.com/2009/03/24/brooklyn_library_apologizes_to_brea.php">In March</a> the Brooklyn Library made a public apology after one of their security guards scolded a woman for feeding her child in their branch.<p></p>					
+										
+									
+				

@@ -1,0 +1,11 @@
+---
+author: Jen Chung
+date: October  5, 2009  8:53 AM
+title: Alan Greenspan Expects Growth AND 10+% Unemployment
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2009_10_greenspan.jpg" src="https://web.archive.org/web/20110811072810im_/http://gothamist.com/attachments/jen/2009_10_greenspan.jpg" width="246" height="134" class="image-left"> </span>Former Federal Reserve Chairman Alan Greenspan gave his predictions on the economy and unemployment: He thinks the economy will grow 3% in the third quarter (which is more than he previously thought)&#x2014;and that unemployment will break through 10% and be there for a while.  </p>
+
+<p>On <a href="https://web.archive.org/web/20110811072810/http://blogs.abcnews.com/george/2009/10/greenspan-predicts-3-growth-10-unemployment-.html">This Week with George Stephanopoulos</a>, Mr. <a href="https://web.archive.org/web/20110811072810/http://en.wikipedia.org/wiki/Irrational_exuberance">Irrational Exuberance</a> said the <a href="https://web.archive.org/web/20110811072810/http://gothamist.com/2009/10/02/grim_job_report_worse_than_expected.php">latest job numbers</a> (revealing 9.8% unemployment) were &quot;pretty awful&quot; and was most alarmed by the large of number of the long term unemployed: &quot;The reason that is a problem, obviously, other than the obvious personal difficulties that families have in such a context, is that the economy loses skills. And people who are out of work for very protracted periods of time, lose their skills eventually...Remember that what makes an economy great is a combination of the capital assets of the economy and the people who run it. And if you erode the human skills that are involved there, there is a real and in one sense an irretrievable loss.&quot;</p>
+
+<p>He also thinks a second stimulus isn&apos;t necessary (apparently doing too much might be bad!) and that health care reform won&apos;t add to the deficit but &quot;revenue neutral is not adequate.&quot;  And flashback: A year ago, <a href="https://web.archive.org/web/20110811072810/http://gothamist.com/2008/10/23/greenspan_admits_he_was_wrong_about.php">Greenspan admitted</a> he was wrong to think the markets could regulate themselves.</p>

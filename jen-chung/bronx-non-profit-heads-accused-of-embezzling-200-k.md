@@ -1,0 +1,11 @@
+---
+author: Jen Chung
+date: Jun 11, 2009 9:05 am
+title: Bronx Non-Profit Heads Accused Of Embezzling $200K
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2009_06_tavgreen.jpg" src="https://web.archive.org/web/20141016201657im_/http://gothamist.com/attachments/jen/2009_06_tavgreen.jpg" width="140" height="111" class="image-right"> </span>According to the U.S. Attorney&apos;s Office, the president and director of SBCC Management Corporation, which manages HUD-subsidized properties in the Bronx, <a href="https://web.archive.org/web/20141016201657/http://www.nypost.com/seven/06112009/news/regionalnews/slush_fun__scion_in_200g_splurge_173686.htm">stole $200,000 from the non-profit</a>&#x2014;and SBCC&apos;s president is <a href="https://web.archive.org/web/20141016201657/http://www.nytimes.com/2009/06/11/nyregion/11embezzle.html">Richard Izquierdo Arroyo</a>, grandson of State Assemblywoman Carmen E. Arroyo and nephew of City Councilwoman Maria del Carmen Arroyo (SBCC director is Margarita Villegas). Almost $15,000 from the non-profit were given to campaigns for someone believed to be Carmen Arroyo  and Running Scared <a href="https://web.archive.org/web/20141016201657/http://blogs.villagevoice.com/runninscared/archives/2009/06/family_affair_f.php">details some of the other spending</a>: &quot;<strong>The pair, along with an unnamed relative, ran up tabs worth $15,000 at clothing stores including Ralph Lauren, Tommy Hilfiger, and --our favorite-- Promgirl. They also ran up bills of $66,000 with fine dining at the likes of Portofino, A Venice Restaurant, Tavern on the Green, and -- go figure -- IHOP.</strong> Another $48,000 went for airfares and hotels in San Juan, and Brooklyn (!). Another $34,000 was plunked down for car rentals, garages, and parking tickets in Puerto Rico, the Dominican Republic and around the Empire State.&quot;  Richard Arroyo and Villegas were indicted; City Councilwoman Arroyo, who apparently <a href="https://web.archive.org/web/20141016201657/http://www.nypost.com/seven/06112009/news/regionalnews/slush_fun__scion_in_200g_splurge_173686.htm">directed at least $50,000 in funds to SBCC</a>, said, &quot;I am confident that in the end, they will be able to clear their names.&quot;</p>					
+										
+									
+				

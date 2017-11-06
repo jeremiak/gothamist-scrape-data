@@ -1,0 +1,7 @@
+---
+author: Jen Carlson
+date: October  1, 2008 11:35 AM
+title: Apartment Door Decoration Rights
+---
+
+<p><img alt="phpAhmi6YAM.jpg" src="https://web.archive.org/web/20130704082216im_/http://gothamist.com/attachments/arts_jen/phpAhmi6YAM.jpg" width="130" height="97" class="right">Just in time for Halloween, there&apos;s been some chatter regarding hallway and door decorations in New York apartments. <a href="https://web.archive.org/web/20130704082216/http://www.brownstoner.com/brownstoner/archives/2008/10/does_your_front.php">Brownstoner</a> notes that in July, a Clinton Hill co-op board controversially &quot;decided to enforce a house rule: no decorations on any doors, without getting board approval first,&quot; since in a co-op you don&apos;t have the rights to your door, the decision is out of one&apos;s hands. A recent <a href="https://web.archive.org/web/20130704082216/http://www.habitatmag.com/publication_content/2008_october/web_exclusive_adaptations/authoritarian_boards_public_rancor">Habitat</a> article breaks it down, but what about those not in co-ops? While stoops, <a href="https://web.archive.org/web/20130704082216/http://gothamist.com/2007/04/26/the_hallways_of.php">hallway rights</a>, and even <a href="https://web.archive.org/web/20130704082216/http://gothamist.com/2008/02/09/more_trouble_at.php">smoking rules</a> in buildings are ongoing hot topics, the door often gets ignored. How does your building handle decorations?</p>

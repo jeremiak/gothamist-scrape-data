@@ -1,0 +1,11 @@
+---
+author: Ben Yakas
+date: December 10, 2011  6:15 PM
+title: MTA Supervisor Allegedly Stabbed Coworker On The Job
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:260px; "> <img alt="121011mta.jpg" src="https://web.archive.org/web/20111211220102im_/http://gothamist.com/attachments/byakas/121011mta.jpg" width="260" height="174"> <br> <i>A tunnel worker in orange (<a href="https://web.archive.org/web/20111211220102/http://www.flickr.com/photos/idletype/4186011241/">idle type&apos;s flickr</a>)</i></div> An MTA supervisor allegedly stabbed a coworker during a fight at a Bronx subway station today. <a href="https://web.archive.org/web/20111211220102/http://www.nydailynews.com/new-york/bronx/transit-worker-stabbed-employee-spat-bronx-station-cops-article-1.989668">According to the News</a>, 41-year-old MTA supervisor Alex Davis pulled a knife on colleague Kenneth Palacios at the Allerton Avenue 2/5 line stop in Bronxdale around 8 a.m. &#x201C;It happened at the street on the job site. [Palacios] walked up to me and told me he just got stabbed. He said the guy just walked up to him and stabbed him. He was calm,&#x201D; said another MTA worker, Clarence St. John.<p></p>
+
+<p>The fight allegedly started after Davis, an ex-con who did two stints in prison for robbery and grand larceny about 20 years ago, was late for work this morning&#x2014;the two were tasked with flagging traffic under the elevated tracks where construction work was being done. They got into a physical fight, during which Davis pulled out a knife and stabbed 57-year-old Palacios in the stomach. Palacios was taken to the hospital in stable condition where he calmly called his wife, telling her &#x201C;I had an accident. I&#x2019;m at Jacobi. Come down.&quot; </p>
+
+<p>Davis was arrested at the scene, and has been charged with assault and criminal possession of a weapon. An <a href="https://web.archive.org/web/20111211220102/http://www.ny1.com/content/news_beats/transit/152321/sources--mta-supervisor-stabbed-co-worker">MTA spokesman said</a> the incident is still under investigation, but Davis will face disciplinary action.</p>

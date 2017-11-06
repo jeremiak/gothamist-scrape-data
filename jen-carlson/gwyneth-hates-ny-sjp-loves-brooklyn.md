@@ -1,0 +1,11 @@
+---
+author: Jen Carlson
+date: Jul 2, 2009 10:59 am
+title: Gwyneth Hates NY, SJP Loves Brooklyn
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="sjpnewhouse.jpg" src="https://web.archive.org/web/20150506145206im_/http://gothamist.com/attachments/arts_jen/sjpnewhouse.jpg" width="140" height="111" class="image-right"> </span>Has the world gone mad? Gwyneth Paltrow, who once loved NYC (but <a href="https://web.archive.org/web/20150506145206/http://gothamist.com/2009/02/05/gwyneth_1.php">lately has soured</a> on America), is calling Spain her second home. <a href="https://web.archive.org/web/20150506145206/http://www.nydailynews.com/gossip/2009/07/01/2009-07-01_gwyneth_paltrow_disses_new_york_us_people_who_always_have_blackberries_on.html">In a recent interview</a> she said, &quot;Here in the United States an old building is about 17 (years old), and over there it&apos;s from 500 B.C. It&apos;s incredible.&quot; Celebs do tend to be <a href="https://web.archive.org/web/20150506145206/http://gothamist.com/tags/dockstreet">anti-development</a>. She also noted that people enjoy life more there, as opposed to New Yorkers, who run around too much punching the keys on their BlackBerries. Meanwhile, Miss Manhattan herself, Sarah Jessica Parker might be moving to <em>Brooklyn</em>! <a href="https://web.archive.org/web/20150506145206/http://curbed.com/archives/2009/07/02/sex_and_the_slope_did_sjp_buy_prospect_park_west_mansion.php">Rumor has it</a> that <a href="https://web.archive.org/web/20150506145206/http://gothamist.com/2009/06/30/matthew_and_sarah_plus_three.php">her and the family</a> may have purchased Jennifer Connelly and Paul Bettany&apos;s double-wide, 9-bedroom townhouse at 17 Prospect Park West (pictured). Don&apos;t worry Manhattan, you&apos;ll still have <a href="https://web.archive.org/web/20150506145206/http://gothamist.com/2009/06/24/madonna_2.php">Madonna and her chickens</a>.</p>					
+										
+									
+				

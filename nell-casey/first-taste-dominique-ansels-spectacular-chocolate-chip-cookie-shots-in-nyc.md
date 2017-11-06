@@ -1,0 +1,27 @@
+---
+author: Nell Casey
+date: Mar 15, 2014 9:17 am
+title: First Taste: Dominique Ansel's Spectacular Chocolate Chip Cookie Shots In NYC
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2014_03_dansel.jpg" src="https://web.archive.org/web/20150508230013im_/http://gothamist.com/attachments/jen/2014_03_dansel.jpg" width="640" height="492"> <br> <i> Photograph by Nell Casey/Gothamist</i></div> <p></p>
+
+<p>The <a href="https://web.archive.org/web/20150508230013/http://gothamist.com/2014/03/14/cronut_sequel_cookie_shot.php">long lines</a> for the release of Dominique Ansel&apos;s <a href="https://web.archive.org/web/20150508230013/http://gothamist.com/2014/03/11/chocolate_chip_cookie_milk_shots_ar.php">latest sweet confection</a> are a testament to the star power of NYC&apos;s most viral chef, who&apos;s been <a href="https://web.archive.org/web/20150508230013/http://austinist.com/2014/03/03/cronuts_are_coming_to_sxsw_because.php">bopping across</a> <a href="https://web.archive.org/web/20150508230013/http://laist.com/2014/03/01/photos_cronuts_rain_down_on_los_ang.php#photo-1">the country</a> for the last month, much to the delight of non-New York-based Cronut fans. In Austin he dropped the <a href="https://web.archive.org/web/20150508230013/http://gothamist.com/tags/chocolatechipcookiemilkshots">Chocolate Chip Cookie Milk &quot;Shots&quot;</a> to the <a href="https://web.archive.org/web/20150508230013/http://austinist.com/2014/03/05/behold_the_chocolate-chip-cookie_mi.php">willing crowd at SXSW</a> and today he rewarded loyal NYC fans with the new treat&#x2014;and people were <em>ready</em>.</p>
+
+<p>Cronut fans will follow Ansel anywhere, it seems, and not just because they want to impress their Instagram followers by posing with his famous pastry. Ansel delivers, not just with his incredible pastries&#x2014;which go <a href="https://web.archive.org/web/20150508230013/http://gothamist.com/2013/09/26/dominique_ansel_introduces_gorgeous.php">way beyond his media-hyped offerings</a>&#x2014;but because there&apos;s an incredible sincerity that shines through his work, the kind of sincerity and humbleness of, say, a warm chocolate chip cookie dunked in an ice-cold glass of milk. It&apos;s this childhood nostalgia he&apos;s channeling here, and for a man who didn&apos;t grow up eating the stuff, Ansel has an uncanny ability to hit all the notes we remember from Grandma&apos;s house. </p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2014_03_cookieshotline.jpg" src="https://web.archive.org/web/20150508230013im_/http://gothamist.com/attachments/jen/2014_03_cookieshotline.jpg" width="640" height="478"> <br> <i> Photograph by Nell Casey/Gothamist</i></div> <p></p>
+
+<p>These cookie shots are, in short, absolutely wonderful. Let me also say that I actually don&apos;t like sweets; bring me a plate of nachos and get that dessert stuff out of my face. But there&apos;s something about a warm, gooey chocolate chip cookie that just <em>gets me</em>, a feeling that I&apos;m confident will be similar in everyone else who grew up on the Nestle Toll House-style of super sweet, super chocolatey, super buttery cookies. Ansel&apos;s cookies hit all those notes&#x2014;though with the kind of quality ingredients you&apos;d expect from a chef of his caliber.</p>
+
+<p>There&apos;s no set method to eating the shots, but that&apos;s part of the fun. I opted for the sip of milk then bite of cookie method, the closest way to mimic an old school dunk. The cold milk gets kissed with Tahitian vanilla, providing a great balance to the chocolate saturation from the cookie. </p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2014_03_cookieshot1.jpg" src="https://web.archive.org/web/20150508230013im_/http://gothamist.com/attachments/jen/2014_03_cookieshot1.jpg" width="640" height="857"> <br> <i> Photograph by Nell Casey/Gothamist</i></div> <p></p>
+
+<p>Oh, that cookie. Ansel devised a method to serve each and every one warm, so the chocolate sticks to your fingers and then melts in your mouth. It&apos;s incredibly sweet&#x2014;especially when you&apos;re working your way through the final stages&#x2014;and very filling for its size. The bottom has that nice crispness usually found on the edges of a circular cookie. Miraculously, even after several minutes of bites and sips, the milk doesn&apos;t start to seep out or drip; it&apos;s a kind of pastry miracle.</p>
+
+<p>For a man who creates pastry and cream masterpieces through his many years of training, Ansel really nails the simplicity required to make a &quot;stunt&quot; like this work out. Sure, the delivery method has that impishness that made the Cronut so successful, but it manages to be simple at the same time. If a tongue-in-cheek delivery method gets people to try what may be arguably one of the best chocolate chip cookie and milk experiences I&apos;ve ever had, I&apos;d say the lines and the hype and the insanity are well worth it. </p>					
+										
+									
+				

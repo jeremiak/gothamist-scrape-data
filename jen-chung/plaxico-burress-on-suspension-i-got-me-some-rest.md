@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: October  6, 2008  4:32 PM
+title: Plaxico Burress on Suspension: "I Got Me Some Rest"
+---
+
+<p><img alt="2008_10_plax.jpg" src="https://web.archive.org/web/20110611052348im_/http://gothamist.com/attachments/jen/2008_10_plax.jpg" width="120" height="121" class="right">After the Giants <a href="https://web.archive.org/web/20110611052348/http://gothamist.com/2008/10/06/last_nights_action_blowout.php">dominated the Seattle Seahawks</a> yesterday, wide receiver Plaxico Burress <a href="https://web.archive.org/web/20110611052348/http://www.newsday.com/sports/football/giants/ny-spplax1007,0,2406683.story">told reporters</a> he wasn&apos;t bothered by his two-week (but really one-game suspension, since the Giants had a bye for one week).  Newsday reports Burress, who was <a href="https://web.archive.org/web/20110611052348/http://gothamist.com/2008/09/24/giants_suspend_burress.php">punished for missing team meetings</a>, said, &quot;I didn&apos;t lose any sleep over it.  I got me some rest. I was able to get away for a little while, chill out and relax. Things like that happen.&quot;  He also added that his absence from the meetings was due to issues around taking his son to school, &quot;Maybe I would have put a phone call in, but as far as things like that, I&apos;m always going to put [things like his son] first. That&apos;s one thing people have to understand. I don&apos;t have any regrets over it.&quot;</p>

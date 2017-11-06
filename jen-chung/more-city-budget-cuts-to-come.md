@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: December 11, 2008  6:02 PM
+title: More City Budget Cuts to Come
+---
+
+<p><img alt="2008_12_bloomberg21.jpg" src="https://web.archive.org/web/20110629190102im_/http://gothamist.com/attachments/jen/2008_12_bloomberg21.jpg" width="137" height="125" class="right">&apos;Tis the season for depressing news:  The Bloomberg administration wants to <a href="https://web.archive.org/web/20110629190102/http://www.nydailynews.com/ny_local/2008/12/10/2008-12-10_goodbye_fire_class_hello_school_cuts_as_-2.html">cut another $1.4 billion</a> from the city&apos;s upcoming budget (he announced the <a href="https://web.archive.org/web/20110629190102/mailto:http://gothamist.com/2008/11/05/bloomberg_announces_big_budget_cuts.php">first round last month</a>). Each city agency face the same percentage of cuts, either 5% (or 7% if the city needs to spend less). The Daily News reports, &quot;The Fire Department has been told to postpone a scheduled academy class of 110 new Bravest next month. The NYPD lost one class in the first round of cuts.&quot; And today, Mayor Bloomberg <a href="https://web.archive.org/web/20110629190102/http://www.politickerny.com/1015/bloomberg-hotel-tax-possibly-more-cuts-fire-houses">said this second round of cuts might not be enough</a>: &#x201C;The next cut is firehouses.&quot;  The FDNY recently announced<a href="https://web.archive.org/web/20110629190102/http://gothamist.com/2008/12/05/fdny_announces_cutbacks_including_n.php"> cutbacks for night tours at four units</a>.</p>

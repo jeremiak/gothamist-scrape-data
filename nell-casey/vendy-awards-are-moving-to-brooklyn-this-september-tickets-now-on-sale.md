@@ -1,0 +1,17 @@
+---
+author: Nell Casey
+date: May 14, 2013 11:02 am
+title: Vendy Awards Are Moving To Brooklyn This September, Tickets Now On Sale
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="201209_vendy12.jpg" src="https://web.archive.org/web/20150505143416im_/http://gothamist.com/attachments/nyc_nellcasey/201209_vendy12.jpg" width="640" height="451"> <br> <i> <span class="photo_caption">Last year&apos;s People&apos;s Taste winner: The Cinnamon Snail Truck (Woody Loverude/Gothamist)</span></i></div> <p></p>
+
+<p>The <a href="https://web.archive.org/web/20150505143416/http://streetvendor.org/vendys/">Vendy Awards</a> have announced their 9th annual day of street vendor feasting and judging on Saturday, September 7th. For the past three years the Vendys have occupied Governor&apos;s Island, but now they&apos;re moving to a different waterfront venue this year: <a href="https://web.archive.org/web/20150505143416/http://www.bushterminal.com/">Industry City</a> in Sunset Park, Brooklyn. Director of the Street Vendor Project at the Urban Justice Center Sean Basinski says his organization is &quot;excited that Brooklyn, with its rich history, diversity, and food culture, will be the center of this fantastic food fight that unites thousands of New Yorkers.&#x201D; Plus, ya know, <em>Brooklyn</em>.</p>
+
+<p>The Vendys serve as a fundraiser for <a href="https://web.archive.org/web/20150505143416/http://streetvendor.org/">The Street Vendor Project at the Urban Justice Center</a>, a support system and membership-based non-profit that currently has more than 1,500 members from umbrella vendors to hot dog purveyors to sleek food trucks. On the day, street food vendors compete for the Vendy Cup, the top honor given out by the year&apos;s guest judges. Awards are also given for Rookie of the Year, Best Dessert, Heroic Vendor of the Year, Best of New Jersey, and the People&apos;s Taste Award. Last year the <a href="https://web.archive.org/web/20150505143416/https://www.facebook.com/PiaztlanBK">Piaztlan Authentic Mexican Food</a> <a href="https://web.archive.org/web/20150505143416/http://gothamist.com/2012/09/16/vegans_tacos_take_top_honors_at_str.php#photo-1">took home the top honors</a>, with <a href="https://web.archive.org/web/20150505143416/http://gothamist.com/2012/10/09/cinnamon_snail.php#photo-1">Cinnamon Snail Truck</a> snapping up the crowd&apos;s vote. </p>
+
+<p>Nominations for this year&apos;s Vendys are <a href="https://web.archive.org/web/20150505143416/http://streetvendor.org/vendys/nominations/">currently open online</a>, so if your weekly visit to <a href="https://web.archive.org/web/20150505143416/http://gothamist.com/2013/05/08/our_four_favorite_food_trucks_from.php">the Desi Truck</a> makes life worth living, <a href="https://web.archive.org/web/20150505143416/http://streetvendor.org/vendys/nominations/">step right this way and give them a nod</a>.  <a href="https://web.archive.org/web/20150505143416/http://nycvendys2013-eorg.eventbrite.com/">Early Bird tickets</a> are available now for $80, after which they&apos;ll jump up to $95 for General Admission. In addition to samples from all the participating vendors, you also get access to plenty of beer and wine, plus some live music and other <a href="https://web.archive.org/web/20150505143416/http://gothamist.com/2012/09/16/vegans_tacos_take_top_honors_at_str.php#photo-9">energetic performances</a>. </p>					
+										
+									
+				

@@ -1,0 +1,13 @@
+---
+author: Jen Carlson
+date: January 17, 2008 11:01 PM
+title: Even Crazy People Need Roommates
+---
+
+<p><img alt="200801catcraigslist.jpg" src="https://web.archive.org/web/20120124131548im_/http://gothamist.com/attachments/arts_jen/200801catcraigslist.jpg" width="300" height="226" class="right">Are you looking for a beautiful West Village apartment? Craigslist comes through <a href="https://web.archive.org/web/20120124131548/http://newyork.craigslist.org/mnh/roo/542386312.html">with a listing</a> for a &quot;Beautiful bedroom available in 2br/2ba WITH PRIVATE BATH&quot; for just $1350/month. There&apos;s even a living room! But you can&apos;t really use it...in fact, you probably shouldn&apos;t plan on ever being in the apartment lest you want the stink eye from roommate and Tito (pictured?). Here it is apartment hunters, the highlights:</p><blockquote>The apartment has a decent sized living space (combined with a small kitchen) that you will have use of. There is no sofa, chair, or television, as I am an artist and I use this space as my studio. <strong>You are free to stand around and look at my art, though!</strong><p></p>
+
+<p>Your room has newly restored hardwood floors and <strong>plenty of space for a twin bed</strong>. The room has great lighting and is very bright. The only small drawback is that there is <strong>no window</strong>.</p>
+
+<p>You will have <strong>shared use of the closet</strong> -- you will be sharing the space with my very sweet cat Tito. Your bathroom is ensuite, windowless, and has a shower stall instead of a tub, but it&apos;s still a great bonus. The only drawback is that there is <strong>no sink or toilet</strong>.</p></blockquote>We particularly love how she prefaces every single bad thing with a great highlight, like how the windowless bedroom is very bright. <p></p>
+
+<p>Oh, by the way, you must be a female kosher vegan, and your future roommate will simply not tolerate you being home during the day as she works on her masterpieces. If you&apos;re sick and feel the need to stay in your windowless cell of a bedroom, think twice, she suggests you &quot;go be sick at one of the many gorgeous cafes, restaurants, bars, and shops that this great area has to offer.&quot; In fact, being home at nights isn&apos;t encouraged either, so if you&apos;re a slutty female kosher vegan who &quot;frequently sleeps elsewhere&quot; she might even overlook that bad credit score.</p>

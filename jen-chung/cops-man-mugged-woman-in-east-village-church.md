@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: March 20, 2010  8:25 AM
+title: Cops: Man Mugged Woman In East Village Church
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2010_03_evmug.jpg" src="https://web.archive.org/web/20110811111402im_/http://gothamist.com/attachments/jen/2010_03_evmug.jpg" width="110" height="96" class="image-right"> </span>Police are looking for a man who allegedly mugged a woman at an East Village church yesterday morning. <a href="https://web.archive.org/web/20110811111402/http://www.1010wins.com/Praying-Woman-Mugged-in-Church/6618712">According to 1010 WINS</a>, &quot;The victim had been praying inside the Immaculate Conception Church on East 14th Street in the East Village when she was attacked around 6:30am. The 61 year old woman was grabbed by the neck from behind and forced to the floor. The suspect grabbed her brown leather purse from her hand.&quot;  The suspect was caught on surveillance video, running west on 14th Street and then south on First Avenue.  Police ask anyone with information to call Crime Stoppers (800 577 TIPS/8477), log on <a href="https://web.archive.org/web/20110811111402/http://WWW.NYPDCRIMESTOPPERS.COM/">WWW.NYPDCRIMESTOPPERS.COM</a> or text 274637 (CRIMES) then enter TIP577 and the tip.</p>

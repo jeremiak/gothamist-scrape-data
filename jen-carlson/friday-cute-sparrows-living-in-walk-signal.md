@@ -1,0 +1,7 @@
+---
+author: Jen Carlson
+date: May 21, 2010 12:52 PM
+title: Friday Cute: Sparrows Living In Walk Signal
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="sparrowscute.jpg" src="https://web.archive.org/web/20130305171956im_/http://gothamist.com/attachments/arts_jen/sparrowscute.jpg" width="102" height="110" class="image-right"> </span>City birds aren&apos;t just living in trees and <a href="https://web.archive.org/web/20130305171956/http://gothamist.com/2010/05/13/water_street_falcons_get_tagged.php">in the nooks</a> of tall buildings... they&apos;re also making themselves at home in our traffic lights! <a href="https://web.archive.org/web/20130305171956/http://www.nypost.com/p/news/local/manhattan/side_traffic_light_is_sparrows_home_UEPFwdm9RR4vDIoTGJkoqK?CMP=OTC-rss&amp;FEEDNAME=">The NY Post</a> has a cute story about a family of sparrows that lives inside of a crosswalk signal on the Upper West Side. And the only way they&apos;ll leave is if the Department of Transportation physically removes them (which they have threatened to do once they find the signal&#x2014;location undisclosed!). Urban bird specialist Karen Purcell told the paper, &quot;They are fierce nest competitors. They are able to evict other birds, even native species. They are survivors.&quot; Can someone please write a children&apos;s book about this little feathered family?</p>

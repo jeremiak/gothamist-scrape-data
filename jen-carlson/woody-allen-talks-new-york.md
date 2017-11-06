@@ -1,0 +1,15 @@
+---
+author: Jen Carlson
+date: Jan 13, 2008 4:45 pm
+title: Woody Allen Talks New York
+---
+
+	
+										<p><img alt="200801manhattan.jpg" src="https://web.archive.org/web/20150508164941im_/http://gothamist.com/attachments/arts_jen/200801manhattan.jpg" width="352" height="191" class="left"><a href="https://web.archive.org/web/20150508164941/http://www.brooklynpaper.com/stories/31/2/31_02curdled.html">The Brooklyn Paper</a> isn&apos;t the only one who has missed Woody Allen&apos;s &quot;quirky, oh-so-New-York films.&quot; On the verge of releasing his latest movie, <em>Cassandra&apos;s Dream</em> (in theaters Friday), Allen talked to <a href="https://web.archive.org/web/20150508164941/http://www.nydailynews.com/entertainment/movies/2008/01/13/2008-01-13_woody_allen_sounds_off.html?page=0">The Daily News</a> about when he might bring <em>his</em> New York to celluloid again. </p>
+
+<p>Looking back at his original love letter to New York, we find out that at first he didn&apos;t like his 1979 movie <em>Manhattan</em>, thinking &quot;If I can&apos;t do better than this at this point in my career, I should pack it in.&quot; Thankfully he didn&apos;t, and he&apos;s since influenced how people see the city -- where he&apos;ll be filming again this spring! (Hopefully sans <a href="https://web.archive.org/web/20150508164941/http://www.hollywood.com/news/Allen_Overwhelmed_by_Johanssons_Sexuality/3521442">Scar-Jo</a>.) When asked if it&apos;s getting harder to find his classic New York, he had this to say about the changing cityscape:</p><blockquote>There are certain areas that have not been encroached upon too much - Carnegie Hill, the West Village, Tudor City, places that are still lovely to look at. But once they put up those big new buildings, it looks the same as Houston.<p></p>
+
+<p>I&apos;ve been in fights and gone to City Hall and Landmark Commission and neighborhood planning [events]. There are always lovely things being torn down and huge, profitable things put up. I&apos;m not against development, but I am against it when it&apos;s not a plus for the city, and the plus can&apos;t always be equated with financial profit.</p></blockquote>We&apos;re guessing the development happening in Brooklyn isn&apos;t his cup of tea, either. He reflected on his old neighborhood, Avenue J in Flatbush, saying &quot;it was a paradise: There were delicatessens and German bakeries and toy stores and great Chinese restaurants, the best candy stores and beautiful old movie houses. I thought, well, this is what [a neighborhood] is. Now, if it was still anything like that, I&apos;d move back!&quot; You can get a guide for your own walking tour of Woody Allen&apos;s New York, what&apos;s left of it, <a href="https://web.archive.org/web/20150508164941/http://www.nyc-architecture.com/ARCH/Notes-Woody.htm">here</a>.<p></p>					
+										
+									
+				

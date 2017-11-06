@@ -1,0 +1,15 @@
+---
+author: Jen Chung
+date: August 26, 2008  9:43 AM
+title: S.I. Ferry Crash Widow has Harsh Words for City
+---
+
+<p><img alt="2008_08_sicrashset.jpg" src="https://web.archive.org/web/20110611054714im_/http://gothamist.com/attachments/jen/2008_08_sicrashset.jpg" width="232" height="216" class="left">Yesterday, the city <a href="https://web.archive.org/web/20110611054714/http://www.nytimes.com/2008/08/26/nyregion/26ferry.html?ref=nyregion">settled a wrongful death lawsuit</a> from the family of a man killed during the <a href="https://web.archive.org/web/20110611054714/http://gothamist.com/2003/10/15/breaking_news_staten_island_ferry_crash.php">2003 Staten Island Ferry crash</a>.  The city is giving $8.7 million to John Healy&apos;s widow Kathy and their four children.</p>
+
+<p>The Anthony J. Barberi ferry crashed into wood piling at the St. George Ferry terminal on October 15, killing 11 people. Assistant Captain Richard Smith said he was <a href="https://web.archive.org/web/20110611054714/http://gothamist.com/2006/01/10/staten_island_f.php">tired and on many medications</a>; his supervisor also failed to follow the two-pilot rule for ferry ships.  Last year, a judge ruled <a href="https://web.archive.org/web/20110611054714/http://gothamist.com/2007/02/27/no_limit_on_sta.php">against putting a cap on ferry settlements</a>.</p>
+
+<p>Kathy Healy <a href="https://web.archive.org/web/20110611054714/http://www.silive.com/news/index.ssf/2008/08/statement_from_widow_of_staten.html">released this statement</a>:</p><blockquote>&quot;It has been almost five years since the tragedy on the Staten Island Ferry occurred, and the pain my children and I have endured, words cannot express. From day one, the treatment the victims&apos; families received was never one of sympathy or sorrow. Mayor Bloomberg never gave a public apology about their mistakes, nor was nothing ever done to ease our pain, and given the magnitude of this disaster, no New York politician ever gave their support or help to us...<p></p>
+
+<p>&quot;Throughout these years, the city tried every legal maneuver to wear us down, and to stop us from being fairly compensated. But I strongly felt they needed to be held highly accountable for this tragedy, one that should have and could have been prevented. It was my decision to take a stance that I would take this to trial if I felt a reasonable settlement offer was not presented. It wasn&apos;t until a judge ordered an independent mediator to resolve this, and almost five years after the tragedy, and one week before the trial, the City of New York finally got it.&quot;</p></blockquote>The city settled with a man who lost both legs in the crash for $9 million--the largest settlement so far, while court proceedings began yesterday for victim James McMillan Jr., who was <a href="https://web.archive.org/web/20110611054714/http://gothamist.com/2008/08/05/city_claims_ferry_crash_victim_will.php">paralyzed and requires 24-hour care</a>.<p></p>
+
+<p><span class="photo_caption">Photograph of Kathy Healy from the Staten Island Advance</span></p>

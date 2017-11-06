@@ -1,0 +1,21 @@
+---
+author: Nell Casey
+date: Mar 9, 2014 5:00 pm
+title: Eat & Drink Through The Week At These 4 Food Happenings
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="022414greenwichhouse.jpg" src="https://web.archive.org/web/20140424123326im_/http://gothamist.com/attachments/nyc_nellcasey/022414greenwichhouse.jpg" width="640" height="427"> <br> <i> <span class="photo_caption">(<a href="https://web.archive.org/web/20140424123326/https://www.facebook.com/EbbeSweetPhotography">Ebbe Sweet Photography</a>)</span></i></div> <p></p>
+
+<p>More <a href="https://web.archive.org/web/20140424123326/http://gothamist.com/2014/03/08/22_reasons_why_daylight_saving_time.php">daylight hours</a> means more time available to enjoy the finer things in life&#x2014;namely, eating and drinking. Here&apos;s where to while away those extra rays of sunshine, beer in hand.</p>
+
+<p>Support the Greenwich House&apos;s 100+ years of commitment to providing services and support for individuals and families in need at their annual <strong><a href="https://web.archive.org/web/20140424123326/http://www.greenwichhouse.org/news/taste_of_GH/index">Taste of Greenwich House</a></strong> event to raise money and keep the programming alive. On Monday, some of the bigger names in our culinary scene&#x2014;like Anita Lo&apos;s Annisa, Harold Dieterle&apos;s The Marrow and newcomer <a href="https://web.archive.org/web/20140424123326/http://gothamist.com/2014/01/21/barbacon.php#photo-1">BarBacon</a>&#x2014;will be on hand to support the cause. As with most tasting events, each restaurant will offer some nibbles, plus there&apos;s an open bar and live music to keep things festive. <a href="https://web.archive.org/web/20140424123326/http://www.greenwichhouse.org/news/taste_of_GH/tickets">Tickets go for $150</a>, which gives you two hours (7:30 p.m. - 9:30 p.m.) of wining and dining. </p>
+
+<p>Two brewery-themed dinners drop this Tuesday. First up, <strong><a href="https://web.archive.org/web/20140424123326/http://foundersbrewing.com/">Founders Brewing</a> takes over the taps at Williamsburg&apos;s <a href="https://web.archive.org/web/20140424123326/http://allswellnyc.tumblr.com/">Allswell</a></strong> for a six course beer dinner. Nosh on bites like Anchovy Fritters paired with All Day IPA; Beer Braised Short Ribs paired with Red Rye IPA; and an Oatmeal Stout Ice Cream Sundae paired with Imperial Stout. They&apos;re offering two seatings for the dinners, first at 6 p.m. then at 8 p.m.; dinner runs for <a href="https://web.archive.org/web/20140424123326/http://founderskeepers.bpt.me/">just $65</a>. </p>
+
+<p>Next, the fine folks at <strong><a href="https://web.archive.org/web/20140424123326/http://www.frankspm.com/">Prime Meats</a> welcome <a href="https://web.archive.org/web/20140424123326/http://www.bellsbeer.com/">Bell&apos;s Brewery</a></strong> to their Court Street digs. Chef Javier created a multicultural menu of eats to complement Bell&apos;s fine suds, including Roti Lobster Rolls, Spaetzel &amp; Cheese, Banger and Mash pot stickers and Beef Rouladen. Email pmreservations@frankspm.com for reservations; dinners are $60 per person.</p>
+
+<p>If fundraising with galas and celebs is more your speed, head on over to <strong><a href="https://web.archive.org/web/20140424123326/http://www.doe.org/sweetny/">sweet: New York</a></strong> on Thursday, where they&apos;re throwing a big benefit for The Doe Fund at <a href="https://web.archive.org/web/20140424123326/http://www.theboweryhotel.com/photos.php">The Bowery Hotel</a>. You&apos;ll get bites from BLT Prime, Telepan, Cascabel and more plus free-flowing booze from Union Beer, Spud Vodka and NY Distilling Company. We&apos;re told to expect some special guests&#x2014;the <em>Orange is the New Black</em> cast went last year&#x2014;and apparently Ethan Hawke and Kathleen Turner are big fans, so have your autograph books at the ready. The event runs from 7 p.m. to 10 p.m. with <a href="https://web.archive.org/web/20140424123326/https://www.doe.org/secure/sweetny/">General Admission tickets $100 and VIP $150</a>. </p>					
+										
+									
+				

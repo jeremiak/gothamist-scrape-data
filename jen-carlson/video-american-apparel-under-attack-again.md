@@ -1,0 +1,17 @@
+---
+author: Jen Carlson
+date: May  3, 2010  9:48 AM
+title: Video: American Apparel Under Attack... Again
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="php8429bmPM.jpg" src="https://web.archive.org/web/20130621083725im_/http://gothamist.com/attachments/arts_jen/php8429bmPM.jpg" width="350" height="213" class="image-left"> </span>Late last night an <a href="https://web.archive.org/web/20130621083725/http://gothamist.com/tags/americanapparel">American Apparel</a> rep informed us that a group of teenage protesters smashed windows at their flagship store on Broadway this past Saturday. After the group took out two windows there, they moved along and ended up smashing windows at several other stores, including a nearby GNC. </p>
+
+<p>The NYPD managed to track down the teens, making several arrests, but during the chaos an American Apparel employee who was helping them (presumably <a href="https://web.archive.org/web/20130621083725/http://store.americanapparel.net/rsals302s.html?cid=1091">attired in this</a> very flexible Nylon Spandex Stretch Lace Diamond Grid Bodysuit number) fractured a forearm.</p>
+
+<p>Pictured is a photo of the group in action that the company sent along to us. With so many <a href="https://web.archive.org/web/20130621083725/http://gothamist.com/2010/03/08/amer_apparel.php">anarchist attacks</a> on the store <a href="https://web.archive.org/web/20130621083725/http://gothamist.com/2010/02/25/aa.php">lately</a>, this latest by some marketable teen$, we wonder if this is just their new ad campaign. They told us the busted out windows will cost around $3,000 to replace... which has got to be cheaper than a billboard on <a href="https://web.archive.org/web/20130621083725/http://gothamist.com/2007/10/24/seen_on_the_cor_2.php">Houston Street</a>.</p>
+
+<p>But assuming all this nonsense is for real, the latest attack may be explained by this <a href="https://web.archive.org/web/20130621083725/http://twitter.com/limnrix/status/13205328369">Twitter</a>&#x2014;which includes a photo of the smashed window. It reads: &quot;Not unrelated to migrant worker rights: smashed american apparel storefront window.&quot; (We&apos;re told this is the American Apparel&apos;s 11th year <a href="https://web.archive.org/web/20130621083725/http://laist.com/2010/04/29/for_may_day_american_apparel_worker.php">pushing for immigration reform</a>.) A police report is expected later this week with more on the motive behind the attack.</p>
+
+<p><strong>UPDATE:</strong> A group called Defend Capital sent along this video from the scene, where you can see a gent donning bright red sunglasses defend the store by eloquently threatening the protesters, screaming, &quot;I&apos;ll fucking kill you all!&quot; They tell us, &quot;we love that store so we decided to chase those punks down and make sure that they got what was coming to them from the cops.&quot;</p>
+
+<p><object width="640" height="385"><param name="movie" value="http://www.youtube.com/v/wUNOVgAlxdM&amp;hl=en_US&amp;fs=1&amp;"><param name="allowFullScreen" value="true"><param name="allowscriptaccess" value="always"><embed src="https://web.archive.org/web/20130621083725oe_/http://www.youtube.com/v/wUNOVgAlxdM&amp;hl=en_US&amp;fs=1&amp;" type="application/x-shockwave-flash" allowscriptaccess="always" allowfullscreen="true" width="640" height="385"></object></p>

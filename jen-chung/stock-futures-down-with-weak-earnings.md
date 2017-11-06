@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: October 22, 2008  8:44 AM
+title: Stock Futures Down with Weak Earnings
+---
+
+<p><img alt="2008_10_ws22.jpg" src="https://web.archive.org/web/20110811095252im_/http://gothamist.com/attachments/jen/2008_10_ws22.jpg" width="130" height="105" class="right">A number of big companies, including Boeing, Wachovia, and AT&amp;T;, are announcing disappointing earnings, which are <a href="https://web.archive.org/web/20110811095252/http://www.cnbc.com/id/27317550">moving stock futures to a lower open</a>. Notably Wachovia, which is being taken over by Wells Fargo, had a <a href="https://web.archive.org/web/20110811095252/http://www.bloomberg.com/apps/news?pid=20601087&amp;sid=ahpYXqU7ZlDI&amp;refer=home">$23.9 billion loss in the third quarter</a>--&quot;compared with net income of $1.6 billion&quot; during the same period last year.  Yahoo posted losses yesterday, but Apple says its 26% rise in third quarter profit was <a href="https://web.archive.org/web/20110811095252/http://dealbreaker.com/2008/10/earnings-roundup-apple-yahoo-e.php">due to the new 3G iPhone</a>; still, it wasn&apos;t enough to keep the U.S. markets from falling. Markets <a href="https://web.archive.org/web/20110811095252/http://wcbstv.com/national/world.markets.tumble.2.846061.html">in Asia fell, and European markets are down</a>.</p>

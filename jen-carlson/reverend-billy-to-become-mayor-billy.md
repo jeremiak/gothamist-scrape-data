@@ -1,0 +1,11 @@
+---
+author: Jen Carlson
+date: March  2, 2009  1:25 PM
+title: Reverend Billy to Become Mayor Billy?
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="phpw15YhRPM.jpg" src="https://web.archive.org/web/20120119081749im_/http://gothamist.com/attachments/arts_jen/phpw15YhRPM.jpg" width="660" height="439" class="image-none"> </span><span class="photo_caption">Photo of Rev. Billy&apos;s announcing his campaign via <a href="https://web.archive.org/web/20120119081749/http://flickr.com/photos/randomdeanna/3320637650/in/set-72157614628079656/">randomdeanna&apos;s flickr</a>.</span></p>
+
+<p>Watch out Bloomberg! Yesterday <a href="https://web.archive.org/web/20120119081749/http://gothamist.com/2007/10/16/reverend_billy_1.php">Reverend Billy</a> launched <a href="https://web.archive.org/web/20120119081749/http://www.voterevbilly.org/">his campaign for Mayor</a> of New York City, sending out a letter declaring &quot;It&apos;s time for all of us to rise up and reclaim our wonderful city from Starbucks and the other awful chain stores, from real estate speculators and the predators on Wall Street. Together, we&apos;ll give New York back to the people who love it.&quot; Hallelujah! Nominated by the Green Party last week, he made his announcement in-person in Union Square yesterday, donning an electric blue suit. This campaign needs a <a href="https://web.archive.org/web/20120119081749/http://dcist.com/2009/01/shepard_faireys_obama_portrait_acqu.php">Shepard Fairey portrait</a>, stat.</p>
+
+<p>The Rev&apos;s press officer, Michael O&apos;Neil, told <a href="https://web.archive.org/web/20120119081749/http://www.nytimes.com/2009/03/02/nyregion/02billy.html?_r=1&amp;ref=nyregion">the NY Times</a>, &#x201C;We&#x2019;re at a critical point in the city&#x2019;s history right now. The mayor&#x2019;s trying to privatize Union Square. We&#x2019;re surrounded by logos everywhere. We need to oppose that.&#x201D; So you can bet that a vote for Billy is a vote to <a href="https://web.archive.org/web/20120119081749/http://gothamist.com/2009/02/20/wal-mart_to_union_square.php">keep Wal-Mart out</a> of New York. Read the Rev&apos;s full letter after the jump, you can also follow him <a href="https://web.archive.org/web/20120119081749/https://twitter.com/revbillytalen">on Twitter</a>.</p>

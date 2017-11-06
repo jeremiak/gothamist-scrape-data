@@ -1,0 +1,15 @@
+---
+author: Jen Carlson
+date: Dec 9, 2011 4:49 pm
+title: Two People Claim They Got Ear Infections From The New Museum's Tank
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-right" style=" width:353px; "> <img alt="newexperienceDOH1011.jpeg" src="https://web.archive.org/web/20150521011734im_/http://gothamist.com/attachments/arts_jen/newexperienceDOH1011.jpeg" width="353" height="315"> <br> <i>Photo by <a href="https://web.archive.org/web/20150521011734/http://colormekatie.blogspot.com/">Katie Sokoler</a>/Gothamist</i></div> Not too long ago the Department of Health <a href="https://web.archive.org/web/20150521011734/http://gothamist.com/2011/10/29/city_says_new_museum_is_breaking_he.php">paid of visit</a> to the New Museum&apos;s Carsten H&#xF6;ller Experience exhibit, which features a sensory deprivation tank, called the &quot;Psycho Tank.&quot; Upon their departure they told the museum the tank, which visitors float around in naked, could only have one person in it at time, but overall cleared the exhibit. Now a recent visitor is claiming she contracted an ear infection from the tank, as did her boyfriend. She tells us:<p></p>
+
+<blockquote>&quot;I went to the New Museum with my boyfriend on Sunday, November 27th. My boyfriend and I waited in line for three hours to float in the sensory deprivation tank... Which means that I would float around naked in a tank that many museum visitors had already been in that day. I recognize some risks here, but the water was heavily chemically treated, and the NY Health Department had already cracked down on them for some issues, so I figured, how much more dangerous could this be than a typical pool?
+
+<p>Well, at least marginally more dangerous. Two days later, we both had very painful ear infections in both ears. I had never had an ear infection in my life! After 8 days of antibiotics, our ear infections are STILL not gone. I tried to post this information on <a href="https://web.archive.org/web/20150521011734/http://experiencewiki-newmuseum.tumblr.com/">their Tumblr</a>, but surprise, surprise, the moderator has not yet approved my post.&quot;</p></blockquote>Aside from trying to post on the Tumblr, she hasn&apos;t tried contacting the museum. We reached out this morning for a comment, but have yet to hear back. It&apos;s possible this infection came from somewhere else, or that&apos;s it&apos;s <a href="https://web.archive.org/web/20150521011734/http://www.mayoclinic.com/health/swimmers-ear/DS00473">swimmer&apos;s ear</a>, but she tells us, &quot;I am absolutely certain it came from the tank. We both are not prone to infections&#x2014;and I&apos;ve never had an ear infection before.&quot; Has anyone else experienced a problem at the exhibit (which, by the way, <a href="https://web.archive.org/web/20150521011734/http://gothamist.com/2011/10/25/the_new_museums_giant_slide_is_here.php#photo-1">is pretty amazing</a>, so we hope not).<p></p>					
+										
+									
+				

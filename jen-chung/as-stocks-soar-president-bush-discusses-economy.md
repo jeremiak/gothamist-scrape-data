@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: September 19, 2008  3:50 PM
+title: As Stocks Soar, President Bush Discusses Economy
+---
+
+<p><img alt="2008_09_bushet.jpg" src="https://web.archive.org/web/20111117120107im_/http://gothamist.com/attachments/jen/2008_09_bushet.jpg" width="130" height="111" class="right">To no one&apos;s surprise, given the <a href="https://web.archive.org/web/20111117120107/http://gothamist.com/2008/09/19/treasury_federal_reserve_plan_bailo.php">government&apos;s announced bailout</a>, stocks <a href="https://web.archive.org/web/20111117120107/http://www.cnbc.com/id/26794293">have rallied</a>, with the Dow climbing up between 300 and 400 points.  President Bush  <a href="https://web.archive.org/web/20111117120107/http://www.whitehouse.gov/news/releases/2008/09/20080919-2.html">had a press conference earlier</a>, saying while the American financial system is &quot;intricate and complex,&quot; &quot;Investors should know that the United States government is taking action to restore confidence in America&apos;s financial markets so they can thrive again.&quot;  He also summed up the times of his presidency: &quot;<strong>Since 2001, our economy has faced a recession, the bursting of the dot-com bubble, major corporate scandals, an unprecedented attack on our homeland, a global war on terror, a series of devastating natural disasters.</strong>&quot;</p>

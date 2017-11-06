@@ -1,0 +1,11 @@
+---
+author: Jen Chung
+date: December 22, 2009  3:47 PM
+title: Rudy Giuliani Says Right Now, Business Is Coming First!
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <a href="https://web.archive.org/web/20130617144425/http://gothamist.com/attachments/jen/2009_12_rudyg.jpg"> <img alt="2009_12_rudyg.jpg" src="https://web.archive.org/web/20130617144425im_/http://gothamist.com/assets_c/2009/12/2009_12_rudyg-thumb-323x246-468196.jpg" width="243" height="185" class="image-left"> </a> </span>While former NYC mayor Rudy Giuliani will make an official announcement that he&apos;s <a href="https://web.archive.org/web/20130617144425/http://gothamist.com/2009/12/22/rudy_giuliani_wont_run_for_senateor.php">not running for office next year</a> during an appearance with NY State gubernatorial hopeful Rick Lazio, he did speak with <a href="https://web.archive.org/web/20130617144425/http://abclocal.go.com/wabc/story?section=news/politics&amp;id=7183486">WABC 7&apos;s Lisa Colagrassi</a> about why he wasn&apos;t running.</p>
+
+<p>He explained, &quot;None of them has to do with not wanting to it. I would&apos;ve loved to run for either governor or the state Senate, they&apos;re both great honors. I love public service. It just happens to be that right now, both of the enterprises that I&apos;m in&#x2014;<a href="https://web.archive.org/web/20130617144425/http://www.bracewellgiuliani.com/">Bracewell &amp; Giuliani</a> and <a href="https://web.archive.org/web/20130617144425/http://www.giulianipartners.com/default.aspx">Giuliani Partners</a>&#x2014; are at a critical point.&quot; (Video <a href="https://web.archive.org/web/20130617144425/http://abclocal.go.com/wabc/story?section=news/politics&amp;id=7183486">at WABC 7</a>.)</p>
+
+<p>Baruch College professor David Birdsell is skeptical that Giuliani can make a political comeback, &quot;It&apos;s hard to see where he picks up from here. <strong>If you add another couple of years, you get further away from the 9/11 reputation</strong>. You get further away from New York&apos;s mayor and further away from the things that make Giuliani, &apos;Rudy Giuliani.&apos;&quot; </p>

@@ -1,0 +1,24 @@
+---
+author: Jen Carlson
+date: February 27, 2012  5:02 PM
+title: 5 Things We Want To Eat At This Weekend's Vegetarian Food Fest
+---
+
+<p>New York&apos;s Vegetarian Food Festival returns this weekend, with two full meat-free days at the Metropolitan Pavilion. And while there will be events, we&apos;re mostly interested in the vegetarian food companies and restaurants partaking. And here are five that we&apos;re <em>really</em> looking forward to. (Bonus: <a href="https://web.archive.org/web/20120421210001/http://nycvegfoodfest.com/get-tickets/">tickets</a> are just 5 bucks, unless you want to go <a href="https://web.archive.org/web/20120421210001/https://nycvegetarianfoodfestival.chirrpy.com/">VIP style</a>, which will be up to $30.)</p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="NEWfauxgrasdoughnut0911.jpeg" src="https://web.archive.org/web/20120421210001im_/http://gothamist.com/attachments/arts_jen/NEWfauxgrasdoughnut0911.jpeg" width="640" height="480" class="image-none"> </span></p>
+
+<p><strong><a href="https://web.archive.org/web/20120421210001/http://www.theregalvegan.com/site/">THE REGAL VEGAN</a></strong> makes hands down the best vegan treat we&apos;ve ever had the pleasure of spooning furiously into our mouths: Faux Gras. (You may remember that time we tried this product <a href="https://web.archive.org/web/20120421210001/http://gothamist.com/2011/09/09/a_faux_vs_foie_gras_doughnut_taste-.php">stuffed inside of a doughnut</a>.) Just thinking about the Toasted Walnut Lentil Pat&#xE9; makes us drool, and if you can&apos;t make it this weekend, there are plenty of other places <a href="https://web.archive.org/web/20120421210001/http://www.theregalvegan.com/site/faux_gras/where-to-buy">in NYC</a> to pick the stuff up.</p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="rawslaw0212.jpeg" src="https://web.archive.org/web/20120421210001im_/http://gothamist.com/attachments/arts_jen/rawslaw0212.jpeg" width="640" height="278" class="image-none"> </span><br>
+<a href="https://web.archive.org/web/20120421210001/http://www.baofoodanddrink.com/"><strong>BAO FOOD</strong></a> takes the concept of raw food and applies it to your condiments and your slaw. The company started out in Hell&apos;s Kitchen, and just last year expanded to Queens to create New York&apos;s first urban fermentation farm, where they also make Kombucha. We&apos;re particularly interested in trying out their green slaw, made from 100% organic kale, collard greens and dandelion greens.</p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="rawicecream.jpeg" src="https://web.archive.org/web/20120421210001im_/http://gothamist.com/attachments/arts_jen/rawicecream.jpeg" width="640" height="319" class="image-none"> </span><br>
+The <a href="https://web.archive.org/web/20120421210001/http://www.rawicecreamcompany.com/"><strong>RAW ICE CREAM COMPANY</strong></a> creates ice cream sans processed sugars and animal fat. Agave, coconuts, and cashews are amongst the substitues they use for their raw version of ice cream. It is also gluten, soy, lactose, and filler-free. They have plenty of flavors, along with ice cream sandwiches.</p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="marshvegan.jpeg" src="https://web.archive.org/web/20120421210001im_/http://gothamist.com/attachments/arts_jen/marshvegan.jpeg" width="640" height="205" class="image-none"> </span></p>
+
+<p><strong><a href="https://web.archive.org/web/20120421210001/http://sweetandsara.com/">SWEET &amp; SARA</a></strong> makes vegan marshmallows! <a href="https://web.archive.org/web/20120421210001/http://sweetandsara.com/products.php">Including</a> cinnamon-pecan, vanilla, toasted coconut, and even chocolate covered ones. And yes, there will be vegan S&apos;mores.</p>
+
+<center><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="bagelspice021222.jpeg" src="https://web.archive.org/web/20120421210001im_/http://gothamist.com/attachments/arts_jen/bagelspice021222.jpeg" width="400" height="161" class="image-none"> </span></center>
+Even carnivores will enjoy <a href="https://web.archive.org/web/20120421210001/http://www.bagelspice.com/"><strong>BAGEL SPICE</strong></a>. This is basically a product that takes your favorite &quot;flavor&quot; of bagel and delivers it sans bagel, so you can shake it on to just about anything. They recommend adding it to &quot;hummus, spreads, salads, eggs, meats, and other dishes&quot;&#x2014;at least one person has fried them on to chicken wings, and another has rimmed their Bloody Mary glass with it... genius.

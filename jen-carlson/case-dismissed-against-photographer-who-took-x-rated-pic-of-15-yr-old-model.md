@@ -1,0 +1,17 @@
+---
+author: Jen Carlson
+date: Feb 10, 2012 11:32 am
+title: Case Dismissed Against Photographer Who Took "X-Rated" Pic Of 15-Yr-Old Model
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-right" style=" width:324px; "> <img alt="clausshirt0212.jpeg" src="https://web.archive.org/web/20150429095955im_/http://gothamist.com/attachments/arts_jen/clausshirt0212.jpeg" width="324" height="338"> <br> <i>The shirt</i></div> Last year Urban Outfitters and photographer Jason Lee Parry got into some trouble after <a href="https://web.archive.org/web/20150429095955/http://gothamist.com/2011/08/19/urban_outfitters_amongst_those_bein.php">a 15-year-old</a> model named <a href="https://web.archive.org/web/20150429095955/http://models.com/people/hailey-clauson">Hailey Clauson</a> was featured in an &quot;X-rated&quot; print on a t-shirt sold in the store. Parry was the photographer, and the model&apos;s parent&apos;s filed a lawsuit against him and the retailer in Manhattan Federal Court. Yesterday, about six months after filing, a Manhattan federal judge dismissed the $28 million suit, at least against Parry, who the judge said &#x201C;is not subject to jurisdiction under New York law.&quot; According to <a href="https://web.archive.org/web/20150429095955/http://www.nypost.com/p/news/local/manhattan/fotog_cleared_over_lewd_kid_pix_n1y4ExvtuagJXo8w24njRN#ixzz1lzPgIWet">the NY Post</a>, this is because the photo was shot in California. Urban Outfitters, however, remains a defendant in the case. At the time, Blood is the New Black (who made the shirt in question), told us: <p></p>
+
+<blockquote>The images were delivered to us by Jason Lee Parry with the sole purpose of producing tee shirts and marketing them to our network of stores worldwide. One image, depicting a woman on a motorcycle, was printed on men&#x2019;s and women&#x2019;s tee shirts and sold to a number of stores, including Urban Outfitters. Neither Urban Outfitters nor Blood is the New Black were aware that the photographer had failed to obtain a model release from the Teen Model or her parents, who were present at the shoot.</blockquote>
+
+<p>This week there was <a href="https://web.archive.org/web/20150429095955/http://gothamist.com/2012/02/09/underage_models.php">some outrage</a> over designers using models on the runway during Fashion Week that are under 16. Some believe models &quot;are more likely to have the maturity to deal with being rejected by designers or treated disrespectfully by photographers&quot; by that age. While others feel that photographers like Terry Richardson (who likes &quot;girls who appear underage, abused, look like heroin addicts&quot;) will turn out over-sexualized photos of teens. </p>
+
+<p>As for Clauson, she&apos;s certainly been sexualized in other photoshoots (<a href="https://web.archive.org/web/20150429095955/http://haileyclauson.blogspot.com/2011/01/gucci.html">ahem, Gucci</a>), so it&apos;s not just Richardson, but also high-end designers. In fact, recently photos came out showing the 10-year-old daughter of Cindy Crawford looking much older in <a href="https://web.archive.org/web/20150429095955/http://www.dailymail.co.uk/femail/article-2088381/Kaia-Gerber-Versace-ad-campaign-Cindy-Crawfords-daughter-10-makes-modelling-debut.html">this Versace ad campaign</a>.</p>					
+										
+									
+				

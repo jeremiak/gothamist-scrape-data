@@ -1,0 +1,16 @@
+---
+author: Jen Chung
+date: October 22, 2008 12:11 AM
+title: Report: $150K Spent on Palin's Clothing, Style 
+---
+
+<p><img alt="2008_10_palinc22.jpg" src="https://web.archive.org/web/20110811135720im_/http://gothamist.com/attachments/jen/2008_10_palinc22.jpg" width="610" height="425"><br>
+<span class="photo_caption">Photographs of Palin with daughter Willow and son Trig in Nevada (above) and in Colorado (below) from the AP</span></p>
+
+<p>Based on financial disclosure records,  <a href="https://web.archive.org/web/20110811135720/http://www.politico.com/news/stories/1008/14805.html">Politico reports</a> that the Republican National Committee apparently <strong>spent over $150,000 to &quot;clothe and accessorize vice presidential candidate Sarah Palin and her family</strong> since her surprise pick by John McCain in late August.&quot;  Some of the expenses:  $49,425.74 in Saks Fifth Avenue bills in St. Louis and New York;  $75,062.63 at Neiman Marcus in Minneapolis; $789.72 at Barney&#x2019;s New York; $5,102.71 at Bloomingdale&#x2019;s in New York; and $4,716.49 in hair and makeup. </p>
+
+<p><img alt="2008_10_palinleat.jpg" src="https://web.archive.org/web/20110811135720im_/http://gothamist.com/attachments/jen/2008_10_palinleat.jpg" width="200" height="267" class="left">A McCain spokeswoman only responded to Politico&apos;s questions with, &quot;The campaign does not comment on strategic decisions regarding how financial resources available to the campaign are spent,&quot; but later<a href="https://web.archive.org/web/20110811135720/http://www.nydailynews.com/news/politics/2008/10/21/2008-10-21_rnc_spends_thousands_on_dresses_makeup_f.html"> another spokeswoman said</a>, &quot;It was always the intent that the clothing go to a charitable purpose after the campaign.&quot;</p>
+
+<p>Previously, candidates&apos; expensive habits have been criticized and ridiculed, <a href="https://web.archive.org/web/20110811135720/http://www.nypost.com/seven/04172007/news/nationalnews/johns_400_trim_nationalnews_ian_bishop.htm">notably John Edwards and his $400 haircuts.</a> And during the Republican National Convention, Cindy McCain&apos;s outfit <a href="https://web.archive.org/web/20110811135720/http://www.vanityfair.com/online/politics/2008/09/cindy-mccains-300000-outfit.html">was estimated out to cost</a> at least $3,000 in clothing and almost $300,000 in jewelry and accessories.  Palin, though, has staked a claim to being a regular hockey mom and a representative of Joe SIx Pack.  </p>
+
+<p>In other Palin-related expense reporting, the <a href="https://web.archive.org/web/20110811135720/http://ap.google.com/article/ALeqM5jwb6ekOiK0T9yFvw_WURcrdPI65QD93V4AJ82">Associated Press reports</a>, &quot;Gov. Sarah Palin charged the state for her children to travel with her, including to events where they were not invited, and later amended expense reports to specify that they were on official business.&quot;  Expenses include plane tickets for her daughters to see Todd Palin compete in a snow mobile event and &quot;a trip to New York, where the governor attended a five-hour conference and stayed with 17-year-old Bristol for five days and four nights&quot; at the luxury Essex House hotel.  </p>

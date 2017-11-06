@@ -1,0 +1,9 @@
+---
+author: Jen Carlson
+date: November  9, 2006 11:43 AM
+title: Dylan is Heading Off Broadway
+---
+
+<p><img alt="2006_11_arts_dylanbroadway.jpg" src="https://web.archive.org/web/20130630112749im_/http://www.gothamist.com/attachments/arts_jen/2006_11_arts_dylanbroadway.jpg" width="300" height="185" class="right">There are some things that just don&apos;t belong on Broadway. We can all agree that Bob Dylan&apos;s music is one of those things (even if the man himself enjoyed the show). Finally the powers that be have also realized this and have <a href="https://web.archive.org/web/20130630112749/http://www.gawker.com/news/bob-dylan/dylan-show-hits-highway-61-213545.php">pulled the plug</a> on <a href="https://web.archive.org/web/20130630112749/http://www.timestheyareachangin.com/">The Times They Are A-Changin&apos;</a>, after only a month on stage. Wonder what&apos;s next for Twyla Tharp?  Let&apos;s just hope she doesn&apos;t think of a good dance number for The Velvet Underground&apos;s &quot;White Light/White Heat&quot;. </p>
+
+<p>Some Dylan alternatives: go recreate <a href="https://web.archive.org/web/20130630112749/http://www.gothamist.com/archives/2006/04/18/nyc_album_art_t.php">The Freewheelin&apos; Bob Dylan album cover</a>, or check out <a href="https://web.archive.org/web/20130630112749/http://www.gothamist.com/archives/2006/09/18/dylan_at_the_mo.php">the Dylan exhibit</a> that is still open at The Morgan. No coreographed dance numbers at that one. There&apos;s also <a href="https://web.archive.org/web/20130630112749/http://www.gothamist.com/archives/2006/09/07/dylan_for_the_y.php">the Benefit for Music for Youth show tonight</a>, which will include a whole bunch of bands and musicians singing the Songs of Bob Dylan. <a href="https://web.archive.org/web/20130630112749/http://www.musicforyouth.org/bobdylan/">More details here</a>. </p>

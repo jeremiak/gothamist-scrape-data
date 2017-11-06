@@ -1,0 +1,16 @@
+---
+author: Jen Carlson
+date: August 31, 2009  4:31 PM
+title: Grizzly Bear & Friends Help Brooklyn Say Goodbye to Summer
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="phpvZQuBFPM-1.jpg" src="https://web.archive.org/web/20120602100640im_/http://gothamist.com/attachments/arts_jen/phpvZQuBFPM-1.jpg" width="640" height="459" class="image-none"> </span><br>
+<span class="photo_caption">Photos by <a href="https://web.archive.org/web/20120602100640/mailto:ruschm@gmail.com">Michael Rusch</a>/<a href="https://web.archive.org/web/20120602100640/http://www.freewilliamsburg.com/archives/2009/08/jayz_and_beyonc.html">FreeWilliamsburg</a></span></p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="phpY1ZlbIPM.jpg" src="https://web.archive.org/web/20120602100640im_/http://gothamist.com/attachments/arts_jen/phpY1ZlbIPM.jpg" width="350" height="254" class="image-left"> </span>Sigh, as today&apos;s weather hints at: summer is nearly over. This means that the outdoor concerts are coming to an end, with <a href="https://web.archive.org/web/20120602100640/http://gothamist.com/tags/poolparties">the Pool Parties</a> having their last hurrah on the waterfront yesterday afternoon. Brooklyn band <a href="https://web.archive.org/web/20120602100640/http://www.grizzly-bear.net/">Grizzly Bear</a> helped send off the season, providing a soundtrack with sounds from their latest release <em>Veckatimest</em> as well as their previous effort <em>Yellow House</em>. </p>
+
+<p>The crowd, a sea of plaid, straw hats, flow-y dresses and v-necks, doted on every ethereal note&#x2014;and many earned their spots in the crowd, waiting nearly 2 hours to get in (when the gates were closed off to the many who couldn&apos;t squeeze by the State Park officials, frontman <a href="https://web.archive.org/web/20120602100640/http://twitter.com/EdwardDroste/status/3652634399">Ed Droste suggested</a> slipping through the fence cracks). Amongst those who made it through were actress Mischa Barton, Senator Chuck Schumer (<a href="https://web.archive.org/web/20120602100640/http://gothamist.com/2009/08/24/girl_talks_williamsburg_pool_party.php">again</a>!), <a href="https://web.archive.org/web/20120602100640/http://www.freewilliamsburg.com/archives/2009/08/jayz_and_beyonc.html">Jay-Z and Beyonce</a>.</p>
+
+<p>Aside from the A-list sightings, the main highlights were in the headliner&apos;s set, which included their single &quot;Two Weeks,&quot; a piano-driven tune which featured guest vocals from Victoria Legrand of opening band Beach House. A common fear was that their orchestral and organic sound might be lost in such a big open space, but there wasn&apos;t a sore song in the bunch.  The intricacies of their record translated seamlessly through the big speakers. Towards the end, the sun setting backdropped the event, which perfectly closed out the summer. Now, where are <em>next year&apos;s</em> parties <a href="https://web.archive.org/web/20120602100640/http://gothamist.com/2009/03/27/pool_concerts_on_the_east_river.php">going to be held</a>?</p>
+
+<p><span class="photo_caption">Additional reporting from Michelle Geslani.</span></p>

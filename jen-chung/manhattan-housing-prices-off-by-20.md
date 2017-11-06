@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: December 17, 2008 12:24 PM
+title: Manhattan Housing Prices Off by 20%
+---
+
+<p><img alt="2008_12_apst.jpg" src="https://web.archive.org/web/20110624102258im_/http://gothamist.com/attachments/jen/2008_12_apst.jpg" width="140" height="136" class="right">The <a href="https://web.archive.org/web/20110624102258/http://ny.therealdeal.com/articles/manhattan-home-prices-down-around-20">Real Deal reports</a> that, according to the Federal Reserve&apos;s &quot;Beige Book,&quot;  Manhattan co-op and condo sale prices have &quot;fallen by 15 to 20 percent since mid-summer, though it is hard to get a clear handle on prices due to thin volume. <strong>Much of the recent activity is reportedly from desperate sellers</strong>.&quot;  Sales volume was also apparently off by 28% for the first three quarters of 2008, and appraiser Jonathan Miller explains, &quot;A drop in transactions always precedes a drop in prices, because it leads to [an]  increase in inventory. It&apos;s really a canary in the subway.&quot;  Still, some brokers are trying to insist business is picking up, with open house attendance rising recently&#x2014;which <a href="https://web.archive.org/web/20110624102258/http://curbed.com/archives/2008/12/17/report_manhattan_prices_have_plunged_20_since_summer.php">some Curbed commenters question</a>.</p>

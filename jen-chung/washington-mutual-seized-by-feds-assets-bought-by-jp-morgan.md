@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: September 25, 2008 11:08 PM
+title: Washington Mutual Seized by Feds, Assets Bought by JPMorgan
+---
+
+<p><img alt="2008_09_wamu.jpg" src="https://web.archive.org/web/20120119104012im_/http://gothamist.com/attachments/jen/2008_09_wamu.jpg" width="125" height="127" class="right">Biggest U.S. bank failure ever:  Washington Mutual, which struggled to find a buyer, was <a href="https://web.archive.org/web/20120119104012/http://www.cnbc.com/id/26893741">closed by the federal Office of Thrift Supervision and the FDIC</a>, for &quot;insufficient liquidity&quot; and being &quot;unsound.&quot; The government orchestrated JPMorgan Chase&apos;s purchase of WaMu deposits for just $1.9 billion. WaMu&apos;s is the country&apos;s biggest savings and loan and has $310 billion in assets, but was <a href="https://web.archive.org/web/20120119104012/http://ap.google.com/article/ALeqM5iu7Ckgli8HjvWqHni7UGlhTBhemgD93E3T601">affected by the mortgage crisis</a>. Also, while shareholders and bondholds will be wiped out, the <a href="https://web.archive.org/web/20120119104012/http://www.nytimes.com/2008/09/26/business/26wamu.html?hp">NY Times says</a> Wamu customers &quot;are unlikely to be affected.&quot;  (Also, the FDIC insures deposits up to $100,000).  Earlier this year, WaMu rejected JPMorgan&apos;s takeover at $4/share--an analyst told Bloomberg News, &quot;<strong>JPMorgan is getting a steal compared with what they were going to pay. It&apos;s very tragic</strong>.&apos;&apos;</p>

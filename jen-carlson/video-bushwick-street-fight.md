@@ -1,0 +1,11 @@
+---
+author: Jen Carlson
+date: July 29, 2009  5:48 PM
+title: Video: Bushwick Street Fight
+---
+
+<p>Summertime really sets the stage for <a href="https://web.archive.org/web/20120602115106/http://gothamist.com/2009/07/21/video_bicyclist_attacks_man_with_lo.php">street fights</a>, and <a href="https://web.archive.org/web/20120602115106/http://bushwickbk.com/2009/07/28/video-old-men-fight-on-central-avenue/">BushwickBK</a> points us to one they say recently took place between two men in their 60s (though they look younger to us). The weapon of choice: aluminum rods.</p>
+
+<center><object type="application/x-shockwave-flash" width="600" height="450" data="https://web.archive.org/web/20120602115106im_/http://www.flickr.com/apps/video/stewart.swf?v=71377" classid="clsid:D27CDB6E-AE6D-11cf-96B8-444553540000"> <param name="flashvars" value="intl_lang=en-us&amp;photo_secret=dd79911a2d&amp;photo_id=3767544650"> <param name="movie" value="http://www.flickr.com/apps/video/stewart.swf?v=71377"> <param name="bgcolor" value="#000000"> <param name="allowFullScreen" value="true"><embed type="application/x-shockwave-flash" src="https://web.archive.org/web/20120602115106oe_/http://www.flickr.com/apps/video/stewart.swf?v=71377" bgcolor="#000000" allowfullscreen="true" flashvars="intl_lang=en-us&amp;photo_secret=dd79911a2d&amp;photo_id=3767544650" height="450" width="600"></object></center>
+
+<p>They note, &quot;One man, clearly inebriated, knocks the other over behind a car and wails on him before dropping the pole and walking away. The crowds yelled homophobic abuse at him, but backed up as he came close to them. He crossed the street in front of a moving vehicle, and then as he began frantically trying to open my trash-area fence, his face covered in blood, I stop filming to tell him to get away from my house. He opened the gates, grabbed two wine bottles from the recycle bin, and stomped down the street in the direction the other man had retreated.&quot; Since the NYPD were called as the fight was in progress, the two men were both picked up shortly after.</p>

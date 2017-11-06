@@ -1,0 +1,11 @@
+---
+author: Jen Chung
+date: February 27, 2010  2:15 PM
+title: State Police Repeatedly Contacted Paterson Aide's Accuser
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-right" style=" width:200px; "> <img alt="2010_02_djpat.jpg" src="https://web.archive.org/web/20110811091339im_/http://gothamist.com/attachments/jen/2010_02_djpat.jpg" width="200" height="306"> <br> <i>2008 photograph of Paterson and Johnson by Mike Groll/AP</i></div> More disturbing details about the State Police&apos;s involvement in an <a href="https://web.archive.org/web/20110811091339/http://gothamist.com/2010/02/25/ny_times_gets_paterson_to_suspend_h.php">alleged domestic abuse incident</a> concerning a close aide to Governor Paterson. The <a href="https://web.archive.org/web/20110811091339/http://www.nytimes.com/2010/02/27/nyregion/27day.html">NY Times reports</a> that the aide, David Johnson, &quot;<strong>reached out to the commander of the governor&#x2019;s State Police detail the day after an altercation with his girlfriend and asked the commander to call the woman</strong>, according to a person briefed on the commander&#x2019;s actions.&quot; The commander, Major Charles Day, was authorized by his superior &quot;to contact the woman, the person briefed on the sequence of events said, and Major Day did so on at least three occasions.&quot;<p></p>
+
+<p>On Halloween of last year, Johnson <a href="https://web.archive.org/web/20110811091339/http://gothamist.com/2010/02/26/paterson_wont_resign_but_wants_advi.php">allegedly choked</a> Sherr-una Booker, as well as ripped her clothes off (he was reportedly unhappy about a costume she was wearing for a party) and slammed her into a mirrored dresser; he also allegedly prevented her from using her cellphone and home phone to call the cops.  </p>
+
+<p>Booker eventually did report the incident to the NYPD and sought an order of protection from Johnson&#x2014;but as the legal wheels were turning, she was repeatedly contacted by the State Police (she said she was being harassed) and was even told by a Paterson staffer to speak with the Governor.  Ultimately, the case was dismissed, because Booker didn&apos;t appear in court.</p>

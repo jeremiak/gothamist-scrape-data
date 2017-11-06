@@ -1,0 +1,11 @@
+---
+author: Jen Chung
+date: October 27, 2008  9:20 AM
+title: Mother Confesses to Fatally Beating 11-Year-Old Child
+---
+
+<p><img alt="2008_10_11cd.jpg" src="https://web.archive.org/web/20110623150545im_/http://gothamist.com/attachments/jen/2008_10_11cd.jpg" width="250" height="193" class="left">The discovery of a dead 11-year-old girl in a Brooklyn apartment led to the girl&apos;s mother to <a href="https://web.archive.org/web/20110623150545/http://abclocal.go.com/wabc/story?section=news/local&amp;id=6471777">admit to killing her</a>, according to police.  WABC 7 reports that Florenzia Vazquez told police she <strong>beat daughter Alejandra &quot;with a mop handle so hard, it broke in two.&quot;</strong>  Vazquez is being held at the 75th precinct.</p>
+
+<p>The beating apparently took place on Thursday--<a href="https://web.archive.org/web/20110623150545/http://www.nytimes.com/2008/10/27/nyregion/27dead.html?ref=nyregion">according to the NY Times</a>, it was &quot;<strong>a thrashing so severe it left the girl listless, vomiting and confined to bed.</strong>&quot;  And she was left there to die, only to be discovered on Sunday when a man came to rent a room in the apartment.  Alejandra had arrived from Mexico a few weeks ago, to join her mother in New York; she had told friends she was being beaten.  An older sister had been <a href="https://web.archive.org/web/20110623150545/http://www.nydailynews.com/news/ny_crime/2008/10/26/2008-10-26_brooklyn_mom_beats_11yearold_alejandra_v-1.html">removed from the home</a> earlier this year after abuse allegations.</p>
+
+<p>Vazquez reportedly initially said Alejandra had been involved in a street fight, but after hours of questioning, she confessed to the murder; a police source explained that she &quot;<strong>despised everything connected to her ex-husband</strong>.&quot;  And the landlord who rented out the apartment to the family (Vazquez lived with a boyfriend) six months ago <a href="https://web.archive.org/web/20110623150545/http://www.nypost.com/seven/10272008/news/regionalnews/girl__11__killed_by_mom_135461.htm">told the Post</a>, &quot;I can&apos;t explain how that happened. Those people looked like nice people.&quot;  Vazquez&apos;s three other children were removed from the home.</p>

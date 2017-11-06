@@ -1,0 +1,15 @@
+---
+author: Jen Carlson
+date: Dec 10, 2010 4:55 pm
+title: Was Blondie Almost Abducted By Bundy?
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="blondiebundy2.jpg" src="https://web.archive.org/web/20150130070432im_/http://gothamist.com/attachments/arts_jen/blondiebundy2.jpg" width="350" height="205" class="image-right"> </span>Today that old story of Debbie Harry nearly getting abducted by Ted Bundy is making the rounds again, with <a href="https://web.archive.org/web/20150130070432/http://www.thesun.co.uk/sol/homepage/showbiz/bizarre/3269431/Debbie-Harry-I-escaped-sex-killer-Ted-Bundy.html">The Sun</a> running a few quotes from the singer. <a href="https://web.archive.org/web/20150130070432/http://stereogum.com/598081/debbie-harry-escaped-ted-bundy/news/">Stereogum</a> points to the <a href="https://web.archive.org/web/20150130070432/http://www.snopes.com/music/artists/debharry.asp">Snopes</a> page which retells the entire story, then picks it apart and declares it to be false. In a 1989 interview, Harry told a newspaper:</p>
+
+<blockquote>&quot;I was trying to get a cab on the lower east side of the Village in New York, and it was kind of late. This was back in the early &apos;70s. I wasn&apos;t even in a band then... I was trying to get across town to an after-hours club. A little white car pulls up, and the guy offers me a ride. So I just continued to try to flag a cab down. But he was very persistent, and he asked where I was going. It was only a couple of blocks away, and he said, &apos;Well I&apos;ll give you a ride.&apos; I got in the car, and it was summertime and the windows were all rolled up except about an inch and a half at the top. So I was sitting there and he wasn&apos;t really talking to me. Automatically, I sort of reached to roll down the window and I realized there was no door handle, no window crank, no nothing. The inside of the car was totally stripped out. I got very nervous. I reached my arm out through the little crack and stretched down and opened the car from the outside. As soon as he saw that, he tried to turn the corner really fast, and I spun out of the car and landed in the middle of the street.&quot;</blockquote>
+
+<p>Following his execution years later, Harry came to the conclusion that it was Ted Bundy driving the car&#x2014;but Snopes claims that Bundy was probably working in Washington at the time, and his first murder didn&apos;t take place until 1974 in Seattle. On top of that, at no time did Bundy turn up in NYC... but could he have been passing through around the time Harry claims to have been in his car? The site notes that around that time (1969), he was visiting relatives in Philly, and then went to Vermont... so maybe Blondie was an early test-run for the killer.</p>					
+										
+									
+				

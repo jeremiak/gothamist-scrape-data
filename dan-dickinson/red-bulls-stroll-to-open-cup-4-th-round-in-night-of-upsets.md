@@ -1,0 +1,23 @@
+---
+author: Dan Dickinson
+date: May 30, 2012 3:22 pm
+title: Red Bulls Stroll To Open Cup 4th Round In Night Of Upsets
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2012_05_rbchare.jpg" src="https://web.archive.org/web/20150428112006im_/http://gothamist.com/attachments/jen/2012_05_rbchare.jpg" width="640" height="361"> <br> <i>(New York Red Bulls)</i></div> <p></p>
+
+<p>The <a href="https://web.archive.org/web/20150428112006/http://thecup.us/">Lamar Hunt US Open Cup</a> may be unfamiliar to most, but the long running knockout tournament sees all five levels of the US soccer pyramid do battle.  With 16 MLS teams joining the brackets in Tuesday night&apos;s third round, many lower division teams proved to be giant killers.  But not all: despite a strong challenge from the hosting Charleston Battery, the <a href="https://web.archive.org/web/20150428112006/http://gothamist.com/tags/redbulls">New York Red Bulls</a> rode to a <a href="https://web.archive.org/web/20150428112006/http://www.newyorkredbulls.com/news/2012/05/red-bulls-roll-past-charleston-battery-3-0-us-open-cup">comfortable 3-0 victory</a>.</p>
+
+<p>After fielding weakened sides and not personally appearing in the 2011 Open Cup, coach Hans Backe gave every indication the team was <a href="https://web.archive.org/web/20150428112006/http://www.newyorkredbulls.com/news/2012/05/backe-planning-playing-regulars-vs-charleston">taking the competition seriously</a> this year.  Backe fielded a starting XI that looked similar to most league games, missing only a handful of called-up internationals and Thierry Henry (who&apos;s soft hamstring apparently wasn&apos;t worth risking).</p>
+
+<p>While the Battery were dangerous throughout the match, New York applied steady pressure to gradually put the game out of reach.  Kenny Cooper opened the scoring in the 14th minute when Mehdi Ballouchy found him free.  Heath Pearce found the net following a corner kick shortly before halftime, and Connor Lade hit a beautiful curling ball to seal the game 20 minutes from the finish.</p>
+
+<p><script type="text/javascript" src="https://web.archive.org/web/20150428112006js_/http://WCSC.images.worldnow.com/interface/js/WNVideo.js?rnd=165342;hostDomain=www.live5news.com;playerWidth=630;playerHeight=355;isShowIcon=true;clipId=7342803;flvUri=;partnerclipid=;adTag=Sport;advertisingZone=;enableAds=true;landingPage=;islandingPageoverride=false;playerType=STANDARD_EMBEDDEDscript;controlsType=overlay"></script></p>
+
+<p>While New York had no trouble dispatching Charleston, Tuesday night was a proverbial bloodbath, with seven MLS sides falling to lower division competition.  <a href="https://web.archive.org/web/20150428112006/http://www.mlssoccer.com/news/article/2012/05/29/usoc-columbus-stunned-late-dayton-flurry-2-1-loss">Shock</a> <a href="https://web.archive.org/web/20150428112006/http://www.mlssoccer.com/news/article/2012/05/29/usoc-fire-fall-3-2-et-fourth-tier-michigan-bucks">results</a> <a href="https://web.archive.org/web/20150428112006/http://www.mlssoccer.com/news/article/2012/05/29/usoc-dynamo-fall-1-0-san-antonio-scorpions">came</a> <a href="https://web.archive.org/web/20150428112006/http://www.mlssoccer.com/news/article/2012/05/29/usoc-hobbled-fcd-stunned-2-0-home-charlotte">in</a> <a href="https://web.archive.org/web/20150428112006/http://www.mlssoccer.com/news/article/2012/05/29/usoc-minnesota-stars-down-rsl-3-1-rio-tinto">all</a> <a href="https://web.archive.org/web/20150428112006/http://www.mlssoccer.com/news/article/2012/05/29/usoc-bad-worse-galaxy-upset-carolina-2-1">evening</a>, but none could top the result that would determine RBNY&apos;s next opponent.  With the New England Revolution and the Harrisburg City Islanders going scoreless through regulation, New England looked to be moving on after netting three quick goals in added time. But Harrisburg refused to roll over and countered with three goals of their own, forcing the game to penalties. <a href="https://web.archive.org/web/20150428112006/http://www.mlssoccer.com/news/article/2012/05/30/usoc-harrisburg-net-3-extra-time-stun-revs-pks">Harrisburg prevailed on spot kicks</a> 4-3.</p>
+
+<p>Because of that result, the Red Bulls will travel to Harrisburg next Tuesday in the fourth round.  (A New England win would&apos;ve seen the game hosted at Red Bull Arena.)  With MLS sides falling left and right, the Red Bulls&apos; new focus on the tournament need only get them them through four more matches for their first Open Cup in franchise history.</p>					
+										
+									
+				

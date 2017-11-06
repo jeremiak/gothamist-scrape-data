@@ -1,0 +1,15 @@
+---
+author: Jen Carlson
+date: Aug 16, 2011 11:40 am
+title: Did Mad Men Kill Every Other AMC Show Ever?
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="0811draperdon.jpg" src="https://web.archive.org/web/20150509170414im_/http://gothamist.com/attachments/arts_jen/0811draperdon.jpg" width="201" height="268" class="image-left"> </span><a href="https://web.archive.org/web/20150509170414/http://gothamist.com/2011/03/30/how_many_people_have_to_die_to_make.php">In March</a>, when new contracts and budgets were being discussed, we asked how many people on <em>Mad Men</em> would have to die in order for the show to go on. <a href="https://web.archive.org/web/20150509170414/http://gothamist.com/2011/04/01/mad_men_5.php">Eventually</a>, the show&apos;s creator, Matthew Weiner, cut minutes in order to save the cast... and still got $30 million in compensation for signing on for three more years. Since then we&apos;ve been focused on the important things, like turning Don Draper into <a href="https://web.archive.org/web/20150509170414/http://gothamist.com/2011/06/13/jon_hamm.php">a vampire</a> and creating fake situations in which we&apos;d be forced to choose between him <a href="https://web.archive.org/web/20150509170414/http://gothamist.com/2011/08/08/don_draper_vs_coach_taylor.php">and Coach Taylor</a>. Summer! But little did we know there was a new war brewing in AMC land.</p>
+
+<p>David Hinckley sums it up over at <a href="https://web.archive.org/web/20150509170414/http://www.nydailynews.com/entertainment/tv/2011/08/16/2011-08-16_mad_men_sparks_twitter_argument_between_drama_creator_matt_weiner_sons_of_anarch.html">the Daily News</a>, saying <em>Sons of Anarchy</em> creator Kurt Sutter essentially blamed Weiner for ruining other AMC shows be demanding more money for his own (noteworthy: Sutter&apos;s show is on FX). Sutter, working off of an LA Times piece, basically said &quot;the proposed cuts had caused <em>Breaking Bad</em> producers to consider taking that show away from AMC and had driven show runner Frank Darabont to leave AMC&apos;s <em>The Walking Dead</em>.&quot; He made the declarations on Twitter, which he has <a href="https://web.archive.org/web/20150509170414/http://insidetv.ew.com/2011/08/15/kurt-sutter-quits-twitter/">since quit</a>. </p>
+
+<p><em>Walking Dead</em>&apos;s fanbase have also been Tweeting out their frustrations. But Hinckley thinks everyone needs to calm down, because in the end, <em>Breaking Bad</em> is returning. But what about <em>Walking Dead</em>? A very scientific poll of our office showed that 2 out of 2 people think it&apos;s going to suck now that Darabont is out of the picture. So there may be blood on Weiner&apos;s hands after all.</p>					
+										
+									
+				

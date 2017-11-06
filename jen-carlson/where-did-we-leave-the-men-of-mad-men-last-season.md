@@ -1,0 +1,33 @@
+---
+author: Jen Carlson
+date: Mar 18, 2013 12:45 pm
+title: Where Did We Leave The Men Of Mad Men Last Season?
+---
+
+	
+										<p><iframe width="640" height="360" src="https://web.archive.org/web/20150509170336if_/http://www.youtube-nocookie.com/embed/YocBfe1N598" frameborder="0" allowfullscreen></iframe></p>
+
+<p>The man behind the <a href="https://web.archive.org/web/20150509170336/http://gothamist.com/tags/madmen"><em>Mad Men</em></a>, Matthew Weiner, has let very little leak about the upcoming season of the show, which will have its two-hour premiere on April 7th. The cast has been tight-lipped, too&#x2014;when <a href="https://web.archive.org/web/20150509170336/http://gothamist.com/2013/03/15/zosia_mamet.php">we spoke with Zosia Mamet</a> last week, she told us she was not at liberty to talk about the show, or even mention if her character would be returning. This isn&apos;t all that unusal, but every year the press has received a screener ahead of time, and this year we were told: &quot;There aren&apos;t going to be screeners for <em>Mad Men</em> this season.&quot; So get yourself into a 1960s state of mind, when the Internet wasn&apos;t around to ruin everything with spoilers.</p>
+
+<p>What the showrunner <em>has</em> said is that he &quot;would love for people to just watch the last 10 minutes of Season 5 right before Season 6 starts. I think you&#x2019;ll have a really incredible experience as we get there.&#x201D; Weiner often places importance on the final scene of the season, and has said he has the last visual image in mind when writing each new season&#x2014;you can watch every final scene of every season <a href="https://web.archive.org/web/20150509170336/http://gothamist.com/2012/06/12/the_final_scenes_of_mad_men_seasons.php#photo-1">right here</a>.</p>
+
+<p>In last season&apos;s penultimate episode, Lane Pryce is caught embezzling money from the company. At the time, Don tells him he can quietly resign, adding: &quot;I&apos;ve started over a lot... this is the worst part.&quot; Pryce hangs himself shortly after, but for the rest of the men on the show, starting over seems to be the theme at the end of the last season. Where did we leave them?</p>
+
+<p><strong>ROGER STERLING</strong> is sleeping with Megan&apos;s mother, Marie Calvet, and wants to experience LSD again (when he did this for the first time it led to his divorce from Jane). He tells Marie at the hotel where he&apos;s residing, &quot;I need to take it again, to really appreciate &apos;here,&apos; and I don&apos;t want to do it alone, and I think if you were there it&apos;d be okay.&quot; She tells him, &quot;Roger please don&apos;t ask me for anything... please don&apos;t ask me to take care of you.&quot; He seems to accept her orders, and at the end of the episode we see him like this:</p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="roger0313.jpg" src="https://web.archive.org/web/20150509170336im_/http://gothamist.com/attachments/arts_jen/roger0313.jpg" width="640" height="345" class="image-none"> </span></p>
+
+<p><strong>PETE CAMPBELL</strong> visits Beth Dawes in the institute where she is receiving electric shock therapy. During the season Sneaky Pete had a brief affair with the Connecticut housewife, who no longer remembers him following treatment. He refers to himself in the third person when tells her, &quot;He realized everything he already had was not right... And that his life with his family was some temporary bandage on a permanent wound.&quot; When he leaves her room he tells her he&apos;ll &quot;be fine.&quot; At home, following a fight on the train with both Beth&apos;s husband and a MetroNorth conductor, Trudy tells him, &quot;First thing in the morning we&apos;re going to find you an apartment in the city.&quot; Pete&apos;s last scene shows him alone listening to his headphones: </p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="phpGmg9AXPM.jpg" src="https://web.archive.org/web/20150509170336im_/http://gothamist.com/attachments/arts_jen/phpGmg9AXPM.jpg" width="640" height="377" class="image-none"> </span></p>
+
+<p><strong>DON DRAPER</strong> Throughout the final episode last season, called &quot;The Phantom,&quot; Don sees his late brother, Adam, who hung himself after fruitlessly attempting to re-enter Don&apos;s life. In the upcoming season, which <a href="https://web.archive.org/web/20150509170336/http://gothamist.com/2013/01/23/mad_men_returns_april_7th.php">Weiner says</a> has a focus on Don, he&apos;ll likely have to confront his past phantoms... but will Megan become one of them? Don is last seen at a bar alone, having just left Megan at a commercial shoot he landed for her, ordering an Old Fashioned when a young woman approaches him, asking, &quot;Are you alone?&quot; You can watch that scene above, but prior to this Don is shown sitting in the dark watching Megan&apos;s reel, as if he&apos;s gazing upon someone he knew in his past.</p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="phppAAvsHPM.jpg" src="https://web.archive.org/web/20150509170336im_/http://gothamist.com/attachments/arts_jen/phppAAvsHPM.jpg" width="640" height="370" class="image-none"> </span></p>
+
+<p>So where will we re-enter their world? When we left it was March 1967, and <a href="https://web.archive.org/web/20150509170336/http://www.thedailybeast.com/articles/2013/01/23/mad-men-creator-matthew-weiner-shares-10-facts-about-season-6.html">Weiner says</a>, &#x201C;I am going to skip ahead in time. I won&#x2019;t say how long, but the first two episodes are a movie unto themselves. And they do foreshadow what&#x2019;s going to happen in the season. They do tell a story of the period and root you where you are in these people&#x2019;s lives. But a lot has changed when the season opens up. A lot has changed.&#x201D; So far <a href="https://web.archive.org/web/20150509170336/http://gothamist.com/2013/01/25/mad_men_teaser_pics.php#photo-1">teaser photos</a> released by AMC and <a href="https://web.archive.org/web/20150509170336/http://gothamist.com/2013/03/06/new_photos_from_the_set_of_mad_men.php#photo-1">some paparazzi shots</a> still have the cast firmly planted in the late 1960s... but Weiner could just be throwing us off.</p>
+
+<p>Next, we&apos;ll look at where we left the women of <em>Mad Men</em>.</p>					
+										
+									
+				

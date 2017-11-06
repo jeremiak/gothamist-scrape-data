@@ -1,0 +1,13 @@
+---
+author: Jen Chung
+date: June 10, 2009  5:21 PM
+title: Rent Issues Force USPS To Close Prince Street Post Office
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="2009_06_pobox.jpg" src="https://web.archive.org/web/20111016081948im_/http://gothamist.com/attachments/jen/2009_06_pobox.jpg" width="640" height="319"> <br> <i>Left photograph of <a href="https://web.archive.org/web/20111016081948/http://66squarefeet.blogspot.com/2009/04/prince-street-station-to-close-july.html">Prince Street P.O.</a> by 66 Square Feet; right photograph of the Canal Street P.O. by Jen Chung</i></div> <p></p>
+
+<p>The <a href="https://web.archive.org/web/20111016081948/http://www.nytimes.com/2009/04/26/nyregion/thecity/26posto.html">much-maligned</a> <a href="https://web.archive.org/web/20111016081948/http://gothamist.com/2009/04/15/residents_businesses_rally_for_prin.php">yet convenient</a> Prince Street Post Office (which later moved to Greene Street) closed last week. Of course, the location&apos;s P.O. Box customers only found out about the closing when they were <a href="https://web.archive.org/web/20111016081948/http://66squarefeet.blogspot.com/2009/06/prince-street-station-is-dead.html">greeted by the sign directing them</a> to pick up packages at the Canal Street station.  </p>
+
+<p>Previously, the USPS was <a href="https://web.archive.org/web/20111016081948/http://gothamist.com/2009/04/15/residents_businesses_rally_for_prin.php">trying to renegotiate their lease</a>, but apparently that didn&apos;t end well:  USPS spokeswoman Darleen Reid told us, &quot;We are not renewing lease at Prince Street since the offer from the landlord is well above fair market value. We continue to look for alternate quarters.&quot;  Rumor has it that the USPS was paying $60/square foot, while the landlord wanted closer to three times that. Sean Sweeney of the <a href="https://web.archive.org/web/20111016081948/http://www.sohoalliance.org/">SoHo Alliance</a>, which advocated &quot;The Worst Post Office is Better Than No Post Office!,&quot; thinks asking that much for the space, especially since it&apos;s on &quot;a side street with no display window and up steps,&quot; seems &quot;absurd.&quot; </p>
+
+<p>The USPS offered us a list of 14 other PO&apos;s customers can go to (the list is after the jump) and adds, &quot;Customers are also encouraged to visit our website at usps.com, where they purchase stamps, print postage, locate a post office, track a package, even schedule a free package pick-up. Usps.com is a virtual post office at their fingertips.&quot;  </p>

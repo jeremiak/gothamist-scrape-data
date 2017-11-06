@@ -1,0 +1,31 @@
+---
+author: Jen Carlson
+date: Jun 14, 2013 3:24 pm
+title: Revisiting The Mohawk Airlines Crash Of 1969 (Will Someone From Mad Men Be On It?)
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="madmenhmohawk.jpg" src="https://web.archive.org/web/20150429183710im_/http://gothamist.com/attachments/arts_jen/madmenhmohawk.jpg" width="640" height="429" class="image-none"> </span></p>
+
+<p>We&apos;re not saying that <strike>Ted Chaough</strike> someone is going to die in a plane crash before the series finale of <em>Mad Men</em>, but one the agency&apos;s clients, Mohawk Airlines, did crash in real life in the 1960s. In 1969, specifically, the upcoming year on the show. (Though they actually had<a href="https://web.archive.org/web/20150429183710/http://en.wikipedia.org/wiki/List_of_accidents_and_incidents_involving_airliners_in_the_United_States"> a number of crashes</a> within a decade&apos;s time.) Instead of delving into any <a href="https://web.archive.org/web/20150429183710/http://gothamist.com/2013/05/29/a_mad_men_conspiracy_theory_is_mega.php">conspiracy theories</a> about who may fall out of the sky to their death <em>right at the end of the final season</em> (<a href="https://web.archive.org/web/20150429183710/http://www.youtube.com/watch?v=WcRr-Fb5xQo">ahem</a>), let&apos;s just look back at the real life crash of Mohawk Airlines Flight 411. Besides, all the plane talk and crash references so far this season could just be a red herring, and maybe the illustrator of the promo art just likes drawing planes:</p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="planeposter0623.jpg" src="https://web.archive.org/web/20150429183710im_/http://gothamist.com/attachments/arts_jen/planeposter0623.jpg" width="640" height="326" class="image-none"> </span></p>
+
+<p>On to reality. Mohawk Flight 411 crashed on November 19th, 1969 after departing Albany International Airport, headed for Glens Falls. But the flight originated at LaGuardia Airport, and carried a full load of 44 passengers&#x2014;many deboarded at Albany.</p>
+
+<p><em>Okay let&apos;s just go a tiny bit down the rabbit hole here. So you might be thinking, &quot;Why would Ted be on a commercial flight when he has his own plane he&apos;s been flying around?&quot; Well, first, Mohawk may want him to try out the product. And second, as posted <a href="https://web.archive.org/web/20150429183710/http://www.reddit.com/r/madmen/comments/1gb1bw/mohawk_crash/">on the Mad Men Reddit</a>: &quot;I think that seeing how [Ted] freaks everyone out by flying someone (his wife? someone at the office?) will tell him to just fly commercial so everyone won&apos;t be sitting on pins and needles. Then boom!&quot;</em></p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="mohawkclip0613.jpg" src="https://web.archive.org/web/20150429183710im_/http://gothamist.com/attachments/arts_jen/mohawkclip0613.jpg" width="275" height="192" class="image-right"> </span>Back in real life history: The <a href="https://web.archive.org/web/20150429183710/http://www.airliners.net/photo/0157131/">twin engine Fairchild FH-227B turboprop</a> only had an estimated flight time of about 15 minutes, but the aircraft &quot;overflew the Glens Falls airport and proceeded northbound, subsequently reversing course. Shortly after course reversal, at about 20:20 EST, the aircraft hit trees on the northwest slope of the Pilot Knob Mountain, then impacted a rock cliff from which it fell 34 feet (10 m) and became lodged between trees and caught fire.&quot; There were 14 passengers total, and there were no survivors.</p>
+
+<p>The recovery mission wasn&apos;t easy, at the time <a href="https://web.archive.org/web/20150429183710/http://www3.gendisasters.com/new-york/5541/pilot-knob-mountain-ny-airplane-crashes-peak-nov-1969">one newspaper reported</a> that &quot;helicopters airlifted recovery teams to the mountain, but officials still pondered ways to transport down the bodies of 14 persons killed in an airplane crash on the desolate rugged peak. State Police and State Conservation Department teams clambered down the side of the mountain from its peak to the site where a Mohawk Airlines plane crashed in a ball of fire. Only a few men could reach the scene.&quot;</p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="mohawknyt69.jpg" src="https://web.archive.org/web/20150429183710im_/http://gothamist.com/attachments/arts_jen/mohawknyt69.jpg" width="640" height="522" class="image-none"> </span></p>
+
+<p>Eventually, <a href="https://web.archive.org/web/20150429183710/http://www.ovguide.com/mohawk-airlines-flight-411-9202a8c04000641f8000000000ee4677">the NTSB</a> concluded (<a href="https://web.archive.org/web/20150429183710/http://libraryonline.erau.edu/online-full-text/ntsb/aircraft-accident-reports/AAR70-12.pdf">here&apos;s the accident report</a>) that &quot;the crash was caused by the captain&apos;s improper execution of an instrument approach, combined with a severe downdraft at a low altitude, which resulted in the aircraft descending uncontrollably into terrain.&quot;</p>
+
+<p><iframe width="640" height="480" src="https://web.archive.org/web/20150429183710if_/http://www.youtube.com/embed/JqohNHMotR0" frameborder="0" allowfullscreen></iframe></p>
+
+<p><em>Will someone from Mad Men really go out in a plane crash? Probably not&#x2014;Matthew Weiner&apos;s already had one death by plane crash in the series, when Pete Campbell&apos;s father died. And he doesn&apos;t often tie in real life events directly into the character&apos;s lives, even if he is great with historical timestamps setting the backdrop. Also, regarding this particular flight, it&apos;s headed for Glens Falls, which is two hours outside of Utica (where Mohawk had it headquarters, see above video)&#x2014;so there&apos;s a smaller chance someone from the agency would be on it. But it&apos;s fun to theorize and dip into the conspiracy theory pool with this show. So, new theory: everyone takes the brown acid at Woodstock and that&apos;s how it all ends?</em></p>					
+										
+									
+				

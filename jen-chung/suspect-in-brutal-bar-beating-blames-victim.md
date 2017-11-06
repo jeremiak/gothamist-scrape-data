@@ -1,0 +1,17 @@
+---
+author: Jen Chung
+date: Mar 14, 2010 10:50 am
+title: Suspect In Brutal Bar Beating Blames Victim
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:215px; "> <img alt="2010_03_lafrem.jpg" src="https://web.archive.org/web/20160324153041im_/http://gothamist.com/attachments/jen/2010_03_lafrem.jpg" width="215" height="274"> <br> <i>Photograph of suspect Mbarek Lafrem by David Karp/AP</i></div> The construction worker who was <a href="https://web.archive.org/web/20160324153041/http://gothamist.com/2010/03/13/suspect_arrested_in_brutal_midtown.php">arrested</a> for the <a href="https://web.archive.org/web/20160324153041/http://gothamist.com/2010/03/11/woman_brutally_beatenpossibly_raped.php">vicious beating</a> of a woman in a Midtown bar&apos;s bathroom told the police he was <a href="https://web.archive.org/web/20160324153041/http://www.nydailynews.com/news/ny_crime/2010/03/13/2010-03-13_mbarek_lafrem_charged_with_attempted_murder_says_alleged_bar_beating_was_selfdef.html">acting in self-defense</a>. According to court papers,  Mbarek Lafrem said, &quot;She was trying to push me so I punched her in the face twice and pushed her back in the stall.&quot;<p></p>
+
+<p>Police say that Lafrem, 30, of Norwood, Pa., had tried to dance a 29-year-old woman at the bar Social on West 48th Street. She had refused, and he apparently followed her into the bathroom.  In court papers, Lafrem explained to the police, &quot;I was at the bar with the girl. I went into the bathroom and she started yelling at me.  She was coming towards me so I grabbed her by the arms. She was trying to push me so I punched her in the face twice and pushed her back in the stall. She fell into the stall and hit her head.&quot;  </p>
+
+<p>The woman&apos;s friend later found her unconscious in the stall; the victim needed 50 stitches for a laceration and also suffered a fractured skull, a broken nose and a broken eye socket.  The <a href="https://web.archive.org/web/20160324153041/http://www.nypost.com/p/news/local/manhattan/attempted_murder_charge_for_bar_FOFHanqvyddykoQqaa5sDL">Post reports</a> she was also found with &quot;one pant leg completely off and the other around her ankle, the court papers said.&quot;  Lafrem was charged with attempted murder, assault and attempted rape.  He&apos;s also being held without bail.</p>
+
+<p>Police were led to Lafrem by a tip.  The <a href="https://web.archive.org/web/20160324153041/http://www.nytimes.com/2010/03/13/nyregion/13arrest.html?scp=1&amp;sq=mbarek%20lafrem&amp;st=cse">NY Times notes</a> that the NYPD, which had released<a href="https://web.archive.org/web/20160324153041/http://gothamist.com/2010/03/12/video_police_hunt_for_suspect_in_br.php"> relatively clear surveillance video</a> of the beating suspect, was surprised that they only received two tips: &quot;The reason became clear, however, later Friday morning when a worker from a Midtown construction site called the police tip line and identified the man in the video... It turned out that the suspect was a laborer from Pennsylvania working on a construction job at 16 West 34th Street, near Herald Square, and staying at the Best Western Hotel a block from Social.&quot;  NYPD spokesman Paul Browne said, &quot;He was not residing permanently in the city. With a typical suspect, residing in one of the five boroughs, we would have expected more calls.&quot;</p>					
+										
+									
+				

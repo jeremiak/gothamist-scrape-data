@@ -1,0 +1,11 @@
+---
+author: Jen Carlson
+date: April 21, 2008 10:06 AM
+title: The Milkman is Back
+---
+
+<p><img alt="manhattanmilk.jpg" src="https://web.archive.org/web/20110811122130im_/http://gothamist.com/attachments/arts_jen/manhattanmilk.jpg" width="171" height="323" class="left">With Earth Day coming up tomorrow, it&apos;s a good time to think about greening up your life. Enter: <a href="https://web.archive.org/web/20110811122130/http://manhattanmilk.com/">Manhattan Milk</a>; the company delivers farm fresh, organic milk straight to your doorstep...so you don&apos;t have to walk 10 feet to the corner bodega.</p>
+
+<p>Sure, the idea has an old school charm to it, but it&apos;s the milk itself that&apos;s enticing -- it comes from &quot;pasture roaming, free-grazing cows,&quot; and is produced with &quot;no antibiotics, no added growth hormones and no dangerous pesticides.&quot; The whole dairy section of the food pyramid is provided by this present-day milkman as well -- along with your skim, 1%, whole <em>and</em> chocolate milk, the company also offers cheese, eggs and yogurt.</p>
+
+<p>While Manhattan Milk is on an eco-friendly mission, using recyclable bottles (free of charge), the delivery method itself isn&apos;t very green. The milkmen have their own trucks, presumably refrigerated to keep the product at its freshest -- but New Yorkers are used to <a href="https://web.archive.org/web/20110811122130/http://gothamist.com/2008/02/07/milk_2.php">consuming milk that has stood unrefrigerated</a> for a questionable amount of time. So, until <a href="https://web.archive.org/web/20110811122130/http://www.apartmenttherapy.com/ny/materials-misc/greenbottle-biodegradable-milk-cartons-023924">Green Bottle</a> is available at every bodega, or bike delivery is possible -- which is the lesser of the two evils?: Plastic composite milk cartons which don&apos;t biodegrade for 5 years (or plastic which never biodegrades), or having a truck releasing carbon dioxide emissions deliver your dairy? [via <a href="https://web.archive.org/web/20110811122130/http://dailycandy.com/">Daily Candy</a>]</p>

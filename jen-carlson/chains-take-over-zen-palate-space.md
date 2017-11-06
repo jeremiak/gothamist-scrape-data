@@ -1,0 +1,7 @@
+---
+author: Jen Carlson
+date: December  3, 2009  6:30 PM
+title: Chains Take Over Zen Palate Space
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="phpDeeKgmPM.jpg" src="https://web.archive.org/web/20130724190217im_/http://gothamist.com/attachments/arts_jen/phpDeeKgmPM.jpg" width="110" height="80" class="image-right"> </span>Recently the Riese Organization took over 34 Union Square East... the old Zen Palate space. Sigh. And what&apos;s going up in its place? The much rumored <a href="https://web.archive.org/web/20130724190217/http://gothamist.com/tags/tgifriday">T.G.I. Friday&apos;s</a> and a <a href="https://web.archive.org/web/20130724190217/http://gothamist.com/tags/timhortons">Tim Horton&apos;s</a> of course, helping to complete the circle of chains around the park. Now <a href="https://web.archive.org/web/20130724190217/http://afinecompany.blogspot.com/2009/12/union-square-from-zen-palate.html">Andrew Fine</a> has photographic evidence; today he reported, &quot;I spotted signage and crews working feverishly to complete a Tim Horton&apos;s... this is a downgrade and really counter to where we would like Union Square to be going. The burbs are invading!&quot; The burbs... and Canadians! [via <a href="https://web.archive.org/web/20130724190217/http://curbed.com/archives/2009/12/03/union_square_getting_fatter.php">Curbed</a>]</p>

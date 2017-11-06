@@ -1,0 +1,21 @@
+---
+author: Emma Whitford
+date: Mar 17, 2016 1:15 pm
+title: Plaza Hotel Reportedly Headed To Foreclosure Auction 
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="031616_Plaza.jpeg" src="https://web.archive.org/web/20161025130622im_/http://gothamist.com/attachments/nyc_ewhitford/031616_Plaza.jpeg" width="640" height="415"> <br> <i> (Getty)</i></div> <p></p>
+
+<p>If the walls of the Plaza Hotel could talk, they&apos;d probably have a lot to say about <a href="https://web.archive.org/web/20161025130622/http://gothamist.com/2016/02/16/spitzer_escort_accusation.php">former Governor Eliot Spitzer</a>, <a href="https://web.archive.org/web/20161025130622/http://www.nydailynews.com/entertainment/beatles-50th-anniversary-america-gallery-1.1590565?pmSlide=1.1590523">The Beatles</a>, and what it feels like to be owned&#x2014;and <a href="https://web.archive.org/web/20161025130622/https://commercialobserver.com/2014/10/old-new-york-the-plaza-hotel/">compared to the Mona Lisa</a>&#x2014;by Donald Trump. Unfortunately, the landmarked luxury hotel at the base of Central Park won&apos;t be able to speak for itself on the foreclosure auction block next month. <a href="https://web.archive.org/web/20161025130622/http://www.bloomberg.com/news/articles/2016-03-16/new-york-s-plaza-hotel-said-up-for-sale-in-foreclosure-auction">According to Bloomberg Business</a>, the hotel&apos;s current owner, the <a href="https://web.archive.org/web/20161025130622/http://www.ndtv.com/india-news/what-may-have-led-to-sahara-chief-subrata-roys-arrest-552697">notorious</a>, imprisoned Indian financier Subrata Roy, has defaulted on a loan worth hundreds of millions. </p>
+
+<p>An anonymous source leaked the impending foreclosure auction to Bloomberg this week, suggesting that the hotel&apos;s rooms, restaurants and retail space will all go up for sale. According to the news source, Swiss brothers and private investors David and Simon Reuben hold the mortgage, and are lumping the sale with the decidedly less majestic, Connect Four-like <a href="https://web.archive.org/web/20161025130622/https://www.google.com/search?q=Dream+Downtown+hotel&amp;espv=2&amp;biw=1588&amp;bih=905&amp;source=lnms&amp;tbm=isch&amp;sa=X&amp;ved=0ahUKEwia3p3MksjLAhXEVj4KHWPcDLIQ_AUICCgD#imgrc=8cbsYOS0hWZ9dM%3A">Dream Downtown hotel</a> in Chelsea. </p>
+
+<p>Roy&apos;s company, <a href="https://web.archive.org/web/20161025130622/http://www.sahara.in/index.html">Sahara India Pariwar</a>, defaulted on its loans with Bank of China Ltd. <a href="https://web.archive.org/web/20161025130622/http://www.bloomberg.com/news/articles/2015-03-04/sahara-india-defaults-on-luxury-hotel-loans-from-bank-of-china">earlier this month</a>&#x2014;loans secured not only by the Plaza, but the Dream Downtown and Grosvenor House hotel in London. The foreclosure sale comes despite Roy&apos;s best efforts&#x2014;according to <a href="https://web.archive.org/web/20161025130622/http://www.wsj.com/articles/plaza-hotel-sale-mired-in-legal-battle-1443519002">the Wall Street Journal</a>, the Indian investor has been working tirelessly at his plush prison quarters to sell the Plaza and offset his $1.6 billion bail: </p>
+
+<blockquote>According to people familiar with his dealings, Mr. Roy has spent extended periods holed up in the prison&#x2019;s guesthouse, where an air-conditioned conference room has been converted into a makeshift boardroom so that he can negotiate with potential buyers. The court has allowed him the use of videoconferencing facilities, Internet and phone access, a desktop, a laptop and printers, as well as a stenographer and two assistants to conduct his business, a Sahara lawyer said.</blockquote>
+
+<p>The auction is scheduled for April 26th, condos excluded, meaning <a href="https://web.archive.org/web/20161025130622/http://gothamist.com/2015/11/23/plaza_attic_penthouse.php#photo-1">this incredible deal</a> is still on the table. </p>					
+										
+									
+				

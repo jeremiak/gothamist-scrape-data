@@ -1,0 +1,53 @@
+---
+author: Jen Chung
+date: Aug 28, 2008 1:26 am
+title: Obama Wins Democratic Nomination; Bill Clinton Says Obama is "Ready to Lead America"
+---
+
+	
+					<div class="galleryEase" id="gallery-179235">
+<!-- gallery js -->
+	<script type="text/javascript" src="https://web.archive.org/web/20161002083659js_/http://assets.gothamistllc.com/v5/js/gallery5v8.js"></script>
+<!-- end gallery js -->
+
+<style type="text/css">
+#imgContainer {
+min-height: 300px;
+min-width: 300px;
+background: url('https://web.archive.org/web/20161002083659im_/http://assets.gothamistllc.com/v5/images/progress.gif') center center no-repeat;
+}
+</style>
+
+<!--start of gallery code-->
+<a name="gallery"></a>
+<div class="galleryEaseDisplayed">
+<div id="imgContainer">
+    <img id="galleryImg">
+</div>
+<div class="galleyEaseInfo"></div>
+<div class="galleryEaseNext"></div>
+<div class="galleryEasePrev"></div>
+</div>
+<div class="galleryEaseThumbs galleryV5">
+		<img src="https://web.archive.org/web/20161002083659im_/http://gothamist.com/assets_c/2008/12/dncb1-thumb-60x60-10382.jpg" title="" id="photo_1" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":1, "image": "https://web.archive.org/web/20161002083659/http://gothamist.com/attachments/jen/dncb1.jpg", "caption": "The 2008 Democratic ticket: Barack Obama and Joe Biden", "credit":"Photograph by \<a href=\"http://flickr.com/photos/midnightquill/2805285834/in/set-72157606939458251/\"\>Daniella Zalcman on Flickr\<\/a\>"};galleryObj['photo_1'] = photo;</script>
+		<img src="https://web.archive.org/web/20161002083659im_/http://gothamist.com/assets_c/2008/12/dncb2-thumb-60x60-10383.jpg" title="" id="photo_2" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":2, "image": "https://web.archive.org/web/20161002083659/http://gothamist.com/attachments/jen/dncb2.jpg", "caption": "Members of the NY delegation.", "credit":"Photograph from the AP"};galleryObj['photo_2'] = photo;</script>
+		<img src="https://web.archive.org/web/20161002083659im_/http://gothamist.com/assets_c/2008/12/dncb3-thumb-60x60-10384.jpg" title="" id="photo_3" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":3, "image": "https://web.archive.org/web/20161002083659/http://gothamist.com/attachments/jen/dncb3.jpg", "caption": "NJ Governor Jon Corzine announced NJ\'s votes during roll call.", "credit":"Photograph from the AP"};galleryObj['photo_3'] = photo;</script>
+		<img src="https://web.archive.org/web/20161002083659im_/http://gothamist.com/assets_c/2008/12/dncb4-thumb-60x60-10385.jpg" title="" id="photo_4" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":4, "image": "https://web.archive.org/web/20161002083659/http://gothamist.com/attachments/jen/dncb4.jpg", "caption": "NY delegation bigwigs, Hillary Clinton in the center surrounded by, clockwise from lower left, Sheldon SIlver, Charles Schumer and David Paterson.  (Andrew Cuomo is behind Schumer.)", "credit":"Photograph from the AP"};galleryObj['photo_4'] = photo;</script>
+		<img src="https://web.archive.org/web/20161002083659im_/http://gothamist.com/assets_c/2008/12/dnbc5-thumb-60x60-10386.jpg" title="" id="photo_5" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":5, "image": "https://web.archive.org/web/20161002083659/http://gothamist.com/attachments/jen/dnbc5.jpg", "caption": "Hillary Clinton, on monitors called for the nomination by acclamation of Democratic presidential candidate, Barack Obama, for president.  On the stage are Nancy Pelosi and Alice Travis Germond, Democratic Party secretary.", "credit":"Photograph from the AP"};galleryObj['photo_5'] = photo;</script>
+		<img src="https://web.archive.org/web/20161002083659im_/http://gothamist.com/assets_c/2008/12/dncb6-thumb-60x60-10387.jpg" title="" id="photo_6" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":6, "image": "https://web.archive.org/web/20161002083659/http://gothamist.com/attachments/jen/dncb6.jpg", "caption": "Bill Clinton addresses the DNC.", "credit":"Photograph from the AP"};galleryObj['photo_6'] = photo;</script>
+		<img src="https://web.archive.org/web/20161002083659im_/http://gothamist.com/assets_c/2008/12/dncb8-thumb-60x60-10388.jpg" title="" id="photo_7" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":7, "image": "https://web.archive.org/web/20161002083659/http://gothamist.com/attachments/jen/dncb8.jpg", "caption": "Chelsea Clinton, Hillary Clinton, and Charles Rangel", "credit":"Photograph from the AP"};galleryObj['photo_7'] = photo;</script>
+<br>		<img src="https://web.archive.org/web/20161002083659im_/http://gothamist.com/assets_c/2008/12/dncb13-thumb-60x60-10389.jpg" title="" id="photo_8" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":8, "image": "https://web.archive.org/web/20161002083659/http://gothamist.com/attachments/jen/dncb13.jpg", "caption": "Bill Clinton waves to the crowd", "credit":"Photograph by \<a href=\"http://flickr.com/photos/midnightquill/2805259064/in/set-72157606939458251/\"\>Daniella Zalcman on Flickr\<\/a\>"};galleryObj['photo_8'] = photo;</script>
+		<img src="https://web.archive.org/web/20161002083659im_/http://gothamist.com/assets_c/2008/12/dncb12-thumb-60x60-10390.jpg" title="" id="photo_9" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":9, "image": "https://web.archive.org/web/20161002083659/http://gothamist.com/attachments/jen/dncb12.jpg", "caption": "Joe Biden during his speech", "credit":"Photograph from \<a href=\"http://flickr.com/photos/midnightquill/2804415417/in/set-72157606939458251/\"\>Daniella Zalcman on Flickr\<\/a\>"};galleryObj['photo_9'] = photo;</script>
+		<img src="https://web.archive.org/web/20161002083659im_/http://gothamist.com/assets_c/2008/12/dncb9-thumb-60x60-10391.jpg" title="" id="photo_10" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":10, "image": "https://web.archive.org/web/20161002083659/http://gothamist.com/attachments/jen/dncb9.jpg", "caption": "Joe Biden, Jill Biden and Barack Obama", "credit":"Photograph from the AP"};galleryObj['photo_10'] = photo;</script>
+		<img src="https://web.archive.org/web/20161002083659im_/http://gothamist.com/assets_c/2008/12/dncb10-thumb-60x60-10398.jpg" title="" id="photo_11" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":11, "image": "https://web.archive.org/web/20161002083659/http://gothamist.com/attachments/jen/dncb10.jpg", "caption": "Michelle Obama cheers.", "credit":"Photograph from the AP"};galleryObj['photo_11'] = photo;</script>
+		<img src="https://web.archive.org/web/20161002083659im_/http://gothamist.com/assets_c/2008/12/dncb11-thumb-60x60-10402.jpg" title="" id="photo_12" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":12, "image": "https://web.archive.org/web/20161002083659/http://gothamist.com/attachments/jen/dncb11.jpg", "caption": "Obama and Biden look at the cheering crowd", "credit":"Photograph from the AP"};galleryObj['photo_12'] = photo;</script>
+		<img src="https://web.archive.org/web/20161002083659im_/http://gothamist.com/assets_c/2008/12/dncb14-thumb-60x60-10403.jpg" title="" id="photo_13" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":13, "image": "https://web.archive.org/web/20161002083659/http://gothamist.com/attachments/jen/dncb14.jpg", "caption": "Biden with his grandson", "credit":"Photograph by \<a href=\"http://flickr.com/photos/midnightquill/2805287294/in/set-72157606939458251/\"\>Daniella Zalcman on Flickr\<\/a\>"};galleryObj['photo_13'] = photo;</script>
+									
+</div></div>					<p>The Democratic Party <a href="https://web.archive.org/web/20161002083659/http://www.nytimes.com/2008/08/28/us/politics/28DEMSDAY.html?hp">nominated Barack Obama as its 2008 presidential candidate</a>, making him the first African-American presidential nominee in a major political party.  </p>
+
+<p>He won the nomination in an emotional moment during the roll call:  After New Mexico yielded its place to Illinois during the alphabetical-by-state roll call, Illinois then yielded its place to New York.  In the middle of the New York delegation--surrounded by Governor David Paterson, Assembly Speaker Sheldon Silver, Senator Charles Schumer, and Attorney General Andrew Cuomo--Senator Hillary Clinton released her delegates and <a href="https://web.archive.org/web/20161002083659/http://www.politico.com/news/stories/0808/12895.html">called for Obama&apos;s nomination by acclamation</a> (video below)</p><blockquote>&quot;On behalf of the great state of New York, with appreciation for the spirit and dedication of all who are gathered here, with eyes firmly fixed on the future, with the spirit of unity ... let&apos;s declare all together with one voice right here and right now that Barack Obama is our candidate and he will be our president.&quot;</blockquote>Later in the evening, after a 3 1/2-minute standing ovation, former President Bill Clinton endorsed Obama and his running mate forcefully and personally:<blockquote>Last night Hillary told us in no uncertain terms that she is going to do everything she can to elect Barack Obama. That makes two of us...<p></p>
+
+<p>Clearly, the job of the next President is to rebuild the American Dream and restore America&apos;s standing in the world... With Joe Biden&apos;s experience and wisdom, supporting Barack Obama&apos;s proven understanding, insight and good instincts, America will have the national security leadership we need... Barack Obama is ready to lead America and restore American leadership in the world. Ready to preserve, protect, and defend the Constitution of the United States. Barack Obama is ready to be president of the United States.</p></blockquote><a href="https://web.archive.org/web/20161002083659/http://www.newsweek.com/id/155966">Newsweek&apos;s Howard Fineman</a> called it &quot;masterful&quot; and that it was &quot;like watching Michael Jordan in his prime.&quot; Here&apos;s a <a href="https://web.archive.org/web/20161002083659/http://www.politico.com/news/stories/0808/12917.html">transcript</a> and video is after the jump.<p></p>					
+										
+									
+				

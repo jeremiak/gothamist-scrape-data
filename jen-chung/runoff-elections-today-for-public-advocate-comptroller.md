@@ -1,0 +1,15 @@
+---
+author: Jen Chung
+date: Sep 29, 2009 7:51 am
+title: Runoff Elections Today For Public Advocate, Comptroller
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:180px; "> <img alt="2009_09_runelec.jpg" src="https://web.archive.org/web/20160301114648im_/http://gothamist.com/attachments/jen/2009_09_runelec.jpg" width="180" height="240"> <br> <i>Photograph by <a href="https://web.archive.org/web/20160301114648/http://www.flickr.com/photos/the_musical/2718700822/">the_musical on Flickr</a></i></div> Today, the Democrat candidates for NYC Public Advocate and City Comptroller will be decided today in runoff elections, because no candidate received at least 40% of the vote <a href="https://web.archive.org/web/20160301114648/http://gothamist.com/2009/09/15/primary_results_thompson_wins_run-o.php">during September 15&apos;s primary</a>.  In the PA race, it&apos;s City Councilman Bill de Blasio vs. former Advocate Mark Green (in the primary, de Blasio got 32% to Green&apos;s 31%), and in the Comptroller race, it&apos;s City Councilmen John Liu (who got 38%) vs. David Yassky (30%).  If you&apos;re a registered Democrat, go vote&#x2014;because it&apos;s <a href="https://web.archive.org/web/20160301114648/http://gothamist.com/2009/09/28/runoff_elections_costing_you_144_mi.php">costing the city millions anyway</a>!<p></p>
+
+<p>Here&apos;s the NYC Board of Elections&apos; <a href="https://web.archive.org/web/20160301114648/http://www.vote.nyc.ny.us/pollingplaces.html">information on polling sites</a>&#x2014;and there probably won&apos;t be any lines.  The <a href="https://web.archive.org/web/20160301114648/http://wcbstv.com/cbs2crew/john.liu.nyc.2.1214878.html">AP points out</a>, &quot;Turnout is expected to be so light Tuesday that victory could come down to get-out-the-vote efforts.&quot; Both races are very close and the Quinnipiac Polling Institute&apos;s Maurice Carroll said, &quot;Anything can happen in a tiny turnout -- one energized neighborhood, one pitch that appeals to a given group can make the difference.&quot; </p>
+
+<p>Yesterday was Yom Kippur, which had Green and Yassky observing the holiday and de Blasio and Liu doing some &quot;light&quot; campaigning.  <a href="https://web.archive.org/web/20160301114648/http://www.nytimes.com/2009/09/29/nyregion/29elect.html?_r=1&amp;ref=nyregion">According to the NY Times</a>, de Blasio&apos;s and Liu&apos;s campaign say they contacted Jewish leaders and supporters to gauge whether campaigning on the holy day was all right (yes and they stayed away from Jewish neighborhoods).  However, Liu, who criticized Yassky for his negative ads, was asked, &quot;[If it was fair] to take shots at someone who&#x2019;s observing a holiday because he can&#x2019;t fire back?&quot; to which Liu said, &quot;Is it fair to start a smear campaign with just a few days left before the actual election?&quot;</p>					
+										
+									
+				

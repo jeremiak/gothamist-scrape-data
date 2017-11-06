@@ -1,0 +1,7 @@
+---
+author: Jen Carlson
+date: December  8, 2008  1:27 PM
+title: Work Stopped on Bob Dylan's Former Pad
+---
+
+<p><img alt="dylanroom1208.jpg" src="https://web.archive.org/web/20130602071616im_/http://gothamist.com/attachments/arts_jen/dylanroom1208.jpg" width="130" height="97" class="right">Once word spread that Bob Dylan&apos;s former room at the Hotel Chelsea (#211) was <a href="https://web.archive.org/web/20130602071616/http://gothamist.com/2008/12/04/bob_dylans_room_destruction.php">being destroyed</a> by the new corporate overlords running the joint, a brand spankin&apos; new Stop Work Order was delivered by the Dept. of Buildings. <a href="https://web.archive.org/web/20130602071616/http://www.chelseahotelblog.com/living_with_legends_the_h/2008/12/city-says-stop-work-corporate-vandals-slapped-down-over-pillaging-of-bob-dylans-room.html">The residents</a> there report that they &quot;responded promptly when informed of this wanton destruction, determining that the &apos;work&apos; being done exceeded the scope of the permit (which was just for bathroom and kitchen renovation), and issuing a FULL STOP WORK ORDER covering the entire building.&quot; Allegedly they were &quot;pulling down walls and ripping out a mantelpiece&quot; prior to the halt. The times they aren&apos;t a changin&apos; just yet...but perhaps a full restoration is in order to eliminate that electric light blue wall color.</p>

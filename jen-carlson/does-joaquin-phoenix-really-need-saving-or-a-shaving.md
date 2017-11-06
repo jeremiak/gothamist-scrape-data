@@ -1,0 +1,15 @@
+---
+author: Jen Carlson
+date: Feb 13, 2009 11:47 am
+title: Does Joaquin Phoenix Really Need Saving? Or a Shaving?
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:326px; "> <img alt="phpjzUvWXAM.jpg" src="https://web.archive.org/web/20150501175306im_/http://gothamist.com/attachments/arts_jen/phpjzUvWXAM.jpg" width="326" height="350"> <br> <i>Gwyneth Paltrow and Joaquin Phoenix at <em>Two Lovers</em> in NYC.</i></div> There are plenty of theories about why Joaquin Phoenix was so out of it <a href="https://web.archive.org/web/20150501175306/http://gothamist.com/2009/02/12/joaquin_phoenix_on_letterman.php">on Letterman</a> Wednesday night, but the most plausible is that he was just <em>acting.</em> Sure, he may be drugged up, too, but then wouldn&apos;t his pal Casey Affleck put down the camera and send the guy to rehab? Affleck has been following Phoenix around filming a documentary (mockumentary?) about him, and <a href="https://web.archive.org/web/20150501175306/http://www.nydailynews.com/gossip/2009/02/13/2009-02-13_the_cryptic_order_of_the_joaquin_phoenix.html">the Daily News</a> reports that following his Letterman appearance Phoenix and his crew went to a screening of his movie <em>Two Lovers</em> (where at the <em>very least</em> <a href="https://web.archive.org/web/20150501175306/http://gothamist.com/2009/02/05/gwyneth_1.php">Gwyneth Paltrow</a> would have attempted to save him with <a href="https://web.archive.org/web/20150501175306/http://goop.com/newsletter/6">GOOP-isms</a>).<p></p>
+
+<p>At the screening, &quot;anyone they encountered was asked sign a release form&quot; which stated, in part: &#x201C;This release is made to allow Flemmy Productions, LLC to include me in the production and/or publication of the documentary project tentatively entitled &#x2018;Untitled Joaquin Phoenix Documentary&#x2019; (the &#x2018;Picture&#x2019;).&quot; The same releases were also handed when Phoenix patronized The Box last week, and likely at that LA appearance in January where he fell off a stage (<a href="https://web.archive.org/web/20150501175306/http://www.youtube.com/watch?v=7F_Ikksg40U">video</a>!).</p>
+
+<p>If it is some kind of elaborate Kaufman-esque put-on (minus the wit and charm), there had better be an amazing payoff at the end, because at this point the hoax&#x2014;if it is a hoax&#x2014;is shaping up like a self-righteous &quot;comment&quot; on how vulgar Americans love a good celebrity flame out. Which of course we <em>do</em>, but who are you to judge, Mr. <em>SpaceCamp</em>? Or as <a href="https://web.archive.org/web/20150501175306/http://videogum.com/archives/late-night/joaquin-phoenix-on-letterman-m_052201.html">Videogum&apos;s Gabe Delahaye</a> put it: &quot;This seems too much like a game being played by a self-indulgent narcissist who doesn&apos;t actually understand the rules. Because, obviously: David Letterman: 1. Joaquin Phoenix: 0.&quot;</p>					
+										
+									
+				

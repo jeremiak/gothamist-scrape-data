@@ -1,0 +1,21 @@
+---
+author: Nell Casey
+date: May 13, 2016 1:23 pm
+title: A Whiskey Festival & A Pasta Tasting Menu Keep Us Well-Fed This Weekend
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="051316pasta.jpeg" src="https://web.archive.org/web/20161021133539im_/http://gothamist.com/attachments/nyc_nellcasey/051316pasta.jpeg" width="640" height="427"> <br> <i> Lemon Ravioli (courtesy Davio&apos;s)</i></div> <p></p>
+
+<p>Feed the insatiable carbohydrate demon that lives inside you with a <strong>Pasta Tasting Course</strong> at <a href="https://web.archive.org/web/20161021133539/https://davios.com/nyc">Davio&apos;s</a>, an Italian steakhouse in Midtown. On Saturdays and Sundays, the restaurant is now offering a five-course tasting menu all about noodles, including ricotta-filled Lemon Ravioli in a ramp and lemon butter sauce; Tagliatelle Bolognese made with veal, beef and pork; and Ravioli Nero stuffed with lobster, swimming in uni butter. The meal costs $55 per person; reservations can be made at 212-661-4810.</p>
+
+<p>West Village cocktail bar <a href="https://web.archive.org/web/20161021133539/http://www.analoguenyc.com/">Analogue</a> hosts their first ever <strong><a href="https://web.archive.org/web/20161021133539/https://www.eventbrite.com/e/analogues-inaugural-8th-street-whiskey-festival-tickets-24522331955?aff=mcivte">Whiskey Festival</a></strong> on Saturday in conjunction with the <a href="https://web.archive.org/web/20161021133539/http://villagealliance.org/events/8thStreet2016/">Positively 8th Street Fair</a>. From 1 p.m. to 4 p.m., they&apos;ll be offering samples of global whiskies like Teeling Whiskey from Dublin, Widow Jane from Red Hook, Koval Distillery from Chicago and a handful of others. Cocktails using the featured spirits will be discounted, and they&apos;re also offering complimentary BBQ. <a href="https://web.archive.org/web/20161021133539/https://www.eventbrite.com/e/analogues-inaugural-8th-street-whiskey-festival-tickets-24522331955?aff=mcivte">Tickets are $45</a>. </p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="051316extrafancy2.jpeg" src="https://web.archive.org/web/20161021133539im_/http://gothamist.com/attachments/nyc_nellcasey/051316extrafancy2.jpeg" width="640" height="480"> <br> <i> (Nell Casey/Gothamist)</i></div> <p></p>
+
+<p>This weekend, Williamsburg&apos;s <a href="https://web.archive.org/web/20161021133539/http://www.extrafancybklyn.com/">Extra Fancy</a> opens their <a href="https://web.archive.org/web/20161021133539/http://www.extrafancybklyn.com/">big, new outdoor bar</a> and they&apos;re celebrating the occasion with a <strong><a href="https://web.archive.org/web/20161021133539/http://www.extrafancybklyn.com/new-events-1/2016/5/14/3rd-annual-crawfish-boil">Crawfish Boil</a></strong> on Saturday from noon until 4 p.m. Brooklyn Brewery&apos;s doing a tap takeover for the event, and a $30 ticket ($35 at the door) gets you one pint plus &quot;plenty&apos;o&apos;crawfish.&quot;</p>
+
+<p>Sample and sip the flavors of Spain&apos;s Basque region on Sunday at the sixth annual <a href="https://web.archive.org/web/20161021133539/http://txikifest2016.brownpapertickets.com/"><strong>Txikifest</strong></a>, an outdoor festival celebrating Spain&apos;s Txakoli wine. For the uninitiated, Txakoli&#x2014;pronounced cha-co-li&#x2014;are predominantly white wines made from hondarrabi zuri grapes, a variety common to the Basque Country. The event is hosted by restaurants Txikito, El Quinto Pino, Tekoa and La Vara, all of whom are helping supply plenty of nibbles to soak up all the vino, as are Co. Pizza, Colonia Verde, Del Posto, Fonda, La Newyorkina, Llama Inn, Mateo, Please Don&apos;t Tell, Pomfrit Nogales, Quality Eats, Sullivan Street Bakery, Superiority Burger and a few others. <a href="https://web.archive.org/web/20161021133539/http://txikifest2016.brownpapertickets.com/">Tickets are $50</a> and proceeds benefit Hot Bread Kitchen.</p>					
+										
+									
+				

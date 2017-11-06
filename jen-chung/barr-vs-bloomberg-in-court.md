@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: September 16, 2008  1:22 PM
+title: Barr Vs. Bloomberg--in Court!
+---
+
+<p><img alt="2008_09_bbarr.jpg" src="https://web.archive.org/web/20111117115925im_/http://gothamist.com/attachments/jen/2008_09_bbarr.jpg" width="120" height="125" class="right">Libertarian presidential candidate Bob Barr will be <a href="https://web.archive.org/web/20111117115925/http://www.newsday.com/news/local/newyork/ny-nybarr0917,0,6687080.story">heading into court for a defamation lawsuit</a> against Mayor Bloomberg.  Per the AP, &quot;Barr claims Bloomberg libeled Adventure Outdoors Sporting Goods when he labeled the Smyrna, Ga. gun shop a rogue gun dealer.&quot;  Barr is representing Adventure Outdoors, which <a href="https://web.archive.org/web/20111117115925/http://www.nysun.com/new-york/in-turnaround-gun-dealer-tries-suing-bloomberg/36496/">filed the $400 million lawsuit in 2006</a>.  Bloomberg has made <a href="https://web.archive.org/web/20111117115925/http://gothamist.com/2006/01/09/nra.php">going after gun dealers</a> a cornerstone of his mayoral (and potential national) platform.   In other Barr news, a judge ruled that he <a href="https://web.archive.org/web/20111117115925/http://ap.google.com/article/ALeqM5hvCD9_7Y5TjfJj2S_bylUlXoKP3AD937FQ500">can remain on the Pennsylvania ballot</a>--apparently the GOP is worried he&apos;ll siphon votes from John McCain.  </p>

@@ -1,0 +1,15 @@
+---
+author: Ben Yakas
+date: December 24, 2011  5:10 PM
+title: Occupy Wall Street To Celebrate Christmas At Zuccotti Park
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="122411ows.jpg" src="https://web.archive.org/web/20120211190527im_/http://gothamist.com/attachments/byakas/122411ows.jpg" width="640" height="480"> <br> <i><a href="https://web.archive.org/web/20120211190527/http://www.flickr.com/photos/62159569@N08/6562810339/">scoboco&apos;s flickr</a></i></div> <p></p>
+
+<p>With the 100th day of the ongoing <a href="https://web.archive.org/web/20120211190527/http://gothamist.com/tags/occupywallstreet">Occupy Wall Street</a> protests coming up tomorrow, OWS have planned for a day of protest, food and prayer where it all started in Zuccotti Park. The events, organized by Occupy Faith, <a href="https://web.archive.org/web/20120211190527/http://online.wsj.com/article/AP264d0182ea494f17be0c09ca1ede1b02.html">will start with</a> midnight prayer service, and continue for 24 hours straight with performers and holiday meals. &#x201C;We are taught to close our doors and retract into the nuclear family, into our faith groups, into our nationalism. Lets do something truly revolutionary and celebrate, meditate, pray, play, and eat together!&quot; &#x201C; said Atiq Zabinski of OWS.  </p>
+
+<p>Occupy Faith, &quot;a small group of Christians, brought together by our time living at Occupy Wall Street,&quot; along with Occupy Dignity, <a href="https://web.archive.org/web/20120211190527/http://gothamist.com/2011/12/19/christian_protesters_ask_brookfield.php">had the ACLU</a> hand-deliver letters to the NYPD and Brookfield Properties last Monday alerting them to the plans for an all-day Christmas event.  </p>
+
+<p>Breakfast will be served at 9 a.m., followed by the reading of Martin Luther King&#x2019;s seminal &#x201C;Beyond Vietnam&#x201D; speech at noon; following more music, a &#x2018;potluck&#x2019; holiday meal from donations will be shared at 3 p.m.. At 4 p.m., Ecclesia Ministry will offer communion, followed at 5 p.m. by poetry, storytelling and music until midnight Christmas night.</p>
+
+<p>So there&apos;ll be plenty of interesting things going on tomorrow&#x2014;and then you can donate your signs and OWS ephemera to one of the half-dozen major museums and organizations <a href="https://web.archive.org/web/20120211190527/http://abcnews.go.com/US/wireStory/occupy-wall-street-highly-collectible-15227778#.TvZE_SNWp4U">who are collecting materials produced by the Occupy movement</a>. Because OWS is, um, so sexy right now: &quot;Occupy is sexy,&quot; said Ben Alexander, who is head of special collections and archives at Queens College in New York, which has been collecting Occupy materials. &quot;It sounds hip. A lot of people want to be associated with it.&quot;</p>

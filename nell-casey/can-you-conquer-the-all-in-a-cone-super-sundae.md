@@ -1,0 +1,21 @@
+---
+author: Nell Casey
+date: Jul 29, 2016 10:08 am
+title: Can YOU Conquer The All-In-A-Cone Super Sundae?
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="072916beer.jpg" src="https://web.archive.org/web/20161219142748im_/http://gothamist.com/attachments/nyc_nellcasey/072916beer.jpg" width="640" height="480"> <br> <i> (<a href="https://web.archive.org/web/20161219142748/https://www.facebook.com/newyorksupercraft/photos/a.997337257040456.1073741828.791908404250010/997333857040796/?type=3&amp;theater">Facebook</a>)</i></div> <p></p>
+
+<p>Get tipsy on Pier 15 this Saturday at the 2nd annual <strong>NYC Super Craft Beer Festival</strong> at the <a href="https://web.archive.org/web/20161219142748/http://watermarkny.com/">Watermark Bar</a>. Over 80 breweries will be in attendance, pouring IPAs, sours, lagers and some ciders, too. There are <a href="https://web.archive.org/web/20161219142748/https://www.eventbrite.com/e/the-new-york-super-craft-beer-festival-tickets-26186737236">several ticketing levels</a>, starting at $15 for entry and three tastings; $30 for entry and five tastings; and unlimited tasting options ($70) for afternoon and evening sessions. All tickets include a souvenir glass.</p>
+
+<p>On Saturday at the <a href="https://web.archive.org/web/20161219142748/https://www.facebook.com/knittingfactorybrooklyn/">Knitting Factory</a> it&apos;s a <strong><a href="https://web.archive.org/web/20161219142748/https://www.facebook.com/events/1640196659640437/">Puppies n&apos; Pints Doggy Darty</a></strong> party from 12:30 to 3:30 p.m. Swing by the venue to mingle with adoptable pups from <a href="https://web.archive.org/web/20161219142748/http://www.badassbrooklynanimalrescue.com/">Badass Brooklyn Animal Rescue</a> and maybe even sign up to foster one or give one a forever home. The happy hour-style event is a casual opportunity to de-stress and pet some pooches while sipping on a few beers. <a href="https://web.archive.org/web/20161219142748/http://www.ticketweb.com/t3/sale/SaleEventDetail?eventId=6806665&amp;pl=bkfeatureswideoct2015&amp;dispatch=loadSelectionData">Tickets $12</a>.</p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="072916sundae.jpg" src="https://web.archive.org/web/20161219142748im_/http://gothamist.com/attachments/nyc_nellcasey/072916sundae.jpg" width="640" height="480"> <br> <i> (Scotty Lynch/Gothamist)</i></div> <p></p>
+
+<p>Brooklyn&apos;s <a href="https://web.archive.org/web/20161219142748/http://www.blacktreenyc.com/">Black Tree Location</a> begins a new prix-fixe <strong>Sundaes on Sunday</strong> meal beginning this Sunday and running through August. In partnership with Smithfield, the restaurant will offer a bacon-heavy set menu ($22) centered around the crowning jewel: The All in a Cone (pictured above) with goat milk maple and Smithfield bacon chocolate twist in a Bourbon Konery Kone with truffle honey, Cocoa Pebbles, more bacon, a chocolate shell, a bacon rose and a Cocoa Pebbles krispy treat. Also on the menu: a quail egg-bacon-cheddar dumpling, a bao with maple bacon and 7-spice ricotta, and a bourbon-cherry-cinnamon cocktail. For opening weekend this Sunday, they&apos;ll have live music and samples between 3 p.m. and 7 p.m.</p>
+
+<p>Elsewhere in ice cream land, there&apos;ll be scoops by the score at the <strong><a href="https://web.archive.org/web/20161219142748/https://www.eventbrite.com/e/nyc-summer-ice-cream-blizzard-tickets-25865471321">NYC Summer Ice Cream Blizzard</a></strong> hosted by <a href="https://web.archive.org/web/20161219142748/https://www.grandbazaarnyc.org/">Grand Bazaar NYC</a>, a weekly market on the UWS. The benefit program (100% of profits go to four local schools) begins at 10 a.m. and runs until 5:30 p.m., with 12 artisanal ice cream vendors scooping up over 60 different types of frozen treats. Ice &amp; Vice, melt ice cream sandwiches, The Paleo Factor, LizBeth&apos;s Dessert Boutique and Kingleche Cream are among those attending this free-to-enter event. </p>					
+										
+									
+				

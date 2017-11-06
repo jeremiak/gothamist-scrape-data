@@ -1,0 +1,27 @@
+---
+author: Jen Carlson
+date: Jan 16, 2008 8:30 am
+title: Matt Reeves, Director
+---
+
+	
+										<center><img alt="200801reeves.jpg" src="https://web.archive.org/web/20150509213455im_/http://gothamist.com/attachments/arts_jen/200801reeves.jpg" width="640" height="426"></center>
+
+<p><em>Recently at one of our sister sites, <a href="https://web.archive.org/web/20150509213455/http://LAist.com/">LAist</a>&apos;s Julie Wolfson spent an afternoon with <em>Cloverfield</em> director Matt Reeves. In <a href="https://web.archive.org/web/20150509213455/http://laist.com/2008/01/09/laist_interview_88.php">the interview</a> that follows he spills some juicy details about the film, including what the title really means, which will be in theaters this Friday.</em></p>
+
+<p><strong>Over the years you have been very selective in your choice of projects. What made you want to direct your first monster movie?</strong><br>
+Well, I guess it had to do with the approach. At the time, there was a project I had written and will be directing called The Invisible Woman. I was putting together the cast and we had an actress cast for the lead and then she fell out twice and it just didn&#x2019;t work scheduling-wise. During this time, J.J. Abrams had been putting together this deal for his new company. He&#x2019;d been doing television stuff, but he was going to also be moving into producing features in addition to the stuff that he writes and directs. So he was really excited about doing this monster movie, and that was the thing he was telling me about all during my work on The Invisible Woman. It sounded really intriguing and fun, but I never thought that I would have anything to do with it.</p>
+
+<p>One day when we were dealing with all this casting stuff, he and Bryan Burk, who I&#x2019;ve known since we were kids and introduced me to J.J., asked me to consider doing the movie. They talked about the idea that the movie is obviously a monster movie and there&#x2019;s that kind of outrageous aesthetic, but they wanted it to feel very naturalistic and real and that was very exciting to me.</p>
+
+<p>I read the outline, which was written by Drew Goddard, who is a writer from LOST and also has a big following of people who knew him when he started on Buffy the Vampire Slayer. I thought the outline was outrageous, so I met him, and I loved him. We just started talking about how we would sort of further take that character approach to the story. For me, the reason that it was interesting to do was that I&#x2019;d be doing something that I&#x2019;d never done before.</p>
+
+<p><strong><em>Cloverfield</em> has generated massive buzz since the trailer was shown before <em>Transformers</em> last summer. People online are dissecting of every aspect of the name of the film, the trailer, and other details. What do you make of all the curiosity surrounding the film?</strong><br>
+We thought it would be really fun to make a teaser trailer. We would make that in our pre-production then that would be released. Basically, we were learning how to make this hand-held visual effects movie by making a trailer for the movie. We thought it&#x2019;d be really neat if we could do it so that there wasn&#x2019;t any sense that it was a movie until you got to the end and saw the head of the Statue of Liberty and were like, &#x201C;OK, what is that?!?&#x201D; At one point at the beginning, we asked if we could not have the disclaimer at the beginning that says, &#x201C;This preview has been approved for all audiences by the MPAA.&#x201D; It turned out we couldn&#x2019;t do that, but Rob Moore at Paramount came up with the idea of &#x201C;What if we didn&#x2019;t put the title on it?&#x201D; It just really seemed a very unusual way to introduce a film. Kind of a throwback to when we were all kids and trailers came out for movies that you knew nothing about.</p>
+
+<p>The thing we talked about a lot was the trailer for Close Encounters. There was a great teaser trailer that sort of looked like weird documentary footage and there was this really scary, almost frontline-esque narrator and he was talking about different close encounters. When it ended you were like &#x201C;What was that?!?&#x201D; The idea of having that experience where, as a moviegoer, you could discover something&#x2014;before the age of Access Hollywood and Entertainment Tonight and all the websites.</p>
+
+<p>When it comes to modern trailers, a lot of the way that they sell movies now is to give you the whole thing right up front. This was a throwback. We knew that it was going to be on Transformers if we make it in time. We thought that it would be really interesting. Here will be this completely under-the-radar movie being previewed in front of a movie that they were already anticipating there&#x2019;d be a huge audience. I think that the real reason there was all of that crazy reaction was that the trailer was so widely seen and so completely mysterious. I think that people began to project themselves into the mystery to figure out what it was, and that created this whole sort of engagement with the viewers. Anytime you&#x2019;re confronted with a mystery, you immediately need to have answers, and we were just really lucky. We did not expect there to be this level of reaction.</p>					
+										
+									
+				

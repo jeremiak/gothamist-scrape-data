@@ -1,0 +1,13 @@
+---
+author: Jen Carlson
+date: October 21, 2011  5:12 PM
+title: Confirmed: The Dark Knight Will Film Near Zuccotti Park For Two Weeks
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="HIPSTERCOPBATMAN.jpg" src="https://web.archive.org/web/20120602112148im_/http://gothamist.com/attachments/arts_jen/HIPSTERCOPBATMAN.jpg" width="640" height="461" class="image-none"> </span><br>
+<span class="photo_caption">Batman, Hipster Cop is photobombing you! (Original photo via the AP)</span></p>
+
+<p>It seems like Christopher Nolan <em>will</em> be taking 1 percenter Bruce Wayne down to Zuccotti Park next week during the filming of <em>The Dark Knight Rises</em>, or at least some of the cast. <a href="https://web.archive.org/web/20120602112148/http://gothamist.com/2011/10/18/dark_knight_rises_may_film_at_occup.php">Earlier this week</a> we heard that the director might be using the <a href="https://web.archive.org/web/20120602112148/http://gothamist.com/tags/occupywallstreet">Occupy Wall Street</a> protest in his new flick, though it provide background atmosphere. Now <a href="https://web.archive.org/web/20120602112148/http://www.nytimes.com/2011/10/21/nyregion/dark-knight-rises-to-film-near-occupy-wall-street-site.html?_r=2&amp;smid=tw-nytmetro&amp;seid=auto">the NY Times</a> reports that the production will definitely be filming on Wall Street, just two blocks from Zuccotti Park.<br>
+</p><blockquote>The film&#x2019;s producers have told city officials that they want to shoot during the last weekend of October and the first weekend of November, and that would inject a new element of chaos into a neighborhood already unsettled by the protests and the attendant security, gawkers and news media.</blockquote><br>
+It seems as though the shoot was planned prior to the protests, however, and Mayor Bloomberg and Warner Brothers have been in touch as the shoot draws closer and the protests have grown. Currently, they both expect everything to go smoothly.<br>
+At the very least, there&apos;s going to be some confusion when tourists (who are all about Zuccotti now) run into some extras dressed in SWAT gear. Should be an eventful two weeks, especially for<a href="https://web.archive.org/web/20120602112148/http://gothamist.com/2011/10/21/quality_of_life_meeting_occupy_wall.php"> the neighbors</a>. But the big question is: will <a href="https://web.archive.org/web/20120602112148/http://gothamist.com/2011/10/21/hipster_cop_talks_fashion_with_gq_t.php">Hipster Cop</a> finally get his Hollywood close-up?<p></p>

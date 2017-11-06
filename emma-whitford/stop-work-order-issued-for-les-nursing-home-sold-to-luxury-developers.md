@@ -1,0 +1,29 @@
+---
+author: Emma Whitford
+date: Apr 8, 2016 4:30 pm
+title: Stop Work Order Issued For LES Nursing Home Sold To Luxury Developers
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="040816_Rivington.jpeg" src="https://web.archive.org/web/20160821053456im_/http://gothamist.com/attachments/nyc_ewhitford/040816_Rivington.jpeg" width="640" height="480"> <br> <i> (Emma Whitford / Gothamist)</i></div> <p></p>
+
+<p>The Department of Buildings has issued a Stop Work Order at 45 Rivington Street on the Lower East Side, a former nursing home for AIDS patients that was <a href="https://web.archive.org/web/20160821053456/http://gothamist.com/2016/02/29/les_luxury_condos_everywhere.php">recently sold</a> to a trio of luxury-condo developers for $116 million, months after the City agreed to lift a deed protecting the building as a non-profit healthcare facility in-perpetuity. </p>
+
+<p>Mayor de Blasio has said he was unaware of the controversial agreement when it was signed last November, insisting that if he had been informed, he would have intervened to stop it. The City&#x2014;which got $16.1 million in exchange for the deed lift&#x2014;has since stated that those with knowledge of the deal in the Mayor&apos;s office believed that the building would become a for-profit nursing home once it was out from under City-imposed restrictions.</p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-right"> <img alt="040817_StopWork.jpeg" src="https://web.archive.org/web/20160821053456im_/http://gothamist.com/attachments/nyc_ewhitford/040817_StopWork.jpeg" width="300" height="400"> <br> <i style=" width:300px; ;display:block"> Stop Work Order posted at 45 Rivington St (Emma Whitford / Gothamist). </i></div> One of 45 Rivington&apos;s new owners, <a href="https://web.archive.org/web/20160821053456/http://www.slatepg.com/">Slate Property Group</a>, is represented by lobbyist James Capalino, who <a href="https://web.archive.org/web/20160821053456/http://www.nydailynews.com/news/politics/de-blasio-lobbyist-helped-turn-nursing-home-condos-article-1.2578230?cid=bitly">the News reports</a> has bundled $50,000 in donations to <a href="https://web.archive.org/web/20160821053456/http://gothamist.com/2016/02/22/de_blasio_shadow_govmnt.php">Campaign for One New York</a>, which supports the Mayor&apos;s 2017 reelection efforts&#x2014;raising further questions about the City&apos;s stake in the transaction. (A spokeswoman for Capalino has since denied that Capalino &quot;represented Slate&quot; in the Rivington deal; Mayoral spokeswoman Karen Hinton has stated that Mayor de Blasio &quot;never discussed the sale with anyone, including Mr. Capalino.&quot;)<p></p>
+
+<p>The Department of Buildings confirmed on Friday that the Stop Work Order at 45 Rivington Street has been in effect since Tuesday, and applies to the entire building. The DOB says it was performing a routine audit of construction plans filed for the property, and found that the plans called for major building alterations that the construction permit does not cover. </p>
+
+<p><a href="https://web.archive.org/web/20160821053456/http://www.allurecare.com/#!about-us/c1oxg">Allure Group</a>, a for-profit nursing home operator, purchased 45 Rivington from a nonprofit called VillageCare in 2014, <a href="https://web.archive.org/web/20160821053456/http://www.thelodownny.com/leslog/2016/02/after-city-lifts-deed-restriction-rivington-house-building-sold-for-116-million-to-luxury-developers.html">for $28 million</a>. Allure reopened the facility briefly in 2015 as the Rivington Center for Nursing &amp; Rehabilitation, but shut down last December, citing its failure to obtain state Medicaid reimbursements. </p>
+
+<p>Another Allure Group nursing home&#x2014;this one in Bed-Stuy&#x2014;was <a href="https://web.archive.org/web/20160821053456/http://therealdeal.com/2015/10/09/park-developers-planning-241-unit-resi-building-in-bed-stuy/">sold to a residential developer</a> last fall.</p>
+
+<p>&quot;The whole notion of a deed restriction is that a luxury housing developer doesn&apos;t swoop in and take the property away from the community,&quot; said Borough President Gale Brewer on Wednesday, <a href="https://web.archive.org/web/20160821053456/http://gothamist.com/2016/04/06/45_rivington_press_conference.php">demanding</a> that the City compensate the Lower East Side for the loss of a community healthcare facility. </p>
+
+<p>Councilmember Margaret Chin this week announced that she is introducing legislation that would mandate radical transparency in all deed negotiations that could change a city-imposed restriction on a building&apos;s use (until recently, announcements of deed restriction negotiations were only listed in the <a href="https://web.archive.org/web/20160821053456/https://a856-cityrecord.nyc.gov/">City Record</a>). The Department of Investigation, <a href="https://web.archive.org/web/20160821053456/http://www.thelodownny.com/leslog/2016/03/comptroller-investigates-citys-role-in-sale-of-former-rivington-house-facility.html">Comptroller Scott Stringer&apos;s office</a> and, most recently, the <a href="https://web.archive.org/web/20160821053456/http://www.nydailynews.com/new-york/manhattan/attorney-general-subpoenas-rivington-house-developer-article-1.2590272">Attorney General&apos;s office</a> have all launched investigations into the deed negotiations at 45 Rivington. </p>
+
+<p>Slate Group did not immediately respond to a request for comment on the Stop Work Order. </p>					
+										
+									
+				

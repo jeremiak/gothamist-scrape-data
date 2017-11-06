@@ -1,0 +1,35 @@
+---
+author: Jen Carlson
+date: Sep 11, 2011 4:50 pm
+title: Video: Revisiting Jon Stewart's Post-9/11 Speech On The Daily Show
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="smjonstewart0911.jpg" src="https://web.archive.org/web/20150629195724im_/http://gothamist.com/attachments/arts_jen/smjonstewart0911.jpg" width="250" height="186" class="image-right"> </span>On September 20th, 2001 <a href="https://web.archive.org/web/20150629195724/http://www.thedailyshow.com/watch/thu-september-20-2001/september-11--2001">The Daily Show</a> returned for the first time after the tragedy on the 11th, and Jon Stewart opened with the below memorable speech, which is worth revisiting. In it, a choked-up Stewart (who says, &quot;luckily we can edit this&quot;), hopes that we&apos;ll be able to ride out the storm. </p>
+
+<p>Full transcript and video below; his speech ends: &quot;The view from my apartment was the World Trade Center... Now it&apos;s gone. They attacked it. This symbol of... of American ingenuity and strength.... and labor and imagination and commerce and it&apos;s gone. But you know what the view is now? The Statue of Liberty... the view from the south of Manhattan is the Statue of Liberty. You can&#x2019;t beat that.&quot;</p>
+
+<center><div style="background-color:#000000;width:520px;"><div style="padding:4px;"><embed src="https://web.archive.org/web/20150629195724oe_/http://media.mtvnservices.com/mgid:cms:video:thedailyshow.com:105095" width="512" height="288" type="application/x-shockwave-flash" allowfullscreen="true" allowscriptaccess="always" base="." flashvars=""></div></div></center>
+
+<blockquote>Good evening and welcome to the Daily Show. We are back. This is our first show since the tragedy in New York City and there is really no other way to start the show then to ask you at home the question that we asked the audience here tonight and that we&#x2019;ve asked everybody we know here in New York since September 11, and that is, &quot;Are you okay?&quot; And we pray that you are and that your family is.
+
+<p>I&apos;m sorry to do this to you. It&apos;s another entertainment show beginning with an overwrought speech of a shaken host&#x2014;and television is nothing if not redundant. So I apologize for that. Its something that, unfortunately, we do for ourselves so that we can drain whatever abscess is in our hearts and move on to the business of making you laugh, which we haven&#x2019;t been able to do very effectively lately. Everyone has checked in already. I know we are late. I&#x2019;m sure we are getting in just under the wire before the cast of Survivor offers their insight into what to do in these situations. They said to get back to work. There were no jobs open for a man in the fetal position under his desk crying. . . which I gladly would have taken. So I come back here and tonight&#x2019;s show is not obviously a regular show. We looked through the vault and found some clips that we think will make you smile, which is really what&#x2019;s necessary, I think, right about now.</p>
+
+<p>A lot of folks have asked me, &quot;What are you going to do when you get back? What are you going to say? I mean, jeez, what a terrible thing to have to do.&quot; And you know, I don&#x2019;t see it as a burden at all. I see it as a privilege. I see it as a privilege and everyone here does. The show in general we feel like is a privilege. Even the idea that we can sit in the back of the country and make wise cracks. . . which is really what we do. We sit in the back and throw spitballs&#x2014;but never forgetting that it is a luxury in this country that allows us to do that. That is, a country that allows for open satire, and I know that sounds basic and it sounds like it goes without saying. But that&#x2019;s really what this whole situation is about. It&#x2019;s the difference between closed and open. The difference between free and. . . burdened. And we don&#x2019;t take that for granted here, by any stretch of the imagination. And our show has changed. I don&#x2019;t doubt that. And what it has become I don&#x2019;t know. &quot;Subliminible&quot; is not a punchline anymore. Someday it will become that again, Lord willing it will become that again, because it means that we have ridden out the storm.</p>
+
+<p>The main reason that I wanted to speak tonight is not to tell you what the show is going to be, not to tell you about all the incredibly brave people that are here in New York and in Washington and around the country, but we&#x2019;ve had an unenduring pain, an unendurable pain and I just... I just wanted to tell you why I grieve&#x2014;but why I don&#x2019;t despair. (choking back tears) I&#x2019;m sorry... luckily we can edit this...</p>
+
+<p>One of my first memories was of Martin Luther King being shot. I was five and if you wonder if this feeling will pass. . . (choked up). . . When I was five and he was shot, this is what I remember about it. I was in school in Trenton and they turned the lights off and we got to sit under our desks. . . and that was really cool. And they gave us cottage cheese, which was a cold lunch because there were riots, but we didn&#x2019;t know that. We just thought, &quot;My God! We get to sit under our desks and eat cottage cheese!&quot; And that&#x2019;s what I remember about it. And that was a tremendous test of this country&apos;s fabric and this country has had many tests before that and after that.</p>
+
+<p>The reason I don&#x2019;t despair is that. . . this attack happened. It&apos;s not a dream. But the aftermath of it, the recovery, is a dream realized. And that is Martin Luther King&apos;s dream.</p>
+
+<p>Whatever barriers we put up are gone. Even if it&apos;s just momentary. We are judging people by not the color of their skin, but the content of their character. (pause) You know, all this talk about &quot;These guys are criminal masterminds. They got together and their extraordinary guile and their wit and their skill. . .&quot; It&apos;s all a lie. Any fool can blow something up. Any fool can destroy. But to see these guys, these firefighters and these policemen and people from all over the country, literally with buckets, rebuilding. . . that&#x2019;s extraordinary. And that&apos;s why we have already won. . . they can&apos;t. . . it&apos;s light. It&apos;s democracy. They can&apos;t shut that down.</p>
+
+<p>They live in chaos. And chaos, it can&apos;t sustain itself&#x2014;it never could. It&apos;s too easy and it&apos;s too unsatisfying. The view. . . from my apartment. . . (choking up) was the World Trade Center. . .</p>
+
+<p>Now it&apos;s gone. They attacked it. This symbol of. . . of American ingenuity and strength. . . and labor and imagination and commerce and it&apos;s gone. But you know what the view is now? The Statue of Liberty. . . the view from the south of Manhattan is the Statue of Liberty. . .</p>
+
+<p>You can&#x2019;t beat that. . .</p></blockquote><p></p>					
+										
+									
+				

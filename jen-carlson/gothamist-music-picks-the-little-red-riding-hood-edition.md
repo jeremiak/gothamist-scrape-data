@@ -1,0 +1,35 @@
+---
+author: Jen Carlson
+date: Apr 10, 2006 4:09 pm
+title: Gothamist Music Picks: The Little Red Riding Hood Edition
+---
+
+	
+										<p><img alt="2006_04_arts_wolfmother.jpg" src="https://web.archive.org/web/20150502143031im_/http://www.gothamist.com/attachments/arts_jen/2006_04_arts_wolfmother.jpg" width="225" height="338" align="right" hspace="5">For a long time we didn&apos;t listen to <a href="https://web.archive.org/web/20150502143031/http://www.wolfmother.com/">Wolfmother</a> just because they had &quot;wolf&quot; in their name. We were sick it. Wolfmother, Wolf Eyes, We Are Wolves...&quot;how could any of them be better than Wolf Parade?&quot; we thought.</p>
+
+<p>Then in a warehouse in Austin this March, sometime around 3am, we were sipping on our nth PBR and who came on stage? It was that nice gentleman with the crazy hair that we rode the hotel elevator with that morning, and his friends. It was Wolfmother. Now, we are obsessed with them. This is the best band we&apos;ve heard in ages. We stood in awe and let the sonic perfection of their modernized Led Zeppelin meets Styx sound drape over us.  </p>
+
+<p>Why are we telling you all of this now? Well, there are two wolf bands gracing the New York stages this week.</p>
+
+<p>Tonight <a href="https://web.archive.org/web/20150502143031/http://www.myspace.com/wolfparade">Wolf Parade</a> plays their second sold out show at Webster Hall. The first time we saw them was at Webster, then it was Northsix, now back to Webster. Crazy stuff. If you didn&apos;t get tickets to this show, head over to Mercury Lounge for a very solid lineup of: Magenta Lane, Aloha, Irving and <a href="https://web.archive.org/web/20150502143031/http://Voxtrot.net/">Voxtrot</a>. The latter is addictive 1950&apos;s rock, and Aloha is getting lots of blog buzz - despite the lack of &quot;wolf&quot; in their name. [BONUS: Official Voxtrot After Party is tonight @ White Rabbit (145 Houston St) at 11pm. DJs: Voxtrot, <a href="https://web.archive.org/web/20150502143031/http://www.nouveaunyc.com/">Mike Nouveau</a>, <a href="https://web.archive.org/web/20150502143031/http://azizisbored.com/">Aziz Ansari</a> and <a href="https://web.archive.org/web/20150502143031/http://www.myspace.com/fingeronthepulsenyc">Finger On The Pulse</a>.]</p>
+
+<p>Tuesday night is Wolfmother (sadly, we slept on getting tickets and &quot;their people&quot; aren&apos;t answering our pleas for a list spot, ahem). This show is sold out, if you are going - you are lucky. Buy us a t-shirt and when you are done come find us at Mercury Lounge. That&apos;s where we&apos;ll be for what <a href="https://web.archive.org/web/20150502143031/http://kollegedaily.typepad.com/product_shop_nyc/2006/04/slowlands_brook.html">ProductShopNYC</a> is calling &quot;the next Brooklyn Buzz band&quot;, <a href="https://web.archive.org/web/20150502143031/http://Slowlands.com/">Slowlands</a> [disclaimer: <a href="https://web.archive.org/web/20150502143031/http://5thfloor.org/">we</a> manage this band! fact: we only manage really awesome bands!] We booked these guys for Movable Hype 6.0 and totally fell in love with their live show (truth be told we started falling when we heard their album last year).</p>
+
+<p>For those who are staying in Brooklyn Tuesday night you&apos;ve got some solid choices too: Regina Spektor is at Warsaw and Art Brut is at Southpaw. Tickets are still on sale (as of posting time) for both, not a surprise since they range from $15 to $20! Both, however, are worth the price. </p>
+
+<p>Wednesday Rosie Thomas (<a href="https://web.archive.org/web/20150502143031/http://www.pitchforkmedia.com/news/06-04/05.shtml">who recently tricked us into thinking Sufjan Stevens would actually conceive a child out of wedlock</a>) will be taking the stage in New Jersey at Maxwell&apos;s. We&apos;ll be checking out <a href="https://web.archive.org/web/20150502143031/http://www.matesofstate.com/">Mates of State</a> at Bowery Ballroom. <a href="https://web.archive.org/web/20150502143031/http://www.gogolbordello.com/">Gogol Bordello</a> takes on Warsaw the same night, watch out - we hear his this band of gypsies really does pickpocket! For real, we heard that, however they are also notorious for rocking the house and making you dance, so it&apos;s worth the risk. </p>
+
+<p>If you aren&apos;t at the Death Cab for Cutie/Franz Ferdinand supershow at Hammerstein Thursday or Friday nights - there is actually other music going on that night, at lower prices! <a href="https://web.archive.org/web/20150502143031/http://rhettmiller.com/">Rhett Miller</a> (best know from the <a href="https://web.archive.org/web/20150502143031/http://www.old97s.com/">Old 97s</a>) and Nicolai Dunger are at Webster Hall Thursday night, also sort of pricey - but very worth it, dare we say more worth it than Ben Gibbard and the Franz boys? Yes, we do dare say it. </p>
+
+<p>The weekend is all about Clap Your Hands Say Yeah for many, but if you didn&apos;t get tickets or if you just aren&apos;t that into them...we suggest <a href="https://web.archive.org/web/20150502143031/http://www.plusmin.us/">+/-</a>, Say Hi To Your Mom and Hymns are at Northsix Friday night. In Manhattan there&apos;s the solid lineup of Human Television, Bravo Silva [disclaimer: <a href="https://web.archive.org/web/20150502143031/http://5thfloor.org/">we</a> manage this band too!] and <a href="https://web.archive.org/web/20150502143031/http://babydayliner.com/">Baby Dayliner</a> at Rare. If you haven&apos;t seen Baby Dayliner yet, please, do yourself a favor and check him out. Over at the Puck Building Talib Kweli, Wax Po All Stars and Kontrast will be playing to a ton of NYU students (the show is open, and brought to you by the NYU Ski and Snowboard club). </p>
+
+<p>Saturday night there is much to do! So send out your taxes and get over to Northsix for <a href="https://web.archive.org/web/20150502143031/http://www.theappleseedcast.com/">The Appleseed Cast</a>, Aloha and Victory at Sea. Or head to Pianos for <a href="https://web.archive.org/web/20150502143031/http://www.myspace.com/metalhearts">Metal Hearts</a> (also playing on the bill: Thee Fine Lines, Casey Dienel, Deb DeSalvo) - seriously, this band is worth checking out not once, but a million times. They played our last Movable Hype show and we adore them. Speaking of which, rest up the rest of the weekend because our Movable Hype show is on Monday! It&apos;s gonna be a long night of rock [<a href="https://web.archive.org/web/20150502143031/http://www.ticketweb.com/user/?region=nyc&amp;query=detail&amp;event=656409">buy tickets here</a>]!</p>
+
+<p>(Look and) Listen up:</p>
+
+<p><a href="https://web.archive.org/web/20150502143031/http://www.youtube.com/watch?v=h2kKhvTbdcc">Foothills video</a> - Metal Hearts<br>
+<a href="https://web.archive.org/web/20150502143031/http://www.plusmin.us/trapped_under_ice_floes_(redux).mp3">Trapped Under Ice Flows.mp3</a> - +/-<br>
+<a href="https://web.archive.org/web/20150502143031/http://www.hisandhearse.com/deepelmaudio/sound_378_tal.mp3">Tale of the Aftermath.mp3</a> - The Appleseed Cast</p>					
+										
+									
+				

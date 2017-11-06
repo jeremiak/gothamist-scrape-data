@@ -1,0 +1,23 @@
+---
+author: Nell Casey
+date: Apr 1, 2016 11:15 am
+title: Feast With Your Hands At This Bacchanalian Beefsteak Dinner
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="032916legarage.jpeg" src="https://web.archive.org/web/20160813163145im_/http://gothamist.com/attachments/nyc_nellcasey/032916legarage.jpeg" width="640" height="506"> <br> <i> (courtesy Le Garage)</i></div> <p></p>
+
+<p>A very meat-centric dinner unfolds on Friday at <a href="https://web.archive.org/web/20160813163145/http://www.riverparknyc.com/">Riverpark</a>, Tom Colicchio&apos;s pretty restaurant/urban farm on East 29th Street. The restaurant is reviving the <strong>Beefsteak</strong> tradition for one night, with a bacchanalian celebration of bourbon, beer and beef&#x2014;eaten by hand. Guests should expect a three course, family-style dinner ($150) with dishes including leg of lam, standing rib roast, bone marrow and potato gratin, plus desserts including bananas foster and coconut cake. Beginning at 7:30 p.m. there&apos;ll be live music, plus Four Roses Bourbon, craft beer and a BYO wine option if you pay the corkage fee. Call the restaurant (212-729-9790) for reservations. </p>
+
+<p>There are <strong>two new brunch options</strong> for day drinkers launching this weekend, beginning with a very French affair at Bushwick newcomer <a href="https://web.archive.org/web/20160813163145/http://legaragebrooklyn.com/">Le Garage</a>. On the <a href="https://web.archive.org/web/20160813163145/http://legaragebrooklyn.com/menu/">menu</a>: a Croque Madame ($13), Pain Perdu ($9) with roasted pineapple and a Pork Cheese Sandwich ($12) with satay and mixed greens. Over in Manhattan, <a href="https://web.archive.org/web/20160813163145/http://www.louieandchan.com/">Louie and Chan</a> are also all about that brunch with dishes like a Lamb Burger topped with smoked mozzarella, pickled chiles, chives aioli, and tobacco onions and Lobster Toast, with avocado, pea sprouts and baby greens on dark rye sourdough bread.</p>
+
+<p>For most people, karaoke is a late-night activity following one too many tequila shots. But <a href="https://web.archive.org/web/20160813163145/http://www.insabrooklyn.com/">Insa</a>, the newly launched Korean BBQ and karaoke spot in Gowanus, is taking the activity daytime, launching a <strong>karaoke lunch</strong> this Saturday and Sunday beginning at noon. Nosh on Korean barbecue meats then head into one of their festive karaoke rooms and keep the party going with kimchi-wasabi Bloody Mary ($12 with vodka, $10 with soju) or a Strong Island Ice Tea ($12) with white rum, coconut creme, passionfruit, peach, cardamon bitters and iced black tea.</p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="032916pizzabeach.jpeg" src="https://web.archive.org/web/20160813163145im_/http://gothamist.com/attachments/nyc_nellcasey/032916pizzabeach.jpeg" width="640" height="426"> <br> <i> (Nicole Franzen)</i></div> <p></p>
+
+<p>Surfer-themed <a href="https://web.archive.org/web/20160813163145/http://pizzabeachclub.com/home/">Pizza Beach</a> is opening up their Lower East Side location to students of the pie with <strong><a href="https://web.archive.org/web/20160813163145/https://www.eventbrite.com/e/pizza-beach-pizza-making-class-tickets-22548845203?aff=utm_source%3Deb_email%26utm_medium%3Demail%26utm_campaign%3Dnew_event_email&amp;utm_term=eventurl_text">pizza-making classes</a></strong> on Sunday evening. For $60 per person you&apos;ll learn to make their hand-crafted pizzas while simultaneously noshing on their salads and an unlimited well of their pizzas and wine. During the two-hour class, choose to make a pie from their menu or use your culinary creativity to design a pie of your own from their many toppings.</p>
+
+<p><a href="https://web.archive.org/web/20160813163145/http://www.bluewatergrill.com/">Blue Water Grill</a>, the stately-looking restaurant holding court on Union Square West, launches a <strong>&quot;Sunday Feast&quot;</strong> dinner option for those who&apos;d like to finish out the weekend on a robust note. For dinner service on Sundays, there&apos;s now a $58 four course, family-style dinner, which will change its theme each month. For April, it&apos;s all about seafood, with dishes including Crab Bloody Mary, Calendar Island Mussels Casino and Lardo-Draped Scallops. </p>					
+										
+									
+				

@@ -1,0 +1,11 @@
+---
+author: Jen Carlson
+date: December  8, 2009  1:14 PM
+title: John Lennon Died 29 Years Ago Today
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="1209lennon.jpg" src="https://web.archive.org/web/20111116190434im_/http://gothamist.com/attachments/arts_jen/1209lennon.jpg" width="640" height="215" class="image-none"> </span></p>
+
+<p>Today marks the 29th <a href="https://web.archive.org/web/20111116190434/http://gothamist.com/2008/12/06/lennon_1.php">anniversary of John Lennon&apos;s death</a>. The musician would have just turned 69 this October had Mark David Chapman not shot him dead outside of the Dakota on the night of December 8th, 1980. (<a href="https://web.archive.org/web/20111116190434/http://gothamist.com/2008/08/19/lennons_killer.php">Last year</a> Chapman was denied parole for a 5th time.) To commemorate Lennon&apos;s life and death, fans will gather once again <a href="https://web.archive.org/web/20111116190434/http://gothamist.com/2008/12/08/lennon_2.php">at Strawberry Fields</a> (<a href="https://web.archive.org/web/20111116190434/http://cityroom.blogs.nytimes.com/2009/12/08/devotee-of-lennon-haunts-strawberry-fields/">CityRoom</a> spoke to the unofficial curator of the Imagine mosaic there). If you stop by, or attend any Lennon tributes throughout the city today or tonight, <a href="https://web.archive.org/web/20111116190434/mailto:photos@gothamist.com">send us your photos</a>. </p>
+
+<p>There&apos;s still time to check out the Rock &amp; Roll Hall of Fame Annex&apos;s <a href="https://web.archive.org/web/20111116190434/http://gothamist.com/2009/05/11/lennon_3.php">Lennon NYC Years</a> exhibit, before they close up shop <a href="https://web.archive.org/web/20111116190434/http://gothamist.com/2009/12/04/rock_roll_annex_closing.php">in January</a>. And while you&apos;re at work, tune in to <a href="https://web.archive.org/web/20111116190434/http://www.eastvillageradio.com/">East Village Radio</a>, where they&apos;re broadcasting a Lennon tribute.</p>

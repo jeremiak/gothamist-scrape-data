@@ -1,0 +1,23 @@
+---
+author: Jen Carlson
+date: Jan 3, 2008 9:27 am
+title: Late Night Returns! Golden Globes Doomed?
+---
+
+	
+										<p><a href="https://web.archive.org/web/20150509170010/http://gothamist.com/2007/12/29/wga_update_real.php">Last week</a> everyone from writers on the picket line to bored couch potatoes were abuzz with news that the late night heavyweights would be returning with all new shows. Last night was the big night (Letterman, O&apos;Brien, Kimmel, Ferguson and Leno <a href="https://web.archive.org/web/20150509170010/http://www.deadlinehollywooddaily.com/late-night-officially-returns-early-reviews/">all returned</a>), and both Conan O&apos;Brien and David Letterman took the stage showing solidarity with strike beards intact. Letterman threatened to shave his later on Conan&apos;s show, saying that he&apos;d probably be helping his New York late night pal out since he&apos;s returned sans writers.</p>
+
+<p>For those keeping score, the WGA has been on strike since November 5th, with late night airing reruns immediately. While Letterman was able to work out a deal with the writers independently through his WorldWide Pants Corp. (which includes Craig Ferguson), it&apos;s unsure how long the strike will last and how it will affect regular programming (the one in the 1980s lasted over 5 months). Here&apos;s the opening monologue (including a Hillary Clinton cameo) from Letterman&apos;s show last night (all videos after the jump):</p>
+
+<center><object width="425" height="355"><param name="movie" value="http://www.youtube.com/v/lYMsUxZL8Oo&amp;rel=1"><param name="wmode" value="transparent"><embed src="https://web.archive.org/web/20150509170010oe_/http://www.youtube.com/v/lYMsUxZL8Oo&amp;rel=1" type="application/x-shockwave-flash" wmode="transparent" width="425" height="355"></object></center>
+
+<p>Later, as Letterman held up a pair of electric underpants, the Late Show &quot;strike captain&quot; interrupted and addressed &quot;the arrogant media moguls,&quot; saying: &quot;stop spending all your money on cufflinks, cocktails and whores...and start bargaining in good faith with the writers. Maybe then America won&apos;t be denied the joy of seeing David Letterman hold up a pair of flaming underpants.&quot; Later in the night a troupe of striking writers from other shows (ranging from The Colbert Report to Law &amp; Order) delivered the Top 10 List (pictured below is a Conan writer with #2).</p>
+
+<p><img alt="200801letterman.jpg" src="https://web.archive.org/web/20150509170010im_/http://gothamist.com/attachments/arts_jen/200801letterman.jpg" width="320" height="240" class="right">Over on ABC and NBC, Kimmel, Leno and Conan were without their writing staff and delivered more off-kilter shows. In their opening monologues Leno (who <a href="https://web.archive.org/web/20150509170010/http://www.observer.com/2008/leno-breaks-rules-and-writes-own-monologue">broke the rules</a>) stated that &#x201C;There are more people picketing NBC than watching NBC,&#x201D; whereas Conan found ways to draw attention to the lack of scribes by improvising (spinning his wedding ring on his desk for 36 seconds). They were both picketed yesterday at their respective studios (something Kimmel addressed), but <a href="https://web.archive.org/web/20150509170010/http://www.nytimes.com/2008/01/03/arts/television/03latenight.html?_r=3&amp;ref=business&amp;oref=slogin&amp;oref=slogin&amp;oref=slogin">The NY Times</a> reports that &quot;in both cases, the protesters took pains to emphasize that their quarrel was with NBC and its parent company, General Electric, and not the hosts themselves.&quot;</p>
+
+<p>The Guild will also be monitoring the content on the shows who have not yet reached a deal, and are attempting to stop guests from appearing on them. Guests (WGA affiliated and otherwise) to appear last night included Robin Williams (who didn&apos;t cross because he appeared on Letterman), Bob Saget, Emeril Lagasse and Mike Huckabee (who totally <a href="https://web.archive.org/web/20150509170010/http://www.newsday.com/entertainment/tv/ny-etlate0103,0,6668603.story">doesn&apos;t understand</a> the strike).  </p>
+
+<p>The future is still uncertain, but next week will bring the return of Jon Stewart and Stephen Colbert, who have both been trying to reach an interim agreement similar to the one Letterman has. And as for <a href="https://web.archive.org/web/20150509170010/http://gothamist.com/2007/12/13/golden_globes.php">those Golden Globes</a>, they&apos;re fast approaching and currently <a href="https://web.archive.org/web/20150509170010/http://www.nytimes.com/aponline/arts/AP-Hollywood-Labor-Golden-Globes.html?_r=1&amp;oref=slogin">hanging in the balance</a>. </p>					
+										
+									
+				

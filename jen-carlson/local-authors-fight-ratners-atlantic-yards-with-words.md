@@ -1,0 +1,13 @@
+---
+author: Jen Carlson
+date: Jan 4, 2008 11:17 am
+title: Local Authors Fight Ratner's Atlantic Yards...With Words
+---
+
+	
+										<p><img alt="200801bkwasmine.jpg" src="https://web.archive.org/web/20160308211051im_/http://gothamist.com/attachments/arts_jen/200801bkwasmine.jpg" width="219" height="338" class="right">Brooklyn writers are <a href="https://web.archive.org/web/20160308211051/http://www.dddb.net/php/latestnews_Linked.php?id=1151">banding together</a> to be the latest voice against Bruce Ratner&apos;s vision for Atlantic Yards. A number of local wordsmiths have contributed to <a href="https://web.archive.org/web/20160308211051/http://www.amazon.com/Brooklyn-Was-Mine-Valerie-Steiker/dp/1594482829"><em>Brooklyn Was Mine</em></a>, an anthology consisting of short essays and stories put together by two Vogue editor to benefit <a href="https://web.archive.org/web/20160308211051/http://www.dddb.net/php/aboutdddb.php">Develop Don&apos;t Destroy Brooklyn</a> (a non-profit that fights development while uniting the community). From the press release:</p><blockquote>&quot;Brooklyn has given birth to some of America&apos;s greatest literary voices,&quot; note the anthology&apos;s co-editors, Chris Knutsen and Valerie Steiker. &quot;Today, a new generation of authors has grown up or resettled here, a testament to Brooklyn&apos;s unique quality of life. These writers simply want to protect a community that has provided them with so much. Fortunately, the passion they feel for the place has yielded a vibrant collection of essays&#x2014;and we are delighted that, with each book sold, something will be given back to Brooklyn.&quot;</blockquote>The book is available (as of yesterday) for $15, and of the 20 contributions you&apos;ll find works from Jonathan Lethem, Jennifer Egan, Robert Sullivan, and Phillip Lopate -- who are all members of DDDB&apos;s advisory board. Egan&apos;s story, titled &quot;Reading Lucy,&quot; follows &quot;a woman who worked at the Brooklyn Navy Yard during World War II and wrote almost daily letters to her husband overseas,&quot; while Lethem&apos;s &quot;Ruckus Flatbush&quot; is described as &quot;a wild, dystopian ride into Brooklyn&apos;s future, meant to serve as a warning shot to the barbarians at the horizon.&quot;<p></p>
+
+<p><a href="https://web.archive.org/web/20160308211051/http://www.developdontdestroy.org/upcoming.php">Upcoming readings</a> include one at Park Slope&apos;s Barnes &amp; Noble on 7th Avenue next Wednesday (the 9th, at 7:30pm) and one at BookCourt on Court and Pacific in Brooklyn next Tuesday (the 8th at 7pm). </p>					
+										
+									
+				

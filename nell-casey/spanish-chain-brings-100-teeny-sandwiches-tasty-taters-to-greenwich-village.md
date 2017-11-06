@@ -1,0 +1,23 @@
+---
+author: Nell Casey
+date: Nov 22, 2013 1:27 pm
+title: Spanish Chain Brings 100 Teeny Sandwiches & Tasty Taters To Greenwich Village
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="112213montaditos_1.jpg" src="https://web.archive.org/web/20150228065025im_/http://gothamist.com/attachments/nyc_nellcasey/112213montaditos_1.jpg" width="640" height="480"> <br> <i> <span class="photo_caption">Pesto Montadito</span></i></div> <p></p>
+
+<p>British transplant Pret a Manger has found success with office drones seeking a reasonably fresh, somewhat &quot;artisan&quot;-style sandwich to cure their lunchtime hunger pangs. Now another European chainlet, <a href="https://web.archive.org/web/20150228065025/http://us.100montaditos.com/">100 Montaditos</a>, lands on our shores, bringing a different kind of sandwich into the mix. Taking name and inspiration from the Spanish tapa <em>montados</em>&#x2014;meaning to &quot;ride&quot;&#x2014;the restaurant offers a selection of (you guessed it!) 100 teeny sandwiches stuffed with a <a href="https://web.archive.org/web/20150228065025/http://us.100montaditos.com/menu">dizzying array of fillings</a> from Serrano ham to grilled chicken to Manchego cheese. </p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-right"> <img alt="112213mont_3.jpg" src="https://web.archive.org/web/20150228065025im_/http://gothamist.com/attachments/nyc_nellcasey/112213mont_3.jpg" width="250" height="375"> <br> <i style=" width:250px; ;display:block"> <span class="photo_caption">Brava Potatoes</span></i></div> We sampled half a dozen mini munchies at a press preview last night, including an Americanized Philly Steak with cheddar cheese; grilled chicken with crispy onions and Manchego; and a simple Caprese with Serrano ham, mozzarella, tomato and pesto. Surprisingly, the tiny cheesesteak stood out best from the samples, revealing tender sliced steak with a nice little bite from cheese. It also helped that the sandwich was served on their &quot;top secret&quot; bread, which resembled a mini baguette with a fluffy interior enclosed in a crusty exterior. Other bread options, including the chapata (think ciabatta) were fine but were somewhat lackluster compared to their signature bread. <p></p>
+
+<p>Besides the stuffed breads, seek out the Brava Potatoes: seasoned wedges deep fried until crispy on the outside and molten tuber on the inside. Each order comes with ketchup, for American palates, and ali oil (aoili), a creamy, garlicky mayonnaise sauce that pairs well with the hot potatoes. To drink, opt for a frosty mug of Estrella beer or, better yet, one of the sweet and refreshing sangrias. We might not be used to it in the States, but the Cola Sangria (exactly what it sounds like) offers a little caffeine boost while you&apos;re imbibing and actually tastes pretty great to boot.</p>
+
+<p>All said, 100 Montaditos offers some tasty eats if you happen to be in the neighborhood; it&apos;s not something we&apos;d necessarily travel for, but that&apos;s not a bad thing. For the budget-conscious NYU kids or party animals looking for a snack, the cafe provides the perfect alternative to a greasy, anonymous slice pre- or post-imbibing, and for about the same price. Sandwiches range from $1 to $2.50; mugs of sangria and domestic beers are $3, $5 for imported; and glasses of vino go for just $4. Better yet, swing by for Dollar Mania on Wednesdays, where all montaditos and apps are just $1, domestic beers, drinks and wine just $2 and imported beers and salads just $3. </p>
+
+<p><em>176 Bleecker Street between Sullivan and MacDougal Streets, (646) 719-1713; <a href="https://web.archive.org/web/20150228065025/http://us.100montaditos.com/">us.100montaditos.com</a>. Opens today; hours 11 a.m. to 4 a.m.</em></p>
+
+<p style=" margin: 12px auto 6px auto; font-family: Helvetica,Arial,Sans-serif; font-style: normal; font-variant: normal; font-weight: normal; font-size: 14px; line-height: normal; font-size-adjust: none; font-stretch: normal; -x-system-font: none; display: block;">   <a title="View 100 Montaditos Menu on Scribd" href="https://web.archive.org/web/20150228065025/http://www.scribd.com/doc/186340306/100-Montaditos-Menu" style="text-decoration: underline;">100 Montaditos Menu</a></p><iframe class="scribd_iframe_embed" src="//web.archive.org/web/20150228065025if_/http://www.scribd.com/embeds/186340306/content?start_page=1&amp;view_mode=scroll&amp;show_recommendations=true" data-auto-height="false" data-aspect-ratio="undefined" scrolling="no" id="doc_36469" width="100%" height="600" frameborder="0"></iframe>					
+										
+									
+				

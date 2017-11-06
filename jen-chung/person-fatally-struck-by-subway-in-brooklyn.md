@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: October  7, 2008  8:12 AM
+title: Person Fatally Struck by Subway in Brooklyn
+---
+
+<p><img alt="2008_10_unstreet.jpg" src="https://web.archive.org/web/20110611045334im_/http://gothamist.com/attachments/jen/2008_10_unstreet.jpg" width="130" height="108" class="right">Police are investigating the death of someone hit by a subway at the Union Street Station in Brooklyn.  The person was <a href="https://web.archive.org/web/20110611045334/http://wcbstv.com/breakingnewsalerts/nypd.train.n.2.834272.html">struck by a southbound N train</a>, and <a href="https://web.archive.org/web/20110611045334/http://abclocal.go.com/wabc/story?section=resources/traffic&amp;id=6436061">WABC 7 reports</a> that a witness says the victim, apparently a male, was &quot;pushed onto the tracks&quot; just after 5 a.m.  Currently, there are delays: NYC Transit says Bay Parkway-bound M and Bay Ridge-bound R trains are running on the N line from the Pacific Street Station to the 36th Street Station.  Also, expect delays on the D, M, N and R train.  <span class="photo_caption">[Photo by <a href="https://web.archive.org/web/20110611045334/http://www.flickr.com/photos/wallyg/2433165953/">Wally G</a>]</span></p>

@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: September 26, 2008 11:19 AM
+title: AG Cuomo: Marina Owner Dumped Sewage into Broad Channel
+---
+
+<p><img alt="2008_09_brchan.jpg" src="https://web.archive.org/web/20110624104426im_/http://gothamist.com/attachments/jen/2008_09_brchan.jpg" width="125" height="121" class="right">Earlier this week, Attorney General Andrew Cuomo announced that a Queens marina owner was <a href="https://web.archive.org/web/20110624104426/http://www.oag.state.ny.us/media_center/2008/sep/sep24a_08.html">convicted of dumping untreated sewage</a> into Broad Channel in Jamaica Bay. Cuomo said, &quot;John Schmitt&#x2019;s actions have been truly disgusting. Dumping raw sewage into a public waterway is not just bad for the environment; it is a clear abuse of the people who use the bay for swimming, fishing, and boating.&quot;  However, Schmitt&apos;s lawyer says his client <a href="https://web.archive.org/web/20110624104426/http://www.nydailynews.com/ny_local/queens/2008/09/25/2008-09-25_broad_channel_marina_owner_guilty_of_dum.html">will appeal</a>, &quot;This is a case over a toilet and a sink. There are people in Broad Channel today who still don&apos;t have sewer lines.&quot;  Schmitt has been previously accused of taking 600,000 square feet of land for additional boats and dumping fuel, concrete, and other toxins into the marshland.  </p>

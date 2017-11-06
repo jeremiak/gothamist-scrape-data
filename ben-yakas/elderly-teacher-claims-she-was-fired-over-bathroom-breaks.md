@@ -1,0 +1,17 @@
+---
+author: Ben Yakas
+date: Aug 3, 2011 1:36 pm
+title: Elderly Teacher Claims She Was Fired Over Bathroom Breaks
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:260px; "> <img alt="8311teacher.jpg" src="https://web.archive.org/web/20170314202837im_/http://gothamist.com/attachments/byakas/8311teacher.jpg" width="260" height="207"> <br> <i>Lillie Leon (screenshot <a href="https://web.archive.org/web/20170314202837/http://www.nydailynews.com/ny_local/2011/08/03/2011-08-03_80yearold_teacher_sues_to_get_job_back_after_arguing_with_school_about_bathroom_.html">via News</a>)</i></div> An octogenarian teacher who says she was fired from her job because she couldn&apos;t physically take every kindergartener on a bathroom break is suing to get reinstated. And worst of all, the physically impaired 80-year-old Lillie Leon claims that the school set her up for failure: &quot;I was expected to bathroom all of the children, boys and girls, at the same time, which is impossible. <strong>I really think it was an entrapment</strong>,&quot; Leon <a href="https://web.archive.org/web/20170314202837/http://www.nypost.com/p/news/local/age_old_woe_for_teacher_b8RvsCT6AQdWWmpJNITT1N?CMP=OTC-rss&amp;FEEDNAME=">told the Post.</a><p></p>
+
+<p>Leon, a grandmother of four who worked at PS 117 in Queens and has been teaching since 1978, <a href="https://web.archive.org/web/20170314202837/http://www.nydailynews.com/ny_local/2011/08/03/2011-08-03_80yearold_teacher_sues_to_get_job_back_after_arguing_with_school_about_bathroom_.html">contends that school officials</a> ignored her repeated requests to teach first-graders, who wouldn&apos;t require supervision on bathroom breaks. Leon has bad knees, uses a cane, and had to walk across the cafeteria to the other side of the school from her assigned classroom to get to the girls&apos; bathroom. Leon, who had no complaints on her record, is incredulous about the firing: &quot;This principal&apos;s goal was to terminate me, really. I call it bullying. Just like we tell children about.&quot;</p>
+
+<p>The DOE argues that the school did offer her a third-floor classroom, which Leon rejected because it was too dangerous: &quot;When I spoke with the principal about the third-floor assignment, she said I should just take the elevator. But if there&apos;s a fire or a fire drill, what do I do?&quot; In addition, the DOE said that Leon repeatedly complained to parents about the bathroom issue, leaving phone messages saying she wouldn&apos;t &quot;bathroom&quot; their kids or be a &quot;baby sitter.&quot; </p>
+
+<p>They also say she refused her reassignments, which an arbiter agreed with during her termination hearings: &quot;The department asserts that Ms. Leon...simply refused to teach and engaged in ongoing and persistent insubordination,&quot; the report reads. Really, in this day and age, the DOE should just be glad she wasn&apos;t <a href="https://web.archive.org/web/20170314202837/http://www.nydailynews.com/news/ny_crime/2011/08/03/2011-08-03_school_safety_agent_busted_on_charges_of_selling_drugs.html">selling kids drugs on school property.</a></p>					
+										
+									
+				

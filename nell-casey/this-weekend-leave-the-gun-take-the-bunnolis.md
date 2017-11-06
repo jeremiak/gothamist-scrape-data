@@ -1,0 +1,17 @@
+---
+author: Nell Casey
+date: Jan 15, 2016 10:37 am
+title: This Weekend: Leave The Gun, Take The Bunnolis
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="011516bunnoli.jpg" src="https://web.archive.org/web/20160428155618im_/http://gothamist.com/attachments/nyc_nellcasey/011516bunnoli.jpg" width="640" height="500"> <br> <i> (<a href="https://web.archive.org/web/20160428155618/https://www.instagram.com/p/_Rp2TLlLvw/?taken-by=thebunnoli">Bunnoli</a>)</i></div> <p></p>
+
+<p>Williamsburg&apos;s <a href="https://web.archive.org/web/20160428155618/http://gothamist.com/2015/11/19/llama_inn_peruvian_williamsburg.php#photo-1">airy new Peruvian spot</a> <a href="https://web.archive.org/web/20160428155618/http://www.llamainnnyc.com/">Llama Inn</a> begins <strong>obligatory brunch service</strong> this weekend, offering egged up dishes, sandwiches and sweets from 11 a.m. to 3 p.m. on Saturdays and Sundays. The winter brunch dishes include a Beef Tenderloin Stir-Fry ($18) topped with fried eggs, bananas, french fries and rocoto cream and a Soft Boiled Egg ($14) with lentils, kale and charred bread. Sandwich options include a Crispy Pork Shoulder ($12) with sweet potato, red onion salsa and spicy mayo, and the sweet set can opt for the Bread Pudding ($8) studded with toffee, almonds and raisins and topped with whipped cream.</p>
+
+<p>The <a href="https://web.archive.org/web/20160428155618/http://www.pineboxrockshop.com/">Bushwick</a> edition of the <strong><a href="https://web.archive.org/web/20160428155618/https://veganshopup.wordpress.com/">Vegan Shop Up</a></strong> is welcoming some brand-new vendors this Saturday to their lineup of cruelty-free eats and products. Pop-up supper club <a href="https://web.archive.org/web/20160428155618/http://www.mississippivegan.com/january/pop-up-supper">Mississippi Vegan</a> will be making an appearance, as will <a href="https://web.archive.org/web/20160428155618/https://www.facebook.com/The-Bunnoli-627728597361055/timeline">The Bunnoli</a> (vegan cannoli), <a href="https://web.archive.org/web/20160428155618/http://www.riverdelcheese.com/">Riverdel Vegan Cheese</a> and <a href="https://web.archive.org/web/20160428155618/https://www.instagram.com/theveganznyc/">The Veganz</a>, a vegan apparel and accessories shop. The <a href="https://web.archive.org/web/20160428155618/https://veganshopup.wordpress.com/about/">rest of the lineup</a> includes burgers, pot pies, brownies, mac and cheese, empanadas and a host of other animal product-free foods. </p>
+
+<p>Soup gets unfairly marginalized, in our opinion, but on Sunday, the <strong><a href="https://web.archive.org/web/20160428155618/http://thetakedowns.com/2016-soup-takedown/">Brooklyn Soup Takedown</a></strong> brings the liquid lunch up to hero status with an amateur competition for the best bisques and bouillabaisses. From noon to 2 p.m., the Royal Palms Shuffleboard Club hosts chowders, chicken noodles, split peas and the like to see whose soup reigns supreme. Tickets are <a href="https://web.archive.org/web/20160428155618/http://www.brownpapertickets.com/event/2479222/">$20</a> to sip and slurp the soups, with a portion of ticket sales benefitting the <a href="https://web.archive.org/web/20160428155618/http://womenseducationproject.org/">Women&apos;s Education Project</a>.</p>					
+										
+									
+				

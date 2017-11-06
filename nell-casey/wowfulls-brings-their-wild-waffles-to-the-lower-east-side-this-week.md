@@ -1,0 +1,19 @@
+---
+author: Nell Casey
+date: Mar 28, 2017 2:35 pm
+title: Wowfulls Brings Their Wild Waffles To The Lower East Side This Week
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="032817wowfulls.jpg" src="https://web.archive.org/web/20170330164933im_/http://gothamist.com/attachments/nyc_nellcasey/032817wowfulls.jpg" width="640" height="426"> <br> <i> (Scott Lynch / Gothamist)</i></div> <p></p>
+
+<p><a href="https://web.archive.org/web/20170330164933/http://gothamist.com/2016/03/31/big_mozz_sticks_chicago_beef_sandwi.php#photo-4">Smorgasburg hit</a> <a href="https://web.archive.org/web/20170330164933/http://wowfulls.com/">Wowfulls</a> leaps out of the food stall market and into its first brick-and-mortar store this week, opening on Houston on Friday. Serving the Hong Kong egg waffles (Gai Dan Jai) that made them an <a href="https://web.archive.org/web/20170330164933/https://www.instagram.com/wowfulls/">Instagram sensation</a>, the new shop will <a href="https://web.archive.org/web/20170330164933/http://www.amny.com/eat-and-drink/wowfulls-opening-first-brick-and-mortar-shop-in-nyc-s-lower-east-side-1.13327212">offer some opening specials</a> in the form of $1 and $5 waffle deals all weekend.</p>
+
+<blockquote class="instagram-media" data-instgrm-version="7" style=" background:#FFF; border:0; border-radius:3px; box-shadow:0 0 1px 0 rgba(0,0,0,0.5),0 1px 10px 0 rgba(0,0,0,0.15); margin: 1px; max-width:658px; padding:0; width:99.375%; width:-webkit-calc(100% - 2px); width:calc(100% - 2px);"><div style="padding:8px;"> <div style=" background:#F8F8F8; line-height:0; margin-top:40px; padding:50.0% 0; text-align:center; width:100%;"> <div style=" background:url(data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAACwAAAAsCAMAAAApWqozAAAABGdBTUEAALGPC/xhBQAAAAFzUkdCAK7OHOkAAAAMUExURczMzPf399fX1+bm5mzY9AMAAADiSURBVDjLvZXbEsMgCES5/P8/t9FuRVCRmU73JWlzosgSIIZURCjo/ad+EQJJB4Hv8BFt+IDpQoCx1wjOSBFhh2XssxEIYn3ulI/6MNReE07UIWJEv8UEOWDS88LY97kqyTliJKKtuYBbruAyVh5wOHiXmpi5we58Ek028czwyuQdLKPG1Bkb4NnM+VeAnfHqn1k4+GPT6uGQcvu2h2OVuIf/gWUFyy8OWEpdyZSa3aVCqpVoVvzZZ2VTnn2wU8qzVjDDetO90GSy9mVLqtgYSy231MxrY6I2gGqjrTY0L8fxCxfCBbhWrsYYAAAAAElFTkSuQmCC); display:block; height:44px; margin:0 auto -44px; position:relative; top:-22px; width:44px;"></div></div><p style=" color:#c9c8cd; font-family:Arial,sans-serif; font-size:14px; line-height:17px; margin-bottom:0; margin-top:8px; overflow:hidden; padding:8px 0 7px; text-align:center; text-overflow:ellipsis; white-space:nowrap;"><a href="https://web.archive.org/web/20170330164933/https://www.instagram.com/p/BOsgK8tAAbP/" style=" color:#c9c8cd; font-family:Arial,sans-serif; font-size:14px; font-style:normal; font-weight:normal; line-height:17px; text-decoration:none;" target="_blank">A post shared by W O W F U L L S (@wowfulls)</a> on <time style=" font-family:Arial,sans-serif; font-size:14px; line-height:17px;" datetime="2016-12-31T20:43:28+00:00">Dec 31, 2016 at 12:43pm PST</time></p></div></blockquote> <script async defer src="//web.archive.org/web/20170330164933js_/http://platform.instagram.com/en_US/embeds.js"></script>
+<br><br>
+The sugar bombs <a href="https://web.archive.org/web/20170330164933/http://gothamist.com/2016/01/27/black_tap_milkshake_insanity.php">rival those wild milkshakes</a> for their calorie-packing prowess. Waffles in <a href="https://web.archive.org/web/20170330164933/https://www.timeout.com/newyork/blog/wowfulls-is-opening-its-very-first-store-in-nyc-this-month-031317">flavors</a> like matcha and chocolate can be further gussied up with toppings like ice cream, fruit, sprinkles, sauces, crumble cookies and dozens of other possible permutations.
+<br><br>
+<em>309 East Houston Street, (646)-639-9988; <a href="https://web.archive.org/web/20170330164933/http://wowfulls.com/">wowfulls.com</a></em>					
+										
+									
+				

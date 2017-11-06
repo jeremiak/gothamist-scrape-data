@@ -1,0 +1,17 @@
+---
+author: Jen Carlson
+date: Mar 8, 2012 11:22 am
+title: Whitney Houston Left 100% Of Estate To Troubled Daughter, Bobbi Kristina
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-right" style=" width:350px; "> <img alt="bobbiktwitter.jpeg" src="https://web.archive.org/web/20150730233151im_/http://gothamist.com/attachments/arts_jen/bobbiktwitter.jpeg" width="350" height="311"> <br> <i>Bobbi Kristina, via <a href="https://web.archive.org/web/20150730233151/https://twitter.com/#!/realbkbrown">Twitter</a></i></div> Yesterday it was revealed that <a href="https://web.archive.org/web/20150730233151/http://gothamist.com/tags/whitneyhouston">Whitney Houston</a> left 100% of her estate to her daughter Bobbi Kristina Brown. The 19-year-old was the only person listed on her Last Will and Testament, which Houston signed in 1993, a month before her daughter was born, and amended in April 2000. While Houston was still with Bobby Brown at the time she amended it, and he <em>is</em> mentioned in the will, he&apos;ll receive nothing. <p></p>
+
+<p>Houston&apos;s money troubles have been well publicized, but <a href="https://web.archive.org/web/20150730233151/http://www.tmz.com/2012/03/07/whitney-houston-will-bobbi-kristina/#.T1i0ZpdSRoA">according to TMZ</a> her estate is still valued at $20 million (this includes all &quot;furnishings, clothing, personal effects, jewelry and cars&quot;). This will be put into a trust, &quot;which Bobbi will have access to in stages... earning a portion when she turns 21, another chunk when she turns 25, and the rest when she turns 30.&quot; <a href="https://web.archive.org/web/20150730233151/http://insideedition.com/news/7791/whitney-houstons-will-revealed.aspx">Inside Edition</a> had a first look at the will, and has a two-page PDF from the 19-page document&#x2014;Houston&apos;s mother Cissy is the executor.</p>
+
+<p><a title="View Whitney&apos;s Will on Scribd" href="https://web.archive.org/web/20150730233151/http://www.scribd.com/doc/84509621/Whitney-s-Will" style="margin: 12px auto 6px auto; font-family: Helvetica,Arial,Sans-serif; font-style: normal; font-variant: normal; font-weight: normal; font-size: 14px; line-height: normal; font-size-adjust: none; font-stretch: normal; -x-system-font: none; display: block; text-decoration: underline;">Whitney&apos;s Will</a><iframe class="scribd_iframe_embed" src="https://web.archive.org/web/20150730233151if_/http://www.scribd.com/embeds/84509621/content?start_page=1&amp;view_mode=list&amp;access_key=key-1nkyg1sv1lhw0twvwetx" data-auto-height="true" data-aspect-ratio="0.327974276527331" scrolling="no" id="doc_96709" width="100%" height="600" frameborder="0"></iframe></p>
+
+<p>Bobbi Kristina has been silent since the death of her mother <a href="https://web.archive.org/web/20150730233151/http://gothamist.com/2012/02/11/whitney_houston_has_died_at_age_48.php">on February 11th</a>, although there have been plenty of rumors about family members wanting to send her to rehab. Tomorrow she&apos;ll break her silence when she records an interview with Oprah Winfrey, who <a href="https://web.archive.org/web/20150730233151/http://www.tmz.com/2012/03/06/whitney-houston-bobbi-kristina-oprah/#.T1YCJtGXRoA">she says she trusts</a>, that will air on Sunday.</p>					
+										
+									
+				

@@ -1,0 +1,15 @@
+---
+author: Jen Carlson
+date: June 27, 2007  4:22 PM
+title: New York's Art Army Has Arrived
+---
+
+<p><img alt="2007_06_arts_nyart.jpg" src="https://web.archive.org/web/20120214065130im_/http://gothamist.com/attachments/arts_jen/2007_06_arts_nyart.jpg" width="207" height="208" class="right">Opening this past weekend and running through June 30th is Seattle artist Mike Leavitt&apos;s <a href="https://web.archive.org/web/20120214065130/http://intuitionkitchenproductions.com/shows/">&quot;New York Art Army&quot; show</a>. Hand-made action figures were created to visually tell the history of the city&apos;s creative scene, the wooden New Yorkers stand alongside other &quot;urban art stars and old masters.&quot; Fittingly, the show (exhibited in a site-specific installation) is across the street from the ToyTokyo toy shop, at their <a href="https://web.archive.org/web/20120214065130/http://www.theshowroomnyc.com/">Showroom</a>. </p>
+
+<blockquote>Leavitt&#x2019;s &#x201C;toys&#x201D; depict famous and controversial artists like Jackson Pollock, Keith Haring, Lady Pink, and Futura 2000. The biographic project uses toys to bridge art and pop culture. The 6 to 12 inch tall &#x201C;action figures&#x201D; are each professionally finished and fully articulate like a real toy, but each is sculpted from scratch with no manufacturing. Pop icons include Stevie Wonder, Joan Jett, Michael Jackson, Tupac, Ol&#x2019; Dirty Bastard, Slick Rick, and more. The centerpiece is a 3 foot tall, carved wood Andy Warhol; a cigar store-style statue that articulates with 19 moving parts.</blockquote>
+
+<p><img alt="2007_06_arts_penny.jpg" src="https://web.archive.org/web/20120214065130im_/http://gothamist.com/attachments/arts_jen/2007_06_arts_penny.jpg" width="200" height="195" class="left">Nearly 60 total pieces will show, with most of the work priced under $200. Another cool project of Leavitt&apos;s that will be on display is <a href="https://web.archive.org/web/20120214065130/http://intuitionkitchenproductions.com/gallery/pennyplaces/">Penny Places</a>: copper pennies found around New York and painted with 1/2-inch tall city landscapes. All this, and a ton of interactive pop culture art as well (think old <a href="https://web.archive.org/web/20120214065130/http://intuitionkitchenproductions.com/gallery/functional/file/NEScontroller.jpg">Nintendo controllers</a>).</p>
+
+<p>Leavitt said of his small scale urban art, &#x201C;It makes art gritty and faces famous, but a city&#x2019;s crowded landscape also demands smaller objects. People can&#x2019;t buy massive art installations.&quot; Check out <a href="https://web.archive.org/web/20120214065130/http://www.youtube.com/watch?v=JhQSwXn93M4">this video</a> of him with the Andy Warhol figure.</p>
+
+<p><em>Pictured: The G-train to Brooklyn penny (<a href="https://web.archive.org/web/20120214065130/http://intuitionkitchenproductions.com/gallery/pennyplaces/file/PennyPlaceGTrain.jpg">$200</a>), and the New York Art Army <a href="https://web.archive.org/web/20120214065130/http://intuitionkitchenproductions.com/assets/images/shows/NYCArtArmy.jpg">poster art</a>. </em></p>

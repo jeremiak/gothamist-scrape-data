@@ -1,0 +1,21 @@
+---
+author: Jen Carlson
+date: Dec 29, 2012 2:45 pm
+title: On The Lower East Side: Piano's Expanding, The Living Room Moving
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="phpLz8gE2PM.jpeg" src="https://web.archive.org/web/20140902010609im_/http://gothamist.com/attachments/arts_jen/phpLz8gE2PM.jpeg" width="640" height="396" class="image-none"> </span></p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="php12tjbIPM.jpeg" src="https://web.archive.org/web/20140902010609im_/http://gothamist.com/attachments/arts_jen/php12tjbIPM.jpeg" width="303" height="320" class="image-right"> </span>Ludlow Street&apos;s Piano&apos;s has somehow managed to survive the ever-changing streetscape of the Lower East Side.... even through a fierce, albeit small, <a href="https://web.archive.org/web/20140902010609/http://dailyrefill.blogs.com/photos/uncategorized/anywherebutpianos.jpg">anti-Piano&apos;s t-shirt campaign</a> sometime in the mid-aughts. And now news comes that it may even be <em>expanding</em>... probably into some three-story megaclub with neon lights and test tube shots like that place in Boston we went to once (Atlas?). Will our children&apos;s children know not of Ludlow Street, but Piano&apos;s Way? Only time will tell, but their first step towards taking over may come soon. </p>
+
+<p>According to <a href="https://web.archive.org/web/20140902010609/http://www.thelodownny.com/leslog/2012/12/pianos-team-files-paperwork-to-take-over-the-living-room-on-ludlow-street.html">the Lo-Down</a>, the owners are planning to take over the Living Room, the club next door (at 154 Ludlow Street) that&apos;s been there for over a decade. Though the owners of the Living Room&#x2014;Jennifer Gilson and Steve Rosenthal&#x2014;<a href="https://web.archive.org/web/20140902010609/http://nycitylens.com/?p=8714">say they lost</a> at least $15,000 do to Hurricane Sandy, the takeover plans likely came before the storm. </p>
+
+<p>The documents filed with <a href="https://web.archive.org/web/20140902010609/http://www.nyc.gov/html/mancb3/html/calendar/calendar.shtml">Community Board 3</a> show state their plans: &#x201C;There will be scheduled performances of live/world music similar to the current method of operation,&quot; and the proposal goes before the Board on January 7th (at 200 East 5th Street).</p>
+
+<p>Meanwhile, the Living Room has confirmed the news via an email to their patrons:</p><blockquote>&quot;Hi Friends of The Living Room. <strong>After 15 years in business and 10 years in our current space, The Living Room will be closing the doors at 154 Ludlow St at the end of January.  We will relocate to a new space next spring.</strong> We have truly loved having you over these last years. You are a huge part of our history and you made our time here special. Though it saddens us to leave, this is not the end of The Living Room. Although the skyrocketing cost of rent has made it impossible for us to keep our current location, we are actively negotiating a new space. We want nothing more than to keep the music going!  The cost of building a club from scratch is considerably higher than it was when we moved from our first space on Stanton St. 10 years ago,  and so we could use your help to fund the move and construction and be a part of the new Living Room. There are some cool items available with more being added weekly.  Thanks, Jennifer and Steve.&quot;</blockquote>Listen, we have some great memories of Piano&apos;s back in the day (trivia nights, <a href="https://web.archive.org/web/20140902010609/http://gothamist.com/2006/06/28/laughable_hype_4.php">our Laughable Hype shows</a>, <a href="https://web.archive.org/web/20140902010609/https://vimeo.com/68570">Wilco</a>)... but the thought of MORE Piano&apos;s, <em>current day Piano&apos;s</em>... ah, fuck it, at least if it&apos;s bigger we won&apos;t have to stand in that hallway to watch a band anymore. <p></p>
+
+<p>As for the Living Room, you can <a href="https://web.archive.org/web/20140902010609/http://www.pledgemusic.com/projects/livingroom">donate money towards their new club here</a>.</p>					
+										
+									
+				

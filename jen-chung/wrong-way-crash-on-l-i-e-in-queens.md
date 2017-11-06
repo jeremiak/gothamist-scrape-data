@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: July  5, 2010  2:10 PM
+title: Wrong-Way Crash On L.I.E. In Queens
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <a href="https://web.archive.org/web/20110811075509/http://gothamist.com/attachments/jen/2010_07_liecrash.jpg"> <img alt="2010_07_liecrash.jpg" src="https://web.archive.org/web/20110811075509im_/http://gothamist.com/assets_c/2010/07/2010_07_liecrash-thumb-240x170-525229.jpg" width="120" height="85" class="image-right"> </a> </span>Two people are in critical condition after a Mercedes-Benz that was driving the wrong way on the Long Island Expressway crashed into an airport shuttle van in Queens.  All eastbound lanes <a href="https://web.archive.org/web/20110811075509/http://www.myfoxny.com/dpp/news/local_news/queens/crash-closes-eastbound-lie-20100705-lgf">were closed this morning</a> because one of the vehicles caught fire near the Kissena Boulevard exit. Apparently the Mercedes was going west in the eastbound lane; <a href="https://web.archive.org/web/20110811075509/http://www.1010wins.com/2-People-Critical-after-Wrong-Way-Crash-on-the-L-I/7618279">1010 WINS reports</a>, &quot;Both drivers were brought to Elmhurst Hospital in critical condition. Police say the driver of the Mercedes has been arrested for driving with a suspended license. Sources tell 1010 WINS he had a blood alcohol level of 1.9 -- 1.1 over the legal limit.&quot;</p>

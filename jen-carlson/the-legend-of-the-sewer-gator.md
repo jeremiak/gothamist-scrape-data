@@ -1,0 +1,15 @@
+---
+author: Jen Carlson
+date: Nov 23, 2009 1:40 pm
+title: The Legend of the Sewer Gator
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="gatorsewer1109.jpg" src="https://web.archive.org/web/20150216024621im_/http://gothamist.com/attachments/arts_jen/gatorsewer1109.jpg" width="300" height="254" class="image-right"> </span>In 1935, the NY Times published <a href="https://web.archive.org/web/20150216024621/http://www.sewergator.com/news/nyt19350210.htm">an article</a> titled, &#x201C;Alligator Found in Uptown Sewer,&#x201D; tracing the actions of 16-year-old Salvatore Condoluci and his comrades, who trapped and killed an 8-foot-long alligator found under 123rd Street. Today, at 92, Condoluci still remembers some of the tale, and <a href="https://web.archive.org/web/20150216024621/http://cityroom.blogs.nytimes.com/2009/11/23/the-book-behind-the-sewer-alligator-legend/">the Times</a> looks back at the <a href="https://web.archive.org/web/20150216024621/http://urbanlegends.about.com/od/alligators/a/sewer_gators.htm">urban legend</a>.</p>
+
+<p>Along with the printed article, former superintendent of city sewers, Teddy May, also had a part in giving the legend legs. He once investigated reports of sightings, relaying his story to writer Robert Daley, who in 1959 published the account in his book, <em>The World Beneath the City</em>. It goes like this:</p><blockquote>Alligators serenely paddling around in his sewers. The beam of his own flashlight had spotlighted alligators whose length, on the average, was about two feet. Some may have been longer. Avoiding the swift current of the trunk lines under major avenues, the beasts had wormed up the smaller pipes under less important neighborhoods, and there Teddy had found them. The colony appeared to have settled contentedly under the very streets of the busiest city in the world.</blockquote>No one seems to be certain if the story is fact or fiction, but <a href="https://web.archive.org/web/20150216024621/http://en.wikipedia.org/wiki/Sewer_alligator">the belief</a> is that many vacationing families were bringing back baby alligators as pets from Florida at the time, later discarding them. Adding more documentation to the legend, Times columnist Meyer Berger once wrote that in the mid-1930s, &quot;sewer alligators seemed to thrive below the pavement in rather frightening numbers. They were destroyed systematically and the threat of an alligator invasion died away.&#x201D;<p></p>
+
+<p><a href="https://web.archive.org/web/20150216024621/http://www.sewerhistory.org/grfx/misc/critters.htm">Other things living in sewers</a>: bees, rats, &quot;unknown lifeforms,&quot; snakes, and <a href="https://web.archive.org/web/20150216024621/http://gothamist.com/2009/04/23/ninja_power_lights_up_the_empire_st.php">Ninja Turtles</a>.</p>					
+										
+									
+				

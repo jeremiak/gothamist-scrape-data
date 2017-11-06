@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: May  3, 2010  1:03 PM
+title: Letters Say To Spare, Punish Joe Bruno
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2010_05_bruno.jpg" src="https://web.archive.org/web/20130424122648im_/http://gothamist.com/attachments/jen/2010_05_bruno.jpg" width="105" height="117" class="image-right"> </span>Last winter, former State Senate Majority Leader Joe Bruno was <a href="https://web.archive.org/web/20130424122648/http://gothamist.com/2009/12/07/former_senate_majority_leader_bruno_1.php">found guilty of wire and mail fraud</a> in his federal corruption trial and the U.S. Attorney&apos;s office has recommended a sentence of 97 months for the 81-year-old.  So far, the judge overseeing the sentencing this Thursday <a href="https://web.archive.org/web/20130424122648/http://www.timesunion.com/AspStories/story.asp?storyID=927337">has received four letters</a>, two in favor of sparing Bruno (one from a prosecutor, another from Charles Grodin) and two who want him to get time (&quot;Bruno personified... a Mafia godfather&quot;).  One juror who was on the case told the Times Union, &quot;He should have been convicted on all the counts&quot;&#x2014;he was acquitted on six other accounts&#x2014;&quot;There are a lot of people who say he did a lot of good. Yeah, he did a lot of good with our money and he enriched himself in the process.&quot; </p>

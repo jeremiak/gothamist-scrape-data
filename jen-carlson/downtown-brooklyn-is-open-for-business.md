@@ -1,0 +1,7 @@
+---
+author: Jen Carlson
+date: October 19, 2008  2:16 PM
+title: Downtown Brooklyn is "Open for Business"
+---
+
+<p><img alt="bksign1008.jpg" src="https://web.archive.org/web/20120125111332im_/http://gothamist.com/attachments/arts_jen/bksign1008.jpg" width="120" height="120" class="right">Downtown Brooklyn has a new aggressive marketing initiative, and at the top of the press release it&apos;s noted that <strong>the area will be promoted &quot;as a College Town.&quot;</strong> Allegedly the plan is to expand and diversify with some new tenants, companies and retailers. Sure, they&apos;ve got an Urban Outfitters and Trader Joe&apos;s, but they&apos;re looking to make the area &quot;a vibrant, 24/7, live-work urban center&quot;. (Hoboken has allegedly been stealing their business over the past 10 years!). So Marty Markowitz has officially stated they&apos;re &quot;&apos;open for business&apos; and&#x2014;with all due respect to our friends in Jersey&#x2014;our borough is the very best place for companies to locate and employees to live, work, and raise families.&quot; The Downtown Brooklyn Partnership promises &quot;a mix of advertising, direct marketing, promotional events and other activities&quot; to help attain their goal. So, a round of J&#xE4;ger shots to celebrate?</p>

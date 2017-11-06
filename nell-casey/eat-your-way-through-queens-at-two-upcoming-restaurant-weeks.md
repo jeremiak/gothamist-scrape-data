@@ -1,0 +1,22 @@
+---
+author: Nell Casey
+date: Oct 25, 2013 12:18 PM
+title: Eat Your Way Through Queens At Two Upcoming Restaurant Weeks
+---
+
+
+                            
+                            
+                            
+                            <p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="102513queens_restowk.jpg" src="https://web.archive.org/web/20131128061748im_/http://gothamist.com/attachments/nyc_nellcasey/102513queens_restowk.jpg" width="640" height="427"> <br> <i> <span class="photo_caption">Thali from <a href="https://web.archive.org/web/20131128061748/http://www.yelp.com/biz/malingo-restaurant-and-bar-sunnyside">Malingo</a> in Sunnyside</span></i></div> <p></p>
+
+<p>Restaurant weeks have become the de facto marketing tactic for neighborhoods trying to increase their foot traffic, and while it&apos;s not the sexiest of events it&apos;s certainly the most cost-effective way to get a feel for a new neighborhood. Despite its status as the most ethnically diverse of our boroughs, Queens gets a bit of a raw deal when it comes to attracting outsiders, especially since Brooklyn&apos;s overpowering ego outshines even Manhattan these days. But two Queens neighborhoods are hoping that some killer deals on lunch and dinner will bring in a few curious eaters while also serving up great options to locals looking to save a few bucks.</p>
+
+<p>The charming enclave of Sunnyside hosts a <a href="https://web.archive.org/web/20131128061748/http://www.sunnysideshines.org/sunnyside-restaurant-week">restaurant week</a> from November 4th through November 8th, with deals on dinner from Turkish, Irish, Thai, Nepalese and other ethnic restaurants for just $25. Choose from a huge menu of Turkish treats at <a href="https://web.archive.org/web/20131128061748/http://www.sunnysideshines.org/sites/default/files/turkish_grill_dinner.pdf">Turkish Grill</a>, including creamy babaganush, doner kebab (ground lamb) or falafel. Some restaurants offer $10 lunch deals, like <a href="https://web.archive.org/web/20131128061748/http://www.sunnysideshines.org/sites/default/files/arriba_arriba_restaurant_week_lunch_menu_2013.pdf">Ariba Ariba</a>, where you can choose from Mexican standbys like tacos, burritos and flautas and enjoy two complimentary drinks (sangria, frozen margaritas, wine or soda) with your meal. Check out <a href="https://web.archive.org/web/20131128061748/http://www.sunnysideshines.org/sunnyside-restaurant-week">all 17 participating restaurants</a> and be sure to also look for art work by <a href="https://web.archive.org/web/20131128061748/http://www.nolongerempty.org/nc/home/events/event/performances-conveying-the-invisible/">No Longer Empty</a>, who&apos;ve set up installations at a few of the area eateries.</p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="" src="https://web.archive.org/web/20131128061748im_/http://gothamist.com/upload/2013/06/061713stationhouse5.jpg" width="640" height="427" class="image-none"> </span></p>
+
+<p>Forest Hills&apos; growing culinary scene includes an abundance of homey, casual eateries that focus on upscale comfort food in addition to old-school Italian joints and fusion restaurants. From November 3rd through November 9th, take the journey by subway or LIRR to this nabe for $15 prix fixe lunches and $24/$25 prix fixe dinners at one of <a href="https://web.archive.org/web/20131128061748/http://www.foresthillschamber.org/">10 participating restaurants</a>. Grab a weekday dinner of Baked Guiness Mac &amp; Cheese, Fish and Chips or Filet of Pork at Irish gastropub <a href="https://web.archive.org/web/20131128061748/http://www.banteririshbarandkitchen.com/">Banter</a>, Italian specialties from <a href="https://web.archive.org/web/20131128061748/http://www.portofinonewyork.com/">Porofino</a> or hearty German fare from <a href="https://web.archive.org/web/20131128061748/http://www.manoroktoberfest.com/oktoberfest_fh/">Manor Oktoberfest</a>. If you want a truly gut-busting meal to fortify you for the journey home, head to <a href="https://web.archive.org/web/20131128061748/http://gothamist.com/2013/06/17/deep_fried_snickers_and_cool_brews.php#photo-5">newcomer Station House</a>, who in addition to serving up decadent delights like fried Snickers and Poutine, also boast a killer craft beer list with brews like Yonkers Stout Nitro and Allagash Tripel on draft. </p>
+                            
+                            
+                            

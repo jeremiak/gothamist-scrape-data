@@ -1,0 +1,19 @@
+---
+author: Nell Casey
+date: Feb 28, 2014 4:30 pm
+title: The U.S. Wastes 141 Trillion Calories Of Food Per Year
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="42513composting.jpg" src="https://web.archive.org/web/20150303143652im_/http://gothamist.com/attachments/nyc_chrisrobbins/42513composting.jpg" width="640" height="479"> <br> <i> (courtesy of <a href="https://web.archive.org/web/20150303143652/http://www.flickr.com/photos/scottlynchnyc/">Scott Lynch</a>)</i></div> <p></p>
+
+<p>The city&apos;s <a href="https://web.archive.org/web/20150303143652/http://gothamist.com/2014/02/18/piles_of_snow_garbage.php#photo-1">snowy trash piles</a> do a solid job illustrating the amount of waste we produce on a regular basis. But it takes an unfathomable number to put into perspective how much we, as a nation, are generally horrible at using edible food. The USDA&apos;s <a href="https://web.archive.org/web/20150303143652/http://www.ers.usda.gov/publications/eib-economic-information-bulletin/eib121/report-summary.aspx#.UxDyH_RdUoY">latest study</a> on the subject offers the mind-boggling sum of 141 trillion to represent the number of calories America wastes on food each year. That&apos;s a <a href="https://web.archive.org/web/20150303143652/http://gothamist.com/2012/09/20/you_will_no_longer_be_able_to_ignor.php">lotta Shack burgers</a>.</p>
+
+<p>The study tracked loss of edible food, post-harvest that was available for human consumption but somehow never made it past our gaping maws. Examples of loss include things like mold and pests; &quot;blemished&quot; food discarded by retailers before it even gets to the store; and so called &quot;plate waste,&quot; or whatever was leftover from your <a href="https://web.archive.org/web/20150303143652/http://gothamist.com/2012/03/24/carnegie_deli_giving_tim_tebow_his.php">Tebow tribute sandwich</a>. The agency discovered that 133 billion&#x2014;or 31%&#x2014;of the 430 billion pounds of available food went uneaten in 2010. Of those, an alarming 21% came from consumers alone. </p>
+
+<p>If the thought of hungry kids who could have used those extra calories doesn&apos;t move you (monster), take a gander at the economic impact: the estimated value of all that food waste rings in at $161.6 billion annually. We don&apos;t waste food equally across the board, either. Coming in on top were meat, poultry and fish at $48 billion, then vegetables at $30 billion and finally dairy products at $27 billion. No one in their right mind should <a href="https://web.archive.org/web/20150303143652/http://gothamist.com/2013/10/11/subway_cheese.php">ever waste delicious cheese</a>. </p>
+
+<p>Sadly, food waste isn&apos;t <a href="https://web.archive.org/web/20150303143652/http://gothamist.com/2012/08/22/americans_waste_40_of_food_supply_s.php">a new trend</a>. Initiatives locally to <a href="https://web.archive.org/web/20150303143652/http://gothamist.com/2013/04/25/chipotle_momofuku_to_cut_back_50_of.php">prevent food waste</a> have been <a href="https://web.archive.org/web/20150303143652/http://gothamist.com/2013/11/22/city_diverted_2500_tons_of_food_fro.php">moderately successful</a> insofar as they&apos;ve helped level out the amount of junk we send to landfills. But that&apos;s just a bandaid on the larger problem of not managing the food properly to begin with, whether it means decreasing <a href="https://web.archive.org/web/20150303143652/http://gothamist.com/2012/01/10/nanny_nyc_wonders_if_you_really_wan.php">ridiculous portion sizes</a> or getting better estimates on the &quot;amount and value of food loss&quot; to prompt legislation on the topic. Not only would it reduce the food waste and ideally help the hungry, it would also reduce the economic waste. We welcome our new $.50 slice overlords. </p>					
+										
+									
+				

@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: November 21, 2008 10:56 AM
+title: Thompson Claims There Is Money for Rebate Checks
+---
+
+<p><img alt="2008_11_thbl.jpg" src="https://web.archive.org/web/20110627163134im_/http://gothamist.com/attachments/jen/2008_11_thbl.jpg" width="130" height="125" class="right">City Comptroller and mayoral hopeful Bill Thompson has stepped into the simmering debate over the $400 property rebate checks. Mayor Bloomberg has said the city doesn&apos;t have the <a href="https://web.archive.org/web/20110627163134/http://gothamist.com/2008/11/20/mayor_bloomberg_doesnt_wanna_send_p_1.php">$256 million it costs to send them</a> to homeowners this year, but Thompson <a href="https://web.archive.org/web/20110627163134/http://www.nypost.com/seven/11212008/news/regionalnews/rebate_money_is_there__bill_140013.htm">tells the Post</a>, &quot;<strong>The money is there. It only requires creativity, thoughtfulness and a consideration that budget cuts should not disproportionately affect New Yorkers.</strong>&quot;   In the mean time, Mayor Bloomberg is trying to assure New Yorkers he&apos;d love to send them the check--&quot;There&#x2019;s nobody who would like to send a check to every homeowner in this city more than me&quot;--but some City Council members believe he&apos;ll <a href="https://web.archive.org/web/20110627163134/http://www.nytimes.com/2008/11/21/nyregion/21bloomberg.html?ref=nyregion">use the issue as a bargaining chip</a> during budget negotiations.</p>

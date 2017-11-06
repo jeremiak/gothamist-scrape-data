@@ -1,0 +1,18 @@
+---
+author: Jen Chung
+date: Apr 1, 2010 4:12 pm
+title: Yankee Stadium's Famed Gate 2 Demolished
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2010_03_yankstadg2.jpg" src="https://web.archive.org/web/20140607013538im_/http://gothamist.com/attachments/jen/2010_03_yankstadg2.jpg" width="640" height="348" class="image-none"> </span></p>
+
+<p>Even though fans <a href="https://web.archive.org/web/20140607013538/http://www.nydailynews.com/ny_local/bronx/2009/06/21/2009-06-21_gate_way_to_save_history_yankee_fans_rally_to_preserve_entrance_for_the_new_stad.html">have been trying to save it</a>, noting its <a href="https://web.archive.org/web/20140607013538/http://www.savetheyankeegate2.com/">historic significance</a>, Gate 2 of the old Yankees Stadium was demolished yesterday.  Via History of the Yankees, here&apos;s video:</p>
+
+<p><object width="640" height="505"><param name="movie" value="http://www.youtube.com/v/z64bfXeSGIw&amp;hl=en_US&amp;fs=1&amp;"><param name="allowFullScreen" value="true"><param name="allowscriptaccess" value="always"><embed src="https://web.archive.org/web/20140607013538oe_/http://www.youtube.com/v/z64bfXeSGIw&amp;hl=en_US&amp;fs=1&amp;" type="application/x-shockwave-flash" allowscriptaccess="always" allowfullscreen="true" width="640" height="505"></object></p>
+
+<p>Fans had <a href="https://web.archive.org/web/20140607013538/http://www.newyorker.com/talk/2009/08/10/090810ta_talk_goldberger">hoped to preserve Gate 2</a> as part of the planned and <a href="https://web.archive.org/web/20140607013538/http://gothamist.com/2009/11/14/yankee_stadium.php">long-awaited</a> Heritage Park, but Parks officials said it wouldn&apos;t work and, last month, a plan to demolish the Gate <a href="https://web.archive.org/web/20140607013538/http://awalkintheparknyc.blogspot.com/2010/04/yankee-stadium-gate-2-taken-down.html">was approved</a>.  Today, one commenter wrote on the <a href="https://web.archive.org/web/20140607013538/http://www.demolitionofyankeestadium.com/">Demolition of Yankee Stadium website</a>,</p><blockquote>There are so many other ways this could have been handled. I wonder if the person or people who made the decision to handle it this way have any soul at all. Were they ever a baseball fan? What is the rush to make this whatever it is going to be, compared to what it was? When do you think the &quot;light bulb&quot; will go off and they realize they ripped down one of the &quot;Top 10&quot; structures in our country, without one shred of dignity? New York owned what I believe was the most sacred piece of property pertaining to the American past time. They had an opportunity to do something very special, and they blew it. When all is said and done, it will be a park for people who will never know the history they are standing on, and couldn&apos;t tell you Mickey Mantle&apos;s number if their life depended on it. With all of the things in life we can&apos;t control, we take something we can, and screw it up anyway.</blockquote><br>
+More photograph of the destruction <a href="https://web.archive.org/web/20140607013538/http://www.wcbs880.com/pages/6706614.php">here</a>.  And the land swap that the city made with the Yankees for the new stadium has been criticized, because it<a href="https://web.archive.org/web/20140607013538/http://gothamist.com/2008/05/26/community_conti_1.php"> removed 20.8 continuous acres</a> of park space from Bronx residents and left them with eight smaller parks instead.<p></p>					
+										
+									
+				

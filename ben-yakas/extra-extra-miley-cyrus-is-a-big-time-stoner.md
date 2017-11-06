@@ -1,0 +1,22 @@
+---
+author: Ben Yakas
+date: November 27, 2011  6:50 PM
+title: Extra, Extra: Miley Cyrus Is A Big Time Stoner
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="112711xx.jpg" src="https://web.archive.org/web/20111128165509im_/http://gothamist.com/attachments/byakas/112711xx.jpg" width="640" height="480"> <br> <i><a href="https://web.archive.org/web/20111128165509/http://www.flickr.com/photos/62159569@N08/6414371357/in/photostream/&quot;&gt;scoboco" s="" flickr<="" a=""></a></i></div><a href="https://web.archive.org/web/20111128165509/http://www.flickr.com/photos/62159569@N08/6414371357/in/photostream/&quot;&gt;scoboco" s="" flickr<="" a=""> <p></p>
+
+</a><ul><a href="https://web.archive.org/web/20111128165509/http://www.flickr.com/photos/62159569@N08/6414371357/in/photostream/&quot;&gt;scoboco" s="" flickr<="" a="">
+	</a><li><a href="https://web.archive.org/web/20111128165509/http://www.flickr.com/photos/62159569@N08/6414371357/in/photostream/&quot;&gt;scoboco" s="" flickr<="" a="">Follow Gothamist </a><a href="https://web.archive.org/web/20111128165509/http://twitter.com/#!/gothamist">on Twitter</a> and <a href="https://web.archive.org/web/20111128165509/http://www.facebook.com/pages/Gothamist/13927915491">like us on Facebook</a>.  You can also get the top stories mailed to you&#x2014;<a href="https://web.archive.org/web/20111128165509/http://eepurl.com/Mu4T">sign up here</a>.</li>
+	<li>Miley Cyrus <a href="https://web.archive.org/web/20111128165509/http://www.nydailynews.com/gossip/miley-cyrus-a-stoner-friends-a-bob-marley-cake-article-1.983127">really loves her weed</a>.</li>
+	<li>Is this the world&apos;s <a href="https://web.archive.org/web/20111128165509/http://www.nytimes.com/2011/11/27/nyregion/schmekel-a-band-born-as-a-laugh.html?partner=rss&amp;emc=rss&amp;pagewanted=all">first all-transmasculine klezmer band</a>?</li>
+	<li>Dennis Hamill says unions <a href="https://web.archive.org/web/20111128165509/http://www.nydailynews.com/new-york/denis-hamill-tells-union-pride-building-barclays-center-brooklyn-article-1.982979">are happy to have jobs</a> building Barclays Center.</li>
+	<li>Looking at child porn on an airplane <a href="https://web.archive.org/web/20111128165509/http://gawker.com/5862809/no-you-cant-look-at-your-child-porn-in-first-class-either">will probably get you arrested.</a></li>
+	<li>The critics <a href="https://web.archive.org/web/20111128165509/http://www.rottentomatoes.com/m/the_muppets/">overwhelmingly love it</a>, and so do moviegoers: <em>The Muppets</em> <a href="https://web.archive.org/web/20111128165509/http://www.hollywoodreporter.com/news/muppets-hugo-happy-feet-box-office-266419">made $40 million at the box office</a> this holiday weekend.</li>
+	<li>A Manhattan woman <a href="https://web.archive.org/web/20111128165509/http://www.nypost.com/p/news/local/manhattan/stuck_on_tarmac_suit_fW7tOsmqSUc9ILi85j2IVL?CMP=OTC-rss&amp;FEEDNAME=">is suing Terminal One Group</a>, which runs the international terminal at JFK, for making passengers sit on the tarmac for 11 hours last winter during the Blizzageddon.</li>
+	<li>MIA <a href="https://web.archive.org/web/20111128165509/http://twitter.com/#!/_M_I_A_/status/140391225516761088">is coming to NYC</a> to collaborate with Madonna and Nicki Minaj.</li>
+<li>David Clarke spent four years behind bars at Rikers for a crime he was later acquitted of&#x2014;and then <a href="https://web.archive.org/web/20111128165509/http://www.nydailynews.com/news/a-life-stolen-david-clarke-killed-freed-rikers-island-bum-slay-rap-article-1.983009">he was killed eight months later</a>.</li> 
+	<li>How long before <a href="https://web.archive.org/web/20111128165509/http://www.buzzfeed.com/hgrant/video-game-urinals-make-peeing-the-most-exciting-t">urinal video games</a> make their way to NYC?</li>
+	<li>Staten Island Tech is the city&apos;s <a href="https://web.archive.org/web/20111128165509/http://www.nypost.com/p/news/local/staten_island/city_hottest_hs_in_out_of_the_way_7QDC6HKnmWX9QJVghGFucP?CMP=OTC-rss&amp;FEEDNAME=">hottest high school.</a></li>
+	<li>And finally, this woman <a href="https://web.archive.org/web/20111128165509/http://www.buzzfeed.com/pumperphil/kittens-scare-woman-to-tears-1hc1">is extremely terrified of...kittens.</a></li>
+</ul>

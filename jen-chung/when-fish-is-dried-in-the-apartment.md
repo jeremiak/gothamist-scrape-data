@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: December 20, 2008  2:00 PM
+title: When Fish is Dried in the Apartment
+---
+
+<p><img alt="2008_12_smkedfish.jpg" src="https://web.archive.org/web/20120131133501im_/http://gothamist.com/attachments/jen/2008_12_smkedfish.jpg" width="140" height="128" class="right">Neighbors&apos; apartment smells can be a<a href="https://web.archive.org/web/20120131133501/http://gothamist.com/2006/08/07/scent_of_your_n.php"> constant source of frustration</a>, but a group of nuns are suing two tenants for stinking up a Gramercy-area building.  The <a href="https://web.archive.org/web/20120131133501/http://www.nypost.com/seven/12202008/news/regionalnews/what_an_unholy_stench__145115.htm">Post reports</a> that the Missionary Sisters of Sacred Heart, which owns 201 East 19th Street, accuse Gloria and Michael Lim of &quot;caus[ing] noxious, foul and harmful odors to emanate from the [apartment] into the common areas...as well into other apartments.&quot;  One time, the fire department was called because people were convinced someone had died in the building; the FDNY focused on the Lims&apos; apartment, where Gloria Lim said she was &quot;smoking and drying fish.&quot;  Since the Lims reportedly refused to &quot;<strong>stop the stank or at least open their windows</strong>,&quot; the Missionary Sisters are trying to block Lim from further fishy antics and for $75,000 in damages.  </p>

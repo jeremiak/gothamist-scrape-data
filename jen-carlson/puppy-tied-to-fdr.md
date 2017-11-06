@@ -1,0 +1,7 @@
+---
+author: Jen Carlson
+date: November  9, 2009 12:02 PM
+title: Puppy Tied to FDR
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="fdrpuppy.jpg" src="https://web.archive.org/web/20110623143737im_/http://gothamist.com/attachments/arts_jen/fdrpuppy.jpg" width="75" height="97" class="image-right"> </span>Pet abandoners: please do not leave animals tied to the FDR! <a href="https://web.archive.org/web/20110623143737/http://www.facebook.com/note.php?note_id=176788927129&amp;ref=nf">Jennie Min of NJ</a> says: &quot;I went to Manhattan today and found somebody tied a small pitbull right on the FDR Drive! She looked so afraid and was crying when I found her.&quot; Min waited an hour to see if the owner would show, then tried three non-kill shelters, all of which had no space. Since she can&apos;t take on another dog, she left her with Animal Care &amp; Control... which means it doesn&apos;t have much time to live. She asked the ACC to contact her if they are forced to put her to sleep, and is hoping someone will save her before that happens. [via <a href="https://web.archive.org/web/20110623143737/http://twitter.com/GirlieGirlArmy/status/5562377012">GirlieGirlArmy</a>]</p>

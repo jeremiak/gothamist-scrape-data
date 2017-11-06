@@ -1,0 +1,17 @@
+---
+author: Nell Casey
+date: Jul 20, 2013 12:41 pm
+title: Study: Most People Just Ignore Those Menu Calorie Counts 
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="071913caloriecounts.jpg" src="https://web.archive.org/web/20141225025053im_/http://gothamist.com/attachments/nyc_nellcasey/071913caloriecounts.jpg" width="640" height="365"> <br> <i> <span class="photo_caption">Like a pesky 500 calories is going to stand in your way from getting a delicious hot dog (<a href="https://web.archive.org/web/20141225025053/http://www.flickr.com/photos/57218561@N00/3850800330/in/photolist-6ShmM9-6ShmQj-6ShmTU-6Yb1Tw-7cDsTi-8yEimU-9aSQ5P-b4VnqF-bq4PZY-9BUZTZ">rachelleb</a>/Flickr)</span></i></div> <p></p>
+
+<p>A new <a href="https://web.archive.org/web/20141225025053/http://ajph.aphapublications.org/doi/abs/10.2105/AJPH.2013.301218">study by <em>American Journal of Public Health</em></a> challenges <a href="https://web.archive.org/web/20141225025053/http://gothamist.com/2008/04/21/calorie_rules_s.php">menu calorie counts</a>, revealing that they actually do little to influence people&apos;s food decisions. Researchers broke 1,121 people into three groups, providing each with different sets of information. One group was given the recommended daily calorie intake, another the recommended per-meal calorie intake and the third was given no additional information. The researchers then analyzed the purchases of the three groups at McDonald&apos;s in New York City, where calorie counts per item are clearly labeled. </p>
+
+<p>They discovered that the groups who had more information still ate more than their recommended intake, with one-third of the study participants eating in excess of 1,000 calories at the meal. In other words, despite knowing they were exceeding their recommended calorie intake, people still ordered whatever crap they craved. &quot;These data do support the idea that many consumers choose taste, value, and convenience over nutrient density and controlled calories,&quot; NBC News health editor Madelyn Fernstrom <a href="https://web.archive.org/web/20141225025053/http://www.today.com/health/who-cares-about-calories-restaurant-menu-labels-dont-work-study-6C10677922">explained to Today</a>. &quot;And since the study was done at a fast-food restaurant, the results might not apply to other types of restaurants.&quot; </p>
+
+<p>The study either <a href="https://web.archive.org/web/20141225025053/http://gothamist.com/2009/10/06/is_the_fast_food_calorie_info_law_m.php">totally substantiates</a> or <a href="https://web.archive.org/web/20141225025053/http://gothamist.com/2010/01/07/study_shows_calorie_counts_make_ric.php">utterly discredits</a> other similar studies, so who even knows what it all means. On top of people <a href="https://web.archive.org/web/20141225025053/http://gothamist.com/2011/07/27/non-shockers_calorie_counting_only.php">not even reading them</a>, many calorie counts are <a href="https://web.archive.org/web/20141225025053/http://gothamist.com/2008/08/05/inaccurate_calorie_info_could_soon.php">complete bullshit anyway</a>, so nobody wins. Still, we long for the days when we were blissfully ignorant of the 570-calorie gut bomb at a certain <a href="https://web.archive.org/web/20141225025053/http://gothamist.com/2012/09/20/you_will_no_longer_be_able_to_ignor.php">NYC burger chain</a>.</p>					
+										
+									
+				

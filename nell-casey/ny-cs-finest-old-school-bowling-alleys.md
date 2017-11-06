@@ -1,0 +1,41 @@
+---
+author: Nell Casey
+date: May 16, 2011 2:45 pm
+title: NYC's Finest Old-School Bowling Alleys
+---
+
+	
+										<p><em>Not crazy about the younger breed of newfangled bowling alleys cropping up across the city&#x2014;places with blaring DJs, exorbitant drink prices, and some BS lounge-y atmosphere? If you prefer the smell of stale beer and tacky furnishings to compliment your game, click through for a journey to some of New York City&apos;s classic old school alleys; while they&apos;re a dying breed, they <em>do</em> exist, if you know where to look.</em></p>					
+					<div class="galleryEase" id="gallery-469000">
+<!-- gallery js -->
+<script type="text/javascript" src="https://web.archive.org/web/20150429111124js_/http://assets.gothamistllc.com/v5/js/gallery.js"></script>
+<!-- end gallery js -->
+
+<style type="text/css">
+#imgContainer {
+min-height: 300px;
+min-width: 300px;
+background: url('https://web.archive.org/web/20150429111124im_/http://assets.gothamistllc.com/v5/images/progress.gif') center center no-repeat;
+}
+</style>
+
+<!--start of gallery code-->
+<a name="gallery"></a>
+<div class="galleryEaseDisplayed">
+<div id="imgContainer">
+    <img id="galleryImg">
+</div>
+<div class="galleyEaseInfo"></div>
+<div class="galleryEaseNext"></div>
+<div class="galleryEasePrev"></div>
+</div>
+<div class="galleryEaseThumbs">
+		<img src="https://web.archive.org/web/20150429111124im_/http://gothamist.com/assets_c/2011/05/may13melodylanes-thumb-60x60-624487.jpg" title="" id="photo_1" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":1, "image": "https://web.archive.org/web/20150429111124/http://gothamist.com/attachments/arts_jamie/may13melodylanes.jpg", "caption": "\<strong\>Melody Lanes:\<\/strong\> A true throwback to the \'80s, this borderline-seedy, completely irony-free temple to bowling attracts a diverse crowd just looking for a good time, which manifests itself in the form of Glow Bowling and cheap beer. Come late night on Friday and Saturday nights for Midnight Madness: unlimited bowling and shoe rental for $22 a person (four person minimum). And since you can\'t bowl on an empty stomach (this is a serious sport, people), carboload with a gut-bombing plate of cheese fries to fuel your way to that 300.\r\n\<p\>\r\n\<em\>\<a href=\"http://www.melodylanesny.com/\"\>Melody Lanes\<\/a\> [461-37th Street, Brooklyn; 718-832-BOWL] // D, M, N, R to 36th St  //$35/hr to rent a lane or $6 - $8 per game, $4 shoe rental\<\/em\>\<\/p\>", "credit":"Photo from Flickr user \<a href=\"http://www.flickr.com/photos/jgny/387317229/\"\>JGNY\<\/a\>"};galleryObj['photo_1'] = photo;</script>
+		<img src="https://web.archive.org/web/20150429111124im_/http://gothamist.com/assets_c/2011/05/may13gilhodges-thumb-60x60-624489.jpg" title="" id="photo_2" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":2, "image": "https://web.archive.org/web/20150429111124/http://gothamist.com/attachments/arts_jamie/may13gilhodges.jpg", "caption": "\<strong\>Gil Hodges Lanes:\<\/strong\> \r\nWe admit: It\'s a schlep out to Mill Basin, Brooklyn. But once you\'re out there, Gil Hodges makes it worth your while, with $15 buckets of five beers and glow-in-the-dark bowling with music, games, and prizes. The decor is tacky-chic, with New York City-themed murals and well-worn plastic seats, and most everyone is a friendly regular. We recommend a weeknight trek for \"Two Fer Tuesdays\" where everything from games to booze to food at the RMR Cafe is buy two, get one free.\r\n\<p\>\r\n\<em\>\<a href=\"http://gilhodgeslanes.com/\"\>Gil Hodges Lanes\<\/a\> [6161 Strickland Avenue, Brooklyn; 718-763-3333] // Q to Kings Highway then B 100 bus to Ave U // Sunday - Thursday: $6/game per person, Friday & Saturday: $8/game per person; $4.25/shoes\<\/em\>", "credit":"Photo from Flickr user \<a href=\"http://www.flickr.com/photos/carlcollins/2810001258/\"\>carlcollins\<\/a\>"};galleryObj['photo_2'] = photo;</script>
+		<img src="https://web.archive.org/web/20150429111124im_/http://gothamist.com/assets_c/2011/05/may13maple-thumb-60x60-624484.jpg" title="" id="photo_3" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":3, "image": "https://web.archive.org/web/20150429111124/http://gothamist.com/attachments/arts_jamie/may13maple.jpg", "caption": "\<strong\>Maple Lanes:\<\/strong\> Come for the bowling but stay for the surprisingly above average snack bar, which has been run by the same family for the past 50 years. You\'ll find old-school New York staples here: corned beef, brisket and even a traditional egg creme, plus more pedestrian fare like burgers and dogs. And though no one would accuse Maple of being expensive, after 9 p.m. on Sundays a $6 cover gets you cheaper-than-ever $1 games until closing. Or relive your Pink Floyd-fueled heyday with the Cosmic Fun Pack: two hours of bowling plus shoe rentals for six, all for only $69.99 on Friday nights. Don\'t leave without stopping by Funzi\'s, the house bar. \r\n\<p\>\r\n\<em\>\<a href=\"http://bowlmaple.com/\"\>Maple Lanes\<\/a\> [1570 60th Street, Brooklyn; 718-331-9000] //  D, M, N to New Utrecht Ave-62nd St // $4.50 - $7.50/game, $4.25 - $6.60/shoes\<\/em\>", "credit":"Photo from Flickr user \<a href=\"http://www.flickr.com/photos/8664407@N02/4579720191/\"\>triebensee\<\/a\>"};galleryObj['photo_3'] = photo;</script>
+		<img src="https://web.archive.org/web/20150429111124im_/http://gothamist.com/assets_c/2011/05/may13shelllanes-thumb-60x60-624488.jpg" title="" id="photo_4" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":4, "image": "https://web.archive.org/web/20150429111124/http://gothamist.com/attachments/arts_jamie/may13shelllanes.jpg", "caption": "\<strong\>Shell Lanes:\<\/strong\> If The Dude lived in New York, this is probably where he\'d bowl. Come the beginning of June, the 32 lanes become league central, but that doesn\'t mean you can\'t slip in for a casual game or spend some quarters in the old-school arcade. The snack bar will satisfy your lust for grease while the first floor bar will keep you socially lubricated. If you don\'t mind rolling on Shabbos, it\'ll be the best $5.50 you ever spent. \r\n\<p\>\r\n\<em\>\<a href=\"http://shelllanes.com/\"\>Shell Lanes\<\/a\> [1 Bouck Court, Brooklyn; 718-336-6700] // F to Ave X or N to 86th St // $3 - $6/game, $2.50/shoes. Cash only.\<\/em\>", "credit":"Photo from Flickr user \<a href=\"http://www.flickr.com/photos/janelle/436302303/\"\>the real janelle\<\/a\>"};galleryObj['photo_4'] = photo;</script>
+		<img src="https://web.archive.org/web/20150429111124im_/http://gothamist.com/assets_c/2011/05/05152011RabLanes-thumb-60x60-625332.jpg" title="" id="photo_5" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":5, "image": "https://web.archive.org/web/20150429111124/http://gothamist.com/upload/2011/05/05152011RabLanes.jpg", "caption": "\<strong\>Rab\'s Country Lanes:\<\/strong\> It may have gotten a makeover recently but this Staten Island staple has lost none of its old world charm. Have more than four people? Take advantage of their suburban-priced special for Cosmic bowling: One and a half hours of bowling, shoe rental, pizza and a pitcher of beer for just $15, or accept the Lazer Maze Challenge for a chance to win prizes. Celebrate your winnings or nurse your losses at Rab\'s High Roller\'s Lounge, where either way the booze will make your ferry ride home all the more enjoyable. \r\n\r\n\<em\>\<a href=\"http://www.rabslanes.com\"\>Rab\'s Country Lanes\<\/a\> [1600 Hylan Boulevard, Staten Island; 718-979-1600] // Staten Island Ferry to St. George Ferry Terminal, SIR to Old Town // $5.50 per game or $18 per hour\<\/em\> (Photo from Flickr user \<a href=\"http://www.flickr.com/photos/bowlatrabs/3755479562/in/pool-1140598@N24\"\>BowlatRabs\<\/a\>)", "credit":""};galleryObj['photo_5'] = photo;</script>
+									
+</div></div>					
+									
+				

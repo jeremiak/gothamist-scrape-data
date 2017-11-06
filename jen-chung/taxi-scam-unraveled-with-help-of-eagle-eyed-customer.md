@@ -1,0 +1,15 @@
+---
+author: Jen Chung
+date: Mar 17, 2010 3:11 pm
+title: Taxi Scam Unraveled With Help Of Eagle-Eyed Customer
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:280px; "> <img alt="2010_03_taxmeter4.jpg" src="https://web.archive.org/web/20150422144139im_/http://gothamist.com/attachments/jen/2010_03_taxmeter4.jpg" width="280" height="199"> <br> <i>Photograph by <a href="https://web.archive.org/web/20150422144139/http://www.flickr.com/photos/dandirtyape/4108074830/">DRA+PHOTOGRAPHY on Flickr</a></i></div> Last week, the Taxi and Limousine Commission revealed that the majority of cabdrivers had <a href="https://web.archive.org/web/20150422144139/http://gothamist.com/2010/03/13/some_taxi_drivers_scammed_fares_out.php">overcharged passengers at least once</a>, by using a rate twice the usual NYC rate, resulting in over $8 million in overcharges.  Now it turns out that the TLC&apos;s investigation was partly prompted by a doctor who was suspicious of his fare last August.  <a href="https://web.archive.org/web/20150422144139/http://www.nypost.com/p/news/local/fare_minded_hero_rider_bared_scam_XA0PYoOybKeihknphWsyMN">Dr. Mitchell Lee tells the Post</a>, &quot;<strong>New Yorkers are smarter than cabbies think. In these down times, everyone is watching the meter.</strong> Even the tourists are careful about their money and they&apos;re watching, too.&quot;<p></p>
+
+<p>Lee is a doctor at NYU Medical Center and lives on Park Avenue; according to the Post, &quot;Lee said he first became suspicious of Cheema when his usual $5 fare home from the hospital came to $7.  He works late hours, and the cost of his short ride home rarely fluctuates.&quot; When the cabbie claimed the meter wasn&apos;t broken, Lee told him, &quot;I take this route all the time!&quot;  The cabbie offered to let Lee pay whatever his usually paid, but Lee decided to use his credit card and file a formal complaint. And that cabbie was Wasid Khalid Cheema, who <a href="https://web.archive.org/web/20150422144139/http://gothamist.com/2010/03/01/rip_off_artist_cabbie_nets_40000_fr.php">allegedly overcharged 574 passengers</a> and took in nearly $40,000 extra. </p>
+
+<p>Other passengers of Cheema, including one who took a cab from Manhattan to Woodside, had complained.  Fernando Mateo, who heads a taxi union, <a href="https://web.archive.org/web/20150422144139/http://www.nydailynews.com/news/ny_crime/2010/03/17/2010-03-17_dont_blame_all_hacks_for_scam_taxi_boss_says.html">said</a>, &quot;We&apos;re here to say we&apos;re sorry,&quot; but claims that most of the overcharges were drivers pushing the wrong rate button.  However, the Daily News reports, &quot;A source familiar with a TLC breakdown said about 6,000 drivers allegedly overcharged up to five times, about 25,000 allegedly charged too much five to 100 times, and about 3,000 hacks ripped off passengers 100 or more times.&quot;</p>					
+										
+									
+				

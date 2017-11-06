@@ -1,0 +1,15 @@
+---
+author: Jen Carlson
+date: Jun 1, 2009 2:42 pm
+title: Battle of the Outdoor Concert Venues
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:350px; "> <img alt="centralsummerstage.jpg" src="https://web.archive.org/web/20150502135908im_/http://gothamist.com/attachments/arts_jen/centralsummerstage.jpg" width="350" height="234"> <br> <i><span class="photo_caption">Photo via <a href="https://web.archive.org/web/20150502135908/http://www.flickr.com/photos/gibson78/833572481/">Gibson78&apos;s flickr</a></span></i></div> Over the years more and more outdoor venues have sprung up out of the lush park land and the not-so-lush concrete spaces of New York. From Central Park Summerstage to the Seaport to McCarren Pool (RIP), there&apos;s no shortage of outdoor music venues during the summer months. But now <a href="https://web.archive.org/web/20150502135908/http://www.nypost.com/seven/05302009/entertainment/stagefight_171608.htm">the NY Post</a> is pitting them against each other! They say that while <a href="https://web.archive.org/web/20150502135908/http://www.summerstage.org/">Summerstage</a> used to be &quot;a magnet for denizens of the five boroughs, as well as hordes of tourists,&quot; its reign may be challenged as people are beginning to voice complaints of it &quot;being too hot, too crowded, too greedy.&quot; <p></p>
+
+<p>While the venue does offer some free shows, the big names will cost you. However, over in Prospect Park, the <a href="https://web.archive.org/web/20150502135908/http://www.briconline.org/celebrate">Celebrate Brooklyn!</a> series offers up some major headliners (David Byrne, for instance) for a mere suggested donation. And at the <a href="https://web.archive.org/web/20150502135908/http://seaportmusicfestival.com/">Seaport Music Festival</a>, <em>all</em> of the shows are free, as are the Pool Parties which will likely be relocated to the <a href="https://web.archive.org/web/20150502135908/http://gothamist.com/2009/03/27/pool_concerts_on_the_east_river.php">Williamsburg waterfront</a>. Do we even have a right <a href="https://web.archive.org/web/20150502135908/http://whitewhine.tumblr.com/">to complain</a> when there are so many choices?</p>
+
+<center><script type="text/javascript" language="javascript" charset="utf-8" src="https://web.archive.org/web/20150502135908js_/http://static.polldaddy.com/p/1669062.js"></script><noscript> <a href="https://web.archive.org/web/20150502135908/http://answers.polldaddy.com/poll/1669062/">Where's your favorite place to see outdoor concerts in the summer?</a><span style="font-size:9px;">(<a href="https://web.archive.org/web/20150502135908/http://www.polldaddy.com/">survey</a>)</span> </noscript></center>					
+										
+									
+				

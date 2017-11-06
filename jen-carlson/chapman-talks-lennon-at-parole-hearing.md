@@ -1,0 +1,7 @@
+---
+author: Jen Carlson
+date: August 19, 2008  5:53 PM
+title: Chapman Talks Lennon at Parole Hearing
+---
+
+<p><img alt="chapmanoldmug.jpg" src="https://web.archive.org/web/20111125045952im_/http://gothamist.com/attachments/arts_jen/chapmanoldmug.jpg" width="123" height="148" class="right">Mark David Chapman was just denied parole for a fifth time, and although nothing really stands out, <a href="https://web.archive.org/web/20111125045952/http://cityroom.blogs.nytimes.com/2008/08/19/latest-parole-hearing-offers-insights-into-john-lennons-killer/">CityRoom</a> notes that with this hearing &quot;some details that were not publicly discussed during Mr. Chapman&#x2019;s previous attempts at obtaining parole&quot; surfaced. In the interview he discussed his crime with the parole board, and noted of his shooting John Lennon: <strong>&quot;I don&apos;t recall saying: Mr. Lennon. I think that was something that the press elaborated on; that did not happen, he didn&apos;t turn I shot him in the back.&quot;</strong> He continued on, saying he&apos;s changed, apologizing to Lennon&apos;s family and noting that if released he would go work on a farm upstate, where a man had offered him a job. The board decided to keep him locked up, of course--and as Yoko Ono said herself, <a href="https://web.archive.org/web/20111125045952/http://gothamist.com/2008/08/12/yoko_ono_says_chapman_is_safer_in_j.php">he&apos;s &quot;safer&quot; in jail.</a></p>

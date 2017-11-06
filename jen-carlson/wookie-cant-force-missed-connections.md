@@ -1,0 +1,11 @@
+---
+author: Jen Carlson
+date: May 19, 2008  1:59 PM
+title: Wookie Can't Force Missed Connections
+---
+
+<p><img alt="0805wookietrain.jpg" src="https://web.archive.org/web/20111011055257im_/http://gothamist.com/attachments/arts_jen/0805wookietrain.jpg" width="640" height="486"></p>
+
+<p>With straphangers desperately seeking another <a href="https://web.archive.org/web/20111011055257/http://gothamist.com/2007/11/19/moberg_goes_hol.php">Patrick Moberg and Camille Hayton</a> story to warm their commuting hearts (don&apos;t deny it), the boys <a href="https://web.archive.org/web/20111011055257/http://zoomdoggle.com/2008/05/funday-wookin-for-love">at Zoomdoggle</a> are stepping in to force their own missed connections. Their solution to finding love in the big city boils down to a Wookie suit, pensive stares and an occasional smile.</p>
+
+<p>Sadly, the efforts of the Wookie, ex-MTV Road Ruler/writer/photographer <a href="https://web.archive.org/web/20111011055257/http://www.jakebronstein.com/">Jake Bronstein</a>, led nowhere -- as not one person he encountered in the suit was intrigued enough to leave a Craigslist note. New York can be heartless at times, but here are some other things he learned that day:</p><ul><li>The world seems to be divided into two camps: Those that want to talk, and those that would rather not.</li><li>Personal hygiene is of the utmost concern to more New Yorkers. I heard &#x201C;conditioner&#x201D; and &#x201C;split ends&#x201D; jokes at a rate of around one every ten minutes.</li><li>The police in Williamsburg (who can currently be found <a href="https://web.archive.org/web/20111011055257/http://gothamist.com/2008/04/18/machetes_and_kn.php">on every corner</a> <a href="https://web.archive.org/web/20111011055257/http://gothamist.com/2008/04/15/wburg_stabber.php">for reasons unknown</a>) are surprisingly good-sports about being crept-up on by Chewy. Shock and awe quickly gives way to laughter. Weapons are never drawn.</li></ul>They never seem to unleash a barrage of bullets when it&apos;s actually warranted, do they? But come on ladies, give the big Wookie a chance; you wouldn&apos;t want him to face <a href="https://web.archive.org/web/20111011055257/http://www.youtube.com/watch?v=asnVcbWQ2cg">his family on Life Day</a> without a date.<p></p>

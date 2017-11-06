@@ -1,0 +1,7 @@
+---
+author: Jen Carlson
+date: October  6, 2008  3:15 PM
+title: Are Nick & Norah Fans Really Flocking to Veselka?
+---
+
+<p><img alt="1008veselka.jpg" src="https://web.archive.org/web/20110611053622im_/http://gothamist.com/attachments/arts_jen/1008veselka.jpg" width="118" height="118" class="right">Every NYC movie/tv show can create a new pop culture landmark and tourist destination. <a href="https://web.archive.org/web/20110611053622/http://newyork.seriouseats.com/2008/10/veselka-slammed-with-michael-cera-fans-nick-and-noras-infe-playlist-east-village-nyc.html">Serious Eats</a> points out that <em>When Harry Met Sally</em> had Katz&apos;s and <em>Sex and the City</em> had Magnolia, and now <i>Nick &amp; Norah&apos;s Infinite Playlist</i> has staked a claim on <a href="https://web.archive.org/web/20110611053622/http://www.veselka.com/">Veselka</a>. Owner Tom Birchard told SE that they were &quot;slammed all weekend&quot; with folks allegedly wanting to recreate the scene where Michael Cera and Kat Dennings enjoy some pierogies at the 24-hour eatery (the address is even given in the dialogue). No word on if Arlene&apos;s Grocery also saw an influx of customers, but our very own Billy Parker was at Veselka on Saturday at 10 p.m. and says it was &quot;definitely not&quot; crowded, nor was the clientele younger than usual. In fact, he says, &quot;two middle aged-men were sitting alone on either side of me. It reminded me that romance is usually best left to the movies.&quot;</p>

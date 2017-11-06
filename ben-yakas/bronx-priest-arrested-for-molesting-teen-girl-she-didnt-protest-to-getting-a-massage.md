@@ -1,0 +1,13 @@
+---
+author: Ben Yakas
+date: Aug 4, 2011 11:34 am
+title: Bronx Priest Arrested For Molesting Teen Girl: "She Didn't Protest To Getting A Massage"
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:250px; "> <img alt="8411priest.jpg" src="https://web.archive.org/web/20150406203440im_/http://gothamist.com/attachments/byakas/8411priest.jpg" width="250" height="159"> <br> <i>Father Jaime Duenas (screenshot <a href="https://web.archive.org/web/20150406203440/http://www.ny1.com/content/top_stories/144351/bronx-priest-charged-with-sexual-abuse-of-16-year-old-girl">via NY1</a>)</i></div> An elderly Bronx priest <a href="https://web.archive.org/web/20150406203440/http://www.nydailynews.com/news/ny_crime/2011/08/04/2011-08-04_bronx_priest_87_arrested_for_sexually_abusing_16yearold_girl_who_worked_in_churc.html">was arrested yesterday</a> and accused of sexually abusing a teenage girl who had just started working at his church rectory last week. Father Jaime Duenas, 87, was arraigned on charges of sexual abuse, forcible touching and endangering the welfare of the 16-year-old girl. And according to prosecutors, he gave this excuse in his cell before his arraignment last night: <strong>&quot;She didn&apos;t protest to getting a massage...She was wearing short skirts.&quot;</strong><p></p>
+
+<p>Duenas was arrested inside the rectory of the Church of the Blessed Lady in Eastchester yesterday afternoon. Sources <a href="https://web.archive.org/web/20150406203440/http://www.nypost.com/p/news/local/bronx/bx_priest_in_molest_rap_D2ren6s2ZMJzf6MKOZMNQI">told the Post</a> that Duenas allegedly molested the girl Saturday, Monday and Tuesday. Duenas was released without bond, and the judge ordered him to stay away from the victim. The Archdiocese of New York <a href="https://web.archive.org/web/20150406203440/http://www.ny1.com/content/top_stories/144351/bronx-priest-charged-with-sexual-abuse-of-16-year-old-girl">added that</a> it is looking into the allegations, and says no other complaints had been lodged against Duenas in the past. One church member <a href="https://web.archive.org/web/20150406203440/http://www.myfoxny.com/dpp/news/priest-arrested-on-sex-abuse-charges-in-the-bronx-20110804-KC">told Fox</a>, &quot;<strong>Truthfully, I&apos;m in shock.  Not him. This is mind blowing.&quot;</strong></p>					
+										
+									
+				

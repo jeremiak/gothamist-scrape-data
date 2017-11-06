@@ -1,0 +1,11 @@
+---
+author: Jen Chung
+date: May 22, 2009  3:10 PM
+title: Ex-Boyfriend Indicted In Murder Of NYPD Investigator
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2009_05_leechk.jpg" src="https://web.archive.org/web/20130305171952im_/http://gothamist.com/attachments/jen/2009_05_leechk.jpg" width="251" height="188" class="image-left"> </span>A grand jury indicted Gary McGurk for the murder of his ex-girlfriend, Michelle Lee. Last month, the body Lee, an NYPD criminalist, was <a href="https://web.archive.org/web/20130305171952/http://gothamist.com/2009/04/28/stab_city.php">found in her Sunnyside apartment</a>; she was <a href="https://web.archive.org/web/20130305171952/http://gothamist.com/2009/04/29/cops_continue_investigation_of_nypd.php">strangled, stabbed in the throat, and burned</a> with an iron. </p>
+
+<p><a href="https://web.archive.org/web/20130305171952/http://www.nydailynews.com/news/ny_crime/2009/05/22/2009-05-22_scamming_exbeau_busted_in_nypd_csi_slay.html">According to the Daily News</a>, McGurk, an Irish national who plays soccer at John Jay College, &quot;told Lee he was broke and suffering from cancer, and that he could not afford or get medical insurance, so she gave him money. Investigators don&apos;t believe Lee was the first to fall for McGurk&apos;s con job. McGurk was a &apos;professional student&apos; who bilked unsuspecting young women to bankroll &quot;his life in the U.S., they said.&quot; It&apos;s possible that the money was an issue Lee moved out of her parents&apos; house into her own place, though it&apos;s &quot;unclear if the violence came to a head because the money was drying up and she asked to be repaid, or because she learned the illness was a hoax and grew tired of his games.&quot;  </p>
+
+<p>The News adds that on a website, McGurk said of himself, &quot;<strong>[I am] my own person and I do not intend to change for anyone. ... I&apos;m capable of switching accents at will. ... I&apos;m an a--hole, no regrets.</strong>&quot;</p>

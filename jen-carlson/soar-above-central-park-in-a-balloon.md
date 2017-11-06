@@ -1,0 +1,11 @@
+---
+author: Jen Carlson
+date: July 24, 2008  1:58 PM
+title: Soar Above Central Park in a Balloon
+---
+
+<p><img alt="php37nsukAM.jpg" src="https://web.archive.org/web/20120106231647im_/http://gothamist.com/attachments/arts_jen/php37nsukAM.jpg" width="255" height="214" class="right">Central Park may be pretty from the ground, but the view from above will give New Yorkers a whole new perspective while taking in &quot;the brilliance of the Greensward Plan, Frederick Law Olmstead and Calvert Vaux&apos;s 1858 design.&quot; <a href="https://web.archive.org/web/20120106231647/http://www.nypost.com/seven/07242008/news/regionalnews/central_air_121307.htm">The NY Post</a> reports that starting tomorrow, helium balloon rides will be offered for just $25 a pop.</p><blockquote>The rides will be offered from 7 a.m. to 10 p.m. through Aug. 22, and children 12 and under ride for $17.50. Starting today, the company is accepting reservations for rides between 7 a.m. and 10 a.m. The rest of the day will work on a first-come, first-served basis.</blockquote><a href="https://web.archive.org/web/20120106231647/http://aeroballoon.com/locations-newyork-cp.shtml">Aeroballoon</a> is the company responsible for the temporary attraction, and says at night the balloon will be lit up. Before illumination and the first take off, however, they had to acquire &quot;a slew of permits, including one from the Federal Aviation Administration to enter New York&apos;s airspace.&quot;<p></p>
+
+<p>The ride lasts about 10 minutes, so even if you discover a sudden fear of heights, the countdown to the ground will be a fairly quick one. The balloon will bring you and yours about 300-feet above the park in a wicker basket (the FAA won&apos;t permit them to go higher than 500-feet); four passengers join the pilot for the lofty jaunt, and it&apos;s all part of the 150th anniversary celebration of the park&apos;s original design.</p>
+
+<p>Earlier this year The Balloon Project released a video containing aerial views of Central Park, it was filmed in January on a video camera that was attached to a set of helium balloons! <a href="https://web.archive.org/web/20120106231647/http://www.youtube.com/watch?v=D-C8gwB7Two">Watch it here</a>.</p>

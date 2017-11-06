@@ -1,0 +1,13 @@
+---
+author: Jen Carlson
+date: Dec 31, 2007 2:56 pm
+title: Police Headquarters Nearly Taxidermy Free!
+---
+
+	
+										<p><img alt="200712scagnelli.jpg" src="https://web.archive.org/web/20150508172134im_/http://gothamist.com/attachments/arts_jen/200712scagnelli.jpg" width="178" height="225" class="right">NYPD Transportation Chief Michael Scagnelli likes to bring a little nature into his city office, in the form of big stuffed game he&apos;s hunted around the world. <a href="https://web.archive.org/web/20150508172134/http://www.nydailynews.com/news/2007/12/30/2007-12-30_animal_displays_booted_from_cops_office.html">The Daily News</a> reports on his collection of animal trophies, and police commissioner Raymond Kelly&apos;s order to remove them from headquarters.</p><blockquote>&quot;Going to his office was like going to the Museum of Natural History. And it wasn&apos;t just his private office, it was in the outer office, too, where everyone else had their desks. There was a gigantic bird on someone&apos;s desk,&quot; the source said. &quot;He had one - a cougar or a leopard or something, its claws out, catching a gazelle. He shot both but it was designed to look like the cougar killed the elk.&quot;</blockquote>So the bison, birds, elk, leopard, gazelle and deer all had to take a hike, and Scagnelli had to pay movers to haul them away. Some cops criticize the order saying it&apos;s an example of Kelly&apos;s micromanaging, and defending Scagnelli&apos;s ability to stay focused on the clock -- saying he&apos;s done his job in getting traffic deaths down. While some in the office found the displays offensive and over the top, he has gained a lot of admiration overall -- slaying animals aside. On <a href="https://web.archive.org/web/20150508172134/http://nypdrant64609.yuku.com/topic/7864">an NYPD message board</a> addressing this topic, he is pointed out as being &quot;one of the good Chiefs.&quot; <p></p>
+
+<p>As for the animals, he&apos;s kept some antlers and monkey skulls in his personal office, saying they are permissible because they aren&apos;t stuffed. It was also reported that &quot;a meeting room has an 8-foot plastic replica of a hammerhead shark the chief caught - complete with real shark teeth.&quot; Maybe Scagnelli should have participated in Union Hall&apos;s <a href="https://web.archive.org/web/20150508172134/http://gothamist.com/2007/11/05/pictures_of_the.php">taxidermy event</a>!</p>					
+										
+									
+				

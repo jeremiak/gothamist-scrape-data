@@ -1,0 +1,22 @@
+---
+author: Nell Casey
+date: May 3, 2013 12:52 PM
+title: Another Chinese Food Scandal: Rat Meat Sold As Lamb At Chinese Farmer's Markets
+---
+
+
+                            
+                            
+                            
+                            <p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="050313ratmeat.jpg" src="https://web.archive.org/web/20131006160854im_/http://gothamist.com/attachments/nyc_nellcasey/050313ratmeat.jpg" width="640" height="425"> <br> <i> <span class="photo_caption">Those are some very tiny lambs! (<a href="https://web.archive.org/web/20131006160854/http://www.shutterstock.com/gallery-673486p1.html">sakhorn</a>/<a href="https://web.archive.org/web/20131006160854/http://www.shutterstock.com/index-in.mhtml">Shutterstock</a></span></i></div> <p></p>
+
+<p>If you were horrified by the <a href="https://web.archive.org/web/20131006160854/http://gothamist.com/2013/02/25/ikea_finds_horse_in_its_meatballs_i.php">great horse meat scandal of 2013</a> then hold on to your butts, because your worst fears about the sketchy origin of your &quot;lamb&quot; lo mein are about be realized, sort of. Chinese officials <a href="https://web.archive.org/web/20131006160854/http://www.nytimes.com/2013/05/04/world/asia/rat-meat-sold-as-lamb-in-china-highlights-fears.html?partner=rss&amp;emc=rss&amp;_r=2&amp;">arrested 63 people yesterday</a> accused of passing off rat, fox and minx meat as mutton and selling the deceitful meat at markets in Shanghai and the Jiangsu Province. The shady dealers injected the meat with nitrates, gelatin and red pigments to pass the meat off as lamb, a process that netted them nearly $1.6 million. And we were worried the delicious MSG-laden containers of noodles we cram into our gaping maw after a Friday night bender were going to kill us. </p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <a href="https://web.archive.org/web/20131006160854/http://gothamist.com/attachments/jen/ratmeat.jpg"> <img alt="ratmeat.jpg" src="https://web.archive.org/web/20131006160854im_/http://gothamist.com/assets_c/2013/05/ratmeat-thumb-440x588-788427.jpg" width="300" height="400" class="image-right"> </a> </span>&quot;How many rats does it take to put together a sheep?&quot; wondered a user on China&apos;s Sina Weibo social media site. A fair question; we&apos;re guessing more than 80 but fewer than 100 (<a href="https://web.archive.org/web/20131006160854/http://shanghaiist.com/2013/05/03/seen_on_weibo_gross_photos_lamb_rat.php">look at these horrible photographs</a>). &#x201C;Is it cheaper to raise rats than sheep? Or does it just not feel right unless you&#x2019;re making fakes?&#x201D; the user went on to question. Raise them? Just <a href="https://web.archive.org/web/20131006160854/http://gothamist.com/2012/09/26/video_baby_rat_spotted_in_the_olive.php">throw down some jars of olives</a> <a href="https://web.archive.org/web/20131006160854/http://gothamist.com/2013/01/02/have_you_become_complacent_to_the_r.php">on Delancey Street</a> and <a href="https://web.archive.org/web/20131006160854/http://gothamist.com/2013/03/03/can_birth_control_bait_stop_nycs_ra.php">wait for the rat tsunami</a>.</p>
+
+<p>Chinese officials are <a href="https://web.archive.org/web/20131006160854/http://www.sfgate.com/news/medical/article/China-beefs-up-law-to-fight-food-safety-scandals-4485420.php">calling for more strict food safety guidelines</a>, as the country has struggled with food controversies from toxic chicken feet to traders selling meat from animals that had died from diseases. And those <a href="https://web.archive.org/web/20131006160854/http://shanghaiist.com/2013/04/10/70_dead_pigs_pulled_from_river_in_hunan_china.php">dead pigs in rivers</a>. &quot;The situation is really grave and has indeed caused great harm to the people,&quot; supreme court judge Pei Xianding said in a press conference. &quot;We cannot tolerate it any longer. We must punish the criminals severely, or we cannot answer to our people.&quot;</p>
+
+<p><a href="https://web.archive.org/web/20131006160854/http://gothamist.com/2012/12/11/fradulant_fishes_found_fooling_nyc.php">Food fraud</a> is certainly a troubling issue, but you shouldn&apos;t <a href="https://web.archive.org/web/20131006160854/http://gothamist.com/2012/08/02/eating_free_but_not_free_range_rat.php#photo-1">knock rat until you&apos;ve tried it</a>!</p>
+                            
+                            
+                            

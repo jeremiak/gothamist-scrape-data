@@ -1,0 +1,13 @@
+---
+author: Jen Carlson
+date: Sep 28, 2007 11:14 am
+title: Cruella DeVil Catnapper in Prospect Heights
+---
+
+	
+										<p><img alt="200709cats.jpg" src="https://web.archive.org/web/20160529170025im_/http://gothamist.com/attachments/arts_jen/200709cats.jpg" width="300" height="205" class="right"><a href="https://web.archive.org/web/20160529170025/http://www.brooklynpaper.com/stories/30/38/30_38catfight.html">The Brooklyn Paper</a> has a sad tale of some Prospect Heights kittens. The ferals wandered into the back yard of the Pond family, who immediately fell in love, had them spayed/neutered, called them their own and named them Inky, Blinky, Mookie and Clyde.</p><blockquote>The Ponds grew so attached to their backyard kitties that they began treating them as if they were their own. They had the cats spayed and neutered. They fed them daily. When the Ponds vacationed, they had a cat-sitter watch over their frisky charges.</blockquote>Sadly, their Cruella DeVil neighbor didn&apos;t fancy the felines as much. In June she began to trap the cats, who from time to time wandered into her yard, and disposed of them in Queens! After one week Mookie was the only one left. What did the neighbor have to say about this when confronted on the catnapping?<blockquote>&#x201C;When I saw five stray cats living in my backyard &#x2026; I did extensive research to figure out how I could bring them to be sterilized,&#x201D; said the neighbor. &quot;All anyone could offer was to come and sterilize the cats. But I would have to first trap the cats and provide a space for them to recover from the surgery. I was not willing to do that. It was too laborious. I personally don&#x2019;t think cats should be allowed outside to be exposed to cat AIDS, or to get maimed by other cats,&#x201D; she said. &#x201C;If I wanted a cat, I would have a cat and I would keep it in my house. &#x201C;I didn&#x2019;t destroy it,&#x201D; she said. &#x201C;I didn&#x2019;t hurt it. I just wanted to lower the population of cats. I thought I was doing a service to the neighborhood.&#x201D;</blockquote>Seems like it might have been easier to trap them and drop them off at <a href="https://web.archive.org/web/20160529170025/http://www.slopestreetcats.com/">a local shelter</a>. The director of Slope Street Cats says the cats will meet a grisly fate in Queens (they think they were dropped off in Floral Park) -- either starving, getting hit by a car or meeting &quot;a nasty end.&quot; Perhaps the Ponds should have made them indoor cats. <p></p>
+
+<p><em>Photo via <a href="https://web.archive.org/web/20160529170025/http://www.flickr.com/photos/dlemieux/26244092">dlemieux&apos;s flickr</a>.</em></p>					
+										
+									
+				

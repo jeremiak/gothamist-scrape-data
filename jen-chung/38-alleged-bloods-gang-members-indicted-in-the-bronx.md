@@ -1,0 +1,11 @@
+---
+author: Jen Chung
+date: June  5, 2010  2:00 PM
+title: 38 Alleged Bloods Gang Members Indicted In The Bronx
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2010_06_opstone.jpg" src="https://web.archive.org/web/20130623022638im_/http://gothamist.com/attachments/jen/2010_06_opstone.jpg" width="250" height="171" class="image-left"> </span>The Bronx DA&apos;s office announced that 38 reputed <a href="https://web.archive.org/web/20130623022638/http://bronx.ny1.com/content/top_stories/119827/nearly-40-gang-members-indicted-in-connection-with-bronx-shooting">Bloods gang members and associates were indicted</a> for an array of charges including attempted murder and  narcotics trafficking. And five of the defendants were involved in the <a href="https://web.archive.org/web/20130623022638/http://gothamist.com/2009/11/17/bronx_girl_15_shot_in_head_by_stray.php">stray bullet shooting of a 15-year-old girl </a>who struck in the head while walking home from school.  </p>
+
+<p>The Bronx DA&apos;s office said, &quot;The shootings allegedly were precipitated by inter-gang strife and disputes over drug dealing turf between the Gorilla Stone Bloods, their allies the Gangland Bloods, and their chief rivals, the Mac Baller Brims. It is alleged that the rivalry extended into the New York City jail facility on Rikers Island, where the conspiracy that resulted in the shooting of Vada Vasquez was initiated.&quot;</p>
+
+<p>Last November, when Vasquez was walking in the Morrisania section of the Bronx, she unwittingly was party to a dispute where 16-year-old Carvette Gentles <a href="https://web.archive.org/web/20130623022638/http://gothamist.com/2009/11/19/16-year-old_confesses_to_shooting_t.php">ultimately fired</a> at Tyrone Creighton.  Apparently a Rikers inmate <a href="https://web.archive.org/web/20130623022638/http://www.nypost.com/p/news/local/bronx/bloods_bath_indicted_qg4UYibYWLqZ607djXYTeK?CMP=OTC-rss&amp;FEEDNAME=">ordered the hit</a>: Creighton was hit in the shoulder while one of the other bullets hit Vasquez, who was placed in a medically induced coma. After surgeries, <a href="https://web.archive.org/web/20130623022638/http://gothamist.com/2009/12/23/teen_who_took_stray_bullet_to_the_h.php">she was home by Christmas</a> and doctors expect her to make a full recovery.</p>

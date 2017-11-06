@@ -1,0 +1,57 @@
+---
+author: Jen Chung
+date: Oct 23, 2016 10:30 am
+title: America's Dad Tom Hanks Hosts SNL For 9th Time, Plays Black Jeopardy
+---
+
+	
+					<div class="galleryEase" id="gallery-672836">
+<!-- gallery js -->
+	<script type="text/javascript" src="https://web.archive.org/web/20161026072453js_/http://assets.gothamistllc.com/v5/js/gallery5v8.js"></script>
+<!-- end gallery js -->
+
+<style type="text/css">
+#imgContainer {
+min-height: 300px;
+min-width: 300px;
+background: url('https://web.archive.org/web/20161026072453im_/http://assets.gothamistllc.com/v5/images/progress.gif') center center no-repeat;
+}
+</style>
+
+<!--start of gallery code-->
+<a name="gallery"></a>
+<div class="galleryEaseDisplayed">
+<div id="imgContainer">
+    <img id="galleryImg">
+</div>
+<div class="galleyEaseInfo"></div>
+<div class="galleryEaseNext"></div>
+<div class="galleryEasePrev"></div>
+</div>
+<div class="galleryEaseThumbs galleryV5">
+		<img src="https://web.archive.org/web/20161026072453im_/http://gothamist.com/assets_c/2016/10/2016_10_snlth_monoa-thumb-60x60-971046.jpg" title="" id="photo_1" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":1, "image": "https://web.archive.org/web/20161026072453/http://gothamist.com/upload/2016/10/2016_10_snlth_monoa.jpg", "caption": "", "credit":""};galleryObj['photo_1'] = photo;</script>
+		<img src="https://web.archive.org/web/20161026072453im_/http://gothamist.com/assets_c/2016/10/2016_10_snlth_cold-thumb-60x60-971056.jpg" title="" id="photo_2" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":2, "image": "https://web.archive.org/web/20161026072453/http://gothamist.com/upload/2016/10/2016_10_snlth_cold.jpg", "caption": "\<br\>\<br\>\"OSAMA BIN LADEN!\"\<br\>\<br\>\<div\>\<iframe width=\"640\" height=\"360\" src=\"https://www.youtube.com/embed/-kjyltrKZSY\" frameborder=\"0\" allowfullscreen\>\<\/iframe\>\<\/div\>", "credit":""};galleryObj['photo_2'] = photo;</script>
+		<img src="https://web.archive.org/web/20161026072453im_/http://gothamist.com/assets_c/2016/10/2016_10_snlth_mono1-thumb-60x60-971047.jpg" title="" id="photo_3" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":3, "image": "https://web.archive.org/web/20161026072453/http://gothamist.com/upload/2016/10/2016_10_snlth_mono1.jpg", "caption": "\<br\>\<br\>Dad time \<br\>\<br\>\<div\>\<iframe width=\"640\" height=\"360\" src=\"https://www.youtube.com/embed/vcwFeyrH2ww\" frameborder=\"0\" allowfullscreen\>\<\/iframe\>\<\/div\>", "credit":""};galleryObj['photo_3'] = photo;</script>
+		<img src="https://web.archive.org/web/20161026072453im_/http://gothamist.com/assets_c/2016/10/2016_10_snlth_blackjeopady-thumb-60x60-971048.jpg" title="" id="photo_4" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":4, "image": "https://web.archive.org/web/20161026072453/http://gothamist.com/upload/2016/10/2016_10_snlth_blackjeopady.jpg", "caption": "\<br\>\<Br\>\"The only game show where the audience is in church clothes!\"\<br\>\<br\>\<div\>\<iframe width=\"640\" height=\"360\" src=\"https://www.youtube.com/embed/O7VaXlMvAvk\" frameborder=\"0\" allowfullscreen\>\<\/iframe\>\<\/div\>", "credit":""};galleryObj['photo_4'] = photo;</script>
+		<img src="https://web.archive.org/web/20161026072453im_/http://gothamist.com/assets_c/2016/10/2016_10_snlth_house-thumb-60x60-971049.jpg" title="" id="photo_5" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":5, "image": "https://web.archive.org/web/20161026072453/http://gothamist.com/upload/2016/10/2016_10_snlth_house.jpg", "caption": "\<br\>\<br\>Halloween Block Party was not available from NBC, probably because of music rights issues:\<br\>\<br\>\<iframe width=\"640\" height=\"360\" src=\"https://www.youtube.com/embed/RVyt09bo6ic\" frameborder=\"0\" allowfullscreen\>\<\/iframe\>", "credit":""};galleryObj['photo_5'] = photo;</script>
+		<img src="https://web.archive.org/web/20161026072453im_/http://gothamist.com/assets_c/2016/10/2016_10_snlth_dig-thumb-60x60-971050.jpg" title="" id="photo_6" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":6, "image": "https://web.archive.org/web/20161026072453/http://gothamist.com/upload/2016/10/2016_10_snlth_dig.jpg", "caption": "\<br\>\<br\>\<div itemprop=\"video\" itemscope itemtype=\"http://schema.org/VideoObject\"\>\<iframe src=\"http://player.theplatform.com/p/NnzsPC/widget/select/media/guid/2410887629/3333592\" width=\"640\" height=\"360\" frameBorder=\"0\" seamless=\"seamless\" allowFullScreen\>\<\/iframe\>\<\/div\>", "credit":""};galleryObj['photo_6'] = photo;</script>
+		<img src="https://web.archive.org/web/20161026072453im_/http://gothamist.com/assets_c/2016/10/2016_10_snlth_elevator-thumb-60x60-971051.jpg" title="" id="photo_7" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":7, "image": "https://web.archive.org/web/20161026072453/http://gothamist.com/upload/2016/10/2016_10_snlth_elevator.jpg", "caption": "\<br\>\<br\>\<div\>\<iframe width=\"640\" height=\"360\" src=\"https://www.youtube.com/embed/rS00xWnqwvI\" frameborder=\"0\" allowfullscreen\>\<\/iframe\>\<\/div\>", "credit":""};galleryObj['photo_7'] = photo;</script>
+<br>		<img src="https://web.archive.org/web/20161026072453im_/http://gothamist.com/assets_c/2016/10/2016_10_snlth_gaga-thumb-60x60-971052.jpg" title="" id="photo_8" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":8, "image": "https://web.archive.org/web/20161026072453/http://gothamist.com/upload/2016/10/2016_10_snlth_gaga.jpg", "caption": "\<br\>\<br\>Lady Gaga performed \"A-YO\" and \"A Million Reasons\"\<br\>\<br\>\<iframe id=\"NBC Video Widget\" width=\"580\" height=\"327\" src=\"http://player.theplatform.com/p/NnzsPC/widget/select/media/guid/2410887629/3333599?form=html\" frameBorder=\"0\"\>\<\/iframe\>\<br\>\<iframe id=\"NBC Video Widget\" width=\"580\" height=\"327\" src=\"http://player.theplatform.com/p/NnzsPC/widget/select/media/guid/2410887629/3333623?form=html\" frameBorder=\"0\"\>\<\/iframe\>", "credit":""};galleryObj['photo_8'] = photo;</script>
+		<img src="https://web.archive.org/web/20161026072453im_/http://gothamist.com/assets_c/2016/10/2016_10_snlth_weekend-thumb-60x60-971053.jpg" title="" id="photo_9" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":9, "image": "https://web.archive.org/web/20161026072453/http://gothamist.com/upload/2016/10/2016_10_snlth_weekend.jpg", "caption": "\<br\>\<br\>\<div itemprop=\"video\" itemscope itemtype=\"http://schema.org/VideoObject\"\>\<iframe src=\"http://player.theplatform.com/p/NnzsPC/widget/select/media/guid/2410887629/3333601\" width=\"640\" height=\"360\" frameBorder=\"0\" seamless=\"seamless\" allowFullScreen\>\<\/iframe\>\<\/div\>\<br\>\<div itemprop=\"video\" itemscope itemtype=\"http://schema.org/VideoObject\"\>\<iframe src=\"http://player.theplatform.com/p/NnzsPC/widget/select/media/guid/2410887629/3333601\" width=\"640\" height=\"360\" frameBorder=\"0\" seamless=\"seamless\" allowFullScreen\>\<\/iframe\>\<\/div\>\<br\>\<br\>Plus this was cut for time:\<br\>\<br\>\<iframe width=\"640\" height=\"360\" src=\"https://www.youtube.com/embed/MRRHjT8IxmY\" frameborder=\"0\" allowfullscreen\>\<\/iframe\>", "credit":""};galleryObj['photo_9'] = photo;</script>
+		<img src="https://web.archive.org/web/20161026072453im_/http://gothamist.com/assets_c/2016/10/2016_10_snlth_hallogirl-thumb-60x60-971055.jpg" title="" id="photo_10" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":10, "image": "https://web.archive.org/web/20161026072453/http://gothamist.com/upload/2016/10/2016_10_snlth_hallogirl.jpg", "caption": "\<br\>\<br\>This is true\<br\>\<br\>\<div\>\<iframe width=\"640\" height=\"360\" src=\"https://www.youtube.com/embed/TVueoznrt9Y\" frameborder=\"0\" allowfullscreen\>\<\/iframe\>\<\/div\>", "credit":""};galleryObj['photo_10'] = photo;</script>
+		<img src="https://web.archive.org/web/20161026072453im_/http://gothamist.com/assets_c/2016/10/2016_10_snlth_cockpit-thumb-60x60-971054.jpg" title="" id="photo_11" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":11, "image": "https://web.archive.org/web/20161026072453/http://gothamist.com/upload/2016/10/2016_10_snlth_cockpit.jpg", "caption": "\<br\>\<br\>Look who it is!\<br\>\<br\>\<div\>\<iframe width=\"640\" height=\"360\" src=\"https://www.youtube.com/embed/RVMAwGXe3BY\" frameborder=\"0\" allowfullscreen\>\<\/iframe\>\<\/div\>", "credit":""};galleryObj['photo_11'] = photo;</script>
+		<img src="https://web.archive.org/web/20161026072453im_/http://gothamist.com/assets_c/2016/10/2016_10_snlth_talkshow-thumb-60x60-971045.jpg" title="" id="photo_12" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":12, "image": "https://web.archive.org/web/20161026072453/http://gothamist.com/upload/2016/10/2016_10_snlth_talkshow.jpg", "caption": "\<br\>\<br\>\<div itemprop=\"video\" itemscope itemtype=\"http://schema.org/VideoObject\"\>\<iframe src=\"http://player.theplatform.com/p/NnzsPC/widget/select/media/guid/2410887629/3333625\" width=\"640\" height=\"360\" frameBorder=\"0\" seamless=\"seamless\" allowFullScreen\>\<\/iframe\>\<\/div\>", "credit":""};galleryObj['photo_12'] = photo;</script>
+		<img src="https://web.archive.org/web/20161026072453im_/http://gothamist.com/assets_c/2016/10/2016_10_snlth_bye-thumb-60x60-971044.jpg" title="" id="photo_13" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":13, "image": "https://web.archive.org/web/20161026072453/http://gothamist.com/upload/2016/10/2016_10_snlth_bye.jpg", "caption": "", "credit":""};galleryObj['photo_13'] = photo;</script>
+									
+</div></div>					<p>Tom &quot;Hanx&quot; Hanks hosted <em>Saturday Night Live</em> for a NINTH TIME this weekend, starting off with a monologue only America&apos;s Dad could deliver, reassuring our wounded nation.</p>
+
+<p>Excellent sketches included <a href="https://web.archive.org/web/20161026072453/http://gothamist.com/2016/10/23/snl_cold_open_debate_tom_hanks.php">the third debate  cold open</a>, &quot;Black Jeopardy,&quot; and a variation of <a href="https://web.archive.org/web/20161026072453/http://gothamist.com/2016/02/10/video_larry_david_cant_keep_it_toge.php">Larry David&apos;s Kevin Roberts</a> in the &quot;Haunted Elevator&quot; sketch. The digital short about a girls&apos; night Halloween was also spot-on. </p>
+
+<p>The real highlight, however, was when Leslie Jones addressed WikiLeaks&apos; leaked emails on Weekend Update:</p>
+
+<p><iframe width="640" height="360" src="https://web.archive.org/web/20161026072453if_/https://www.youtube.com/embed/qxGbNCLelt0" frameborder="0" allowfullscreen></iframe></p>
+
+<p>Click through to see sketches from last night, plus Lady Gaga&apos;s performances. Next week SNL is off, but then they&apos;ll be back with Benedict Cumberbatch and Solange!</p>					
+										
+									
+				

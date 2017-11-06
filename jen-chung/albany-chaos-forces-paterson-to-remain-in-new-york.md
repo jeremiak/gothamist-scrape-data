@@ -1,0 +1,17 @@
+---
+author: Jen Chung
+date: Jun 9, 2009 4:20 pm
+title: Albany Chaos Forces Paterson To Remain In New York
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="2009_06_senlead.jpg" src="https://web.archive.org/web/20150505121948im_/http://gothamist.com/attachments/jen/2009_06_senlead.jpg" width="640" height="503"> <br> <i>Behold your new State Senate leadership&#x2014;temporary president Pedro Espada Jr. and majority leader Dean Skelos. Photograph by Tim Roske/AP</i></div> <p></p>
+
+<p>With the new GOP regime in control of the State Senate, there&apos;s also a new person who is next in line after Governor David Paterson.  That would be Senate president pro tempore Pedro Espada Jr. (D-Bronx).  And since any trips that Paterson would make out of the state&#x2014;even to NJ&#x2014;would put Espada in power, Paterson is staying put.  The governor <a href="https://web.archive.org/web/20150505121948/http://www.nypost.com/seven/06092009/news/regionalnews/paterson__plans_to_stay_in_ny_while_sena_173373.htm">told reporters today</a>, &quot;<strong>I would not plan on the leaving the state right now. Right now, if there&apos;s any type of misunderstanding or who is next in charge, I would think the best thing for me to do is to stay here.</strong>&quot;</p>
+
+<p>When asked whether minority leader Malcom Smith should remain in control as the majority leader, a position that has now shifted to Republican Dean Skelos, <a href="https://web.archive.org/web/20150505121948/http://www.politickerny.com/3933/paterson-wont-leave-state-isnt-fighting-smith">PolitickerNY reports that Paterson said</a>, &quot;Senator Smith was elected by his colleagues for a two-year term. I think, right now, was not a time to interfere with that leadership. I don&apos;t know why, if there were problems, they weren&apos;t discussed. Maybe they were. I just don&apos;t think this was the time to resolve that issue. If the Senate has an issue about who its leader should be, I don&apos;t object to that. I object to it happening now when the people need us to be doing their business right here in Albany.&quot;</p>
+
+<p>Right now, Espada and Skelos are trying to rid the Senate chamber of Senate Secretary Angelo Aponte (the Daily Politics has <a href="https://web.archive.org/web/20150505121948/http://www.nydailynews.com/blogs/dailypolitics/2009/06/the-aponte-question.html">details on why they hate him</a>, but in a nutshell, Aponte was/is Smith&apos;s &quot;enforcer&quot;). You see, Aponte, <a href="https://web.archive.org/web/20150505121948/http://blogs.timesunion.com/capitol/archives/15293/skelos-espada-and-the-morning-after-mondays-coup-first-order-of-business-is-firing-aponte">according to Capitol Confidential</a>, &quot;literally, holds the keys to the Senate chamber,&quot; which prompted Espada to say the Senate<a href="https://web.archive.org/web/20150505121948/http://blogs.timesunion.com/capitol/archives/15305/espada-well-have-a-senate-session-outside-if-we-have-to-that-is-if-they-dont-unlock-the-doors-tommorrow"> will meet outside of the chamber</a> if Aponte doesn&apos;t give up the keys. To add to the mess, Capitol Confidential adds, &quot;My co-worker Jim Odato just spoke with some senators and learned that Aponte was given a two-year appointment during the session, which could be hard to undo.&quot;</p>					
+										
+									
+				

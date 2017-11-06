@@ -1,0 +1,17 @@
+---
+author: Ben Yakas
+date: Sep 30, 2011 12:16 pm
+title: Bloomberg Implies Occupy Wall Street Protest's Days Are Numbered
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="93011occupy.jpg" src="https://web.archive.org/web/20160413094243im_/http://gothamist.com/attachments/byakas/93011occupy.jpg" width="640" height="480"> <br> <i>Protesters in Zuccotti Park (<a href="https://web.archive.org/web/20160413094243/http://www.flickr.com/photos/62159569@N08/6194105054/in/photostream/">scoboco&apos;s flickr</a>)</i></div> <p></p>
+
+<p>Mayor Bloomberg made some ominous comments today about the ongoing <a href="https://web.archive.org/web/20160413094243/http://gothamist.com/tags/occupywallstreet">Occupy Wall Street protests</a> that have been going on for nearly two weeks in Zuccotti Park. When he was asked on his weekly radio show whether he&apos;ll let the anti-corporate protesters stay as long as they want, <a href="https://web.archive.org/web/20160413094243/http://www.nydailynews.com/ny_local/2011/09/30/2011-09-30_mayor_bloomberg_to_wall_street_protesters_well_see_if_you_can_stay_as_long_as_yo.html">he responded cryptically</a>: &quot;We&apos;ll see. People have a right to protest, but we also have to make sure that people who don&apos;t want to protest can go down the streets unmolested.&quot;</p>
+
+<p>&quot;We have to make sure that while you have the right to say what you want to say, people who want to say something very different have a right to say that as well,&quot; the mayor told WOR radio host John Gambling. Zuccotti Park <a href="https://web.archive.org/web/20160413094243/http://cityroom.blogs.nytimes.com/2011/09/27/park-gives-wall-st-protesters-a-place-to-call-home/">is privately owned</a>, but Bloomberg said the park <a href="https://web.archive.org/web/20160413094243/http://www.nydailynews.com/blogs/dailypolitics/2011/09/protesters-may-not-be-able-to-park-it-forever-mayor-bloomberg-says">must remain open</a> to the public because of an agreement the owners struck with the city years ago to win zoning code changes. And there&apos;s also sanitation to worry about: &quot;The right to protest is part of our culture. It&apos;s also true that there are other societal concerns. You&apos;re worried about sanitation and you&apos;re worried about lots of different laws on the books.&quot;</p>
+
+<p>In general, Bloomberg has <a href="https://web.archive.org/web/20160413094243/http://www.npr.org/2011/09/27/140854961/wall-street-protest-continues-this-week">not had much sympathy</a> for the protesters since they took over the square, despite the fact <a href="https://web.archive.org/web/20160413094243/http://gothamist.com/2011/09/16/bloomberg_foresees_riots_if_jobs_do.php">he predicted</a> something like this would happen. The billionaire criticized them today for a lack of nuance in their arguments, and accused them of targeting the wrong people: &quot;The protesters are protesting against people who make $40,000, $50,000 year and are struggling to make ends meet.&quot; He also added, &quot;Those are the people that work on Wall Street in the finance sector...If the banks don&apos;t go out and make loans, we will not come out of our economic problems. We will not have jobs.&quot;</p>					
+										
+									
+				

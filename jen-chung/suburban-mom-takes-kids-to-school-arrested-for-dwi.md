@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: May  1, 2009  8:08 AM
+title: Suburban Mom Takes Kids To School, Arrested For DWI
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2009_04_dwi.jpg" src="https://web.archive.org/web/20111125162244im_/http://gothamist.com/attachments/jen/2009_04_dwi.jpg" width="130" height="116" class="image-right"> </span>A woman is <a href="https://web.archive.org/web/20111125162244/http://www.1010wins.com/Mom-Charged-with-DWI--Was-Driving-Kids-to-School/4311600">suspected of being drunk</a> as she was taking her children to school.  The AP reports that this arrest, in Putnam County&apos;s Mahopac is &quot;one of several recent arrests involving mothers in the northern New York City suburbs.&quot; The AP&apos;s hall of fame includes the incident about a woman who left her &quot;1-year-old asleep in a locked, running car&quot; while she was shopping in Yorktown&quot; and <a href="https://web.archive.org/web/20111125162244/http://gothamist.com/2009/04/22/mad_mom_arrested_after_dumping_daug.php">Madlyn Primoff</a>, the lawyer who dumped her kids on a White Plains road because they were arguing.  We&apos;d also like to add the arrest of Nicole Marty, who crashed her car with her daughter aboard&#x2014;she was suspected of being under the influence of drugs AND <a href="https://web.archive.org/web/20111125162244/http://gothamist.com/2009/04/22/mugshot_or_shot_at_police.php">flipped off the cops in her mugshot</a>.  People, it&apos;s tough out there to be a mom!</p>

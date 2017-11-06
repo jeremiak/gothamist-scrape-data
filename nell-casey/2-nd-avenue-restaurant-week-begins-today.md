@@ -1,0 +1,12 @@
+---
+author: Nell Casey
+date: June  4, 2012  4:00 PM
+title: 2nd Avenue Restaurant Week Begins Today!
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="0601122ndaverest.jpg" src="https://web.archive.org/web/20120615133330im_/http://gothamist.com/attachments/nyc_nellcasey/0601122ndaverest.jpg" width="640" height="425"> <br> <i> There are great restaurants here if you know where to look! (<a href="https://web.archive.org/web/20120615133330/http://www.flickr.com/photos/marklyon/6085559449/">marklyon</a>/flickr)</i></div> <p></p>
+
+<p>Restaurants struggling from 2nd Avenue subway construction agony are getting a break this week with the first ever &quot;2nd Avenue Restaurant Week,&quot; which encourages diners to stop in despite the constant construction cacophony. Establishments along the avenue between 68th and 96th streets are offering either a $20.16 prix fixe dinner&#x2014;a nod to the subway&apos;s expected completion year&#x2014;or a 20% discount off menu items to diners starting today and going through Friday. Ideally, participating eateries are hoping to lure back in customers who have been shying away from the area since construction began in 2007.</p>
+
+<p>Grab some thin crust pizza from <a href="https://web.archive.org/web/20120615133330/http://www.nicksnyc.com/mainmenu.html">Nick&apos;s Restaurant Pizzeria</a>, fill up on German fare from <a href="https://web.archive.org/web/20120615133330/http://www.heidelbergrestaurant.com/">Heidelberg Restaurant</a> or down a few tacos from <a href="https://web.archive.org/web/20120615133330/http://www.nyctacos.com/">Cascabel Taqueria</a>, all of whom are offering the prix fixe option. Or perhaps you&apos;d prefer to snack on fiery fowl from <a href="https://web.archive.org/web/20120615133330/http://www.atomicwings.com/site/">Atomic Wings</a> or dine on discounted pub grub from <a href="https://web.archive.org/web/20120615133330/http://www.mollypitchersnyc.com/">Molly Pitcher&apos;s Ale House</a> with that handy 20% off deal. Regardless of your tastes, the <a href="https://web.archive.org/web/20120615133330/http://www.2ndavenueshopper.com/2nd-avenue-restaurant-week/2nd-avenue-restaurant-week-2">list of participating restaurants</a> is diverse enough to suit any diner, especially given the price point. <br>
+</p>

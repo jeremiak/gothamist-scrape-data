@@ -1,0 +1,13 @@
+---
+author: Jen Carlson
+date: June 18, 2009  5:17 PM
+title: Is the High Line Cursed?
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:350px; "> <img alt="westsidecowboy0609.jpg" src="https://web.archive.org/web/20130513053056im_/http://gothamist.com/attachments/arts_jen/westsidecowboy0609.jpg" width="350" height="269"> <br> <i><span class="photo_caption">Photo via <a href="https://web.archive.org/web/20130513053056/http://www.flickr.com/photos/friendsofthehighline/3251447516/in/set-72157613290024025/">Friends of the High Line</a></span></i></div> Spooky! <a href="https://web.archive.org/web/20130513053056/http://trainjotting.com/2009/06/11/high-line-curse-plays-out/">Trainjotting</a> holds a flashlight to its face around a campfire to tell the old tale of Ezekiel Marcus, who died on the West Side tracks in 1934. The site reports that Marcus was a Manhattan native, born in 1899, and worked as a <a href="https://web.archive.org/web/20130513053056/http://www.shorpy.com/node/1787">West Side Cowboy</a>, riding horseback &quot;up and down the 20-odd blocks of 10th Avenue to warn pedestrians that the train was coming.&quot;<p></p>
+
+<p>In December 1934, the urban cowboy died after falling off the side of the High Line between Gansevoort and Horatio, on what&#x2019;s now known as Washington Street. Several hundreds came out to raise a glass to Marcus, and since that day he&apos;s returned to haunt those involved with developing the High Line. Or this is all a lie, who knows!</p>
+
+<p><em>Allegedly</em> Friend of the High Line&apos;s Joshua David claims many years ago a man with &quot;a long brown beard and wild brown eyes&quot; told him &quot;in a gravelly voice to &#x2018;leave well enough alone.&#x2019; Eighteen months later, it was Hammond&#x2019;s turn to get a visit from Zeke Marcus. Hammond, a painter, said he was on the phone with the actor Edward Norton, an early champion on the High Line, in his apartment when the ghost of Marcus slipped through a heating duct in his kitchen.&quot; Apparently Marcus told him he would &quot;make it rain every day if the place of his death was trampled upon by the masses.&quot; And guess what? It&apos;s been raining <em>a lot</em> <a href="https://web.archive.org/web/20130513053056/http://gothamist.com/2009/06/08/ribbon_officially_cut_at_the_high_l.php">since Mayor Bloomberg cut that ribbon</a>.</p>
+
+<p>We put a call in to David and Hammond to verify this ghost story, but their phones were busy. Could they have been on the receiving end of more threatening transmissions from Zeke?!</p>

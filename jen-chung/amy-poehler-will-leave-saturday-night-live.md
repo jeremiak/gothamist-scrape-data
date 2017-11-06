@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: July 18, 2008  1:54 PM
+title: Amy Poehler Will Leave Saturday Night Live
+---
+
+<p><img alt="2008_07_amypo.jpg" src="https://web.archive.org/web/20110516025717im_/http://gothamist.com/attachments/jen/2008_07_amypo.jpg" width="106" height="113" class="right">Amy Poehler will be winding down her stint on Saturday Night Live, as she&apos;s been <a href="https://web.archive.org/web/20110516025717/http://www.variety.com/VR1117989011.html">cast in the new Office-spinoff- not-spinoff</a> (it&apos;s been variously described as a spinoff of the Office or another show from the same creative team, Variety now confirms it&apos;s not an extension of the show).  <a href="https://web.archive.org/web/20110516025717/http://seattletimes.nwsource.com/html/entertainment/2008056835_aptvofficespinoff.html">Poehler said</a>, <strong>&quot;I can kind of confirm that I will be working in some capacity on that show</strong>.  I don&apos;t really have any other details yet.&quot;  <a href="https://web.archive.org/web/20110516025717/http://www.nytimes.com/2008/07/17/arts/television/17poeh.html">According to the NY Times</a>, Poehler, who does a mean Hillary Clinton impersonation on SNL, &quot;will continue to perform on SNL through November or at least until her baby is born.&quot; It&apos;s been a big week for Poehler--she also received an Emmy nomination for best supporting comedy actress for her SNL work.  </p>

@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: September 18, 2008  7:47 AM
+title: Woman Sexually Assaulted in Bay Ridge
+---
+
+<p><img alt="2008_09_byrs.jpg" src="https://web.archive.org/web/20111117101843im_/http://gothamist.com/attachments/jen/2008_09_byrs.jpg" width="115" height="132" class="right">Police are looking for a rape suspect who <a href="https://web.archive.org/web/20111117101843/http://abclocal.go.com/wabc/story?section=news/local&amp;id=6397194">attacked a woman in Brooklyn</a> yesterday morning.  According to WABC 7, the victim, 29, was on her way to work when she &quot;was surprised by a man near her apartment building along Fort Hamilton Parkway around 8:40 a.m. He struck the victim over the head with a screwdriver and raped her in an alley.&quot;  A neighbor <a href="https://web.archive.org/web/20111117101843/http://wcbstv.com/topstories/bay.ridge.rape.2.819958.html">told WCBS 2</a>, &quot;Basically this morning when I left, the victim, she was on the first floor, and she was really hysterical, and explained that someone attacked her in the basement...<strong> A lot of people think Bay Ridge is safe, but you&apos;re not safe anywhere you go.</strong>&quot;   A sketch was released of the suspect, who is described as a white man in his 30s or 40s, between 5&apos;8&quot; and 6&apos;, 180 pounds, with brown hair and brown eyes.  </p>

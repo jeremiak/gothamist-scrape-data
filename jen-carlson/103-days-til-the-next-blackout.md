@@ -1,0 +1,11 @@
+---
+author: Jen Carlson
+date: March 10, 2008  1:30 PM
+title: 103 Days til the Next Blackout?
+---
+
+<p><img alt="200803blackout.jpg" src="https://web.archive.org/web/20110611055240im_/http://gothamist.com/attachments/arts_jen/200803blackout.jpg" width="350" height="227" class="right">Rufus Wainwright is calling for a self-imposed blackout. The musician proposes that we all set our sundials to noon on June 21st to signal a group shut down of all electric lights, appliances and anything else that plugs in...for 12 hours. His hope is to call attention to global warming and energy conservation. </p>
+
+<p>In order to promote the day, called <a href="https://web.archive.org/web/20110611055240/http://www.blackoutsabbath.org/">Blackout Sabbath</a>, he&apos;ll be holding an intimate, acoustic, candlelit concert at the Angel Orensanz Foundation. Sadly, this March 19th performance is already sold out, but perhaps his pitch for the summer solstice blackout will be inspiration enough:</p><blockquote>&quot;I loved <a href="https://web.archive.org/web/20110611055240/http://gothamist.com/2003/08/15/the_new_york_city_blackout_edition.php">the New York power outage</a>! I found it incredibly invigorating, spiritual and practical at the same time: we all had to pay attention to each other! Not to mention that Manhattan in total darkness was oddly enough a beautiful sight to behold.&quot;</blockquote>Before the June event, <a href="https://web.archive.org/web/20110611055240/http://www.earthhour.org/">Earth Hour</a> will be coming up at the end of this month. While many <a href="https://web.archive.org/web/20110611055240/http://www.earthhour.org/take-action/business-supporters/united-states">NYC businesses</a> are supporting the event, the city isn&apos;t an official participant. The World Wildlife Fund told us &quot;to physically turn off the lights on some of these iconic buildings and landmarks is logistical challenge and not every city was able to make that sort of commitment this year. It&apos;s taking us teams of people in each city to coordinate. Hopefully next year NYC is officially on board.&quot; <p></p>
+
+<p>If you want to participate on your own level, Earth Hour just asks that you turn off your lights at 8 p.m. on March 29th. Looks like blackouts are the new black in &apos;08.</p>

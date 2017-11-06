@@ -1,0 +1,21 @@
+---
+author: Nell Casey
+date: May 27, 2016 10:45 am
+title: A Fried Avocado-Topped Lobster Roll Is What A Holiday Weekend Deserves
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="052716bottlebine.jpg" src="https://web.archive.org/web/20161006132504im_/http://gothamist.com/attachments/nyc_nellcasey/052716bottlebine.jpg" width="640" height="427"> <br> <i> (Bottle &amp; Bine)</i></div> <p></p>
+
+<p>Kick off the unofficial start of summer at <a href="https://web.archive.org/web/20161006132504/http://bottleandbine.com/">Bottle &amp; Bine</a>, where they&apos;re offering a <strong>special Lobster Roll</strong> ($23) with spicy aioli, watercress and <em>fried avocado</em>. We ordinarily don&apos;t endorse <a href="https://web.archive.org/web/20161006132504/http://gothamist.com/2014/05/30/restaurant_offers_160_gold_dusted_l.php">breaking with tradition</a>, but the creamy avocado and crunchy fried coating <a href="https://web.archive.org/web/20161006132504/https://www.instagram.com/p/BFrfoq7koFd/?taken-by=nellcasey">complement the crustacean beautifully</a> and the pile of accompanying fries is crunchy and decadent. Order the Pastry Basket ($18) with homemade Twinkies and moist cornbread and a bottle of the Bodegas Fontana Mesta Tempranillo Ucl&#xE9;s rose to complete the indulgent meal.</p>
+
+<p><a href="https://web.archive.org/web/20161006132504/http://www.dbgb.com/nyc">DBGB Kitchen &amp; Bar</a> has been taking over the kitchen at Threes Brewing of late but their stay ends after this weekend. Swing by through Monday for their <a href="https://web.archive.org/web/20161006132504/http://www.threesbrewing.com/food">special menu</a> of Mediterranean fare like Crispy Flatbread with black olive, spinach, feta and cherry tomato ($15) and Tunisienne Dog ($14) made with lamb merguez sausage, mint yogurt and red onion. After DBGB vacates, the space&apos;ll be taken over by Tortilleria Nixtamal for an extended summer residency from May 31st through July 10th.</p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="061815huertas1.jpg" src="https://web.archive.org/web/20161006132504im_/http://gothamist.com/attachments/nyc_nellcasey/061815huertas1.jpg" width="640" height="427"> <br> <i> (Sydney Kramer)</i></div> <p></p>
+
+<p>Holiday weekends aren&apos;t complete without hot dogs and there are two ways to get down with them this weekend&#x2014;and beyond. East Village tapas hotspot <a href="https://web.archive.org/web/20161006132504/http://huertasnyc.com/">Huertas</a> <a href="https://web.archive.org/web/20161006132504/http://gothamist.com/2015/06/18/snag_horchata_slushies_spanish_hot.php">reopens their <strong>hot dog window</strong></a> this weekend, serving &#x201C;Basque Dogs&#x201D; (house made chistorra sausage topped with aioli and house made piquillo mostardo on a Martin&#x2019;s potato roll), Churro Ice Cream Sundaes and house sodas turned into slushies. The window&apos;s open Saturdays and Sundays through Labor Day from noon to 3 p.m. </p>
+
+<p>On Sunday, it&apos;s the <strong><a href="https://web.archive.org/web/20161006132504/http://www.eventbrite.com/e/craft-beer-and-hot-dog-showdown-copenhagen-street-dog-tickets-23640458247">Craft Beer and Hot Dog Showdown</a></strong> in Stuyvesant Cove Park from noon to 2 p.m. <a href="https://web.archive.org/web/20161006132504/http://copenhagenstreetdog.com/">Copenhagen Street Dog</a> hosts a competition between three individuals, making dogs like the &#x201C;She&#x2019;s Gone Nuts&#x201D; with honey sriracha mayo, pickled cabbage, crushed peanuts, and cilantro. Tickets are <a href="https://web.archive.org/web/20161006132504/http://www.eventbrite.com/e/craft-beer-and-hot-dog-showdown-copenhagen-street-dog-tickets-23640458247">$40</a> and include as many dogs as you&apos;d like, two craft beers or ciders, and entry into an afterparty with food trucks and street food.</p>					
+										
+									
+				

@@ -1,0 +1,11 @@
+---
+author: Jen Chung
+date: May 10, 2009 11:45 am
+title: Midtown Crane Collapse Victim Can't Quite Rebuild Home
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2009_05_cranecol.jpg" src="https://web.archive.org/web/20150426150742im_/http://gothamist.com/attachments/jen/2009_05_cranecol.jpg" width="130" height="143" class="image-right"> </span>In March 2008, a <a href="https://web.archive.org/web/20150426150742/http://gothamist.com/2008/03/15/midtown_crane_c.php">a construction site&apos;s crane toppled</a> from East 51st Street into neighboring buildings, killing seven people and causing much damage. A four-story townhouse was leveled by the crane, and owner Jean Squeri has been trying to rebuild it, but now she&apos;s been told it can only be three stories.  <a href="https://web.archive.org/web/20150426150742/http://www.nypost.com/seven/05102009/news/regionalnews/crane_fall_victim_in_a_rebuild_war_168505.htm">According to the NY Post</a>, back in 2005, Squeri, whose family bought the building in the 1930s, sold the air rights above the brownstone for $2.25 million: &quot;<strong>When Squeri informed MUS 1 in September that she planned to rebuild her 4,822-square-foot building, the developer insisted Squeri was limited to building only 3,606 square feet, a full story shorter.</strong>&quot; Squeri says the documents she signed had incorrect figures for the height of the building and now the 75-year-old has filed court papers asking for permission to build a four-story home.  Her lawyer told the Post, &quot;[The developer is] trying to take horrible advantage of someone who&apos;s been traumatized.&quot;  Squeri and her husband had lived on the top floor&#x2014;the day of the crane collapse, her <a href="https://web.archive.org/web/20150426150742/http://www.1010wins.com/pages/1833102.php">husband was out and she was running an errand</a>, headed to the drugstore when she turned around and saw the crane decimate the building (neighbors <a href="https://web.archive.org/web/20150426150742/http://gothamist.com/2008/04/05/pair_of_crane_c.php">amazingly found their cats,</a> too!).</p>					
+										
+									
+				

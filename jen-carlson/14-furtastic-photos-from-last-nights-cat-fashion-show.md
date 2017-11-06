@@ -1,0 +1,56 @@
+---
+author: Jen Carlson
+date: Aug 9, 2012 1:37 pm
+title: 14 Furtastic Photos From Last Night's Cat Fashion Show
+---
+
+	
+					<div class="galleryEase" id="gallery-530929">
+<!-- gallery js -->
+<script type="text/javascript" src="https://web.archive.org/web/20150810001129js_/http://assets.gothamistllc.com/v5/js/gallery.js"></script>
+<!-- end gallery js -->
+
+<style type="text/css">
+#imgContainer {
+min-height: 300px;
+min-width: 300px;
+background: url('https://web.archive.org/web/20150810001129im_/http://assets.gothamistllc.com/v5/images/progress.gif') center center no-repeat;
+}
+</style>
+
+<!--start of gallery code-->
+<a name="gallery"></a>
+<div class="galleryEaseDisplayed">
+<div id="imgContainer">
+    <img id="galleryImg">
+</div>
+<div class="galleyEaseInfo"></div>
+<div class="galleryEaseNext"></div>
+<div class="galleryEasePrev"></div>
+</div>
+<div class="galleryEaseThumbs">
+		<img src="https://web.archive.org/web/20150810001129im_/http://gothamist.com/assets_c/2012/08/7catfashionz0812-thumb-60x60-733317.jpg" title="" id="photo_1" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":1, "image": "https://web.archive.org/web/20150810001129/http://gothamist.com/upload/2012/08/7catfashionz0812.jpg", "caption": "\<span class=\"photo_caption\"\>Photo by \<a href=\"http://colormekatie.blogspot.com\"\>Katie Sokoler\<\/a\>/Gothamist\<\/span\>", "credit":""};galleryObj['photo_1'] = photo;</script>
+		<img src="https://web.archive.org/web/20150810001129im_/http://gothamist.com/assets_c/2012/08/catz0712-thumb-60x60-733331.jpg" title="" id="photo_2" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":2, "image": "https://web.archive.org/web/20150810001129/http://gothamist.com/attachments/arts_jen/catz0712.jpg", "caption": "\<span class=\"photo_caption\"\>Here\'s the full look! (Photo by \<a href=\"http://colormekatie.blogspot.com\"\>Katie Sokoler\<\/a\>/Gothamist)\<\/span\>", "credit":""};galleryObj['photo_2'] = photo;</script>
+		<img src="https://web.archive.org/web/20150810001129im_/http://gothamist.com/assets_c/2012/08/9catfashionz0812-thumb-60x60-733315.jpg" title="" id="photo_3" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":3, "image": "https://web.archive.org/web/20150810001129/http://gothamist.com/upload/2012/08/9catfashionz0812.jpg", "caption": "\<span class=\"photo_caption\"\>Photo by \<a href=\"http://colormekatie.blogspot.com\"\>Katie Sokoler\<\/a\>/Gothamist\<\/span\>", "credit":""};galleryObj['photo_3'] = photo;</script>
+		<img src="https://web.archive.org/web/20150810001129im_/http://gothamist.com/assets_c/2012/08/8catfashionz0812-thumb-60x60-733316.jpg" title="" id="photo_4" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":4, "image": "https://web.archive.org/web/20150810001129/http://gothamist.com/upload/2012/08/8catfashionz0812.jpg", "caption": "\<span class=\"photo_caption\"\>Photo by \<a href=\"http://colormekatie.blogspot.com\"\>Katie Sokoler\<\/a\>/Gothamist\<\/span\>", "credit":""};galleryObj['photo_4'] = photo;</script>
+		<img src="https://web.archive.org/web/20150810001129im_/http://gothamist.com/assets_c/2012/08/6catfashionz0812-thumb-60x60-733318.jpg" title="" id="photo_5" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":5, "image": "https://web.archive.org/web/20150810001129/http://gothamist.com/upload/2012/08/6catfashionz0812.jpg", "caption": "\<span class=\"photo_caption\"\>Photo by \<a href=\"http://colormekatie.blogspot.com\"\>Katie Sokoler\<\/a\>/Gothamist\<\/span\>", "credit":""};galleryObj['photo_5'] = photo;</script>
+		<img src="https://web.archive.org/web/20150810001129im_/http://gothamist.com/assets_c/2012/08/5catfashionz0812-thumb-60x60-733319.jpg" title="" id="photo_6" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":6, "image": "https://web.archive.org/web/20150810001129/http://gothamist.com/upload/2012/08/5catfashionz0812.jpg", "caption": "\<span class=\"photo_caption\"\>Photo by \<a href=\"http://colormekatie.blogspot.com\"\>Katie Sokoler\<\/a\>/Gothamist\<\/span\>", "credit":""};galleryObj['photo_6'] = photo;</script>
+		<img src="https://web.archive.org/web/20150810001129im_/http://gothamist.com/assets_c/2012/08/3catfashionz0812-thumb-60x60-733321.jpg" title="" id="photo_7" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":7, "image": "https://web.archive.org/web/20150810001129/http://gothamist.com/upload/2012/08/3catfashionz0812.jpg", "caption": "\<span class=\"photo_caption\"\>Photo by \<a href=\"http://colormekatie.blogspot.com\"\>Katie Sokoler\<\/a\>/Gothamist\<\/span\>", "credit":""};galleryObj['photo_7'] = photo;</script>
+<br>		<img src="https://web.archive.org/web/20150810001129im_/http://gothamist.com/assets_c/2012/08/2catfashionz0812-thumb-60x60-733322.jpg" title="" id="photo_8" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":8, "image": "https://web.archive.org/web/20150810001129/http://gothamist.com/upload/2012/08/2catfashionz0812.jpg", "caption": "\<span class=\"photo_caption\"\>Photo by \<a href=\"http://colormekatie.blogspot.com\"\>Katie Sokoler\<\/a\>/Gothamist\<\/span\>", "credit":""};galleryObj['photo_8'] = photo;</script>
+		<img src="https://web.archive.org/web/20150810001129im_/http://gothamist.com/assets_c/2012/08/catfashionz0812-thumb-60x60-733323.jpg" title="nakedcats0712.jpeg" id="photo_9" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":9, "image": "https://web.archive.org/web/20150810001129/http://gothamist.com/upload/2012/08/catfashionz0812.jpg", "caption": "\<span class=\"photo_caption\"\>Photo by \<a href=\"http://colormekatie.blogspot.com\"\>Katie Sokoler\<\/a\>/Gothamist\<\/span\>", "credit":""};galleryObj['photo_9'] = photo;</script>
+		<img src="https://web.archive.org/web/20150810001129im_/http://gothamist.com/assets_c/2012/08/nakedcats0712-thumb-60x60-733330.jpeg" title="" id="photo_10" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":10, "image": "https://web.archive.org/web/20150810001129/http://gothamist.com/attachments/arts_jen/nakedcats0712.jpeg", "caption": "\<span class=\"photo_caption\"\>Some cats arrived naked. (Photo by \<a href=\"http://colormekatie.blogspot.com\"\>Katie Sokoler\<\/a\>/Gothamist)\<\/span\>", "credit":""};galleryObj['photo_10'] = photo;</script>
+		<img src="https://web.archive.org/web/20150810001129im_/http://gothamist.com/assets_c/2012/08/4catfashionz0812-thumb-60x60-733320.jpg" title="matilda0712.jpeg" id="photo_11" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":11, "image": "https://web.archive.org/web/20150810001129/http://gothamist.com/upload/2012/08/4catfashionz0812.jpg", "caption": "\<span class=\"photo_caption\"\>Photo by \<a href=\"http://colormekatie.blogspot.com\"\>Katie Sokoler\<\/a\>/Gothamist\<\/span\>", "credit":""};galleryObj['photo_11'] = photo;</script>
+		<img src="https://web.archive.org/web/20150810001129im_/http://gothamist.com/assets_c/2012/08/matilda0712-thumb-60x60-733328.jpeg" title="" id="photo_12" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":12, "image": "https://web.archive.org/web/20150810001129/http://gothamist.com/attachments/arts_jen/matilda0712.jpeg", "caption": "\<span class=\"photo_caption\"\>Matilda was kept in her house during the event. (Photo by \<a href=\"http://colormekatie.blogspot.com\"\>Katie Sokoler\<\/a\>/Gothamist)\<\/span\>", "credit":""};galleryObj['photo_12'] = photo;</script>
+		<img src="https://web.archive.org/web/20150810001129im_/http://gothamist.com/assets_c/2012/08/adoptioncat08-thumb-60x60-733324.jpg" title="" id="photo_13" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":13, "image": "https://web.archive.org/web/20150810001129/http://gothamist.com/upload/2012/08/adoptioncat08.jpg", "caption": "\<span class=\"photo_caption\"\>This tuckered out cat is up for adoption \<a href=\"http://www.bideawee.org/\"\>at Bideawee\<\/a\>! (Photo by \<a href=\"http://colormekatie.blogspot.com\"\>Katie Sokoler\<\/a\>/Gothamist)\<\/span\>", "credit":""};galleryObj['photo_13'] = photo;</script>
+		<img src="https://web.archive.org/web/20150810001129im_/http://gothamist.com/assets_c/2012/08/2adoptioncat08-thumb-60x60-733325.jpg" title="" id="photo_14" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":14, "image": "https://web.archive.org/web/20150810001129/http://gothamist.com/upload/2012/08/2adoptioncat08.jpg", "caption": "\<span class=\"photo_caption\"\>This little one is up for adoption \<a href=\"http://www.bideawee.org/\"\>at Bideawee\<\/a\>! (Photo by \<a href=\"http://colormekatie.blogspot.com\"\>Katie Sokoler\<\/a\>/Gothamist)\<\/span\>", "credit":""};galleryObj['photo_14'] = photo;</script>
+									
+</div></div>					<p>Last night Matilda the Algonquin Hotel cat celebrated the reopening of her home at <a href="https://web.archive.org/web/20150810001129/http://gothamist.com/tags/catfashionshow">her annual Cat Fashion Show</a>. This is <a href="https://web.archive.org/web/20150810001129/http://gothamist.com/2011/01/06/the_algonquin_gets_a_new_matilda.php">the latest Matilda</a>&apos;s second f&#xEA;te, and this year she partied in a hotel suite instead of with the usual runway show... but costume was required of all felines. Click through for the latest in cat style: from bunny suits to top hats.</p>
+
+<p>Sadly, the event has been on the decline after <a href="https://web.archive.org/web/20150810001129/http://gothamist.com/2010/08/12/cat_fashion_show.php#photo-1">it hit its peak in 2010</a>, but we&apos;re hoping for a comeback in 2013. Bring back the catwalk, Algonquin!</p>
+
+<p>If you&apos;re keeping track, this Matilda is the hotel&apos;s 10th cat&#x2014;the first was welcomed in from the streets in the 1930s, and in that spirit this annual event helps out other shelter cats. Last night there was an adoption center set up by <a href="https://web.archive.org/web/20150810001129/http://www.bideawee.org/">Bideawee</a>, and requested donations of $25 are going to <a href="https://web.archive.org/web/20150810001129/http://www.nysave.org/">NY Save</a>.</p>
+
+<p>Previously: <a href="https://web.archive.org/web/20150810001129/http://gothamist.com/2011/08/11/the_new_matilda_gets_her_first_cat.php#photo-1">2011&apos;s Cat Fashion Show</a>, <a href="https://web.archive.org/web/20150810001129/http://gothamist.com/2010/08/12/cat_fashion_show.php#photo-1">2010&apos;s Cat Fashion Show</a> (and <a href="https://web.archive.org/web/20150810001129/http://gothamist.com/2010/08/13/more_cat_fashion_show.php#photo-1">outtakes</a>).</p>					
+										
+									
+				

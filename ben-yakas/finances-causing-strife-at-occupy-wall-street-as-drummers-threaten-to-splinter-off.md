@@ -1,0 +1,25 @@
+---
+author: Ben Yakas
+date: Oct 23, 2011 11:50 am
+title: Finances Causing Strife At Occupy Wall Street As Drummers Threaten To Splinter Off
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="102311ows.jpg" src="https://web.archive.org/web/20141224094054im_/http://gothamist.com/attachments/byakas/102311ows.jpg" width="640" height="428"> <br> <i><a href="https://web.archive.org/web/20141224094054/http://www.flickr.com/photos/jimkiernan/6249067276/">jim kiernan&apos;s flickr</a></i></div> <p></p>
+
+<p><a href="https://web.archive.org/web/20141224094054/http://gothamist.com/tags/occupywallstreet">Occupy Wall Street</a>, which is now entering its fifth week at Zuccotti Park in lower Manhattan, may be facing a far greater problem than Mayor Bloomberg, pepper spray, or Champagne toasts: <a href="https://web.archive.org/web/20141224094054/http://www.nypost.com/p/news/local/manhattan/they_want_lice_of_the_occu_pie_9xKCxcI4aectFYkafMb8UJ?CMP=OTC-rss&amp;FEEDNAME=">internal haggling over money</a>. As more people flock to the park, and more money comes in via donations, the makeshift OWS financial hierarchy is struggling to accomodate everyone&apos;s needs. And it&apos;s gotten so bad that the <a href="https://web.archive.org/web/20141224094054/http://gothamist.com/2011/10/21/drummers_at_occupy_wall_street_dema.php">disgruntled drummers</a> have even allegedly threatened to splinter off!</p>
+
+<p>&#x201C;F--k Finance. I hope Mayor Bloomberg gets an injunction and demands to see the movement&#x2019;s books. We need to know how much money we really have and where it&#x2019;s going,&#x201D; Bryan Smith, 45, <a href="https://web.archive.org/web/20141224094054/http://www.nypost.com/p/news/local/manhattan/they_want_lice_of_the_occu_pie_9xKCxcI4aectFYkafMb8UJ?CMP=OTC-rss&amp;FEEDNAME=">told the Post</a>. Smith is a member of the Comfort Working Group, which is charged with finding out what basic necessities campers need and soliciting donations on the street. And he is incensed that OWS has embraced the most capitalist system of all: paperwork.</p>
+
+<p>&#x201C;The other day, I took in $2,000. I kept $650 for my group, and gave the rest to Finance. Then I went to them with a request&#x2014;so many people need things, and they should not be going without basic comfort items&#x2014;and I was told to fill out paperwork. Paperwork! Are they the government now?&#x201D; he railed against them. It&apos;s possible that, like the <a href="https://web.archive.org/web/20141224094054/http://gothamist.com/2011/10/21/is_occupy_wall_street_is_nycs_new_a.php">hippie banker wife</a> who <a href="https://web.archive.org/web/20141224094054/http://gothamist.com/2011/10/22/extra_extra_hipster_cop_gets_real_w.php">ran away from home</a> to join OWS, the Post has just stumbled upon one particularly disgruntled protester and decided to maximize his exposure.</p>
+
+<p>But Finance Committee member Pete Dutro, 36, a Brooklyn tattoo artist who is getting a master&#x2019;s in finance, acknowledges the realities of dealing with their budget, and noted that big purchases couldn&apos;t immediately be approved: &#x201C;We don&#x2019;t have the power for that. They have to go to the General Assembly. If it&#x2019;s approved, we pay out that amount and make sure everything is accounted for,&#x201D; he said. </p>
+
+<p>The drummers are upset that General Assembly <a href="https://web.archive.org/web/20141224094054/http://gothamist.com/2011/10/21/drummers_at_occupy_wall_street_dema.php">rejected their request</a> for $8,000 to replace drumming equipment which drums were stolen or vandalized earlier this week. &#x201C;They said no&#x2014;they turned us down. I&#x2019;m really frustrated,&#x201D; said Queens resident Elijah Moses, 19, a founder of the Pulse Working Group.</p>
+
+<p>And there may be more mouths to feed at Zuccotti Park too: more and more homeless people are camping out there, citing the free food and friendly vibes from the crowds. &quot;I am around a good cause and around positive people, rather than in that other environment,&quot;  Matthew Maloney, who was released from prison at the end of September, <a href="https://web.archive.org/web/20141224094054/http://www.nydailynews.com/ny_local/occupy_wall_street/2011/10/23/2011-10-23_where_vagrants_excons__takers_find_a_home.html"> told the News.</a> &quot;Everybody is being real with each other here,&quot; he said. &quot;This is like a &apos;Twilight Zone.&apos;&quot;</p>
+
+<p>Lauren Digioia, 26, a member of the sanitation committee, said that OWS welcomed the homeless or any other new members, as long as they made sure to pull their weight and help out with activities: &quot;If you&apos;re going to come here and get our food, bedding and clothing, have books and medical supplies for no charge, they need to give back,&quot; Digioia said. &quot;There&apos;s a lot of takers here and they feel entitled.&quot;</p>					
+										
+									
+				

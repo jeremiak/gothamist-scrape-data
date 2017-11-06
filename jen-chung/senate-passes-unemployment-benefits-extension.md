@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: November  5, 2009 11:16 AM
+title: Senate Passes Unemployment Benefits Extension
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2009_11_senbill.jpg" src="https://web.archive.org/web/20110623145324im_/http://gothamist.com/attachments/jen/2009_11_senbill.jpg" width="130" height="83" class="image-right"> </span>Yesterday, the Senate passed a bill <a href="https://web.archive.org/web/20110623145324/http://voices.washingtonpost.com/capitol-briefing/2009/11/senate_passes_bill_extending_h.html">extending unemployment benefits</a> 98-0. The House is expected to approve the bill and the President Obama is also expected to sign it.  NY State, which has <a href="https://web.archive.org/web/20110623145324/http://gothamist.com/2009/10/12/nyers_worry_about_unemployment_bene.php">already extended unemployment benefits</a> to 79 weeks for the longterm unemployed, would get another 20 weeks because its unemployment rate is higher than 8.5% (it was 8.9% in September; the NYC rate is 10.3%).  The <a href="https://web.archive.org/web/20110623145324/http://twitter.com/NYSLabor">NY State Labor Dept.&apos;s Twitter</a> has been keeping followers apprised of the bill&apos;s progress.  </p>

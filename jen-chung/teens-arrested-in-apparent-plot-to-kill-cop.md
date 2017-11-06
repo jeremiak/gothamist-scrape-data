@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: August 27, 2008  8:15 AM
+title: Teens Arrested in Apparent Plot to Kill Cop
+---
+
+<p><img alt="2008_08_bloods.jpg" src="https://web.archive.org/web/20130718222244im_/http://gothamist.com/attachments/jen/2008_08_bloods.jpg" width="130" height="107" class="right">The police have arrested two teens who are accused of <a href="https://web.archive.org/web/20130718222244/http://www.nydailynews.com/news/ny_crime/2008/08/26/2008-08-26_shooting_close_call_for_finest_nab_two_t.html">luring a cop &quot;into the line of fire&quot;</a> in Bed-Stuy on Sunday.  Cops say a 15-year-old &quot;<a href="https://web.archive.org/web/20130718222244/http://www.newsday.com/news/local/wire/newyork/ny-bc-ny--shootingarrest0826aug26,0,6737794.story">purposefully distracted a cop</a>&quot;: The teen first spoke to a uniformed patrol cop, headed into a Chinese restaurant and gave some food to a group across the street from the cop, and went back to talk to the cop.  Then an 18-year-old, Bloods gang member Keith Myers, allegedly fired at the cop from across the street.  Myers, who claimed he was firing at a different car with a Crips member pointing a gun at him, was charged with attempted murder and weapons possession. The other teen, <a href="https://web.archive.org/web/20130718222244/http://www.wnbc.com/news/17309061/detail.html?dl=headlineclick">also a member of the Bloods</a>, was charged with attempted murder, acting in concert and reckless endangerment.</p>

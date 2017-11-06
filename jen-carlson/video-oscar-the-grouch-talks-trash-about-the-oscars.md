@@ -1,0 +1,11 @@
+---
+author: Jen Carlson
+date: February 25, 2011 12:54 PM
+title: Video: Oscar The Grouch Talks Trash About The Oscars
+---
+
+<p>Oscar the Grouch has predicted the Oscar winners, all the way from his garbage can <a href="https://web.archive.org/web/20110514102614/http://gothamist.com/2008/12/12/visiting_sesame_street.php">on Sesame Street</a>. He also talks trash about Hollywood, adding fuel to the <a href="https://web.archive.org/web/20110514102614/http://gothamist.com/2011/02/03/blah_blah_nyc_vs_la_blah_blah_blah.php">NYC vs. LA</a> argument; before rattling off his picks, he boldly states: &quot;I was horrified to hear there was an award named after me, especially after I saw how disgustingly shiny the award is. But then I found out the Oscar was a Hollywood movie award, and I was thrilled... after all, Hollywood puts out some of the greatest trash I&apos;ve ever seen.&quot; <em>Burn</em>.</p>
+
+<center><object width="624" height="352" id="AOLVP_us_799556847001" classid="clsid:D27CDB6E-AE6D-11cf-96B8-444553540000"><param name="movie" value="http://o.aolcdn.com/videoplayer/AOL_PlayerLoader.swf"><param name="allowFullScreen" value="true"><param name="allowscriptaccess" value="always"><param name="flashvars" value="videoid=799556847001&amp;codever=1"><embed src="https://web.archive.org/web/20110514102614oe_/http://xml.truveo.com/eb/i/2939300102/a/00572b52370932013c511c0127726ebe/p/1/h/4d67de4a5797e08:d1c7317ae6ba08f72c143dec460030cc" type="application/x-shockwave-flash" allowscriptaccess="always" allowfullscreen="true" width="624" height="352" name="AOLVP_us_799556847001" flashvars="videoid=799556847001&amp;codever=1"></object></center>
+
+<p>He doesn&apos;t have anything to say about <a href="https://web.archive.org/web/20110514102614/http://gothamist.com/2011/02/24/oscar_hosts.php">our hosts</a>, but <em>does</em> pick James Franco for a win. Always knew we&apos;d get along with this guy. [via <a href="https://web.archive.org/web/20110514102614/http://video.aol.com/video/youve-got-oscar-the-grouch/2941910561">AOL</a>]</p>

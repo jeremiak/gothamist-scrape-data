@@ -1,0 +1,21 @@
+---
+author: Nell Casey
+date: Mar 9, 2014 3:00 pm
+title: De Blasio Turned Down Liam Neeson's Carriage Horse Stable Tour
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="11013neeson.jpeg" src="https://web.archive.org/web/20150506021915im_/http://gothamist.com/attachments/byakas/11013neeson.jpeg" width="640" height="478"> <br> <i> Original photo by <a href="https://web.archive.org/web/20150506021915/http://www.flickr.com/photos/chrisgold/8262629273/">chrisgold</a></i></div> <p></p>
+
+<p>Liam Neeson&apos;s special set of skills couldn&apos;t convince the mayor to change his position on the city&apos;s controversial carriage horse industy. Mayor de Blasio <a href="https://web.archive.org/web/20150506021915/http://www.nydailynews.com/news/politics/de-blasio-fan-liam-neeson-won-tour-stables-article-1.1715657">declined an invitation</a> to tour a Manhattan carriage horse stable today by the actor and <a href="https://web.archive.org/web/20150506021915/http://gothamist.com/2014/01/10/liam_neeson_has_very_strong_feeling.php">noted carriage horse supporter</a>. Neeson invited the mayor and members of city council to look around a stable today in hopes of proving the horses were well-cared for, a cause he&apos;s been championing as much as he has his <a href="https://web.archive.org/web/20150506021915/http://en.wikipedia.org/wiki/Non-Stop_(film)">latest action thriller</a>.</p>
+
+<p>&quot;I respect Liam Neeson a lot, I&apos;m a big fan of his work,&quot; de Blasio <a href="https://web.archive.org/web/20150506021915/http://www.nydailynews.com/news/politics/de-blasio-fan-liam-neeson-won-tour-stables-article-1.1715657#ixzz2vUU4i9Pq">explained to the Daily News</a>. &quot;But the fact is, I put forward a plan and a vision and the people ratified it in an election and that&apos;s what matters most.&quot; The mayor promised to <a href="https://web.archive.org/web/20150506021915/http://gothamist.com/2013/09/15/mayoral_election_has_horse_carriage.php">end the carriage horses</a> during his campaign, though the ban has <a href="https://web.archive.org/web/20150506021915/http://gothamist.com/2014/02/04/horse-carriage_ban_on_hold_as_city.php">yet to happen</a>. Of the City Council&apos;s 51 members, only <a href="https://web.archive.org/web/20150506021915/http://abclocal.go.com/wabc/story?section=news/local/new_york&amp;id=9459851&amp;rss=rss-wabc-article-9459851">about a dozen</a> accepted Neeson&apos;s invitation. </p>
+
+<p>Animal advocacy group NYCLASS has been equally vocal about the carriage horse dilemma, though shouting from the other corner of the ring. The group calls the stables &quot;only one part of the larger problem,&quot; pointing to less-than-ideal conditions&#x2014;including small stalls&#x2014;when the horses aren&apos;t on the streets. </p>
+
+<p>&quot;Spending their lives trapped between the shafts of the carriage and their stalls, is no happy existence for a horse,&quot; explains Executive Director and spokeswoman Allie Feldman. &quot;These stables have no paddock for turnout&#x2014;meaning they don&apos;t get to graze, run and socialize with other horses.&quot; The group also points to loud traffic congestion that <a href="https://web.archive.org/web/20150506021915/http://gothamist.com/2013/09/26/photo_spooked_horse_knocks_his_carr.php">spooks horses</a> as an equally important factor in ending the carriage horse program in NYC.</p>
+
+<p>Others <a href="https://web.archive.org/web/20150506021915/http://gothamist.com/2014/02/27/video_liam_neeson_brings_pro-carria.php">have criticized Neeson&apos;s position</a>, but the actor has found a friend in <em>Tonight Show</em> host Jimmy Fallon. Fallon <a href="https://web.archive.org/web/20150506021915/http://www.nydailynews.com/news/politics/jimmy-fallon-board-liam-neeson-horse-carriage-campaign-article-1.1714836">called carriage horses</a> &quot;a kind of tradition&quot; and laughed off NYCLASS&apos;s suggestion to replace the horses with antique cars. &quot;I&apos;d rather just get humans to pull the carriages, whatever we have to do,&quot; he quipped. Only if you <a href="https://web.archive.org/web/20150506021915/http://gothamist.com/2013/07/19/couple_pays_720_for_20-minute_pedi.php">pick up the tab</a>, Jimmy.</p>					
+										
+									
+				

@@ -1,0 +1,18 @@
+---
+author: Jen Chung
+date: Feb 6, 2010 1:20 PM
+title: Madoff Relatives Agree To Asset Freeze
+---
+
+
+                            
+                            
+                            
+                            <p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:250px; "> <img alt="2009_10_markmadoff.jpg" src="https://web.archive.org/web/20140118033214im_/http://gothamist.com/attachments/jen/2009_10_markmadoff.jpg" width="250" height="173"> <br> <i>Bernard Madoff, Mark Madoff, and Andrew Madoff&#x2014;in happier Ponzi times</i></div> Three months after being sued for using Bernard L. Madoff Securities Investments <a href="https://web.archive.org/web/20140118033214/http://gothamist.com/2009/10/02/finally_madoffs_sons_brother_niece.php">like a &quot;family piggy bank,&quot;</a> the sons, brother, and niece of Ponzi schemer Bernard Madoff have <a href="https://web.archive.org/web/20140118033214/http://www.nytimes.com/reuters/2010/02/05/world/international-uk-madoff-family.html">agreed to having their assets frozen</a>&#x2014;plus they agreed to disclose their finances within 30 days.  <p></p>
+
+<p>The trustee liquidating Madoff&apos;s assets said Madoff sons Andrew and Mark had taken about $127 million, while Madoff&apos;s brother Peter Madoff allegedly took over $60 million (Peter&apos;s daughter Shana is accused of taking $10 million).  Examples of how they <a href="https://web.archive.org/web/20140118033214/http://www.nydailynews.com/ny_local/2010/02/06/2010-02-06_bernie_madoffs_family_including_sons_andrew_and_mark_ordered_to_publicly_disclos.html">allegedly used investors&apos; money</a>: Trustee Irving Picard &quot;slammed Andrew Madoff for using firm assets to pay off a $813,287 American Express bill for clothes, boat rentals and vacations&quot; and &quot;bashed Shana for using company funds to pay a $379,342 Amex bill for clothes, makeup and travel.&quot;  Hmm&#x2014;now we&apos;re reading this 2004 NY magazine article on <a href="https://web.archive.org/web/20140118033214/http://nymag.com/nymetro/shopping/fashion/fall04/9635/index2.html">Shana Madoff&apos;s extravagant wardrobe</a> in a different light!</p>
+
+<p>However, the four deny the accusations but agreed to the asset freeze to avoid &quot;the potential costs and expenses of the instant dispute.&quot;  <a href="https://web.archive.org/web/20140118033214/http://www.businessweek.com/news/2010-02-06/madoff-s-sons-accept-asset-freeze-in-agreement-with-trustee.html">BusinessWeek notes</a> that the restriction also &quot;prevent the Madoffs and their representatives from selling, leveraging, wasting or moving all their property that is worth more than $1,000, &apos;except for wearing personal clothing and jewelry in the normal course.&apos;&quot; In related news, Madoff&apos;s <a href="https://web.archive.org/web/20140118033214/http://gothamist.com/2009/09/09/madoffs_penthouse_apartment_goes_on.php">Upper East Side penthouse</a> was <a href="https://web.archive.org/web/20140118033214/http://www.nypost.com/p/news/local/manhattan/cabbage_patch_mogul_snares_madoff_m8wQ4Ov5YiUg9MTIM5LloL">purchased by Al Khan</a>, described as the &quot;&apos;marketing genius&apos; behind the Pokemon and the Cabbage Patch Kids toy crazes.&quot;</p>
+                            
+                            
+                            

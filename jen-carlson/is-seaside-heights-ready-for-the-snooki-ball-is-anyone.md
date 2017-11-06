@@ -1,0 +1,9 @@
+---
+author: Jen Carlson
+date: December 30, 2010  2:49 PM
+title: Is Seaside Heights Ready For The Snooki Ball? (Is Anyone?)
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="nyesnookiball.jpg" src="https://web.archive.org/web/20110226115340im_/http://gothamist.com/attachments/arts_jen/nyesnookiball.jpg" width="250" height="231" class="image-right"> </span>Yesterday word got out that the Snooki Ball that was supposed to hold the <em>Jersey Shore</em> starlet as she dropped in to Times Square on New Year&apos;s Eve, was <a href="https://web.archive.org/web/20110226115340/http://gothamist.com/2010/12/29/no_more_snooki_ball_for_nye.php">no longer happening</a>. New Year&apos;s Eve canceled! Etc! And then some mastermind got the idea to move the whole production to the Jersey Shore, which makes a lot more sense anyway&#x2014;if we&apos;re operating in world where a Snooki Ball makes sense, which we&apos;re not, but pretend we are. </p>
+
+<p>Now <a href="https://web.archive.org/web/20110226115340/http://artsbeat.blogs.nytimes.com/2010/12/30/jersey-shore-new-years-eve-stunt-moves-to-where-else-jersey-shore/">Arts Beat</a> got the Seaside Heights folk (borough clerk Diane) on the phone, who tell the site, &#x201C;It kind of got sprung on us. She&#x2019;s going to come out and do whatever she&#x2019;s supposed to do, and that&#x2019;s it.&#x201D; But if you are planning a trek out to the Shore to see this disaster with your own eyes tomorrow night, you&apos;ll get there a day too late&#x2014;Diane says the stunt is probably being taped today, for broadcast on New Year&#x2019;s Eve, and that MTV crews will be gone by tomorrow. If an unexplained empty feeling washes over you tonight, that probably just means Snooki was just unceremoniously dropped in a hamster ball in New Jersey.</p>

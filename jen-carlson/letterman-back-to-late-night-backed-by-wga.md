@@ -1,0 +1,17 @@
+---
+author: Jen Carlson
+date: Dec 16, 2007 10:50 am
+title: Letterman Back to Late Night, Backed by WGA?
+---
+
+	
+										<p><img alt="200712wgastrike.jpg" src="https://web.archive.org/web/20150530021127im_/http://gothamist.com/attachments/arts_jen/200712wgastrike.jpg" width="180" height="240" class="right">Sick of watching reruns? Nervous you&apos;ll only get 8 episodes of <em>Lost</em> next season? Well, <a href="https://web.archive.org/web/20150530021127/http://www.nytimes.com/2007/12/15/business/media/15cnd-letterman.html?_r=1&amp;oref=slogin">The NY Times</a> reports on the first break in the writers&apos; strike.</p><blockquote>David Letterman is pursuing a deal with the Writers Guild of America that would allow his late-night show on CBS to return to the air in early January with the usual complement of material from his writers, even if the strike is still continuing.<p></p>
+
+<p>Executives from Mr. Letterman&apos;s company said Saturday that they are hopeful they will have an interim agreement in place with the guild as early as this week. That could potentially put Mr. Letterman at an enormous advantage over most of his late-night colleagues.</p></blockquote>This seems like a good compromise -- allowing the crew to get back to work, Letterman to edge out Leno, and of course the late night couch potatoes would be happy with some new episodes. Will anyone follow suit?<blockquote>Jon Stewart of Comedy Central&apos;s &quot;Daily Show&quot; has also been urging an interim agreement and would begin working toward getting one in place the first thing Monday morning, according to a representative. But Mr. Letterman is in a stronger position because, unlike Mr. Stewart, his show is not owned by a network but by Mr. Letterman&apos;s independent production company, World Wide Pants. (So is the show that follows it on CBS, &quot;The Late Late Show with Craig Ferguson,&quot; which would return with writers under the proposed interim agreement.)</blockquote>Meanwhile, tomorrow the writers plan to demand (within their legal rights) that the &quot;studios and network production companies bargain with the guild individually rather than as a group.&quot; This would of course create an even bigger headache for the producers alliance (which does the bargaining for all companies involved). A letter to WGA members on Friday, that we received a copy of, stated: &quot;We nonetheless continue to hope that the AMPTP will return in good faith to negotiate a fair contract with writers, as two television seasons and numerous feature projects are currently at great risk.&quot; <p></p>
+
+<p>The late night writers haven&apos;t yet mentioned the possibility of a return on <a href="https://web.archive.org/web/20150530021127/http://lateshowwritersonstrike.com/">their blog</a>. We wonder how other WGA members feel about this. Just last week we received a letter stating &quot;the WGA filed charges with the National Labor Relations Board against the AMPTP for its refusal to bargain in good faith with the WGA.  It is a clear violation of federal law for the AMPTP to issue an ultimatum and break off negotiations if we fail to cave to their illegal demands.&quot;</p>
+
+<p><em>Photo via <a href="https://web.archive.org/web/20150530021127/http://www.flickr.com/photos/94082051@N00/2111210665">myserenity1&apos;s flickr</a>.</em></p>					
+										
+									
+				

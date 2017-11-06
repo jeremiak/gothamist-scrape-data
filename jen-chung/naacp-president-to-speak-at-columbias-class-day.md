@@ -1,0 +1,11 @@
+---
+author: Jen Chung
+date: Mar 25, 2010 2:42 pm
+title: NAACP President To Speak At Columbia's Class Day
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <a href="https://web.archive.org/web/20150522142225/http://gothamist.com/attachments/jen/2010_03_benjealous.jpg"> <img alt="2010_03_benjealous.jpg" src="https://web.archive.org/web/20150522142225im_/http://gothamist.com/assets_c/2010/03/2010_03_benjealous-thumb-196x238-491659.jpg" width="95" height="115" class="image-right"> </a> </span>Columbia College&apos;s 2010 Class Council announced that NAACP President Ben Jealous <a href="https://web.archive.org/web/20150522142225/http://bwog.net/2010/03/24/naacp-president-ben-jealous-is-class-day-speaker">will be its Class Day Speaker in May</a>.  <a href="https://web.archive.org/web/20150522142225/http://www.naacp.org/about/leadership/executive/jealous/index.htm">Jealous</a>, who graduated from Columbia in 1994, was <a href="https://web.archive.org/web/20150522142225/http://www.columbiaspectator.com/2010/03/12/clinton-sotomayor-cc-class-day-short-list">named in the &quot;short list&quot; of speakers</a>, who included Supreme Court Justice Sonia Sotomayor, actresses Anna Paquin (who attended one year) and Julia Stiles, former president Bill Clinton and current President Obama (Class of &apos;83). Reaction to the pick is mixed&#x2014;one Bwog commenter says, &quot;great choice&quot; while another says, &quot;thanks, columbia. a last slap in the face&quot;&#x2014;but complaining about Class Day Speakers is a long tradition.  Remember the furor when John McCain <a href="https://web.archive.org/web/20150522142225/http://gothamist.com/2006/05/13/columbia_studen.php">spoke in 2006</a>? Matthew Fox  <a href="https://web.archive.org/web/20150522142225/http://gothamist.com/2007/03/06/matthew_fox_too.php">in 2007</a>? Or <a href="https://web.archive.org/web/20150522142225/http://gothamist.com/2008/04/01/columbia_studen_4.php">Joel Klein in 2008</a>? </p>					
+										
+									
+				

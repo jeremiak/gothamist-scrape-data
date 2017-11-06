@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: September 17, 2008  8:00 AM
+title: 10 Dead in Militant Attack on U.S. Embassy
+---
+
+<p><img alt="2008_09_yemen.jpg" src="https://web.archive.org/web/20111117124051im_/http://gothamist.com/attachments/jen/2008_09_yemen.jpg" width="130" height="99" class="right"><a href="https://web.archive.org/web/20111117124051/http://www.cnn.com/2008/WORLD/meast/09/17/yemen.blast/index.html">CNN reports</a> that 10 Yemeni police and civilians were killed when &quot;suspected al Qaeda insurgents disguised as security forces launched an attack on the U.S. Embassy&quot; in Sanaa, the capital of Yemen.  According to the NY Times, one car drove up, and &quot;<a href="https://web.archive.org/web/20111117124051/http://www.nytimes.com/2008/09/18/world/middleeast/18yemen.html?_r=1&amp;hp&amp;oref=slogin">several attackers got out</a>...firing rocket-propelled grenades and automatic rifles&quot; while a second car &quot;drove into the compound&#x2019;s gate and exploded in what appeared to be a suicide bombing.&quot;  No U.S. Embassy employees were killed; earlier this year, the State Department ordered the non-emergency staff to depart the embassy but lifted the order last month.  Back in 2000, Al Qaeda <a href="https://web.archive.org/web/20111117124051/http://breakingnews.nypost.com/dynamic/stories/M/ML_YEMEN_US_EMBASSY?SITE=NYNYP&amp;SECTION=HOME">attacked the U.S.S. Cole</a>, in the Yemeni port of Aden, killing 17 American soldiers.  </p>

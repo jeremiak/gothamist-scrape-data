@@ -1,0 +1,22 @@
+---
+author: Jen Chung
+date: Sep 16, 2009 10:40 AM
+title: Cops: Hofstra Rape Suspects Lured Victim By Stealing Cellphone
+---
+
+
+                            
+                            
+                            
+                            <p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:170px; "> <img alt="2009_09_hofmug.jpg" src="https://web.archive.org/web/20131019173932im_/http://gothamist.com/attachments/jen/2009_09_hofmug.jpg" width="170" height="263"> <br> <i>Mugshots of the suspects: (Clockwise, from top left) Kevin R. Taveras, Rondell Bedward, Stalin Felipe, Jesus L. Ortiz</i></div> [<b>Update</b>: Now the Nassau County DA says the <a href="https://web.archive.org/web/20131019173932/http://gothamist.com/2009/09/17/hofstra_student_made_up_horrible_ra.php">student lied about the rape</a>.]<p></p>
+
+<p>Nassau County police <a href="https://web.archive.org/web/20131019173932/http://www.newsday.com/long-island/nassau/cops-hofstra-student-s-rape-was-planned-by-group-1.1449126">revealed harrowing details</a> of how a Hofstra University student was apparently lured from a campus party into being gang raped by five men in a dorm (<a href="https://web.archive.org/web/20131019173932/http://gothamist.com/2009/09/15/four_suspects_arraigned_in_rape_of.php">four suspects are in custody</a>). The 18-year-old victim had been dancing at Hofstra USA early Sunday morning when Bronx resident Jesus Ortiz, 19, allegedly grabbed her cellphone after a dance.   <a href="https://web.archive.org/web/20131019173932/http://www.nypost.com/p/news/local/hofstra_victim_lured_with_phone_CUyOQfmiMByWxKADS6bFhN">Police Detective Lt. John Allen said</a>, &quot;She repeatedly asked for the cell phone but he was not responsive. He left the club. She followed him out of the club. <strong>The cell phone was taken to lure her away from the crowd.</strong>&quot;</p>
+
+<p>The victim followed Ortiz to a dorm; Allen said, &quot;He got off on a floor she was not familiar with. Whereupon they were immediately met by a second subject [Stalin Felipe, 19, of the Bronx]... She wasn&#x2019;t interested in meeting him, but the second subject began making advances to her, which she resisted.&quot; Felipe allegedly also had a rope.  Apparently the two suspects took her into the men&apos;s bathroom, tied her up in a stall, and assaulted her.  Three other men appeared; Allen said, &quot;The victim asked them to help her, but unbeknownst to her, they were friends of the first two,&quot; and the other three then <a href="https://web.archive.org/web/20131019173932/http://www.nydailynews.com/news/ny_crime/2009/09/15/2009-09-15_police_woman_gang_raped_in_hofstra_university_dorm.html">raped her as well, &quot;one by one.&quot;</a>  Though the victim was screaming, no one heard her cries. The suspects did cut her from the ropes, and Allen said, &quot;They actually had the audacity to ask her if she wanted to go with them.&quot;  Instead, the victim called campus police.</p>
+
+<p>The other suspects are Kevin Taveras, 20, of Brentwood and Rondell Bedward, 21, of the Bronx, a Hofstra student who <a href="https://web.archive.org/web/20131019173932/http://www.newsday.com/long-island/nassau/cops-hofstra-student-s-rape-was-planned-by-group-1.1449126">Newsday says</a> &quot;worked part-time with the campus public safety department&quot;&#x2014;he was the one who signed in Ortiz, Felipe, Taveras, and the fifth suspect (who has not been arrested) at the dorm.  All four were charged with five counts of rape and held on $350,000 bail; Taveras&apos; stepmother told, &quot;He&apos;s a good kid. I&apos;m shocked.&quot; A student who knows Bedward said, &quot;It&apos;s just shocking to me.  can&apos;t see Rondell doing something like that.&quot;</p>
+
+<p>Some Hofstra students say the Hempstead school <a href="https://web.archive.org/web/20131019173932/http://www.newsday.com/long-island/nassau/some-students-say-hofstra-didn-t-notify-them-of-rape-1.1451393">didn&apos;t alert them immediately</a>&#x2014;one found out about the rape by looking at a friend&apos;s Facebook status.</p>
+                            
+                            
+                            

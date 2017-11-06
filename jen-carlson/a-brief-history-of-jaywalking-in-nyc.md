@@ -1,0 +1,39 @@
+---
+author: Jen Carlson
+date: Aug 4, 2015 11:08 am
+title: A Brief History Of "Jaywalking" In NYC
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="pedestrians1917.jpg" src="https://web.archive.org/web/20170320085550im_/http://gothamist.com/attachments/arts_jen/pedestrians1917.jpg" width="640" height="465" class="image-none"> </span><br>
+<span class="photo_caption">42nd Street, June 23, 1917. (Courtesy of <a href="https://web.archive.org/web/20170320085550/http://collections.mcny.org/">the Museum of the City of New York</a>)</span></p>
+
+<p>Before 1915 or so, pedestrians could blithely cross a New York City street wherever and whenever they chose without being denigrated as a &quot;jaywalker.&quot; While <a href="https://web.archive.org/web/20170320085550/http://www.brainpickings.org/2013/09/26/jaywalkers-wendy-macnaughton-1924">one website says</a> that the term was coined this week in 1924 (in <a href="https://web.archive.org/web/20170320085550/http://query.nytimes.com/mem/archive-free/pdf?res=9B05E4DC1631EE3ABC4B53DFBE66838F639EDE">this NY Times article</a>), that is inaccurate. The paper printed the word at least twice before that, in 1915. (The OED recognizes it as reaching the public around 1917, when it was printed in an edition of Harper&#x2019;s Magazine.) If it was in fact used in New York for the first time in 1915, the word is in its centennial year, as good a reason as any to revisit its origin, and the controversy around it.</p>
+
+<p>The term&#x2014;which broken apart means something like: &quot;inexperienced walker&quot;&#x2014;was hijacked by Big Auto as part of an effort to claim the streets for cars. (A counter-campaign using the term &quot;<a href="https://web.archive.org/web/20170320085550/http://www2.ljworld.com/news/2015/may/02/100-years-ago-police-crack-down-erring-drivers/">jay drivers</a>&quot; did not catch on.) From <a href="https://web.archive.org/web/20170320085550/http://muse.jhu.edu/login?auth=0&amp;type=summary&amp;url=/journals/technology_and_culture/v048/48.2norton.html"><em>Street Rivals: Jaywalking and the Invention of the Motor Age Street</em></a>:</p>
+
+<blockquote>Before the American city could be physically reconstructed to accommodate automobiles, its streets had to be socially reconstructed as places where cars belong. Until then, streets were regarded as public spaces, where practices that endangered or obstructed others (including pedestrians) were disreputable. Motorists&apos; claim to street space was therefore fragile, subject to restrictions that threatened to negate the advantages of car ownership. 
+
+<p>Epithets&#x2014;especially joy rider&#x2014;reflected and reinforced the prevailing social construction of the street. Automotive interest groups (motordom) recognized this obstacle and organized in the teens and 1920s to overcome it. One tool in this effort was jaywalker. </p>
+
+<p>Motordom discovered this obscure colloquialism in the teens, reinvented it, and introduced it to the millions. It ridiculed once-respectable street uses and cast doubt on pedestrians&apos; legitimacy in most of the street. Though many pedestrians resented and resisted the term and its connotations, motordom&apos;s campaign was a substantial success.</p></blockquote><p></p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-right"> <img alt="nytjaywalk15.jpg" src="https://web.archive.org/web/20170320085550im_/http://gothamist.com/attachments/arts_jen/nytjaywalk15.jpg" width="350" height="232"> <br> <i style=" width:350px; ;display:block"> <a href="https://web.archive.org/web/20170320085550/http://query.nytimes.com/mem/archive-free/pdf?res=9503E3D7133FE233A25751C0A9649D946496D6CF">NY Times</a>, 1915</i></div> Pedestrian deaths skyrocketed with the introduction of automobiles&#x2014;<a href="https://web.archive.org/web/20170320085550/http://99percentinvisible.org/episode/episode-76-the-modern-moloch/">the 99% Invisible podcast noted</a> that: &quot;The main cause for these deaths was that the rules of the street were vastly different than how they are today. A street functioned like a city park, or a pedestrian mall, where you could move in any direction without really thinking about it. The only moving hazards were animals and other people.&quot; <p></p>
+
+<p>In that aforementioned NY Times article from the 1920s, titled <em>The Confusion of Our Sidewalkers</em> (<a href="https://web.archive.org/web/20170320085550/http://query.nytimes.com/mem/archive-free/pdf?res=9B05E4DC1631EE3ABC4B53DFBE66838F639EDE">PDF</a>), the writer declared: &quot;The man in the street seems less safe than the man in the trench. The greatest single lethal factor is the automobile. It left shambles in its wake as it coursed through 1923.&quot; A few years later, the battle for the street was still raging, and <a href="https://web.archive.org/web/20170320085550/http://query.nytimes.com/mem/archive/pdf?res=9D06E1D61438E23ABC4052DFB5668383639EDE">the Times</a> took a look at the rights of the pedestrian, firmly warning: &quot;The streets of New York are no place for daydreaming.&quot;</p>
+
+<p><iframe width="640" height="480" src="https://web.archive.org/web/20170320085550if_/https://www.youtube.com/embed/5eSj_nzHR6E" frameborder="0" allowfullscreen></iframe></p>
+
+<p>Long, long before the &quot;Cross On Green, Not In Between&quot; campaign, one Clarence John Davis wrote to <a href="https://web.archive.org/web/20170320085550/http://query.nytimes.com/mem/archive-free/pdf?res=9805E5D7133FE233A25752C0A9649D946496D6CF">the NY Times</a> (in 1915), declaring, &quot;The safest place to cross the streets is at the centre of the block, where, by simply glancing up and down the street before crossing, you can see all vehicles coming from both directions and guide yourself accordingly.&quot; This was strongly advised against: </p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="jaywalkdonts15.jpg" src="https://web.archive.org/web/20170320085550im_/http://gothamist.com/attachments/arts_jen/jaywalkdonts15.jpg" width="640" height="328" class="image-none"> </span><br>
+<span class="photo_caption">From the 1920s</span></p>
+
+<p>In 1958, an anti-jaywalking law was finally introduced in NYC, and pedestrians deaths dropped (<a href="https://web.archive.org/web/20170320085550/http://query.nytimes.com/mem/archive/pdf?res=9F0CE5D61E31E73BBC4153DFB6678383649EDE">PDF</a>) for a short time, before rising again. Boston followed with their own law in the 1960s, and their police department even <a href="https://web.archive.org/web/20170320085550/http://www.dvrbs.com/cops/CamdenCops_files/K9-1950s-01b.jpg">had &quot;Don&apos;t Jaywalk&quot; dogs</a>! </p>
+
+<p>Over the years, of course, the law has been broken by nearly every single New Yorker. Though what this old PSA says is still true: &quot;Even if you avoid getting killed, you still <a href="https://web.archive.org/web/20170320085550/http://gothamist.com/2014/03/15/nypd_issued_452_jaywalking_tickets.php">risk a fine</a>.&quot; The rule is hardly ever enforced, although last year the NYPD did crack down on jaywalking in certain neighborhoods, issuing $250 tickets <a href="https://web.archive.org/web/20170320085550/http://gothamist.com/2014/01/20/de_blasio_should_nip_this_jaywalkin.php">and sparking considerable outrage</a>.</p>
+
+<p><iframe width="640" height="480" src="https://web.archive.org/web/20170320085550if_/https://www.youtube.com/embed/YUz8zINDdMU" frameborder="0" allowfullscreen></iframe></p>					
+										
+									
+				

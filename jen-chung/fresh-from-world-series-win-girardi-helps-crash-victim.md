@@ -1,0 +1,11 @@
+---
+author: Jen Chung
+date: November  5, 2009  1:59 PM
+title: Fresh From World Series Win, Girardi Helps Crash Victim
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2009_11_joegir.jpg" src="https://web.archive.org/web/20110629175252im_/http://gothamist.com/attachments/jen/2009_11_joegir.jpg" width="140" height="246" class="image-left"> </span>What can&apos;t Yankees manager Joe Girardi do?  First, there&apos;s manage the Yankees to <a href="https://web.archive.org/web/20110629175252/http://gothamist.com/2009/11/05/last_nights_action_yankees_win_world_series.php">their 27th World Series win</a> (okay, fine, there was that $206 million payroll helping out).  But after the win, when driving home on the Cross County Parkway, he stopped to help a driver who crashed into a wall!</p>
+
+<p>The <a href="https://web.archive.org/web/20110629175252/http://www.lohud.com/article/20091105/SPORTS01/911050402/Yanks-manager-Girardi-aids-crash-victim-in-Westchester-on-way-home-from-Series-clincher">Journal News has the details</a>:  Around 2:25 a.m., a female driver had crashed along a &quot;long blind curve&quot; before the New Rochelle exit in the eastbound lanes.  Police were already in the area, checking for intoxicated drivers (they had already waved Girardi and Andy Pettite through), but closed down the checkpoint when they got the 911 call.  Westchester Country police officer Kathleen Cristiano saw the Yankee manager, &quot;He was jumping up and down, trying to flag me down. You don&apos;t expect him standing by a car accident trying to help...The guy wins the World Series, what does he do? He stops to help. It was totally surreal.&quot;</p>
+
+<p>The police also pointed out that Girardi crossed the lanes of fast-moving traffic to help out and &quot;could have gotten himself killed.&quot;  The victim was helped out of the vehicle and refused to go the hospital.  Aww, happy story.  Also aww-worthy: That Girardi is wearing braces because of a promise he made to his daughter&#x2014;he told her whenever <a href="https://web.archive.org/web/20110629175252/http://deadspin.com/5393077/dental-plan-girardi-needs-braces">she would need braces</a>, he&apos;d get them with her.</p>

@@ -1,0 +1,19 @@
+---
+author: Nell Casey
+date: Jan 19, 2016 10:41 am
+title: Harlem's Legendary Lenox Lounge Appears To Be Really, Truly Dead
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="lenoxlounge1212.jpeg" src="https://web.archive.org/web/20170117171720im_/http://gothamist.com/attachments/nyc_nellcasey/lenoxlounge1212.jpeg" width="640" height="427"> <br> <i> <span class="photo_caption">(<a href="https://web.archive.org/web/20170117171720/http://www.samhorine.com/">Sam Horine</a>/Gothamist)</span></i></div> <p></p>
+
+<p>There was hope for a while that Harlem&apos;s legendary Lenox Lounge&#x2014;which <a href="https://web.archive.org/web/20170117171720/http://gothamist.com/2012/12/06/harlems_lenox_lounge_is_closing.php">closed in 2012</a> following a rich 73 years history&#x2014;would one day reopen, preserving a slice of history in an area that&apos;s <a href="https://web.archive.org/web/20170117171720/http://gothamist.com/2015/06/10/not_amazing_yet_srry_harlem.php">undergoing significant changes</a>. Unfortunately, it looks as though the storied jazz bar and former speakeasy won&apos;t be undergoing a revitalization, as plans to reopen the club look to have fallen through. <a href="https://web.archive.org/web/20170117171720/http://vanishingnewyork.blogspot.com/2016/01/lenox-lounge-for-rent.html">Jeremiah Moss found</a> a bleak scene during a recent visit, with the venue still boarded up and &quot;[left]...behind to rot.&quot; </p>
+
+<p>Back in 2014, there were reports that Lenox would be <a href="https://web.archive.org/web/20170117171720/http://gothamist.com/2014/02/21/lenox_lounge_returns_to_harlem_this.php">revived in some way</a> by Richard Notar, a managing parter of the Nobu fleet, and then later, a plan by original Lenox owner Alvin Reed and business partner Dean Schomburg, who were going to reopen the bar in a different space along Lenox Avenue. Neither of these plans came to fruition, however, with Notar reportedly <a href="https://web.archive.org/web/20170117171720/http://insatiable-critic.com/(X(1)S(bkx3u445mxcfk555wyzzvr45))/Article.aspx?id=2991&amp;AspxAutoDetectCookieSupport=1">setting his sights</a> on a different space in Harlem. </p>
+
+<p>The year Lenox 2.0 was due to open, Reed was <a href="https://web.archive.org/web/20170117171720/http://nypost.com/2013/02/15/former-operators-hired-thugs-gutted-historic-lenox-lounge-lawsuit/">embroiled in a multimillion dollar lawsuit</a> with the club&apos;s former landlord for allegedly stripping fixtures from the bar after he was ousted. According to Moss, Reed himself <a href="https://web.archive.org/web/20170117171720/http://vanishingnewyork.blogspot.com/2013/01/lenox-lounge-stripped.html">took the famous neon sign</a> that illuminated the exterior immediately following the New Year&apos;s Eve closure back in 2012. </p>
+
+<p>When Lenox was first ousted, the landlord doubled the rent on the Lenox Avenue space from $10,000 to $20,000, an untenable amount to Reed at the time. Now Moss has uncovered <a href="https://web.archive.org/web/20170117171720/http://www.walkermalloy.com/commercial_listings.asp">real estate listings</a> that have the Lenox space and its neighbor listed for $40,000. Surely the brand <a href="https://web.archive.org/web/20170117171720/http://harlembespoke.blogspot.com/2015/12/architecture-siding-at-harlem-whole.html">new development across the street</a>&#x2014;with ensuite Whole Foods&#x2014;has <a href="https://web.archive.org/web/20170117171720/http://gothamist.com/2015/06/08/rents_in_harlem_are_90_damn_percent.php">nothing to do with it</a>.</p>					
+										
+									
+				

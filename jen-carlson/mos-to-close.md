@@ -1,0 +1,13 @@
+---
+author: Jen Carlson
+date: Sep 27, 2007 9:00 am
+title: Mo's to Close
+---
+
+	
+										<center><img alt="200709mop.jpg" src="https://web.archive.org/web/20160519211713im_/http://gothamist.com/attachments/arts_jen/200709mop.jpg" width="600" height="325"></center>
+
+<p>Earlier this month the <a href="https://web.archive.org/web/20160519211713/http://www.nypost.com/seven/09052007/gossip/pagesix/pagesix.htm">NY Post</a> reported that Mo Pitkin&apos;s House of Satisfaction might be closing, which was met with <a href="https://web.archive.org/web/20160519211713/http://www.brooklynvegan.com/archives/2007/09/mo_pitkins_resp.html">a letter</a> from the owners saying the Post &quot;as usual, mixed fact with fiction.&quot; Last night a reader sent over the following letter, written by the same folks, which was sent to performers of the space:</p><blockquote>We&apos;re sorry to say, but Mo Pitkin&apos;s will be closing on October 20th, 2007, with a closing night party/performance on October 21st at 8pm.  Building our bi-level performance space was an enormous undertaking, done with a lot of love, but it created a debt load that the club just could not sustain. Our deepest apologies to all those with gigs subsequent to that; with the recent press articles about our &quot;imminent&quot; closing, it&apos;s just become impossible for us to continue to stay open.</blockquote>That&apos;s right, come next month there will be no more Satisfaction (at least not in the form of a <a href="https://web.archive.org/web/20160519211713/http://www.mopitkins.com/menu/menuimages/MoMenuDinner.gif">deep-fried mac &amp; cheese</a>)! The letter goes on to say they aren&apos;t sure who will take the building over, but we&apos;re hoping it will still host a <a href="https://web.archive.org/web/20160519211713/http://www.mopitkins.com/mosshows.html">variety of events</a> -- and last a little longer than <a href="https://web.archive.org/web/20160519211713/http://gothamist.com/2005/07/25/mo_pitkins_house_of_satisfaction.php">two years</a>. We&apos;d have to <a href="https://web.archive.org/web/20160519211713/http://www.curbed.com/archives/2007/09/05/doing_mo_pitkins_sideways_did_someone_say_triplex.php">agree</a> that with the duplex apartment complete with patio on top of the space, it&apos;s quite a steal for <a href="https://web.archive.org/web/20160519211713/http://www.walkermalloy.com/wmr_listing.cfm?res_com=1">only $5.9M</a>.<p></p>					
+										
+									
+				

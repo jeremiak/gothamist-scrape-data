@@ -1,0 +1,24 @@
+---
+author: Nell Casey
+date: Nov 24, 2012 4:35 PM
+title: A Peek Behind The Line With The Talented Chef Shaun Hergatt
+---
+
+
+                            
+                            
+                            
+                            <p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="112012hergatt1.jpeg" src="https://web.archive.org/web/20130826032324im_/http://gothamist.com/attachments/nyc_nellcasey/112012hergatt1.jpeg" width="605" height="480"> <br> <i> <span class="photo_caption">Chef Hergatt puts the finishing touches on his Acacia Glazed Duck (<a href="https://web.archive.org/web/20130826032324/https://twitter.com/nellcasey">Nell Casey</a>/Gothamist)<span></span></span></i></div> <p></p>
+
+<p>Unless you&apos;re seated at <a href="https://web.archive.org/web/20130826032324/http://gothamist.com/2011/12/21/five_great_restaurants_for_those_wh.php">the coveted chef&apos;s table or have a view of an open kitchen</a>, a glimpse behind the scenes at our city&apos;s fine dining establishments is a sight typically reserved for staff only. But Monday night, chef Shaun Hergatt&#x2014;whose now-closed <a href="https://web.archive.org/web/20130826032324/http://gothamist.com/2009/07/09/sho_shaun_hergatt.php#photo-1">restaurant SHO was a Gothamist favorite</a>&#x2014;welcomed a group of invited guests behind the line for a preview of what to expect at his forthcoming restaurant Juni, slated to arrive sometime early next year. Decked out in chef&apos;s coats and aprons, guests took their places at different stations in the kitchen for a crash course in culinary artistry, helmed by Hergatt and a few of his cooking colleagues. </p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left"> <img alt="112012hergatt3.jpeg" src="https://web.archive.org/web/20130826032324im_/http://gothamist.com/attachments/nyc_nellcasey/112012hergatt3.jpeg" width="250" height="140"> <br> <i style=" width:250px; ;display:block"> <span class="photo_caption">Acacia Glazed Duck (<a href="https://web.archive.org/web/20130826032324/https://twitter.com/nellcasey">Nell Casey</a>/Gothamist)</span></i></div> In his new venture, Hergatt aims to highlight the season&apos;s produce at its peak, meaning an ever-changing menu that shifts as the seasons do. For this fall preview iteration, earthy mushrooms, beets and carrots played an integral role, as did a variety of herbs and flowers, most of which are rarely seen on menus in this part of town. We personally selected fresh Hyssop and Beet leaves to accompany an Acacia Glazed Duck&#x2014;Chef Hergatt&apos;s discerning eye made sure we were selecting only the most perfect of examples&#x2014;and assisted in simmering the accompanying beets in a fragrant liquid of vinegar, cinnamon, clove, star anise and other herbs and spices. While we&apos;re no slouches when it comes to slinging dishes of our own, Chef Hergatt&apos;s thoughtful and elegant presentations made us keenly aware of the time and effort that goes into creating culinary works of art.<p></p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-right"> <img alt="112012hergatt2.jpeg" src="https://web.archive.org/web/20130826032324im_/http://gothamist.com/attachments/nyc_nellcasey/112012hergatt2.jpeg" width="225" height="292"> <br> <i style=" width:225px; ;display:block"> <span class="photo_caption">Baby Carrot Bavarois (<a href="https://web.archive.org/web/20130826032324/https://twitter.com/nellcasey">Nell Casey</a>/Gothamist)</span></i></div> Chef Hergatt&apos;s creations truly are inspiring, both in the evocative flavors he coaxes from each ingredient and the gorgeous presentations on each plate. A dessert of Baby Carrot Bavarois immediately grabs the eye with its vibrant orange hues and further excites the taste buds with a fresh, bright carrot flavor enhanced by segments of blood orange. With Juni, even the dessert course will highlight vegetables for what they are, meaning more savory applications depending on the season&apos;s yield. <p></p>
+
+<p>As diners gathered around to taste the dishes they&apos;d helped, in a small way, to create, the excitement in the room was palpable. Having spent the better part of two hours experiencing the carefully orchestrated chaos of a professional kitchen, everyone felt uniquely connected to the food, something Hergatt hopes will continue once Juni opens. Though guests probably won&apos;t be invited backstage, Hergatt will replicate the intimate atmosphere as he did on this evening with a 52-seat dining area and the same focused attention to detail that has driven his success thus far.</p>
+
+<p><em>Juni will open early next year inside the Hotel Chandler on East 31st Street</em></p>
+                            
+                            
+                            

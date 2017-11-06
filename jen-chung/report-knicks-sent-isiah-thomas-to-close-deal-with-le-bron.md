@@ -1,0 +1,18 @@
+---
+author: Jen Chung
+date: Jul 8, 2010 6:32 pm
+title: Report: Knicks Sent Isiah Thomas To Close Deal With LeBron
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-right" style=" width:230px; "> <img alt="2010_06_fantasy.jpg" src="https://web.archive.org/web/20150506172943im_/http://gothamist.com/attachments/jen/2010_06_fantasy.jpg" width="230" height="278"> <br> <i>A <a href="https://web.archive.org/web/20150506172943/http://gothamist.com/2007/12/12/isiah_says_its.php">December 2007 Daily News back cover</a></i></div> The Knicks appear to be admitting that defeat in the LeBron James derby. The <a href="https://web.archive.org/web/20150506172943/http://www.nydailynews.com/sports/basketball/knicks/2010/07/08/2010-07-08_new_york_knicks_likely_out_of_lebron_james_sweepstakes_as_king_seems_headed_to_m.html">Daily News reports</a>, &quot;The Knicks formally introduced their newest signing, [Amare] Stoudemire, at a noon press conference, but while the club was happy to add a player of his caliber it was clear that the entire organization looked like a defeated group.&quot;  Donnie Walsh, president, said, &quot;I&apos;m going to be happy today no matter what happens. We got Amar&apos;e Stoudemire,&quot; while Knicks owner James Dolan said, &quot;<strong>It takes courage to play where the lights shine the brightest.</strong>&quot;<p></p>
+
+<p>And apparently <a href="https://web.archive.org/web/20150506172943/http://www.nydailynews.com/sports/basketball/knicks/2010/07/08/2010-07-08_knicks_sent_isiah_to_make_last_pitch_to_lebron.html"> Dolan sent former Knicks coach Isiah Thomas</a> to convince LeBron James to join the team. Stephan A. Smith, who has claimed that James would be going to Miami in a while (well, he did have a 20% chance of being right), reported on the meeting, giving the News the chance to remind readers of Thomas&apos; associations with the Knicks: </p><blockquote>&quot;The News has learned that Dolan handpicked Thomas over Mike D&apos;Antoni  to make the final plea to James, a decision which only fuels speculation that Thomas may eventually return to work for the organization in some capacity.<p></p>
+
+<p>Thomas was demoted two years ago and just months after the Garden <a href="https://web.archive.org/web/20150506172943/http://gothamist.com/2007/10/03/anucha_1_knicks.php">reached an out of court settlement</a> with a former executive who had accused Thomas of sexual harassment. The Garden was found liable in the lawsuit.</p>
+
+<p>Thomas worked for the club as a consultant for one season but not before being rushed to the hospital in September 2008 for what was called an <a href="https://web.archive.org/web/20150506172943/http://gothamist.com/2008/10/25/isiah.php">accidental overdose of prescription medication</a>. Last summer, Thomas <a href="https://web.archive.org/web/20150506172943/http://gothamist.com/2009/04/15/knicks_sorta_subsidizing_isiahs_col.php">accepted the head coaching job</a> at Florida International University in Miami.&quot;</p></blockquote><br>
+Some Knicks officials are already spinning the LeBron-goes-to-Miami rumor; one told the News, &quot;By going to Miami there is less pressure on him. If the Heat lose, it&apos;s because of Wade, Riley and LeBron. Maybe he just didn&apos;t want the pressure of playing in New York.&quot;  Or maybe he wants to win a championship FAST.<p></p>					
+										
+									
+				

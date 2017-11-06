@@ -1,0 +1,26 @@
+---
+author: Jen Carlson
+date: December 29, 2011  2:19 PM
+title: Skip The Wait: Have New Year's Day Brunch Made For You And Your Friends
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="brunchpizza1211.jpeg" src="https://web.archive.org/web/20120103121459im_/http://gothamist.com/attachments/arts_jen/brunchpizza1211.jpeg" width="640" height="427" class="image-none"> </span><br>
+<span class="photo_caption">Sweet &amp; Savory Brunch Pizza (Jen Carlson/Gothamist)</span></p>
+
+<p>We all know how nightmarish it can be to sentence yourself to brunch: you wait and wait and wait, only to be seated next to a crying baby, <em>or worse</em>, a gang of 21-year-olds who just discovered bottomless mimosas. Well, it&apos;s going to be so much more unbearable on New Year&apos;s Day, so we recommend hosting your own brunch&#x2014;you can even do it without getting your hands too dirty <em>or</em> shelling out too much cash. Here are some catered brunch options, from the inexpensive, to the pricier (but remember, you will be saving a lot of money on alcohol).</p>
+
+<p><strong>Russ &amp; Daughters</strong> offers up <a href="https://web.archive.org/web/20120103121459/http://shop.russanddaughters.com/store/product/1881/New-York-Brunch/">a New York Brunch</a> package for $99, which includes the city staples of bagels and lox. They go in to mouthwatering details on their website, saying you&apos;ll get &quot;New York&apos;s finest Nova, all natural cream cheese, hand-rolled bagels, chocolate babka and our Private Blend coffee with a Russ &amp; Daughters mug. Wrapped in a signature tote. Perfect for a gift or a gathering of up to 6 people.&quot;</p>
+
+<p><strong>Spoon Catering</strong> offers breakfast spreads starting at $44 per person, with a delivery price of $75 (or 15% of total invoice within Manhattan. Outside Manhattan delivery varies by area). <a href="https://web.archive.org/web/20120103121459/http://www.spoonnyc.com/storefront/menu/tbsp-brunch-bigger/">Their menu</a> includes Baked Eggs in a Skillet, Bacon Egg &amp; Cheese Panini, Buttermilk Pancakes, and more. Call 646.230.7000 for more details.</p>
+
+<p><strong>Buon Appetit</strong> in Astoria is probably your best bet if you&apos;re looking to budget your money better in the new year. They offer <a href="https://web.archive.org/web/20120103121459/http://www.buonappetitny.com/catering.html">a lot of catering options</a>, including a $7.50 per person breakfast spread. This includes danishes, bagels, muffins, croissants, coffee/tea and juice, and for $3 more per person you can add on eggs, bacon/sausage, and home fries.</p>
+
+<p><strong>Peaches</strong> is one of our favorite brunch (and dinner) <a href="https://web.archive.org/web/20120103121459/http://gothamist.com/2011/12/07/bed-stuy_food_tour.php#photo-3">spots in Bed-Stuy</a>, and we were pleasantly surprised to learn they also did catering. Check out the <a href="https://web.archive.org/web/20120103121459/http://peachesbrooklyn.com/">events section</a> on their website for options, where they note that you can even have the brunch hosted in one of their own spaces. Their catered brunch includes steel cut oatmeal with sweet peaches and honey cream, scrambled eggs with cheddar and chives, pulled pork scrambles, jumbo lump crabmeat scrambles, and more. Call 718.942.4162 for more details.</p>
+
+<p><strong>Sacred Chow</strong> in Manhattan is the place to call if you&apos;re a late-rising vegan. They&apos;ll cater you a sweet meatless lunch, which can include hummus, root vegetables, seitan, and even baked goods (<a href="https://web.archive.org/web/20120103121459/http://www.sacredchow.com/catering.pdf">PDF</a>). Call or email for more specifics: 212.337.0863 / sacredchow@aol.com.</p>
+
+<p><strong>Murray&apos;s Bagels</strong> will offers up a selection of bagel spreads in their catering menu (<a href="https://web.archive.org/web/20120103121459/http://www.murraysbagels.com/menus/Menu.pdf">PDF</a>), with a traditional platter for 10 starting at $165, that features bagels, smoked salmon, capers, onions, tomatoes. They also have a coffee/tea service at $1.95 per person, and a dessert platter with macaroons and coffee cake, starting at $50.</p>
+
+<p><strong>Fresh Direct</strong> has a lot of catered options that you can order. A <a href="https://web.archive.org/web/20120103121459/http://www.freshdirect.com/product.jsp?catId=cat_pack&amp;productId=cat_brkpl_one812&amp;trk=srch&amp;trkd=relv&amp;rank=4">breakfast package</a> costs  $59 to $79, depending on how many you&apos;re serving, and includes fruit, cheese, breakfast pastries, bagels, and juice. You can also offer up <a href="https://web.archive.org/web/20120103121459/http://www.freshdirect.com/search.jsp?searchParams=brunch&amp;x=0&amp;y=0">a granola platter</a> or <a href="https://web.archive.org/web/20120103121459/http://www.freshdirect.com/product.jsp?catId=cat_breakfast&amp;productId=cat_swt_brnchpstry&amp;trk=srch&amp;trkd=relv&amp;rank=3">baked goods platter</a> for $35 and under.</p>
+
+<p><span class="photo_caption"><em>With <a href="https://web.archive.org/web/20120103121459/https://twitter.com/#!/nellcasey">Nell Casey</a>.</em></span></p>

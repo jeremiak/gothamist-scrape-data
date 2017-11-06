@@ -1,0 +1,16 @@
+---
+author: Jen Chung
+date: June 23, 2010 10:57 AM
+title: Primetime Love Gov: Spitzer Gets CNN Show
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2010_06_spitzerparker.jpg" src="https://web.archive.org/web/20110312032037im_/http://gothamist.com/attachments/jen/2010_06_spitzerparker.jpg" width="292" height="219" class="image-left"> </span>Of course, cable TV loves a scandal-shamed former governor enough to give him his own TV show&#x2014;and New York, be proud that CNN loves our prostitute-frequenting former governor! <a href="https://web.archive.org/web/20110312032037/http://gothamist.com/tags/eliotspitzer">Eliot Spitzer</a>, the<a href="https://web.archive.org/web/20110312032037/http://gothamist.com/2008/03/23/spitzer_reporte.php"> allegedly socks-on john</a>, will be teaming up with columnist Kathleen Parker for an <a href="https://web.archive.org/web/20110312032037/http://politicalticker.blogs.cnn.com/2010/06/23/spitzer-parker-to-host-primetime-cnn-show/?fbid=Ibr22XP0v5I">8 p.m. CNN &quot;roundtable discussion&quot; show</a>.  CNN president Jon Klein said, &quot;Other cable news channels force-feed viewers one narrow, predictable point of view; in contrast, CNN will be offering a lively roundup of all the best ideas - presented by two of the most intelligent and outspoken figures in the count. Eliot and Kathleen are beholden to no vested interest - in fact, quite the opposite: they are renowned for taking on the most powerful targets and most important causes.&quot;</p>
+
+<p>Politico&apos;s Mike Allen <a href="https://web.archive.org/web/20110312032037/http://www.politico.com/news/stories/0610/38914.html">met the pair and wrote</a>, &quot;Spitzer is controversial and Parker is spicy. The two met for the first time recently, at Spitzer&#x2019;s office... In their first joint interview, the two sounded slightly playful, and Parker made it clear she&#x2019;ll stand up to Spitzer.&quot;</p><blockquote>Asked how they&#x2019;ll make it exciting rather than snoozy, Parker said: &#x201C;Rather than snoozy!? Come one, Mike, you really think we&#x2019;d be boring?&#x201D;<p></p>
+
+<p>Spitzer: &#x201C;I don&#x2019;t think boredom is the issue. The issue is how you transform cantankerous argument into thoughtful conversation. And the answer there is fact &#x2014; facts and cleverness. Kathleen will be the wit and the charm. And we&#x2019;ll come back to facts over and over again, because so much of what you hear on TV these days is ideology untethered from facts. What we&#x2019;re going to do is be rigorous about coming to facts and being true to them.&#x201D;</p>
+
+<p>If Parker is the wit and the charm, what is Spitzer?</p>
+
+<p>&#x201C;He&#x2019;s brilliant, and experienced in public policy,&#x201D; she said. &#x201C;He is the politician. I&#x2019;m a reporter. So it ought to be interesting to see how we interact.&#x201D;</p></blockquote><br>
+Spitzer&apos;s CNN quote includes, &quot;I am grateful to CNN for the opportunity to co-host a show that will advance the discussion of the defining issues of our time.&quot; The cable news network&apos;s <a href="https://web.archive.org/web/20110312032037/http://www.nytimes.com/2010/03/30/business/media/30cnn.html">ratings have been falling steadily</a>. <p></p>

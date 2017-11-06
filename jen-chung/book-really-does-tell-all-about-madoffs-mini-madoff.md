@@ -1,0 +1,11 @@
+---
+author: Jen Chung
+date: Aug 19, 2009 2:53 pm
+title: Book Really Does Tell All About Madoff's Mini-Madoff
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2009_08_weins.jpg" src="https://web.archive.org/web/20160513151002im_/http://gothamist.com/attachments/jen/2009_08_weins.jpg" width="115" height="159" class="image-right"> </span>Warning: This is extremely TMI, so those with delicate constitutions may prefer not to continue reading. <a href="https://web.archive.org/web/20160513151002/http://www.bloomberg.com/apps/news?pid=20601109&amp;sid=aKMd6KBEnngE">Bloomberg News has an excerpt</a> of Sheryl Weinstein&apos;s <a href="https://web.archive.org/web/20160513151002/http://gothamist.com/2009/08/14/ruth_madoffs_lawyer_comments_on_ber.php">book</a>&#x2014;<em><a href="https://web.archive.org/web/20160513151002/http://gothamist.com/2009/08/13/madoffs_cfo_can_pull_the_curtain_ba.php">Madoff&apos;s Other Secret</a></em>&#x2014; about her alleged affair with Ponzi schemer Bernard Madoff.  Weinstein writes, &quot;Bernie had a very small penis. Not only was it on the short side, it was small in circumference. That he was now pointing it out to me was telling. It clearly caused him great angst. I wanted to be careful how I responded. Men and their penises have a strange and unique relationship...[However] I liked this man and didn&#x2019;t want to emasculate him. His tiny penis hadn&#x2019;t prevented me from climaxing...<strong>On the bright side, oral sex would be a breeze.</strong>&quot; Way to look on the bright side!  Weinstein met Madoff while handling finances for the Hadassah organization (she invested millions of the group&apos;s money with Madoff).  Madoff&apos;s lawyer said Weinstein&apos;s claims were just &quot;allegations she has made. I certainly hope she was more discreet about her obligations to Hadassah than she was about her sex life [which is] far less interesting.&quot; Zing! [Via <a href="https://web.archive.org/web/20160513151002/http://nymag.com/daily/intel/2009/08/on_the_short_side_small_in_cir.html">Daily Intel</a>]</p>					
+										
+									
+				

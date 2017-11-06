@@ -1,0 +1,23 @@
+---
+author: Nell Casey
+date: Mar 13, 2017 10:30 am
+title: Free Pie In Honor Of Pi Day & Other Blizzard Fortifiers
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="031317pipie.jpg" src="https://web.archive.org/web/20170712163142im_/http://gothamist.com/attachments/nyc_nellcasey/031317pipie.jpg" width="640" height="500"> <br> <i> (Mah-Ze-Dahr Bakery)</i></div> <p></p>
+
+<p>We&apos;ll all likely be <a href="https://web.archive.org/web/20170712163142/http://gothamist.com/2017/03/12/nyc_blizzard_watch.php">snowed in</a> on Tuesday, so take the opportunity to stuff your face tonight at the annual <strong><a href="https://web.archive.org/web/20170712163142/http://www.greenwichhouse.org/news/taste_of_GH/index_copy">Taste of Greenwich House</a></strong>, which raises critical funds for the House&apos;s programs for seniors, arts education and behavioral health programs. There are <a href="https://web.archive.org/web/20170712163142/http://www.greenwichhouse.org/news/taste_of_GH/participating_restaurants">many participating restaurants</a>, including One If By Land, Two If By Sea; Murray&apos;s Cheese Bar; Harold&apos;s Meat + Three; The Meatball Shop; and Left Bank. Tickets available at the door ($175 GA, $250 VIP) at <a href="https://web.archive.org/web/20170712163142/http://www.metropolitanevents.com/">Metropolitan Pavilion</a>, where the event is held. </p>
+
+<p>If you haven&apos;t yet had an opportunity to visit one of <a href="https://web.archive.org/web/20170712163142/http://gothamist.com/2016/09/27/mah-ze-dahr_best_new_bakery.php#photo-1">NYC&apos;s best new bakeries</a>, perhaps some free food will be enough impetus. Tomorrow, March 14th, in observance of <strong>National Pi Day</strong>, <a href="https://web.archive.org/web/20170712163142/https://mahzedahrbakery.com/">Mah Ze Dahr Bakery</a> in the West Village will reward numbers-oriented baked good-lovers with a free hand pie for every $10 you spend on their other luscious baked goods. The pies are filled with things like Nutella and fresh fruits to fuel <strike>reciting the first trillion digits</strike> walking to the subway.</p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="031317paella.jpg" src="https://web.archive.org/web/20170712163142im_/http://gothamist.com/attachments/nyc_nellcasey/031317paella.jpg" width="640" height="427"> <br> <i> (Kaylee Dopkins)</i></div> <p></p>
+
+<p>Beginning Tuesday and running through <strong>National Paella Day</strong> on March 27th (sensing a trend?), nearly 50-year-old Spanish Eatery <a href="https://web.archive.org/web/20170712163142/http://www.tiopepenyc.com/">Tio Pepe</a> will offer a dining deal on their rich rice dishes. The Paella Special ($20) includes any of their paellas&#x2014;including the Marinera with Bomba rice, seafood and saffron, normally $24&#x2014;plus a glass of rioja, a wine from one of Spain&apos;s most well-known regions. </p>
+
+<p>On Wednesday, emerge from the snowfall with some sparkling wines at <a href="https://web.archive.org/web/20170712163142/http://www.eggshopnyc.com/">Egg Shop</a>, who are celebrating a new cookbook and a new lease for a second location with a wine-paired dinner. <a href="https://web.archive.org/web/20170712163142/https://www.eventbrite.com/e/bubbles-eggs-tickets-32533274901">Bubbles + Eggs</a> is a five-course meal prepared by Egg Shop&apos;s Nick Korbee, inspired by global sparkling wines selected by <a href="https://web.archive.org/web/20170712163142/http://gothamist.com/2015/11/24/best_wine_bars_nyc.php">wine savvy</a> Rachel Signer. The meal (<a href="https://web.archive.org/web/20170712163142/https://www.eventbrite.com/e/bubbles-eggs-tickets-32533274901">$80</a> for either a 7 p.m. or 8:45 p.m. seating) also includes one welcome cocktail featuring Boukman Rhum from Haiti; prices do not include gratuity.</p>
+
+<p>Finally, if only a gigantic steak will do, head to <a href="https://web.archive.org/web/20170712163142/https://www.americancutsteakhouse.com/">American Cut</a>, Marc Forgione&apos;s Tribeca and Midtown steakhouses that are celebrating their first birthdays. Order the off-menu &quot;birthday steak&quot; and you&apos;ll receive 96 ounces of prime, bone-in chateaubriand, which they&apos;ll flambee table-side in brandy with parsley, shallots, chives and cornichons. It&apos;s finished with a bone marrow bordelaise sauce. You&apos;ll need at least two other friends (and possibly three) to devour the $189 steak. </p>					
+										
+									
+				

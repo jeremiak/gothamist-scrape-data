@@ -1,0 +1,41 @@
+---
+author: Emma Whitford
+date: May 3, 2016 2:22 pm
+title: Report: ACS Conducts Lax Investigations Into Child Abuse And Neglect
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-right"> <img alt="2016_02_kaleenahmuldrow.jpg" src="https://web.archive.org/web/20161210055125im_/http://gothamist.com/attachments/nyc_ewhitford/2016_02_kaleenahmuldrow.jpg" width="300" height="338"> <br> <i style=" width:300px; ;display:block"> Kaleenah Muldrow died in a house fire in February; her mother was being investigated by ACS at the time (via Instagram). </i></div> The <a href="https://web.archive.org/web/20161210055125/http://www1.nyc.gov/site/acs/index.page">City Administration for Children&apos;s Services (ACS)</a> has consistently failed to investigate and report allegations of child abuse, hold its contracted foster care providers to a high standard of care, and maintain accurate records, according to a Department of Investigation report [<a href="https://web.archive.org/web/20161210055125/http://www.nyc.gov/html/doi/downloads/pdf/2016/May%202016/14-ACS%20Report%2005-03-16_FINAL%20w%20Report.pdf">PDF</a>] released Tuesday. <p></p>
+
+<p>Investigators said the administration&apos;s lax management has prompted many children to suffer repeat abuse at the hands of their guardians&#x2014;according to DOI, about 16% of children whom ACS identified as abuse victims during the investigation period were victimized again within the same year. ACS also consistently flouts the law by failing to terminate <a href="https://web.archive.org/web/20161210055125/https://www.nycourts.gov/courthelp/family/parentalRights.shtml">parental rights</a> for children who have been in foster care for 17 out of 22 months&#x2014;a necessary first step in the adoption process. Over the last three years 3,711 children, or 82% of all cases, have remained in ACS custody past the legally mandated threshold. </p>
+
+<p>There are approximately 10,000 children currently in foster care in NYC, according to the DOI. The average foster care stay is 3.2 years, compared to 1.7 years nationwide. </p>
+
+<p>In an apparently blatant conflict of interest, ACS has also assigned abuse and neglect investigations to caseworkers already working with the families in question, essentially calling on caseworkers to investigate themselves. </p>
+
+<p>&quot;ACS is the first line of defense for the defenseless,&quot; said DOI Commissioner Mark Peters in a statement. &quot;On several occasions ACS and its provider agencies failed to take necessary steps to protect children and at times may actually have put them in harm&apos;s way.&quot; </p>
+
+<p>In one case highlighted in the report, a preschool-age child (&quot;Alex&quot;) was beaten to death by her mother, a woman with documented anger management and drug abuse issues. The mother was on ACS&apos;s radar for 12 years before the murder, and regained custody of her children multiple times following ACS intervention. </p>
+
+<p>Conducted over the course of 18 months, the report is based on DOI&apos;s review of available ACS documents, as well as interviews with caseworkers on three tragic cases from 2014 (victims are referred to with pseudonyms). Morgan, another preschool-age child, died under &quot;suspicious&quot; circumstances while in the care of her mother&#x2014;a woman ACS had investigated for parental neglect 11 times in a 12 year period. The report faults ACS for failing to acknowledge chronic neglect in the household, despite the agency&apos;s own findings that the children seldom attended school and lived in a garbage-strewn apartment with exposed electrical wiring. </p>
+
+<p>In another case, a child told his classmates that his parents were starving him and hitting him. The school notified ACS, which allegedly waited two months to interview the child&apos;s classmates, even as the abuses escalated. A caseworker also incorrectly recorded his weight, which would have indicated malnourishment if properly documented. </p>
+
+<p>Today&apos;s report follows an <a href="https://web.archive.org/web/20161210055125/http://nynmedia.com/news/three-arrested-as-city-doi-releases-scathing-report-on-close-to-home-oversight">April DOI report</a> on alleged mismanagement within ACS, which focused on <a href="https://web.archive.org/web/20161210055125/http://ocfs.ny.gov/main/rehab/close_to_home/">Close To Home</a>, a city program that places juvenile offenders in city-contracted residences near their families. The earlier investigation documented inadequate security measures at the facilities, and focused on contract agency <a href="https://web.archive.org/web/20161210055125/http://www.boystown.org/locations/new-york">Boys Town New York</a>. Three teenage boys escaped from a Boys Town-operated facility in Brooklyn last June, and later <a href="https://web.archive.org/web/20161210055125/http://gothamist.com/2015/06/03/teens_sneaked_out_of_group_home_bef.php">raped and robbed a woman</a> in Chinatown. DOI made five arrests in conjunction with that report, and ACS and Boys Town terminated their contract with that facility. </p>
+
+<p>In response to DOI&apos;s findings, ACS has agreed to discipline six out of seven employees identified in the report. DOI also recommended that ACS mandate suspension or additional supervision for employees who are under disciplinary review. </p>
+
+<p><a href="https://web.archive.org/web/20161210055125/http://www.legal-aid.org/en/home.aspx">Legal Aid Society</a> attorney Tamara Steckler, who runs the organization&apos;s <a href="https://web.archive.org/web/20161210055125/https://www.legal-aid.org/en/juvenilerights/juvenilepractice.aspx">juvenile rights practice</a> and represents children in the foster care system, said on Tuesday that ACS should not be uniformly criticized for a backlog of cases involving children legally bound to their parents. </p>
+
+<p>&quot;Data... can skew the picture,&quot; she said. &quot;New York State provides a lot of due process for children and parents. Every parent and child gets a lawyer. Sometimes when you provide that due process, things slow down.&quot; </p>
+
+<p>Steckler, who has represented foster children for over a decade in NYC, added that within the last year ACS has made a concerted effort to discuss reform efforts with Legal Aid, as well as the Bronx Defenders, <a href="https://web.archive.org/web/20161210055125/http://www.lawyersforchildren.org/">Lawyers for Children</a>, and academics including <a href="https://web.archive.org/web/20161210055125/http://parenting.blogs.nytimes.com/2010/08/26/parenting-under-scrutiny/">Chris Gottlieb of NYU</a>. &quot;We&apos;re actually sitting around a table with ACS to discuss what reforms are necessary,&quot; she added.</p>
+
+<p>A spokesperson for ACS said on Tuesday that the agency has recently appointed an internal monitor, and hired 700 new staff members, reducing case loads to 10-12 per worker. The &quot;No Time To Wait&quot; program, instated in 2014, is intended to speed up placement for long-time foster cases. The City <a href="https://web.archive.org/web/20161210055125/http://www.nbcnewyork.com/news/local/Fatal-Fire-Bedford-Stuyvesant-Brooklyn-New-York-Police-Baby-369839951.html">promised additional ACS funding</a> in February, after a two-year-old girl on ACS&apos;s radar <a href="https://web.archive.org/web/20161210055125/http://gothamist.com/2016/02/25/acs_was_investigating_mom_who_left.php">died in a Brooklyn apartment fire</a>. </p>
+
+<p>&quot;Since these tragedies [highlighted in today&apos;s report] occurred in early 2014, Mayor Bill de Blasio has invested over $100 million to strengthen the child welfare system,&quot; said a spokesperson for ACS in a statement Tuesday. &quot;This massive investment has increased access to preventive services, reduced caseloads to historic lows, and launched a new professional development institute for case workers.&quot; </p>
+
+<p><strong>UPDATE:</strong> This piece has been updated to include comments from the Legal Aid Society. </p>					
+										
+									
+				

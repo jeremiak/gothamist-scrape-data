@@ -1,0 +1,17 @@
+---
+author: Jen Chung
+date: May 12, 2009 2:05 pm
+title: Buffalo Plane Crash Pilots' Final Moments: "Jesus Christ" and Screams
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:280px; "> <img alt="2009_05_3407pilots.jpg" src="https://web.archive.org/web/20150124044754im_/http://gothamist.com/attachments/jen/2009_05_3407pilots.jpg" width="280" height="202"> <br> <i>Photographs of pilot Marvin Renslow and co-pilot Rebecca Shaw from the AP</i></div> The National Transportation Safety Board began its three days of meetings examining Continental Flight 3407&apos;s <a href="https://web.archive.org/web/20150124044754/http://gothamist.com/2009/02/13/flight_recorders_retrieved_from_fat.php">fatal crash outside Buffalo</a> this past February.<a href="https://web.archive.org/web/20150124044754/http://www.1010wins.com/NTSB-Transcripts--Last-Words-Aboard-Flight-3407/4380620"> Transcripts of the cockpit voice recorder</a> reveal that Captain Marvin Renslow <a href="https://web.archive.org/web/20150124044754/http://www.nypost.com/seven/05122009/news/regionalnews/buffalo_crash_pilots_final_words__jesus__168876.htm">said, &quot;Jesus Christ!&quot;</a> and swore as he scrambled to right the plane and that co-pilot Rebecca Shaw screamed right before the plane crashed. <p></p>
+
+<p>Renslow&apos;s training is coming under scrutiny.  Renslow, 47, apparently <a href="https://web.archive.org/web/20150124044754/http://www.nytimes.com/2009/05/12/nyregion/12pilot.html?ref=nyregion">failed three FAA proficiency checks before Colgan Air</a> (which operated the Continental flight) in 2005; he only told Colgan about one of the failures.  The Buffalo News also reports, &quot;The plane that crashed, the Bombardier Dash 8 Q400, includes an unusual feature that increases the speed at which the plane&apos;s stall warning system will activate when flying in icing conditions. <strong>Colgan never provided pilots with any instruction in that unusual feature until the autumn before the crash</strong>, sources said. In addition, Colgan&apos;s training program does not include simulator training into how pilots should react when the stall warning system activates.&quot;</p>
+
+<p>On the recorder, Shaw is heard telling Renslow, &quot;<strong>I&apos;ve never seen icing conditions. I&apos;ve never de-iced. I&apos;ve never seen any. I&apos;ve never experienced any of that. I don&apos;t want to have to experience that and make those kinds of calls.</strong> You know I&apos;d &apos;ve freaked out. I&apos;d have like seen this much ice and thought oh my gosh we were going to crash.&quot; Shaw also <a href="https://web.archive.org/web/20150124044754/http://www.nypost.com/seven/05122009/news/regionalnews/crash_captain_was_coming_on_to_pretty_co_168824.htm">apparently had a head cold</a> and mentions she should have taken a sick day; sources add she may have been fatigued after taking a red eye to Newark for the flight.</p>
+
+<p>The <a href="https://web.archive.org/web/20150124044754/http://www.nydailynews.com/news/2009/05/12/2009-05-12_what_the_hell_was_this_guy_doing_flying_this_airplane_buffalo_crash_vics_son_fur.html#ixzz0FJfcoTBg&amp;B">son of one of the victims said</a>, &quot;What the hell was this guy doing flying this airplane? ... It is not the pilot&apos;s fault, it&apos;s the airline&apos;s fault. If I go to the DMV and I can&apos;t drive, they won&apos;t give me a license.&quot;</p>					
+										
+									
+				

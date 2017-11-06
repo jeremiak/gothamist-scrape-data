@@ -1,0 +1,52 @@
+---
+author: Jen Carlson
+date: Oct 19, 2012 2:02 pm
+title: Photos: Cats And Dogs Get Dolled Up For The Cameras
+---
+
+	
+					<div class="galleryEase" id="gallery-539403">
+<!-- gallery js -->
+<script type="text/javascript" src="https://web.archive.org/web/20150519034718js_/http://assets.gothamistllc.com/v5/js/gallery.js"></script>
+<!-- end gallery js -->
+
+<style type="text/css">
+#imgContainer {
+min-height: 300px;
+min-width: 300px;
+background: url('https://web.archive.org/web/20150519034718im_/http://assets.gothamistllc.com/v5/images/progress.gif') center center no-repeat;
+}
+</style>
+
+<!--start of gallery code-->
+<a name="gallery"></a>
+<div class="galleryEaseDisplayed">
+<div id="imgContainer">
+    <img id="galleryImg">
+</div>
+<div class="galleyEaseInfo"></div>
+<div class="galleryEaseNext"></div>
+<div class="galleryEasePrev"></div>
+</div>
+<div class="galleryEaseThumbs">
+		<img src="https://web.archive.org/web/20150519034718im_/http://gothamist.com/assets_c/2012/10/21catfashion1012-thumb-60x60-749491.jpg" title="" id="photo_1" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":1, "image": "https://web.archive.org/web/20150519034718/http://gothamist.com/upload/2012/10/21catfashion1012.jpg", "caption": "\<span class=\"photo_caption\"\>Photo by \<a href=\"http://colormekatie.blogspot.com/\"\>Katie Sokoler\<\/a\>/Gothamist\<\/span\>", "credit":""};galleryObj['photo_1'] = photo;</script>
+		<img src="https://web.archive.org/web/20150519034718im_/http://gothamist.com/assets_c/2012/10/23catfashion1012-thumb-60x60-749490.jpg" title="" id="photo_2" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":2, "image": "https://web.archive.org/web/20150519034718/http://gothamist.com/upload/2012/10/23catfashion1012.jpg", "caption": "\<span class=\"photo_caption\"\>Photo by \<a href=\"http://colormekatie.blogspot.com/\"\>Katie Sokoler\<\/a\>/Gothamist\<\/span\>", "credit":""};galleryObj['photo_2'] = photo;</script>
+		<img src="https://web.archive.org/web/20150519034718im_/http://gothamist.com/assets_c/2012/10/5catfashion1012-thumb-60x60-749493.jpg" title="" id="photo_3" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":3, "image": "https://web.archive.org/web/20150519034718/http://gothamist.com/upload/2012/10/5catfashion1012.jpg", "caption": "\<span class=\"photo_caption\"\>Photo by \<a href=\"http://colormekatie.blogspot.com/\"\>Katie Sokoler\<\/a\>/Gothamist\<\/span\>", "credit":""};galleryObj['photo_3'] = photo;</script>
+		<img src="https://web.archive.org/web/20150519034718im_/http://gothamist.com/assets_c/2012/10/6catfashion1012-thumb-60x60-749492.jpg" title="" id="photo_4" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":4, "image": "https://web.archive.org/web/20150519034718/http://gothamist.com/upload/2012/10/6catfashion1012.jpg", "caption": "\<span class=\"photo_caption\"\>Okay, this look was \<a href=\"http://gothamist.com/2012/08/09/cat_fashion_show_1.php#photo-3\"\>a repeat\<\/a\>. (Photo by \<a href=\"http://colormekatie.blogspot.com/\"\>Katie Sokoler\<\/a\>/Gothamist)\<\/span\>", "credit":""};galleryObj['photo_4'] = photo;</script>
+		<img src="https://web.archive.org/web/20150519034718im_/http://gothamist.com/assets_c/2012/10/catfashion1012-thumb-60x60-749495.jpg" title="" id="photo_5" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":5, "image": "https://web.archive.org/web/20150519034718/http://gothamist.com/upload/2012/10/catfashion1012.jpg", "caption": "\<span class=\"photo_caption\"\>Photo by \<a href=\"http://colormekatie.blogspot.com/\"\>Katie Sokoler\<\/a\>/Gothamist\<\/span\>", "credit":""};galleryObj['photo_5'] = photo;</script>
+		<img src="https://web.archive.org/web/20150519034718im_/http://gothamist.com/assets_c/2012/10/3catfashion1012-thumb-60x60-749497.jpg" title="" id="photo_6" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":6, "image": "https://web.archive.org/web/20150519034718/http://gothamist.com/upload/2012/10/3catfashion1012.jpg", "caption": "\<span class=\"photo_caption\"\>Photo by \<a href=\"http://colormekatie.blogspot.com/\"\>Katie Sokoler\<\/a\>/Gothamist\<\/span\>", "credit":""};galleryObj['photo_6'] = photo;</script>
+		<img src="https://web.archive.org/web/20150519034718im_/http://gothamist.com/assets_c/2012/10/24catfashion1012-thumb-60x60-749489.jpg" title="" id="photo_7" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":7, "image": "https://web.archive.org/web/20150519034718/http://gothamist.com/upload/2012/10/24catfashion1012.jpg", "caption": "\<span class=\"photo_caption\"\>Photo by \<a href=\"http://colormekatie.blogspot.com/\"\>Katie Sokoler\<\/a\>/Gothamist\<\/span\>", "credit":""};galleryObj['photo_7'] = photo;</script>
+<br>		<img src="https://web.archive.org/web/20150519034718im_/http://gothamist.com/assets_c/2012/10/14catfashion1012-thumb-60x60-749503.jpg" title="" id="photo_8" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":8, "image": "https://web.archive.org/web/20150519034718/http://gothamist.com/upload/2012/10/14catfashion1012.jpg", "caption": "\<span class=\"photo_caption\"\>Photo by \<a href=\"http://colormekatie.blogspot.com/\"\>Katie Sokoler\<\/a\>/Gothamist\<\/span\>", "credit":""};galleryObj['photo_8'] = photo;</script>
+		<img src="https://web.archive.org/web/20150519034718im_/http://gothamist.com/assets_c/2012/10/13catfashion1012-thumb-60x60-749504.jpg" title="" id="photo_9" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":9, "image": "https://web.archive.org/web/20150519034718/http://gothamist.com/upload/2012/10/13catfashion1012.jpg", "caption": "\<span class=\"photo_caption\"\>Photo by \<a href=\"http://colormekatie.blogspot.com/\"\>Katie Sokoler\<\/a\>/Gothamist\<\/span\>", "credit":""};galleryObj['photo_9'] = photo;</script>
+		<img src="https://web.archive.org/web/20150519034718im_/http://gothamist.com/assets_c/2012/10/10catfashion1012-thumb-60x60-749505.jpg" title="" id="photo_10" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":10, "image": "https://web.archive.org/web/20150519034718/http://gothamist.com/upload/2012/10/10catfashion1012.jpg", "caption": "\<span class=\"photo_caption\"\>Photo by \<a href=\"http://colormekatie.blogspot.com/\"\>Katie Sokoler\<\/a\>/Gothamist\<\/span\>", "credit":""};galleryObj['photo_10'] = photo;</script>
+		<img src="https://web.archive.org/web/20150519034718im_/http://gothamist.com/assets_c/2012/10/8catfashion1012-thumb-60x60-749506.jpg" title="" id="photo_11" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":11, "image": "https://web.archive.org/web/20150519034718/http://gothamist.com/upload/2012/10/8catfashion1012.jpg", "caption": "\<span class=\"photo_caption\"\>Photo by \<a href=\"http://colormekatie.blogspot.com/\"\>Katie Sokoler\<\/a\>/Gothamist\<\/span\>", "credit":""};galleryObj['photo_11'] = photo;</script>
+		<img src="https://web.archive.org/web/20150519034718im_/http://gothamist.com/assets_c/2012/10/19catfashion1012-thumb-60x60-749507.jpg" title="" id="photo_12" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":12, "image": "https://web.archive.org/web/20150519034718/http://gothamist.com/upload/2012/10/19catfashion1012.jpg", "caption": "\<span class=\"photo_caption\"\>Photo by \<a href=\"http://colormekatie.blogspot.com/\"\>Katie Sokoler\<\/a\>/Gothamist\<\/span\>", "credit":""};galleryObj['photo_12'] = photo;</script>
+		<img src="https://web.archive.org/web/20150519034718im_/http://gothamist.com/assets_c/2012/10/catz026-thumb-60x60-749508.jpg" title="" id="photo_13" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":13, "image": "https://web.archive.org/web/20150519034718/http://gothamist.com/upload/2012/10/catz026.jpg", "caption": "\<span class=\"photo_caption\"\>Photo by \<a href=\"http://colormekatie.blogspot.com/\"\>Katie Sokoler\<\/a\>/Gothamist\<\/span\>", "credit":""};galleryObj['photo_13'] = photo;</script>
+		<img src="https://web.archive.org/web/20150519034718im_/http://gothamist.com/assets_c/2012/10/17catfashion1012-thumb-60x60-749509.jpg" title="" id="photo_14" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":14, "image": "https://web.archive.org/web/20150519034718/http://gothamist.com/upload/2012/10/17catfashion1012.jpg", "caption": "\<span class=\"photo_caption\"\>Photo by \<a href=\"http://colormekatie.blogspot.com/\"\>Katie Sokoler\<\/a\>/Gothamist\<\/span\>", "credit":""};galleryObj['photo_14'] = photo;</script>
+									
+</div></div>					<p>This weekend the American Kennel Club and International Cat Association are hosting their annual <a href="https://web.archive.org/web/20150519034718/http://gothamist.com/tags/meetthebreeds">Meet The Breeds</a> event at the Javits Center. Yesterday we got a sneak peek at some of the animals taking part this year... and some even dressed up for the occasion! Having been on the <a href="https://web.archive.org/web/20150519034718/http://gothamist.com/tags/catfashionshow">feline fashion</a> and <a href="https://web.archive.org/web/20150519034718/http://gothamist.com/tags/dogfashionshow">canine couture</a> beat for years, we were happy to see that these four-legged furballs <em>finally</em> got some news looks&#x2014;there wasn&apos;t <a href="https://web.archive.org/web/20150519034718/http://gothamist.com/2010/08/12/cat_fashion_show.php#photo-13">a fruit hat</a> in sight! Click through for a look at some of the refreshing new animal outfits hitting the runway these days (as well as some animals that prefer going au natural).<br>
+ <br>
+<a href="https://web.archive.org/web/20150519034718/http://classic.akc.org/meet_the_breeds/index.html">Meet the Breeds</a> is taking place this Saturday and Sunday, and will include a Kitty CATure feline fashion show; something called Dancing with the Dogs <em>which sounds amazing</em>; cat and dog agility tests and races; and even Beefy the Skateboarding Bulldog will be there!</p>					
+										
+									
+				

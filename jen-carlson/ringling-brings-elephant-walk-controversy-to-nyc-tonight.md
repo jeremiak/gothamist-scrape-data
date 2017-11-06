@@ -1,0 +1,18 @@
+---
+author: Jen Carlson
+date: Mar 23, 2009 4:19 pm
+title: Ringling Brings Elephant Walk, Controversy to NYC Tonight
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-right" style=" width:350px; "> <img alt="0309elephants.jpg" src="https://web.archive.org/web/20151028230852im_/http://gothamist.com/attachments/arts_jen/0309elephants.jpg" width="350" height="313"> <br> <i><span class="photo_caption">Photo via <a href="https://web.archive.org/web/20151028230852/http://www.flickr.com/photos/semyon/116199313/">semyon&apos;s flickr</a>.</span></i></div> The Ringling Bros. dubs the Elephant Walk the &quot;media event of the year,&quot; but it&apos;s more likely to create a bit of a media circus, which will all go down just before midnight tonight. <p></p>
+
+<p>Their &quot;annual parade of precocious pachyderms and high-stepping horses&quot; will begin once the animals are unloaded from their stock cars at 11:30 p.m. Expected to start their jaunt around 11:59 p.m., they&apos;ll likely be emerging from the Queens Midtown Tunnel on their way to Madison Square Garden around 12:30 a..m. This is all in celebration of <a href="https://web.archive.org/web/20151028230852/http://www.ringling.com/TourSchedule.aspx">Ringling&apos;s &quot;Zing Zang Zoom&quot; circus</a>, which will be housed at the Garden from March 26th through April 13th. </p>
+
+<p>Expect protesters to be out with the revelers, however, as many view the event as a parade of cruelty. <a href="https://web.archive.org/web/20151028230852/http://gothamist.com/2009/03/17/peta_scares_little_children.php">PETA already stopped by</a> a New York school to teach kids about circus cruelty through their arm-slinged elephant mascot. Meanwhile, <a href="https://web.archive.org/web/20151028230852/http://www.rational-animal.org/">Rational Animal</a> has comprised a list titled &quot;The Facts,&quot; which includes the following statements:</p><ul><li>Ringling Brothers Barnum &amp; Bailey Circus is currently being sued by the ASPCA, Animal Welfare Institute, The Fund for Animals and the Animal Protection Institute for violating the Ecircusndangered Species Act, abuse of wild, exotic animals.<br>
+</li><li>In this lawsuit, the leading animal welfare groups state that Ringling Bros. Circus staff &quot;routinely beat elephants, chain them for long periods of time, hit them with sharp bull hooks, break baby elephants with force to make them submissive, and forcibly remove baby elephants from their mothers before they are weaned.&quot;<br>
+</li><li>The Animal Welfare Institute has obtained evidence based on the circus&apos;s own documents that Ringling Bros. keeps elephants virtually immobilized in chains for the majority of their lives.<br>
+</li><li>Elephants perform for 8 minutes during each show. The rest of the time they are chained and confined to small areas and training entails hitting using a bullhook - a stick with a sharp metal hook on the end.</li></ul>At least <a href="https://web.archive.org/web/20151028230852/http://gothamist.com/2008/01/04/edison_vs_eleph.php">Thomas Edison</a> is out of the picture? Tomorrow at noon the New York League of Humane Voters (NYLHV), joined by City Council Member Rosie Mendez (D-Manhattan), Yetta Kurland, candidate for city council in the 3rd district which includes MSG and Bob, the NYLHV&#x2019;s &#x201C;elephant ambassador,&#x201D; will bring their message to MSG and Ringling Bros. They declare &quot;the days of bullying and abusing animals in the name of &apos;entertainment&apos; are over. New Yorkers refuse to support and expose their children to the product of beatings and bloodshed.&quot;<p></p>					
+										
+									
+				

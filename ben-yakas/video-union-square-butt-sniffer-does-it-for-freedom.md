@@ -1,0 +1,21 @@
+---
+author: Ben Yakas
+date: Sep 4, 2011 2:15 pm
+title: Video: Union Square Butt Sniffer Does It For Freedom
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="9411buttsniff.jpg" src="https://web.archive.org/web/20150820013250im_/http://gothamist.com/attachments/byakas/9411buttsniff.jpg" width="640" height="441" class="image-none"> </span></p>
+
+<p>Union Square is host to a bevy of unique bizarros, to the point that the square has <a href="https://web.archive.org/web/20150820013250/http://gothamist.com/2010/11/26/normal_bob_documents_union_square_w.php">its own anthropologist</a>, Normal Bob. And among Bob&apos;s <a href="https://web.archive.org/web/20150820013250/http://normalbobsmith.com/">many subjects</a> is Roman, who has gained some notoriety because of a campaign <a href="https://web.archive.org/web/20150820013250/http://www.vimeo.com/26500746">earlier this summer</a> to &quot;stop ageism&quot; by lowering the age of consent. Now, Roman has taken up a new cause: butt sniffing. Watch him explain his new &quot;fart smeller movement&quot; in a video <a href="https://web.archive.org/web/20150820013250/http://www.joeyboots.com/2011/09/03/can-i-smell-your-butt/">taken by Joey Boots</a> below, as well as convince two young women to let him try out his art:</p>
+
+<div style="text-align: center;"><img style="visibility:hidden;width:0px;height:0px;" border="0" width="0" height="0" src="https://web.archive.org/web/20150820013250im_/http://c.gigcount.com/wildfire/IMP/CXNID=2000002.11NXC/bT*xJmx*PTEzMTUxNTYyMjE2OTMmcHQ9MTMxNTE1NjIyNTYwMSZwPSZkPSZnPTImbz*yZDY2OWQwOWUwNzM*YTRiYTgzNTExNzk2/OGZiMTE5MSZvZj*w.gif"><object name="kaltura_player_1315156304" id="kaltura_player_1315156304" type="application/x-shockwave-flash" allowscriptaccess="always" allownetworking="all" allowfullscreen="true" height="330" width="400" data="https://web.archive.org/web/20150820013250im_/http://www.kaltura.com/index.php/kwidget/wid/0_9enqugjr/uiconf_id/535"><param name="allowScriptAccess" value="always"><param name="allowNetworking" value="all"><param name="allowFullScreen" value="true"><param name="bgcolor" value="#000000"><param name="movie" value="http://www.kaltura.com/index.php/kwidget/wid/0_9enqugjr/uiconf_id/535"><param name="flashVars" value=""><a href="https://web.archive.org/web/20150820013250/http://corp.kaltura.com/">video platform</a><a href="https://web.archive.org/web/20150820013250/http://corp.kaltura.com/video_platform/video_management">video management</a><a href="https://web.archive.org/web/20150820013250/http://corp.kaltura.com/solutions/video_solution">video solutions</a><a href="https://web.archive.org/web/20150820013250/http://corp.kaltura.com/video_platform/video_publishing">video player</a></object></div>
+
+<p>Roman&apos;s latest sensory project stems from an earlier one in which he face sat for peace...with a sign that read &quot;sit on my face for peace.&quot; You can watch a bit of that below, if you are so inclined:</p>
+
+<p><iframe src="https://web.archive.org/web/20150820013250if_/http://player.vimeo.com/video/26692402?title=0&amp;byline=0&amp;portrait=0" width="640" height="360" frameborder="0"></iframe></p><p><a href="https://web.archive.org/web/20150820013250/http://vimeo.com/26692402">Free Massages/Face Sitting project</a> from <a href="https://web.archive.org/web/20150820013250/http://vimeo.com/user5253582">Normal Bob</a> on <a href="https://web.archive.org/web/20150820013250/http://vimeo.com/">Vimeo</a>.</p><p></p>
+
+<p>As <a href="https://web.archive.org/web/20150820013250/http://www.normalbobsmith.com/amazingstrangers/122.html">Normal Bob put it</a>, the newest projects have at least solved one problem for Roman:  &quot;You see, no one knows who the hell you&apos;re talking about when you say &apos;Roman got thrown out of the park yesterday!&apos;&quot; Now he has a catchy name: the Fart Smeller. Or, as <a href="https://web.archive.org/web/20150820013250/http://animalnewyork.com/2011/09/the-union-square-butt-sniffer/">AnimalNY put it</a> (and our preferred nomen), the butt sniffer.</p>					
+										
+									
+				

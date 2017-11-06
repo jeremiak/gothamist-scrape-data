@@ -1,0 +1,41 @@
+---
+author: Emma Whitford
+date: Mar 20, 2017 11:11 am
+title: NYers Are Sharing Subway Swipes Today To Protest Broken Windows Policing
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="110216 swipeitforward.jpg" src="https://web.archive.org/web/20170830041740im_/http://gothamist.com/attachments/nyc_ewhitford/110216%20swipeitforward.jpg" width="640" height="480"> <br> <i> A #SwipeItForward action at the Nostrand Avenue A/C strop in Brooklyn last fall (Raphael Pope-Sussman / Gothamist). </i></div> <p></p>
+
+<p>The MTA&apos;s most recent fare hike <a href="https://web.archive.org/web/20170830041740/http://gothamist.com/2017/03/16/reminder_metrocard_fare_hike_coming.php">went into effect on Sunday</a>, and advocates are offering free subway swipes in low-income communities of color across the five boroughs today to mark the first pricier Monday commute. While the base fare <a href="https://web.archive.org/web/20170830041740/http://gothamist.com/2017/01/25/metrocard_monthly_fare_2017.php">held steady</a> this time around, at $2.75, a single swipe has been untenable for many low-income rides for years&#x2014;more than a quarter of low-income, working New Yorkers were unable to afford subway or bus fare at least once in 2015, according to a <a href="https://web.archive.org/web/20170830041740/http://b.3cdn.net/nycss/7169ea001b71493ce9_lvm6b2ptw.pdf">recent study</a> from the Community Service Society, a nonprofit that advocates for low-income New Yorkers. </p>
+
+<center><blockquote class="twitter-tweet" data-lang="en"><p lang="und" dir="ltr"><a href="https://web.archive.org/web/20170830041740/https://twitter.com/hashtag/SwipeItForward?src=hash">#SwipeItForward</a> <a href="https://web.archive.org/web/20170830041740/https://t.co/uRbavNGPcY">pic.twitter.com/uRbavNGPcY</a></p>&#x2014; Jamilah (@JamilahSimone) <a href="https://web.archive.org/web/20170830041740/https://twitter.com/JamilahSimone/status/843811490431991808">March 20, 2017</a></blockquote>
+<script async src="//web.archive.org/web/20170830041740js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<p>And while offering a swipe to a fellow straphanger is legal, evading the subway fare is not. The NYPD <a href="https://web.archive.org/web/20170830041740/https://twitter.com/NYPDTransit/status/834084696166367233">has said</a> that a civil summons is the go-to enforcement method for turnstile jumping. (&quot;Only repeat offenders and those with outstanding warrants are subject to arrest for fare evasion,&quot; stated Mayoral spokesman Austin Finan.) But statistics suggest beat cops take advantage of their discretionary right to make arrests. <a href="https://web.archive.org/web/20170830041740/https://www.dnainfo.com/new-york/20170223/financial-district/2000-people-were-arrested-for-turnstile-jumping-january-nypd">Two thousand such arrests</a> were reportedly made in January, suggesting that 2017 arrests are on par with years past. There were 30,000 fare beating arrests in 2015, according to the state Division of Criminal Justice Services, and 92 percent of arrestees were people of color. </p>
+
+<center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr"><a href="https://web.archive.org/web/20170830041740/https://twitter.com/hashtag/mta?src=hash">#mta</a>&apos;s &quot;improvements&quot; means I have to take a cab after work or ride <a href="https://web.archive.org/web/20170830041740/https://twitter.com/hashtag/subway?src=hash">#subway</a> for 1hr instead of 20mnts so hell yea I&apos;ll <a href="https://web.archive.org/web/20170830041740/https://twitter.com/hashtag/SwipeItForward?src=hash">#SwipeItForward</a> <a href="https://web.archive.org/web/20170830041740/https://twitter.com/hashtag/nyc?src=hash">#nyc</a> <a href="https://web.archive.org/web/20170830041740/https://t.co/X3O4n2NwXx">pic.twitter.com/X3O4n2NwXx</a></p>&#x2014; sleep_dprived_brtndr (@Catz_brtndr23) <a href="https://web.archive.org/web/20170830041740/https://twitter.com/Catz_brtndr23/status/843812733204226048">March 20, 2017</a></blockquote>
+<script async src="//web.archive.org/web/20170830041740js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<p>&quot;The vast majority of people arrested for this offense are Black or Latino,&quot; said Lisa Schreibersdorf, Executive Director of Brooklyn Defender Services, in a <a href="https://web.archive.org/web/20170830041740/http://gothamist.com/2016/11/02/swipeitforward_offers_free_swipes_t.php">statement last spring</a>. &quot;Many are detained on Rikers Island at a cost of about $500 per day simply because they might not be able to afford a $2.75 subway fare.&quot; </p>
+
+<p>The NYPD&apos;s track record on farebeating arrests has been in the spotlight this year, as advocates have challenged the police and Mayor Bill de Blasio to <a href="https://web.archive.org/web/20170830041740/http://gothamist.com/2017/02/25/nypd_turnstile_jumping_deportation.php">acknowledge a connection between Broken Windows policing and heightened federal immigration enforcement</a> under President Donald Trump. </p>
+
+<p>Larry Byrne, the New York Police Department&apos;s deputy commissioner for legal affairs, recently reiterated the NYPD&apos;s policy on cooperating with ICE: police will not detain a New Yorker on ICE&apos;s behalf unless he or she has committed one of 170 &quot;violent or serious&quot; felonies or is on a terrorism watch list. Turnstile jumping falls well outside this category. But attorneys and advocates for immigrants have pointed out that ICE enforcement is not predicated on NYPD cooperation. </p>
+
+<p>&quot;If you get arrested, you are fingerprinted,&quot; Legal Aid supervising immigration law attorney Ward Oliver told Gothamist recently. &quot;And once you&apos;re diverted into the criminal justice system, you&apos;re on [ICE&apos;s] radar.&quot; </p>
+
+<p>&quot;The remedy to a broken immigration policy is not to undermine an effective policing strategy that has helped make New York City the safest big city in the nation,&quot; Finan countered. </p>
+
+<p>Today&apos;s action is the latest from <a href="https://web.archive.org/web/20170830041740/https://twitter.com/search?f=tweets&amp;vertical=default&amp;q=%23swipeitforward&amp;src=typd">#SwipeItFoward</a>, a joint effort from the Police Reform Organizing Project, The Coalition To End Broken Windows, Black Lives Matter NYC, and other groups. Advocates are posted this morning at 125th Street/Lexington in Harlem, and Nostrand Avenue in Crown Heights. There are more actions planned for the evening commute, including one in Queens, though organizers said they&apos;re hesitant to disclose exact locations. </p>
+
+<p>&quot;We&apos;ve already had some negative interactions with the police,&quot; said organizer Peyton Berry. &quot;No arrests, but in Harlem police threatened to summons one of our organizers.&quot; </p>
+
+<p>&quot;We want New Yorkers to do this outside of this action,&quot; she added. </p>
+
+<p>Transit activists have <a href="https://web.archive.org/web/20170830041740/http://gothamist.com/2016/04/11/half_price_metrocards_nyc.php">spent the last year campaigning</a> for half-price MetroCards for poor New Yorkers&#x2014;about 800,000 people, excluding seniors and the disabled, who live at or below the federal poverty threshold, or $11,880 per year for a single adult. But while advocates have urged the city to front the estimated $200 million subsidy, city and state-appointed board members have <a href="https://web.archive.org/web/20170830041740/http://gothamist.com/2016/11/29/metrocard_reduced_fare.php">passed the buck</a>.</p>
+
+<p>&quot;The proposal is a noble one, but it would create a substantial financial burden for New York City,&quot; said Mayoral spokeswoman Freddi Goldstein in a statement Monday. &quot;As New Yorkers know, the MTA is the responsibility of the State. They should cover the cost.&quot;</p>					
+										
+									
+				

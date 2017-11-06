@@ -1,0 +1,15 @@
+---
+author: Jen Chung
+date: Mar 14, 2010 9:30 am
+title: Storm Causes Damage, Kills 3 Across Region
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:240px; "> <img alt="2010_03_brokenumb.jpg" src="https://web.archive.org/web/20150425172755im_/http://gothamist.com/attachments/jen/2010_03_brokenumb.jpg" width="240" height="320"> <br> <i><a href="https://web.archive.org/web/20150425172755/http://www.flickr.com/photos/22443247@N03/4429638005/in/photostream/">boogaloo66 on Flickr</a></i></div> The Nor&apos;easter that swept in yesterday left a lot of damages and three deaths in its wake.  Two people were <a href="https://web.archive.org/web/20150425172755/http://wcbstv.com/topstories/teaneck.storm.fatal.2.1560033.html">killed by a falling tree</a> in Teaneck, NJ while a woman in Bay Shore, Long Island was also <a href="https://web.archive.org/web/20150425172755/http://www.newsday.com/long-island/thousands-still-without-power-after-deadly-storm-1.1809317">killed by a falling tree</a>. Others experienced more downed trees, power outages, and flooding.<p></p>
+
+<p>Winds hit 60 MPH, and <a href="https://web.archive.org/web/20150425172755/http://www.nydailynews.com/news/2010/03/13/2010-03-13_storm_downs_trees_knocks_out_power_kills_two_in_new_jersey.html">126,000 residents were left without power</a> in NYC, 145,000 without power on Long Island, 66,000 without power in Connecticut, and 273,000 without power in NJ (some service has been restored). A few subway lines were suspended temporarily due to trees on tracks and track flooding while the Staten Island Ferry&apos;s service <a href="https://web.archive.org/web/20150425172755/http://gothamist.com/2010/03/13/winds_stop_staten_island_ferry_serv.php">was suspended</a> for six hours, because the winds made it difficult to dock the ferries. LIRR suspended some service and <a href="https://web.archive.org/web/20150425172755/http://wcbstv.com/topstories/nj.transit.outage.2.1560073.html">hundreds of NJ Transit</a> passengers were stuck on a train for five hours.  Also, there were (naturally) delays at the three area airports.</p>
+
+<p>The city&apos;s 911 and 311 systems were <a href="https://web.archive.org/web/20150425172755/http://gothamist.com/2010/03/13/winds_stop_staten_island_ferry_serv.php">overwhelmed</a>: NYPD spokesman <a href="https://web.archive.org/web/20150425172755/http://www.nytimes.com/2010/03/14/nyregion/14storm.html?ref=nyregion">Paul Browne said,</a> &quot;On a busy Saturday night we may get as many as a thousand calls in an hour. This Saturday evening we received as many as 4,000 in an hour, most of them weather related.&quot;  One woman whose grandparents&apos; home had no heat or electricity and also had flooding told the Daily News, &quot;We were calling for over an hour. We need the Fire Department more now than ever.&quot;</p>					
+										
+									
+				

@@ -1,0 +1,13 @@
+---
+author: Ben Yakas
+date: August 18, 2011  2:11 PM
+title: Thief Mistakenly Carjacks Kids, Then Drives Them Home
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="81811thief.jpg" src="https://web.archive.org/web/20111108001416im_/http://gothamist.com/attachments/byakas/81811thief.jpg" width="260" height="195" class="image-left"> </span>Can a thief also be a good Samaritan? A Queens carjacker <a href="https://web.archive.org/web/20111108001416/http://www.nypost.com/p/news/local/queens/schram_thief_drops_off_the_kids_5th9e8hyOHjB1THRt9dryJ">got more then he bargained for</a> when he stole an idling car on Tuesday&#x2014;he discovered two young kids and a poodle in the van. And after being inundated with cuteness, and scolded by the kids for trying to steal their change, he decided to drop them&#x2014;and the car&#x2014;off at their home.</p>
+
+<p>Sebastian Russo, father of 7-year-old John and 5-year-old Robert who were in the car, gave the Post a rundown of the incident. He said he had left the 2010 Honda Odyssey outside a store on Cross Bay Boulevard to get a leash for Colette, the poodle, when the thief swooped in. The dog refused to leave the front seat and yapped furiously. Then the thief had to face an even worse impediment: the precociousness of the kids. &quot;When he drove away, my older son told him, <strong>&apos;Do you know you&apos;re in the wrong car?&apos; </strong>&quot; Russo said.</p>
+
+<p>At one point, the thief &quot;went for the change tray, and my son said, &apos;Don&apos;t take our money!&apos; The guy said, &apos;I&apos;m only looking for dollars.&apos; &quot; But there weren&apos;t any, and &quot;he left the change alone,&quot; Russo said. As Russo was frantically calling police to start searching for the kids, his wife called to tell him that they, and the car, had been dropped off safe and sound at home. </p>
+
+<p>Back in April, a <a href="https://web.archive.org/web/20111108001416/http://gothamist.com/2011/04/02/nine-year-old_keeps_cool_head_durin.php">similar incident happened</a> when a thief spotted an idling SUV in Queens and sped off until he realized there was a nine-year-old in the backseat. As for Russo and his wife, they are now thankful to the carjacker: &quot;How mad can we be at him? He returned the car. He told my son, &apos;If you weren&apos;t in the car, I would have taken it,&apos; &quot; he said.</p>

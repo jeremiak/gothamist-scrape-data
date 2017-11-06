@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: August 27, 2008 11:32 AM
+title: Staten Island Man Charged with Hate Crime 
+---
+
+<p><img src="https://web.archive.org/web/20110611062839im_/http://gothamist.com/attachments/jen/2008_08_trucksistore.jpg" class="right">A 24-year-old man was <a href="https://web.archive.org/web/20110611062839/http://www.silive.com/news/index.ssf/2008/08/staten_island_man_charged_in_s.html">charged with three counts of criminal mischief as a hate crime</a>.  Police says Joseph Papapietro, 24, allegedly drove into three Mexican owned businesses on Port Richmond Avenue on Staten Island <a href="https://web.archive.org/web/20110611062839/http://gothamist.com/2008/08/18/search_for_driver_who_rammed_into_t.php">last week</a>.  Police arrested him after noticing the broken tail light on his red pickup truck (witnesses said the driver was in a red pickup) and the Advance reports that Papapietro &quot;made incriminating statements&quot; during questioning.  Cocaine residue was also found in his vehicle. The merchants are happy he was arrested, but <a href="https://web.archive.org/web/20110611062839/http://www.silive.com/news/index.ssf/2008/08/relief_tinged_with_unease_on_s.html">worry about others who may bear ill will</a>.</p>

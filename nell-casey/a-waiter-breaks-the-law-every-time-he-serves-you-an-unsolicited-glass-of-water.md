@@ -1,0 +1,17 @@
+---
+author: Nell Casey
+date: Feb 4, 2014 3:00 pm
+title: A Waiter Breaks The Law Every Time He Serves You An Unsolicited Glass Of Water
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="020414water.jpg" src="https://web.archive.org/web/20150422150325im_/http://gothamist.com/attachments/nyc_nellcasey/020414water.jpg" width="640" height="426"> <br> <i> <span class="photo_caption">(<a href="https://web.archive.org/web/20150422150325/http://www.shutterstock.com/gallery-310660p1.html">takayuki</a>/<a href="https://web.archive.org/web/20150422150325/http://www.shutterstock.com/index-in.mhtml">shutterstock</a>)</span></i></div> <p></p>
+
+<p>Restaurants that automatically serve you a glass of <a href="https://web.archive.org/web/20150422150325/http://gothamist.com/2012/03/05/what_else_is_in_your_tap_water_besi.php">pristine municipal water</a> when you haven&apos;t requested it are law-breaking hooligans, as it turns out. According to an obscure section of the Department of Environmental Protection&apos;s water use restrictions rules [<a href="https://web.archive.org/web/20150422150325/http://www.nyc.gov/html/dep/pdf/water_sewer/20-08.pdf">pdf</a>], patrons aren&apos;t supposed to be automatically served water just because they sat down at a table. The <em>Times</em> highlights the <a href="https://web.archive.org/web/20150422150325/http://mobile.nytimes.com/2014/02/05/nyregion/little-known-regulation-on-tap-water-in-restaurants-is-set-to-fade-away.html?partner=socialflow&amp;smid=tw-nytmetro&amp;_r=0&amp;referrer=">all-but-forgotten edict</a>... which will abolished at the end of the month, irrevocably changing life as we know it.</p>
+
+<p>The regulation states that, &quot;No person or entity shall cause, permit or allow the serving of water from the City water system to any patron of a restaurant, club, or other eating place unless it is specifically requested by such patron.&quot; Its adoption stems from drought emergencies and appears with other more commonplace regulations like when you can water your lawn and automatic shutoffs for drinking fountains and sprinklers. In the final days of his term, Bloomberg flushed the restaurant regulation, except in times of drought emergency. The DEP issued only 14 warnings for the rule, stemming from a 2002 drought; we reached out to see what the penalty would be if the infraction were enforced. (Waterboarding, one assumes.)</p>
+
+<p>No doubt patrons were unaware of the regulation and so were most restaurant owners, though many already employed the practice with different motives. &quot;Oh, really? I never heard of that,&quot; says Goodfellas (aka <a href="https://web.archive.org/web/20150422150325/http://gothamist.com/tags/forkgate">Forkgate</a>) pizzeria owner Scot Costentino. &quot;But we don&apos;t serve it, because we want people to order beverages and wine. Otherwise, they&apos;d just fill up on water.&quot; Water usage cost was also cited as a concern; &quot;We have to pay for the water they use,&quot; explains Four Seasons owner Julian Niccolini. &quot;The less we use, the less we have to pay for.&quot; No water for you!</p>					
+										
+									
+				

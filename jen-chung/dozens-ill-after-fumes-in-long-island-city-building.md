@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: September 17, 2008  8:58 AM
+title: Dozens Ill After Fumes in Long Island City Building
+---
+
+<p><img alt="2008_09_licfumes.jpg" src="https://web.archive.org/web/20111117124243im_/http://gothamist.com/attachments/jen/2008_09_licfumes.jpg" width="130" height="118" class="right">Yesterday afternoon, a building was <a href="https://web.archive.org/web/20111117124243/http://www.ny1.com/content/top_stories/85906/fumes-sicken-more-than-100-queens-residents/Default.aspx">evacuated (twice!) due to fumes</a> that sickened over a 100 people. Emergency responders were <a href="https://web.archive.org/web/20111117124243/http://abclocal.go.com/wabc/story?section=news/local&amp;id=6395143">called to the scene three times</a> and NY1 says the building, which &quot;houses several city agencies including some MTA employees,&quot; is next to a train yard.  Where, the FDNY explained, &quot;They are getting rid of contaminated soil, and the digging has churned up some odors and the people in the building experienced a little respiratory difficulty with the odors.&quot;  A witness said the effects weren&apos;t pretty: &quot;our eyes were watering, we were choking. <strong>Some people got faint, some people vomited, some people almost passed out.</strong>&quot;</p>

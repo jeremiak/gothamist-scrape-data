@@ -1,0 +1,15 @@
+---
+author: Jen Carlson
+date: February 27, 2012  4:37 PM
+title: As Berenstain Bears Turn 50, Co-Author Jan Berenstain Dies
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="bbears2212.jpeg" src="https://web.archive.org/web/20120421210010im_/http://gothamist.com/attachments/arts_jen/bbears2212.jpeg" width="300" height="342" class="image-right"> </span>Jan Berenstain, who created <a href="https://web.archive.org/web/20120421210010/https://www.berenstainbears.com/">the Berenstain Bears</a> books with her husband Stan, has died at the age of 88. The characters were created 50 years ago, with the first book, <em>The Big Honey Hunt</em>, published in 1962.</p>
+
+<p>The characters&#x2014;Mama Bear, Papa Bear, Brother Bear and Sister Bear&#x2014;were inspired by the Berenstain children, according to <a href="https://web.archive.org/web/20120421210010/http://www.google.com/hostednews/ap/article/ALeqM5g5WbnMGNcm0vEhrpNaBCoK6ylxpg?docId=c85af1172a514091bb2358a18475fbe5">the AP</a>, and the stories addressed things like dentist visits, peer pressure, and summer camp. Last year Jan told them, &quot;Family values is what we&apos;re all about.&quot;</p>
+
+<p>Surprisingly, word of Jan&apos;s death has also resurfaced criticism about the books&#x2014;yes, there are people who weren&apos;t very into the cute bear family that lived in an adorable tree house, including <a href="https://web.archive.org/web/20120421210010/http://en.wikipedia.org/wiki/Berenstain_Bears#Criticism">the Gray Lady</a>! In 1988 the NY Times called the bears &quot;a thoroughly disagreeable bunch,&quot; and referred to Mama Bear as &quot;nagging&quot; and caring &quot;more about how the Bears&apos; tree house looks than whether anyone is happy inside.&quot; Today <a href="https://web.archive.org/web/20120421210010/http://wonkette.com/464961/mean-old-charles-krauthammer-hated-the-berenstain-bears">Wonkette</a> revisited Washington Post writer Charles Krauthammer&apos;s takedown, in which he wrote, &#x201C;I hate the Berenstain Bears,&#x201D; and basically called Papa Bear a &#x201C;post-feminist manslave pussy.&quot; </p>
+
+<p>But we LOVE the Berenstain Bears, so we reached out to the New York Public Library to find out what kind of treasure they may have there. Sadly, they aren&apos;t aware of any Berenstain memorabilia in their collection, but said, &quot;We definitely have a ton of their books, including e-books,&quot; as well as their autobiography. They also pointed us to the Strong Museum in Rochester, who have <a href="https://web.archive.org/web/20120421210010/http://www.thestrong.org/online-collections/search/index.php?q=berenstain+bears">more on display</a>.</p>
+
+<p>If you want to revisit the Bears in NYC, you&apos;ll have to attend this <a href="https://web.archive.org/web/20120421210010/http://berenstainbearslive.com/">Berenstain Bears Live</a> event... which looks <a href="https://web.archive.org/web/20120421210010/http://berenstainbearslive.com/photos.html">sort of crazy</a>.</p>

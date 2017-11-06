@@ -1,0 +1,11 @@
+---
+author: Jen Chung
+date: November  3, 2009  8:54 AM
+title: Bronx Student Shot Outside High School
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2009_11_bxreg.jpg" src="https://web.archive.org/web/20111111203300im_/http://gothamist.com/attachments/jen/2009_11_bxreg.jpg" width="200" height="150" class="image-left"> </span>Yesterday around noon, a 16-year-old student at <a href="https://web.archive.org/web/20111111203300/http://schools.nyc.gov/SchoolPortals/12/X480/default.htm">Bronx Regional High School</a> was shot around 12:30 p.m.  <a href="https://web.archive.org/web/20111111203300/http://ny1.com/1-all-boroughs-news-content/top_stories/108323/high-school-student-shot-outside-bronx-school">According to NY1</a>, the teen told the police that the suspect was trying to rob him.  And one student said, &quot;They said the boy wanted his jacket and Paul said &apos;I&apos;m not giving you my jacket.&apos; And somebody said they was fighting at first, people was around watching and they didn&apos;t take it seriously. And they shot him.&quot;</p>
+
+<p>The victim, Paul Ulloa, &quot;was listed in stable condition at Lincoln Hospital,&quot; <a href="https://web.archive.org/web/20111111203300/http://www.nydailynews.com/news/ny_crime/2009/11/03/2009-11-03_hs_student_shot_going_to_lunch.html">according to the Daily News</a>.  His family said he works at an Upper West Side as a busboy to help with the family&apos;s bills; his brother added, &quot;Why did they have to pick on him? He wasn&apos;t bothering anybody - [they] could&apos;ve taken his life.&quot;</p>
+
+<p>Another student had told NY1, &quot;A lot of kids were out here, you know they was chilling for lunchtime. So I guess when we went back inside they said some guy got shot we started hearing helicopters. That&apos;s when all the cops came up. Usually what happens, it&apos;s really dangerous because all the kids chill here and they go out for lunch and then other people will be up the block and so there&apos;s not a lot of security around here.&quot; </p>

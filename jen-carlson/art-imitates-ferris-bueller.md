@@ -1,0 +1,7 @@
+---
+author: Jen Carlson
+date: August 13, 2008  4:12 PM
+title: Art imitates Ferris Bueller
+---
+
+<p><img alt="0808ferrisparade.jpg" src="https://web.archive.org/web/20120312103606im_/http://gothamist.com/attachments/arts_jen/0808ferrisparade.jpg" width="130" height="78" class="right">File this one under: Fun! Artist Mina Karimi is looking to pull together &quot;a large performance art piece that requires 6-8 hundred people <strong>recreating the parade scene from Ferris Bueller</strong> [<a href="https://web.archive.org/web/20120312103606/http://www.youtube.com/watch?v=ooZzAhYeH0A">video</a>] at the <a href="https://web.archive.org/web/20120312103606/http://www.deitch.com/projects/upcoming_projects.php">Deitch Art Parade</a> in Soho.&quot; She says she is &quot;recruiting secret agents in the audience of the parade to mimic the extras in the movie as my Ferris float approaches. In order to fully reproduce the spirit of the scene I will need at least 100 agents on each block of the parade to get the Ferris joy-ball rolling.&quot; The event takes place on September 6th, so if you&apos;re down for parading, singing, dancing and/or listening to The Beatles, &quot;Twist and Shout&quot; multiple times--email projectbueller(a)gmail(dot)com. [via <a href="https://web.archive.org/web/20120312103606/http://urbanprankster.com/2008/08/upcoming-ferris">Urban Prankster</a>]</p>

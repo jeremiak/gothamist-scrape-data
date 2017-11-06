@@ -1,0 +1,19 @@
+---
+author: Jen Carlson
+date: July 26, 2007  3:59 PM
+title: Video of the Day: Wild Style
+---
+
+<p>This Sunday there will be a screening of the 1983 classic <a href="https://web.archive.org/web/20130326105510/http://imdb.com/title/tt0084904"><em>Wild Style</em></a> at Summerstage, followed by performances by some of the rappers in the movie. Busy Bee, The Cold Crush Brothers, GrandMaster Caz, Fab 5 Freddy and more, including some special guests. More info on the event, which is celebrating the 25th anniversary of the movie, is <a href="https://web.archive.org/web/20130326105510/http://www.summerstage.org/index1.aspx?BD=19792">here</a>, but let&apos;s take a look back to when it was filmed. </p>
+
+<p><em>Wild Style</em> was the first hip-hop motion picture. Directed by Charlie Ahearn it&apos;s chock full of subway shots, breakdancing, freestyle MCing and more rare footage of the time - and it&apos;s since become a cult classic. In an interview, <a href="https://web.archive.org/web/20130326105510/http://www.jayquan.com/charliea.htm">Ahearn explains</a> the starting point for him:</p>
+
+<blockquote>&quot;There&#x2019;s no doubt that my ear was onto Hip Hop by 1978. I was living near the Smith projects where Lee Quinones lived in the 70s. I was doin&#x2019; these experimental film projects with a 16mm camera where I would film neighborhood kids and come back the next week and set up a projector and project the images on the wall. 
+
+<p>I was showing a film in June of 1980 in an abandoned massage parlor in Times Square and Fred Brathwaite (Fab 5 Freddy) came up to me and said that he had heard of me, and wanted to talk to me about doing movies. He said that he had been working with Lee Quinones. He brought Lee down the next day, and that&#x2019;s how we started making <em>Wild Style</em>!&quot;</p></blockquote><p></p>
+
+<p>During the special features on the dvd, Ahearn tells of how some of the scenes were filmed illegally (the one at the East River bandshell) - a fact that&apos;s backed up by an interesting story of the cops coming to shut them down. When they showed up Ahearn rushed up to them saying security was supposed to have been there hours ago! It worked, and they kept shooting. Conversely, there was little trouble working with the MTA, who allowed them to film in the actual train yards. Here&apos;s a clip from the movie:</p>
+
+<center><object width="425" height="350"><param name="movie" value="http://www.youtube.com/v/Dkyb2fdxTGY"><param name="wmode" value="transparent"><embed src="https://web.archive.org/web/20130326105510oe_/http://www.youtube.com/v/Dkyb2fdxTGY" type="application/x-shockwave-flash" wmode="transparent" width="425" height="350"></object></center>
+
+<p>Some more facts about the film: The lead was played by the aforementioned legendary New York graffiti artist <a href="https://web.archive.org/web/20130326105510/http://en.wikipedia.org/wiki/Lee_Quinones">Lee Quinones</a> (&quot;Zoro&quot;). Another graffiti artist of the time, <a href="https://web.archive.org/web/20130326105510/http://en.wikipedia.org/wiki/Zephyr_(graffiti_artist)">Zephyr </a>(who <a href="https://web.archive.org/web/20130326105510/http://gothamist.com/2007/07/11/suzanne_vega_mu.php">Suzanne Vega</a> has a song about) did the <a href="https://web.archive.org/web/20130326105510/http://upload.wikimedia.org/wikipedia/en/c/c1/Wild_style.JPG">mural/logo</a> for the movie. And <em>Illmatic</em> by Nas, <em>Black Sunday</em> by Cypress Hill and <em>Check Your Head</em> by Beastie Boys have all featured samples from <em>Wild Style</em>. More on Ahearn and the movie can be read <a href="https://web.archive.org/web/20130326105510/http://links.jstor.org/sici?sici=0015-1386%28198422%2937%3A4%3C2%3ACA%22S%3E2.0.CO%3B2-X&amp;size=LARGE&amp;origin=JSTOR-enlargePage">here</a>. </p>

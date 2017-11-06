@@ -1,0 +1,16 @@
+---
+author: Jen Chung
+date: September 19, 2008  9:01 AM
+title: Treasury, Federal Reserve Plan Even Bigger Bailout
+---
+
+<p><img alt="2008_09_hpaul2.jpg" src="https://web.archive.org/web/20111117120011im_/http://gothamist.com/attachments/jen/2008_09_hpaul2.jpg" width="600" height="425"><br>
+<span class="photo_caption">Photograph of Treasury Secretary Henry Paulson, with Fed chairman Ben Bernanke, SEC chairman Christopher Cox and House Speaker Nancy Pelosi among others, by Lauren Victoria Burke/AP</span></p>
+
+<p>The government took more steps to, hopefully, prevent more financial chaos in the financial markets.  The <a href="https://web.archive.org/web/20111117120011/http://www.nytimes.com/2008/09/19/business/19fed.html?hp">NY Times characterizes the moves as</a> &quot;what could become the biggest bailout in United States history&quot;:</p><blockquote>While details remain to be worked out, the plan is likely to authorize the government to buy distressed mortgages at deep discounts from banks and other institutions. The proposal could result in the most direct commitment of taxpayer funds so far in the financial crisis that Fed and Treasury officials say is the worst they have ever seen.</blockquote>Treasury Secretary Henry Paulson and Fed Chaiman Ben Bernanke met with Congressional leaders, as they would need to enact legislation to push this through.  Some more details about the half a trillion dollar (or thereabouts) plan <a href="https://web.archive.org/web/20111117120011/http://www.cnbc.com/id/26779080">at CNBC</a>.<p></p>
+
+<p>The plans would include, <a href="https://web.archive.org/web/20111117120011/http://online.wsj.com/article/SB122177442732653979.html">per the Wall Street Journal</a>, &quot;mechanism that would take bad assets off the balance sheets of financial companies... a device that echoes similar moves taken in past financial crises. The size of the entity could reach hundreds of billions of dollars.&quot;  <a href="https://web.archive.org/web/20111117120011/http://www.usatoday.com/money/perfi/funds/2008-09-19-treasury-insure-money-market-funds_N.htm?loc=interstitialskip">USA Today says</a> another is, for the next year, insurance for &quot;holdings of eligible money market mutual funds.&quot; </p>
+
+<p>A capital management executive told Bloomberg, &quot;[Government officials] were just worn out and weary from the one-off situations they had to deal with, and finally came to the realization that it&apos;s a much more pervasive problem. Hopefully, this will give the trading desks the confidence to start making markets again.&quot;  In other news, the SEC temporarily banned the <a href="https://web.archive.org/web/20111117120011/http://www.nytimes.com/2008/09/20/business/20sec.html?hp">short selling of 799 financial stocks</a>, per the Times, &quot;a move against traders who have sought to profit from the financial crisis by betting against bank shares.&quot;</p>
+
+<p>All this news <a href="https://web.archive.org/web/20111117120011/http://www.bloomberg.com/apps/news?pid=20601087&amp;sid=arU4Gdwiy74s&amp;refer=home">made stocks in Asia and Europe soar</a>.  Wall Street is headed for a big day as well, as <a href="https://web.archive.org/web/20111117120011/http://www.cnbc.com/id/26787353">futures are up</a>.</p>

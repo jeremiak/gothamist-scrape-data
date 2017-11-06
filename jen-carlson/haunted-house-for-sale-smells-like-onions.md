@@ -1,0 +1,15 @@
+---
+author: Jen Carlson
+date: Oct 14, 2009 5:19 pm
+title: Haunted House For Sale, Smells Like Onions
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="gaystreetphantom1009.jpg" src="https://web.archive.org/web/20151109152255im_/http://gothamist.com/attachments/arts_jen/gaystreetphantom1009.jpg" width="240" height="320" class="image-left"> </span>Yesterday there was <a href="https://web.archive.org/web/20151109152255/http://gothamist.com/2009/10/13/little_pink_house.php">a pink house</a> for sale in Brooklyn that made headlines, and today there&apos;s a haunted house for sale in the West Village! Just in time for trick or treating, <a href="https://web.archive.org/web/20151109152255/http://www.nydailynews.com/real_estate/2009/10/14/2009-10-14_the_ghost_of_gay_st_man_in_top_hat_and_tails_said_to_haunt_gutted_w_village_bldg.html">the Daily News</a> reports on &quot;the historic Gay St. property, on the corner of Waverly Place... rumored to be inhabited by a restless spirit who walks the creaking floorboards at night.&quot; Some believe the ghost to be that of former <a href="https://web.archive.org/web/20151109152255/http://theboweryboys.blogspot.com/2009/05/mayor-jimmy-walker-finer-class-of.html">Mayor Jimmy Walker</a>, who once owned the home.</p>
+
+<p>A grown man of 54 years old told the paper, <strong>&quot;I wouldn&apos;t go in there right now &#x2014; it&apos;s legendary that ghosts live there. That place would be like moving into &apos;The Shining.&apos;&quot;</strong> The $4.2 million home has a history overflowing with potential ghosts; built in 1827, it has housed a speakeasy called the Pirate&apos;s Den, then housed Walker&apos;s mistress, and then a puppeteer who designed the original Howdy Doody (creepy!). The last to live there were Scientific American editor Dennis Flanagan and his wife &#x2014; who sold it in 2007, and say they &quot;never saw him, never heard him, never smelled anything &#x2014; except onions.&quot; Smelling onions may seem innocent enough but that puppeteer Frank Paris <a href="https://web.archive.org/web/20151109152255/http://infamousnewyorkrealestate.blogspot.com/2005/11/12-gay-street.html">also smelled onions</a> at odd hours, all those years ago!</p>
+
+<p>With all these haunting tales, and the book <a href="https://web.archive.org/web/20151109152255/http://books.google.com/books?id=ehWLF6yYepYC&amp;pg=PT44&amp;lpg=PT44&amp;dq=%2212+gay+street%22+nyc&amp;source=bl&amp;ots=oN_SJ3EoXe&amp;sig=tI7Imf3R9fLltaiMLVhmt-Ej5WA&amp;hl=en&amp;ei=gsMRSvOJOsWktwflvvWECA&amp;sa=X&amp;oi=book_result&amp;ct=result&amp;resnum=6#v=onepage&amp;q=gay%20street&amp;f=false"><em>Haunted New York</em></a> documenting &quot;The Gay Street Phantom,&quot; this house may not sell for quite some time.</p>					
+										
+									
+				

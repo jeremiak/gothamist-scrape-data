@@ -1,0 +1,19 @@
+---
+author: Ben Yakas
+date: Sep 10, 2011 2:45 pm
+title: Alec Baldwin's Starbucks Tweet Inspires Wrath Of The Post
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="91011baldwin.jpg" src="https://web.archive.org/web/20160308235703im_/http://gothamist.com/attachments/byakas/91011baldwin.jpg" width="640" height="473"> <br> <i>One Baldwin To Rule Them All</i></div> <p></p>
+
+<p>No one is debating whether Mayor-in-training <a href="https://web.archive.org/web/20160308235703/http://gothamist.com/tags/alecbaldwin">Alec Baldwin</a> loves Starbucks&#x2014;this is <a href="https://web.archive.org/web/20160308235703/http://ifitandhealthy.com/alec-baldwin-diet/">Baldwin 101 stuff</a>. But that doesn&apos;t mean that Baldwin has love in his heart for every grande-swilling barista from West End to York Avenue. On Wednesday, <a href="https://web.archive.org/web/20160308235703/http://twitter.com/#!/AlecBaldwin/status/111477401468407808">Baldwin tweeted that</a> he had an unfortunate experience with one such &quot;uptight&quot; barista with &quot;an attitude problem&quot; at the Starbucks at W 93rd and Broadway. The Post picked up the &quot;story&quot; today, and <a href="https://web.archive.org/web/20160308235703/http://twitter.com/#!/AlecBaldwin/status/112580232409661440">now Baldwin is annoyed</a>: &quot;Today&apos;s question: What makes Helen Freund of NY Post such a sleazy, from-under-a-rock tab gnat? What drives these tab &quot;writers?&quot; do u care?&quot;</p>
+
+<p>Admittedly, Baldwin did call out the barista-in-question by name (albeit, the <em>wrong</em> name), a move which <a href="https://web.archive.org/web/20160308235703/http://consumerist.com/2011/09/baldwin-rants-about-specific-starbucks-employee-on-twitter.html">Consumerist called</a> &quot;kind of like killing a gnat with a RPG.&quot; But <a href="https://web.archive.org/web/20160308235703/http://www.nypost.com/p/news/local/manhattan/boorish_baldwin_caf_fiend_barista_4Cz5ihpcRar8JWkJ7K50dN?CMP=OTC-rss&amp;FEEDNAME=">the Post decided to bust open</a> the non-story by talking to a coworker of the &quot;uptight&quot; barista. And the coworker basically calls Baldwin a big ol&apos; jerkface: &#x201C;I was here when it happened -- it was really just him being an [expletive]. He was very rude and disrespectful and arrogant. He&#x2019;s probably the rudest guy I&#x2019;ve ever met.&#x201D;</p>
+
+<p>Referring to the &quot;uptight&quot; barista, the coworker added: &#x201C;And he didn&#x2019;t do anything wrong; it was all that dude just being psycho. I saw a thing on &#x2018;E&#x2019; a little while ago, and it was talking about how crazy he was. They were right.&#x201D; In response to the report, Baldwin&apos;s representative said, &#x201C;Starbucks is a great company. Unfortunately, not all of their employees can live up to their high standards.&#x201D; </p>
+
+<p>But you know who can live up to Baldwin&apos;s standards? Clyde can: &quot;Clyde, on the other hand, outside DINOSAUR BARBECUE @ W 125 n H River is MY MAN. Keeping the hickory ovens going, he is 2dayz Coolest NYer,&quot; <a href="https://web.archive.org/web/20160308235703/http://twitter.com/#!/AlecBaldwin/status/111482970136780801">Baldwin tweeted</a> this week. Clyde <a href="https://web.archive.org/web/20160308235703/http://www.eonline.com/news/coffee_closers_alec_baldwin_rants_about/262334?cmpid=sn-000000-twitterfeed-365-topstories&amp;utm_source=eonline&amp;utm_medium=twitterfeed&amp;utm_campaign=twitterfeed_topstories&amp;dlvrit=48939">told E! News that</a> Baldwin was a perfectly alright dude: <strong>&quot;He was so into the meat; he was laid-back. He was a great guy.&quot;&quot;</strong></p>					
+										
+									
+				

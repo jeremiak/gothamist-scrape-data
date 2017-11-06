@@ -1,0 +1,11 @@
+---
+author: Jen Chung
+date: May 14, 2009 11:15 am
+title: Bloomberg Appoints I-Banker To Head Housing Authority
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2009_05_rheanyc.jpg" src="https://web.archive.org/web/20160520042412im_/http://gothamist.com/attachments/jen/2009_05_rheanyc.jpg" width="135" height="135" class="image-right"> </span>Mayor Bloomberg <a href="https://web.archive.org/web/20160520042412/http://ny1.com/content/top_stories/99048/wall-street-vet-to-head-up-nycha/Default.aspx">appointed a former Wall Street investment banker</a> to head the <a href="https://web.archive.org/web/20160520042412/http://gothamist.com/2009/04/21/tenants_sue_to_have_public_housing.php">troubled</a> NYC Housing Authority.  The NYCHA oversees over 177,000 apartments in 340 development in all five boroughs&#x2014;the <a href="https://web.archive.org/web/20160520042412/ihttp://www.nytimes.com/2009/05/14/nyregion/14nycha.html?ref=nyregion">NY Times says</a> this makes John Rhea, who used to work at Lehman Brothers and JPMorgan Chase, &quot;in effect, the city&#x2019;s biggest landlord.&quot; Bloomberg said, &quot;John&apos;s experience makes him the perfect person to lead our efforts to create long-term financial stability at the Authority, and to ring in a new era of transparency and agency responsiveness to improving resident and community quality of life.&quot;  However, some critics of the Bloomberg administration were upset with the pick: City Councilwoman Letitia James issued a statement questioning Rhea&apos;s lack of &quot;experience in managing a low-income public housing authority of this size and scale...particularly at a time when private equity firms are purchasing under-performing housing developments, and converting them to luxury housing throughout the City&quot; while Councilwoman Rosie Mendez told the Times, &quot;<strong>All I see is a Wall Street person with an investment banking background and with no experience in housing management or development.</strong>&quot;</p>					
+										
+									
+				

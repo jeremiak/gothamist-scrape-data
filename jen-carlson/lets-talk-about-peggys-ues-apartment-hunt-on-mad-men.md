@@ -1,0 +1,31 @@
+---
+author: Jen Carlson
+date: Apr 29, 2013 10:48 am
+title: Let's Talk About Peggy's UES Apartment Hunt On Mad Men
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="peggyapt0413.jpg" src="https://web.archive.org/web/20150512002855im_/http://gothamist.com/attachments/arts_jen/peggyapt0413.jpg" width="640" height="340" class="image-none"> </span></p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="smaptnymag60s.jpg" src="https://web.archive.org/web/20150512002855im_/http://gothamist.com/attachments/arts_jen/smaptnymag60s.jpg" width="350" height="360" class="image-right"> </span>We&apos;ll get to <a href="https://web.archive.org/web/20150512002855/http://gothamist.com/tags/madmenhistory">unpacking</a> all of last night&apos;s <em>Mad Men</em> episode, but right now let&apos;s talk about Peggy&apos;s hunt for an apartment.</p>
+
+<p>Her first look was at a 2-bedroom on the Upper East Side&#x2014;in Yorkville, to be exact, at <a href="https://web.archive.org/web/20150512002855/https://maps.google.com/maps?q=84th+and+york+ny,++ny&amp;ll=40.773636,-73.946786&amp;spn=0.013162,0.031393&amp;hnear=York+Ave+%26+E+84th+St,+New+York,+10028&amp;gl=us&amp;t=h&amp;z=16&amp;layer=c&amp;cbll=40.774612,-73.948078&amp;panoid=yVNKReJYBXsW93-e_UhY6g&amp;cbp=12,218.88,,0,-7.87">84th and York</a>. The real estate agent notes that the apartment is &quot;1290-square-feet... let&apos;s say 1300 with the balcony. 1.5 bathrooms&#x2014;that means it&apos;s a full bath and a powder room.&quot; The 11th floor pad also included 2 bedrooms and 1 parking spot (with the option for a 2nd)... all for $28,000. While inflation brings that number up to $182,000 in modern day money, the actual cost of a Manhattan apartment has obviously skyrocketed&#x2014;<a href="https://web.archive.org/web/20150512002855/http://corcoran.com/nyc/Listings/Display/2577225">listings</a> for 2-bedrooms in the same area now are around the $750,000 range.</p>
+
+<p>In 1968, the current <em>Mad Men</em> year, <em>New York</em> magazine documented the &quot;mad scramble for affordable apartments&quot; in a September cover story titled <a href="https://web.archive.org/web/20150512002855/http://books.google.com/books?id=aMcDAAAAMBAJ&amp;lpg=PA3&amp;ots=0OGfyLMuG6&amp;dq=new%20york%20magazine%20great%20apartment%20grope%201968&amp;pg=PA16#v=onepage&amp;q&amp;f=false">The Great Apartment Grope</a>. While Peggy seemed pretty chill about her apartment hunt, the article details the extreme lengths people were going to to secure one at the time&#x2014;&#x201C;Surgeons have postponed operations, housewives have gone back to work, hippies have cut their hair and families have destroyed their pets&quot; (!!!!). </p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="REALESTATEagents60s.jpg" src="https://web.archive.org/web/20150512002855im_/http://gothamist.com/attachments/arts_jen/REALESTATEagents60s.jpg" width="640" height="276" class="image-none"> </span><br>
+<span class="photo_caption">Real estate agents in New York magazine, 1968</span></p>
+
+<p>The article also mentions that &quot;little hope is held out for the middle-income ($15-20,000 a year) people, career girls who do not want roommates and couples with more than one drawer-sized infant.&#x201D; <a href="https://web.archive.org/web/20150512002855/http://gothamist.com/2012/05/29/mad_men_14.php">Last year</a> Peggy was offered $19,000 for the job she accepted at Cutler, Gleason and Chaough, and presumably still makes around that now (though the apartment would be shared with her boyfriend, she is noted as being the breadwinner who would be paying for it).</p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="yorkvillebake0413.jpg" src="https://web.archive.org/web/20150512002855im_/http://gothamist.com/attachments/arts_jen/yorkvillebake0413.jpg" width="640" height="434" class="image-none"> </span><br>
+<span class="photo_caption">Yorkville (via <a href="https://web.archive.org/web/20150512002855/http://lostnewyorkcity.blogspot.com/2011/06/yesteryears-yorkville.html">Lost City</a>)</span></p>
+
+<p>In the episode, Peggy tells the realtor, &quot;It&apos;s a little farther east than I wanted. You can see the highway from the corner.&quot; And in typical realtor speak, she is told, &quot;You can see the river. And who needs Central Park when you can smell the ocean and the Hungarian bakeries.&quot; She also promises Peggy, &quot;Believe me when they finish the 2nd Avenue subway this apartment will quadruple in value.&quot; <a href="https://web.archive.org/web/20150512002855/http://gothamist.com/tags/secondavenuesubway">LOL STILL WAITING</a>. What the realtor didn&apos;t mention was that Frank Sinatra was living in the area at the time&#x2014;on <a href="https://web.archive.org/web/20150512002855/http://gothamist.com/2012/08/01/frank_sinatra.php">East72nd Street</a>, also with a view of the FDR. And years earlier the area had already started attracting young women, and was dubbed <a href="https://web.archive.org/web/20150512002855/http://ephemeralnewyork.wordpress.com/2008/05/03/the-domain-of-the-single-girl/">the &#x201C;swingiest&#x201D; square mile in Manhattan</a> by one magazine: </p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="ues60s.jpg" src="https://web.archive.org/web/20150512002855im_/http://gothamist.com/attachments/arts_jen/ues60s.jpg" width="640" height="543" class="image-none"> </span></p>
+
+<p>Spoiler alert: In the end, Peggy doesn&apos;t get the place after her agent puts in a low offer, counting on the riots uptown to bring the price down. So where will she look next? Her boyfriend Abe wants to live in the West 80s, saying, &quot;It&apos;s still run down, so it&apos;s sort of cheap. Just get some lumber, a coat of paint... people are doing it.&quot; The area at the time, <a href="https://web.archive.org/web/20150512002855/http://gothamist.com/2012/06/04/last_nights_mad_men_that_wasnt_the.php">as we noted last year</a>, was more dangerous and less desirable than the UES.</p>					
+										
+									
+				

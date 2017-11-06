@@ -1,0 +1,11 @@
+---
+author: Jen Carlson
+date: May 22, 2008  2:56 PM
+title: Teen Sex Book Calls Gawker "Despicable"
+---
+
+<p><img alt="0805kisspig.jpg" src="https://web.archive.org/web/20120119085927im_/http://gothamist.com/attachments/arts_jen/0805kisspig.jpg" width="226" height="350" class="right">Last month Dumbo Books announced a new release by writer Richard Grayson called <em>Who Will Kiss the Pig? Sex Stories for Teens</em>; the announcement got some attention after their Craigslist ad was published. You see, they were looking for cool-looking hipsters to write blurbs for the book, and now they&apos;ve <em>finally</em> sent out a PDF copy to those who inquired. What took so long? &quot;We have been waiting for Monday&apos;s <a href="https://web.archive.org/web/20120119085927/http://www.nytimes.com/2008/05/20/washington/20scotus.html?ref=us">U.S. Supreme Court ruling</a> [on internet child pornography] to ascertain whether we could still go ahead with publication of the book.&quot; Luckily, after consulting with their attorney they got the green light!  </p>
+
+<p>Along with the PDF came a stern warning against news of this getting out to <em>any media</em>, especially Gawker, who they refer to as &quot;despicable&quot; for writing &quot;<a href="https://web.archive.org/web/20120119085927/http://gawker.com/5006671/are-you-cool-enough-to-blurb-this-book">a very mean article about our Craigslist ad</a>.&quot; But since <a href="https://web.archive.org/web/20120119085927/http://www.lulu.com/content/2107909">the book is now on sale</a>, not alerting the media might not be the best sales plan.</p>
+
+<p>As for the <a href="https://web.archive.org/web/20120119085927/http://gothamist.com/2008/04/24/literate_brookl.php">sexy cool hipster blurbs</a>, they weren&apos;t included in the PDF, however we do learn that the 50-something-year-old author splits his time between Sunrise Golf Village, Florida; Apache Junction, Arizona; and Williamsburg, Brooklyn... and the title may be a little more than misleading, though they do warn &quot;if you are under 18, it is ESSENTIAL that you have your parents&apos; permission before reading the attached book.&quot;</p>

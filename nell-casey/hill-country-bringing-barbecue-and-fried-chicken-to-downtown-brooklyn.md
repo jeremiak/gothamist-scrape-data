@@ -1,0 +1,27 @@
+---
+author: Nell Casey
+date: Jan 9, 2014 2:53 pm
+title: Hill Country Bringing Barbecue And Fried Chicken To Downtown Brooklyn
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="010914HC.jpg" src="https://web.archive.org/web/20151031123528im_/http://gothamist.com/attachments/nyc_nellcasey/010914HC.jpg" width="640" height="428"> <br> <i> <span class="photo_caption">Hill Country brisket (via <a href="https://web.archive.org/web/20151031123528/http://www.yelp.com/biz_photos/hill-country-barbecue-market-new-york#HHh-AJpbDeWsiLgTVkUXIw">Yelp</a>)</span></i></div> <p></p>
+
+<p><a href="https://web.archive.org/web/20151031123528/http://gothamist.com/2012/08/01/hill_country_bbq_rushes_its_meat_sa.php">Rick Perry approved</a> Texas-style barbecue joint Hill Country Barbecue Market and its poultry-based sister Hill Country Chicken have crossed the river, opening versions of each inside a former courthouse building in Downtown Brooklyn. Though they share a name and an address, the restaurants are separate, with one offering smoked meats in the style found in the Austin area and the other frying up chicken and baking up pies. The chicken venture opened ahead of schedule at the end of December and the barbecue section is slated to open this Saturday. </p>
+
+<p>So what should you expect if you pay these new locales a visit? Pretty much the same things <a href="https://web.archive.org/web/20151031123528/http://gothamist.com/2013/06/05/the_best_bbq_spots_in_new_york_city.php">we love</a> from the Flatiron originals, with a few new items at the Barbecue Market. Like its predecessor, all the meats, sides, drinks and sweets gets tracked via a meal ticket for each diner for an end-of-meal tally. They&apos;re offering weekly specials too, including a Sunday night Whole Hog Supper for $25 that includes 3/4 pound of smoked pork, any two sides, cornbread and a dessert, including their <a href="https://web.archive.org/web/20151031123528/http://gothamist.com/2013/07/08/pbj.php">PB&amp;J; cupcake</a>! </p>
+
+<p>Hill Country Live, the restaurant&apos;s music venue, also made the trek to the new borough. The 130-seat venue will feature roots, Americana and alt-country acts &quot;inspired by the Austin music scene.&quot; They&apos;ll also be doing live band karaoke on Wednesdays starting in February; that&apos;s where the tap wine and Kreuz Margaritas come in. </p>
+
+<p>Check out the menus below, with the new Brooklyn offerings highlighted in yellow.</p>
+
+<p><em>345 Adams Street, (718) 885-4609 (chicken), (718) 885-4608 (barbecue); <a href="https://web.archive.org/web/20151031123528/http://www.hillcountrychicken.com/">hillcountrychicken.com</a>/<a href="https://web.archive.org/web/20151031123528/http://www.hillcountrybk.com/">hillcountrybk.com</a></em></p>
+
+<p style=" margin: 12px auto 6px auto; font-family: Helvetica,Arial,Sans-serif; font-style: normal; font-variant: normal; font-weight: normal; font-size: 14px; line-height: normal; font-size-adjust: none; font-stretch: normal; -x-system-font: none; display: block;">   <a title="View HC Chicken BK Menu on Scribd" href="https://web.archive.org/web/20151031123528/http://www.scribd.com/doc/197843847/HC-Chicken-BK-Menu" style="text-decoration: underline;">HC Chicken BK Menu</a></p><iframe class="scribd_iframe_embed" src="//web.archive.org/web/20151031123528if_/http://www.scribd.com/embeds/197843847/content?start_page=1&amp;view_mode=scroll&amp;show_recommendations=true" data-auto-height="false" data-aspect-ratio="undefined" scrolling="no" id="doc_56320" width="100%" height="600" frameborder="0"></iframe>
+
+<p style=" margin: 12px auto 6px auto; font-family: Helvetica,Arial,Sans-serif; font-style: normal; font-variant: normal; font-weight: normal; font-size: 14px; line-height: normal; font-size-adjust: none; font-stretch: normal; -x-system-font: none; display: block;">   <a title="View HC Barbecue Meal Ticket on Scribd" href="https://web.archive.org/web/20151031123528/http://www.scribd.com/doc/197839551/HC-Barbecue-Meal-Ticket" style="text-decoration: underline;">HC Barbecue Meal Ticket</a></p><iframe class="scribd_iframe_embed" src="//web.archive.org/web/20151031123528if_/http://www.scribd.com/embeds/197839551/content?start_page=1&amp;view_mode=scroll&amp;show_recommendations=true" data-auto-height="false" data-aspect-ratio="undefined" scrolling="no" id="doc_16935" width="100%" height="600" frameborder="0"></iframe>
+
+<p style=" margin: 12px auto 6px auto; font-family: Helvetica,Arial,Sans-serif; font-style: normal; font-variant: normal; font-weight: normal; font-size: 14px; line-height: normal; font-size-adjust: none; font-stretch: normal; -x-system-font: none; display: block;">   <a title="View Hill Country Brooklyn Drinks on Scribd" href="https://web.archive.org/web/20151031123528/http://www.scribd.com/doc/197839656/Hill-Country-Brooklyn-Drinks" style="text-decoration: underline;">Hill Country Brooklyn Drinks</a></p><iframe class="scribd_iframe_embed" src="//web.archive.org/web/20151031123528if_/http://www.scribd.com/embeds/197839656/content?start_page=1&amp;view_mode=scroll&amp;show_recommendations=true" data-auto-height="false" data-aspect-ratio="undefined" scrolling="no" id="doc_60937" width="100%" height="600" frameborder="0"></iframe>					
+										
+									
+				

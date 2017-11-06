@@ -1,0 +1,11 @@
+---
+author: Jen Carlson
+date: December 31, 2011  2:55 PM
+title: Did Beyonce Have A Baby, And Will She Be Making The Announcement Tonight?
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="beybey1211.jpg" src="https://web.archive.org/web/20120122213850im_/http://gothamist.com/attachments/arts_jen/beybey1211.jpg" width="225" height="345" class="image-right"> </span>Beyonc&#xE9;&apos;s pregnancy has been weird and mysterious from the start. She announced that her and husband Jay-Z would be having a baby in August, while on stage at the MTV Video Music Awards. The next month, she stated: &quot;It&apos;s September 23rd. Right now I&#x2019;m actually shooting the <a href="https://web.archive.org/web/20120122213850/http://gothamist.com/2011/10/07/video_have_you_heard_beyonces_new_v.php">video for &apos;Countdown&apos;</a> and I&#x2019;m six months pregnant!&quot; After that, a television appearance showed <a href="https://web.archive.org/web/20120122213850/http://gothamist.com/2011/10/12/beyonce_responds_to_stupid_fake_bab.php">her bump collapsing</a> before the world&apos;s eyes, which led to rumors that she had a surrogate, possibly to stay in shape for an upcoming tour. And yesterday, <a href="https://web.archive.org/web/20120122213850/http://www.dailymail.co.uk/tvshowbiz/article-2080344/Beyonce-baby-Singer-gives-birth-Tiana-May-Carter-Internet-rumour-overdrive.html#ixzz1i8VO8jwH">rumors spread</a> far and wide that she&#x2014;or someone?&#x2014;delivered her baby, named Tiana May Carter, at St. Luke&apos;s Roosevelt Hospital in New York City.</p>
+
+<p>No official announcements have been made to confirm or deny the rumor, but now Ryan Seacrest says the singer will be appearing in some capacity on the New Years Rockin&apos; Eve broadcast tonight, possibly via satellite, and possibly <a href="https://web.archive.org/web/20120122213850/http://www.blackbookmag.com/tv/will-beyonce-make-a-big-announcement-on-new-year-s-rockin-eve-1.43652">to make an announcement</a>. He told Extra, &quot;You will see Beyonc&#xE9; on the show, I can&apos;t tell you too much because they don&apos;t tell me too much, but if you&apos;re a Beyonc&#xE9; fan&#x2014;and man, is she looking good these days&#x2014;you&apos;ll want to see Beyonc&#xE9;.&quot;</p>
+
+<p>So is Baby Bey going to steal 2012&apos;s thunder?</p>

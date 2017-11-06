@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: September 18, 2008  3:35 PM
+title: Scaffolding Rescue from 71 Stories!
+---
+
+<p><img alt="2008_09_scafrescu.jpg" src="https://web.archive.org/web/20111117122340im_/http://gothamist.com/attachments/jen/2008_09_scafrescu.jpg" width="130" height="105" class="right">Earlier this morning, two workers on a window washing rig <a href="https://web.archive.org/web/20111117122340/http://www.wnbc.com/news/17504419/detail.html?dl=mainclick">were dangling 71 stories above midtown streets</a>. WNBC reports that the NYPD and FDNY &quot;<strong>had to use glass cutters to remove a window and pull the workers through to safety</strong>.&quot;  The incident occurred at the 78-story Metropolitan Tower, which is between 56th and 57th streets and 5th and 6th Avenues.  The Department of Buildings <a href="https://web.archive.org/web/20111117122340/http://www.ny1.com/content/top_stories/85987/window-washers-rescued-from-fallen-scaffolding/Default.aspx">has yet to comment</a>.  WNBC has a <a href="https://web.archive.org/web/20111117122340/http://www.wnbc.com/news/17504419/detail.html?dl=mainclick">slideshow of the rescue</a> and here&apos;s another <a href="https://web.archive.org/web/20111117122340/http://curbed.com/archives/2008/09/18/curbedwire_and_now_a_terrifying_photo_from_midtown.php">dramatic picture</a> at Curbed.  Last week, a construction worker <a href="https://web.archive.org/web/20111117122340/http://gothamist.com/2008/09/12/construction_worker_dies_in_scaffol.php">died in a scaffolding collapse</a> in Morningside Heights.</p>

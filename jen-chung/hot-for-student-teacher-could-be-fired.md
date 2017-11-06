@@ -1,0 +1,14 @@
+---
+author: Jen Chung
+date: June  3, 2008 11:11 AM
+title: Hot-for-Student Teacher Could be Fired
+---
+
+<p><img alt="2008_06_ndharmau.jpg" src="https://web.archive.org/web/20120328021407im_/http://gothamist.com/attachments/jen/2008_06_ndharmau.jpg" width="300" height="201" class="left">&quot;My feelings for him are so strong, and I can&apos;t say or do anything.  Today he was standing behind me so close I could feel the heat from his body radiate to me.  I wanted to just let myself go, lean backwards and sink into him.&quot; <br>
+<i>- A 2005 excerpt from Colleen McGraham&apos;s Xanga blog</i></p>
+
+<p>A judge decided that the city <a href="https://web.archive.org/web/20120328021407/http://www.nydailynews.com/news/2008/06/03/2008-06-03_teacher_may_lose_job_over_crush_on_11thg.html">can attempt to fire a Staten Island teacher</a> who documented her crush on a student on her blog.  <a href="https://web.archive.org/web/20120328021407/http://www.silive.com/news/advance/index.ssf?/base/news/1212494412246860.xml&amp;coll=1">According to the Staten Island Advance</a>, New Dorp High school teacher Colleen McGraham &quot;hounded the 11th-grader through instant messages and e-mails in 2005, when she was 36 and the student 15.&quot;  She also visited his blog frequently.  </p>
+
+<p>McGraham also lent the student that May-December (of next year) classic, <a href="https://web.archive.org/web/20120328021407/http://www.imdb.com/title/tt0067185/">Harold &amp; Maude</a>, which he and his girlfriend watched uncomfortably.  The student finally told another teacher, who then told school officials. When investigators spoke to McGraham, she said, &quot;I don&apos;t want to hurt [the student] but I just fell for him and I know it&apos;s wrong. I don&apos;t know what happened.&quot;  </p>
+
+<p>Previously, an arbitrator suggested that 39-year-old Colleen McGraham would just serve 90-day unpaid suspension, but a State Supreme Court Justice <a href="https://web.archive.org/web/20120328021407/http://www.newsday.com/news/local/wire/newyork/ny-bc-ny--teacherspunishme0602jun02,0,3310360.story">found that decision &quot;irrational&quot;</a> and contrary to the policy of protecting students.  McGraham has <a href="https://web.archive.org/web/20120328021407/http://www.nypost.com/seven/06032008/news/regionalnews/teachers_crush_on_teen_pupil_113738.htm">been out of the schools since 2005</a>, but on the payroll since then.  The Daily News has an editorial questioning the <a href="https://web.archive.org/web/20120328021407/http://www.nydailynews.com/opinions/2008/06/03/2008-06-03_lovesick_and_braindead.html">difficulty the Department of Education has in firing employees</a>.</p>

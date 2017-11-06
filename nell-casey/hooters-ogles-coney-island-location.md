@@ -1,0 +1,13 @@
+---
+author: Nell Casey
+date: August 28, 2012 11:40 AM
+title: Hooters Ogles Coney Island Location
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="082812hooters.jpg" src="https://web.archive.org/web/20130622035218im_/http://gothamist.com/attachments/nyc_nellcasey/082812hooters.jpg" width="640" height="421"> <br> <i> Hooray Hooters!</i></div> <p></p>
+
+<p>Hot on the <strike>heels</strike> wings of the <a href="https://web.archive.org/web/20130622035218/http://gothamist.com/2012/08/07/from_boobs_to_wings_hooters_will_mo.php">announcement of a Midtown location</a>, Hooters restaurant may be swooping in for a landing on Coney Island. <a href="https://web.archive.org/web/20130622035218/http://www.nydailynews.com/new-york/brooklyn/coney-island-courts-hooters-surf-avenue-landlord-asks-beer-and-babe-chain-move-community-leaders-rejoice-article-1.1145691">The Daily News reports</a> that Surf Avenue landlord Natan Bukai has been sending sketches to the chain in hopes to bring more wings, breasts and thighs to the landmark neighborhood. &quot;You have a Mermaid Parade with half naked people. You have a beach with bikinis,&quot; says Bukai&apos;s broker, Joe Vitacco. &quot;This is not a place where kids become amoral if they see a piece of leg.&quot; </p>
+
+<p>While a Coney Island Hooters is not set in stone, Jim Mallamn, director of franchise support, told the News it&apos;s a &quot;possibility that [they] are looking at&quot; but won&apos;t decide on a Brooklyn location until at least 2013. &quot;It looks like a pretty interesting area for development.&quot; The area has seen lots of development over the past few years and the city recently announced tentative plans to <a href="https://web.archive.org/web/20130622035218/http://gothamist.com/2012/08/22/coney_islands_landmarked_childs_res.php">convert Childs Restaurant into an entertainment complex</a>. </p>
+
+<p>Earlier this year, the stroller set in Park Slope became incensed when word got out that Hooters&apos; reps were <a href="https://web.archive.org/web/20130622035218/http://gothamist.com/2012/04/27/hooters_reportedly_desperate_to_bri.php">shopping for a location</a> near the soon-to-be-open Barclays center. But something tells us there won&apos;t be a quite such an uproar if a location opens up across the street from Nathan&apos;s Hot Dogs. Boobs and tubes for everyone!</p>

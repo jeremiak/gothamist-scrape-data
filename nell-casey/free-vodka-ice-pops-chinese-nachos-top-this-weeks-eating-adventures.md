@@ -1,0 +1,23 @@
+---
+author: Nell Casey
+date: Jun 19, 2017 12:12 pm
+title: Free Vodka Ice Pops & Chinese Nachos Top This Week's Eating Adventures
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="061917pizza.jpg" src="https://web.archive.org/web/20170619203434im_/http://gothamist.com/attachments/nyc_nellcasey/061917pizza.jpg" width="640" height="427"> <br> <i> (Inferno Pizzeria Napoletana)</i></div> <p></p>
+
+<p>Chef Tony Conte, who runs <a href="https://web.archive.org/web/20170619203434/http://www.inferno-pizzeria.com/">Inferno Pizzeria Napoletana</a> in Maryland, collaborates with our own Chef Justin Bazdarich of <a href="https://web.archive.org/web/20170619203434/http://www.speedyromeo.com/">Speedy Romeo</a> on Tuesday on some special pies and dishes for the evening. The duo will be cooking up new variations of wood-fired pizzas, one of which will remain on the menu at the LES Speedy Romeo for the next two weeks. The full menu hasn&apos;t been revealed just yet, but there&apos;s an Italian chicken cacciatore that&apos;s being promised. Make reservations <a href="https://web.archive.org/web/20170619203434/http://www.speedyromeo.com/">here</a>. </p>
+
+<p>Chef George Mendes&apos;s <a href="https://web.archive.org/web/20170619203434/http://www.lupulonyc.com/">Lupulo</a> has launched breakfast, which includes both takeaway and dine-in options at the Chelsea restaurant. Stop by the takeout window for a proprietary coffee blend and a Pasteis de Nata, a traditional Portuguese custard tart. Or sit down for dishes including a Homemade Lingui&#xE7;a Sausage Sandwich ($7) with a fried egg and St. Jorge cheese on a Portuguese roll and Avocado Toast, Fried Egg, Wood-Charred Bread ($9) with black-eyed peas and cherry tomatoes dressed with olive oil and coriander. </p>
+
+<p>If you&apos;re in the Williamsburg area on Wednesday, stop by <a href="https://web.archive.org/web/20170619203434/http://www.oddfellowsnyc.com/">OddFellows Ice Cream Co.</a> for a free VDKA 6100, vodka-flavored ice pops. The pops use gluten-free, sugar-free, lactose-free, free from chemical additives vodka and the water used to make it is sourced from New Zealand. Flavors will include Spicy Greyhound (based off the grapefruit cocktail) and a White Russian. The pops are free but any donations made will be donated to the <a href="https://web.archive.org/web/20170619203434/http://www.centralparknyc.org/?referrer=https://www.google.com/">Central Park Conservancy</a>. </p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="061917chix.jpg" src="https://web.archive.org/web/20170619203434im_/http://gothamist.com/attachments/nyc_nellcasey/061917chix.jpg" width="640" height="426"> <br> <i> Eim Khao Mun Kai (<a href="https://web.archive.org/web/20170619203434/https://www.yelp.com/biz_photos/eim-khao-mun-kai-elmhurst-elmhurst?select=LLVwFHmjragZHtXWj4XqjQ">Yelp</a>)</i></div> <p></p>
+
+<p><a href="https://web.archive.org/web/20170619203434/http://nomwah.com/">Nom Wah</a> heads into Gowanus on Wednesday to serve some inventive new dishes at <a href="https://web.archive.org/web/20170619203434/https://www.threesbrewing.com/">Threes Brewing</a>. For the next two Wednesdays, swing by the brewery for char siu-glazed tomahawk pork chops, Cantonese smoked chicken wings, and a cold beef tendon dish. The Nom Wah team will also be whipping up nachos made with Sloppy Cluckin&apos; Joe, cheese, tofu white sauce, Threes Vliet Pilsner, pickled gai lan stems, scallion, and cilantro.</p>
+
+<p>Grab a <a href="https://web.archive.org/web/20170619203434/https://www.eventbrite.com/e/queens-dinner-club-big-taste-of-little-bangkok-tickets-35384308419">Big Taste of Little Bangkok</a> on Thursday at the event of the same name being produced by the <a href="https://web.archive.org/web/20170619203434/https://www.facebook.com/queensdinnerclub/">Queens Dinner Club</a>. The Club will be bringing four Elmhurst, Queens restaurants under the roof of the <a href="https://web.archive.org/web/20170619203434/http://www.kaufmanastoria.com/">Kaufman Astoria Studios</a>, where attendees can sample the restaurants&apos;s Thai cuisine all in one place. On the menu: tom yam and moo ping from Dek Sen; tom yum haeng and Thai-style fish salad from Pata Paplean; Hainanese chicken and rice from Eim Khao Mun Kai; and, finally, congee with pork meatballs, mango sticky rice and &quot;Monkey&quot; roti with bananas from Sugar Club. <a href="https://web.archive.org/web/20170619203434/https://www.eventbrite.com/e/queens-dinner-club-big-taste-of-little-bangkok-tickets-35384308419">Tickets $40</a>. </p>					
+										
+									
+				

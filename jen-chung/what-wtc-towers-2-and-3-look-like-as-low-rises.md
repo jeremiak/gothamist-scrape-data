@@ -1,0 +1,17 @@
+---
+author: Jen Chung
+date: May 21, 2009 9:55 am
+title: What WTC Towers 2 And 3 Look Like As Low-Rises
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-center" style=" width:590px; "> <img alt="2009_05_wtclow.jpg" src="https://web.archive.org/web/20150612092934im_/http://gothamist.com/attachments/jen/2009_05_wtclow.jpg" width="590" height="367"> <br> <i>At left, renderings of Tower 2 (top left) and Tower 3 as low-rise buildings; at right, rendering of the World Trade Center site with four skyscrapers</i></div> <p></p>
+
+<p>A week and a half ago, it was revealed that the Port Authority was <a href="https://web.archive.org/web/20150612092934/http://gothamist.com/2009/05/11/ground_zero_summit_planned_three_to.php">considering scrapping three of the planned towers</a> at the World Trade Center site.  Towers 2 and 3, designed by Sir Norman Foster and Sir Richard Rogers respectively, would instead be transformed into 4-5 story &quot;stumps&quot; (Tower 5 would be abandoned for now).  Today, the <a href="https://web.archive.org/web/20150612092934/http://www.nypost.com/seven/05212009/news/regionalnews/new_glimpse_of_wtc_low_rise_compromise_170311.htm">Post shows renderings of the stumps</a>, which are given the more marketing friendly term &quot;retail podiums.&quot;</p>
+
+<p>The <a href="https://web.archive.org/web/20150612092934/http://www.nypost.com/seven/05212009/news/regionalnews/new_glimpse_of_wtc_low_rise_compromise_170311.htm">Post explains</a>, &quot;Fearful that [WTC developer Larry] Silverstein won&apos;t be able to finance construction of the towers during a recession, PA officials are pushing for a temporary plan to create retail podiums between Church and Greenwich streets to fill the space and restore the streetscape...<strong> The retail podiums would anchor as much as 600,000 square feet of shopping space that would extend below street level into every WTC building and through the massive Calatrava transit hub.</strong> By building podiums in place of towers, PA officials expect to increase the amount of retail space from the currently planned 500,000 square feet -- roughly what existed in the World Trade Center before 9/11.&quot; However, Silverstein doesn&apos;t want the podiums!  Today&apos;s summit about the state of the World Trade Center re-building at Gracie Mansion, which will include Silverstein, the Port Authority, NY Governor Paterson, NJ Governor Corzine, and Mayor Bloomberg, should be FUN!</p>
+
+<p>As for the WTC Transportation Hub, the <a href="https://web.archive.org/web/20150612092934/http://www.nydailynews.com/ny_local/2009/05/21/2009-05-21_wtc_may_go_11_billion_over_budget.html">Daily News reports</a> that it may cost another $1.1 billion to build the Santiago Calatrava-designed structure.  While the PA estimated it would cost $3.2 billion (already overbudget), the Federal Trade Administration thinks it&apos;ll be way more: &quot;Add in overall project costs, like the Hub&apos;s below-grade, octupuslike infrastructure, and the tab is 90% certain to exceed $4.4 billion, the FTA report estimates.  <strong>There&apos;s a 90% certainty that building the grandiose train hall and its infrastructure - largely to benefit New Jersey&apos;s PATH commuters - will cost three times the $1.5 billion spent for the original World Trade Center.</strong>&quot; </p>					
+										
+									
+				

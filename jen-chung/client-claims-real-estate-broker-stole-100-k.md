@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: October  9, 2008  9:58 AM
+title: Client Claims Real Estate Broker Stole $100K
+---
+
+<p><img alt="2008_10_cash.jpg" src="https://web.archive.org/web/20130609233359im_/http://gothamist.com/attachments/jen/2008_10_cash.jpg" width="130" height="102" class="right">A new variation on the <a href="https://web.archive.org/web/20130609233359/http://gothamist.com/2004/09/27/using_craiglists_for_real_estate_scams.php">apartment rent in cash</a> scam:  The <a href="https://web.archive.org/web/20130609233359/http://www.nypost.com/seven/10092008/news/regionalnews/agent_takes_100g_rent_money_and_runs__co_132806.htm">NY Post reports</a> a woman was swindled out of $100,000 (meant for two apartments at 410 West 53rd Street) by the broker she met on Craigslist who &quot;legitimately rented her a different Manhattan home two weeks before.&quot;  Ah, the ol&apos; reel them in and then scam them.  The client says broker Leif Lopez showed her the apartments, which she planned to sublet to tourists.  She signed contracts and paid in cash--because he said &quot;he would give me a huge deal on the apartments&quot;--but then Lopez never gave her the keys.  Lopez, charged with grand larceny, is currently being held on $7,500 bail.  The victim says, &quot;I&apos;ve been depressed since this happened to me.  I lost all the money I had.&quot;</p>

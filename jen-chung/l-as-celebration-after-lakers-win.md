@@ -1,0 +1,11 @@
+---
+author: Jen Chung
+date: Jun 15, 2009 1:25 pm
+title: LA's "Celebration" After Lakers' Win
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2009_06_lariot.jpg" src="https://web.archive.org/web/20150504124456im_/http://gothamist.com/attachments/jen/2009_06_lariot.jpg" width="140" height="123" class="image-right"> </span>After the Los Angeles Lakers beat the Orlando Magic for the NBA Championship last night, Los Angelenos apparently decided that celebrating equaled <a href="https://web.archive.org/web/20150504124456/http://laist.com/2009/06/15/is_this_how_los_angeles_defines_cel.php">setting garbage on fire, jumping on cars,</a> <a href="https://web.archive.org/web/20150504124456/http://laist.com/2009/06/14/photos_people_celebratingrioting_ov.php">tearing down street signs</a>, <a href="https://web.archive.org/web/20150504124456/http://laist.com/2009/06/15/photos_lakers_celebrationdamage_fou.php">breaking into and looting stores, and tagging buildings</a>. We hear that police basically let people throw things at them, only intervening to put fires out; LAPD police chief William Bratton, who is a former NYC police commissioner, said, &quot;<strong>Officers tonight used minimal levels of force..behaving very professionally</strong>,&quot; also calling the revelers &quot;knuckleheads&quot; and &quot;cowards.&quot; (Was nothing learned after the <a href="https://web.archive.org/web/20150504124456/http://news.bbc.co.uk/2/hi/sport/798383.stm">2000 win</a>?) Newsday&apos;s <a href="https://web.archive.org/web/20150504124456/http://weblogs.newsday.com/sports/watchdog/blog/2009/06/ny_fans_act_like_theyve_been_t.html">Neil Best blogged</a>, &quot;Thank you, Los Angeles for the timely reminder - 15 years to the day since the <a href="https://web.archive.org/web/20150504124456/http://gothamist.com/2009/06/14/making_the_call_savor_the_memory.php">Rangers won the Stanley Cup</a> - that New York consistently is better behaved in celebrating sports championships than are other, less civilized burgs.&quot;  Damages are estimated to be at least $1 million.</p>					
+										
+									
+				

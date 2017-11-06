@@ -1,0 +1,33 @@
+---
+author: Nell Casey
+date: May 23, 2016 3:55 pm
+title: Hawaiian Pizza Is Taking NYC By Storm
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="052316emmysq.jpeg" src="https://web.archive.org/web/20171015120413im_/http://gothamist.com/attachments/nyc_nellcasey/052316emmysq.jpeg" width="640" height="428"> <br> <i> Emmy Squared (via <a href="https://web.archive.org/web/20171015120413/http://www.yelp.com/biz_photos/emmy-squared-brooklyn?select=mFx6Lor_fElHfWf3lti79g">Yelp</a>)</i></div> <p></p>
+
+<p>It&apos;s one of the most polarizing pizza creations outside of <a href="https://web.archive.org/web/20171015120413/http://gothamist.com/2016/03/14/pizza_bagel_secret_recipe.php">&quot;pizza&quot; bagels</a>. At its core: salty slices of generic ham and chunks of pineapple straight out of the can plopped onto a plain cheese pizza. For something so simple, Hawaiian Pizza has garnered a whole lot of hatred. </p>
+
+<p>But some of the city&apos;s newest pizzerias are breathing new life into the toppings combination, supplanting speck for cold cut ham and adding things like sliced jalapenos to up jazz up the already unique sweet-and-salty combination. Can these next wave pizzaiolos save the Hawaiian Pizza from its bad reputation? To move forward, first we must look back.</p>
+
+<p>Despite its name, Hawaiian Pizza isn&apos;t from the Pacific archipelago. It was actually <a href="https://web.archive.org/web/20171015120413/http://www.atlasobscura.com/articles/the-inventor-of-hawaiian-pizza">created in Canada in 1962</a> by a Greek ex-pat looking to do something with the surging popularity of tropical culture and flavors post-World War II. &quot;People said &apos;you are crazy to do this,&quot; creator Sam Panopoulos <a href="https://web.archive.org/web/20171015120413/http://www.atlasobscura.com/articles/the-inventor-of-hawaiian-pizza">recalled to Atlas Obscura</a>. And yet, here we are today.</p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="052316social.jpeg" src="https://web.archive.org/web/20171015120413im_/http://gothamist.com/attachments/nyc_nellcasey/052316social.jpeg" width="640" height="446"> <br> <i> Social Drink &amp; Food (Michael Tulipan)</i></div> <p></p>
+
+<p>The combination of sweet-salty-tart combination is popular in other iterations (see: margaritas), so why all the hate towards the Hawaiian? A quick poll around Gothamist HQ cited &quot;ruin[ing] the glory of pizza with the stupidity of ham&quot; and pineapple making the pizza soggy. Some restaurants worked around the latter by switching up the fruit, like Bruno in the East Village, who have a seasonal <a href="https://web.archive.org/web/20171015120413/http://gothamist.com/2015/07/31/bruno_pizza_east_village.php#photo-6">peach and ham pie</a>. But others are going full Hawaiian, bringing the retro pie back into the limelight. Here are a few examples:</p>
+
+<p><strong><a href="https://web.archive.org/web/20171015120413/http://pizzalovesemily.com/emmy-squared/">Emmy Squared</a></strong> <a href="https://web.archive.org/web/20171015120413/http://gothamist.com/2016/04/20/emmy_squared_detroit_pizza_heaven.php">applies their Detroit-style method</a> to the Lou-Wow ($19), a thick crusted creation with mozzarella, spicy pineapple and ham topped with the restaurant&apos;s red sauce. &quot;[Chef and owner] Matt [Hyland] loves Hawaiian pie because of the combination of the sweetness of the pineapples and the fatty, salty ham. It is a great flavor combo,&quot; co-owner Emily Hyland explained of their Hawaiian pie. &quot;New Yorkers sometimes love to hate on this particular combo, but we think it is a great compliment of ingredients that work really well together!&quot;</p>
+
+<p>New <a href="https://web.archive.org/web/20171015120413/http://gothamist.com/2016/05/04/social_drink_and_food_rooftop_resta.php#photo-3">rooftop eatery</a> <strong><a href="https://web.archive.org/web/20171015120413/http://www.socialdrinkandfood.com/">Social Drink &amp; Food</a></strong> and <a href="https://web.archive.org/web/20171015120413/http://gothamist.com/2016/05/12/bakers_pizza_east_village.php">slice destination</a> <strong><a href="https://web.archive.org/web/20171015120413/http://bakerspizzanyc.com/">Baker&apos;s Pizza</a></strong> both employ a spicy element in their versions. At the former, the Hula Hula ($12) uses the classic ham and pineapple with a scattering of fresh jalapenos, while at the latter, the Spicy Hawaiian ($20) uses speck&#x2014;a lightly smoked ham similar to prosciutto&#x2014;along with the pineapple and jalapenos. <strong><a href="https://web.archive.org/web/20171015120413/http://pizzabeachclub.com/">Pizza Beach</a></strong> adds rosemary to their Pineapple &amp; Speck ($20 UES, $18 LES), which also comes with jalapenos.</p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="052316romeo.jpeg" src="https://web.archive.org/web/20171015120413im_/http://gothamist.com/attachments/nyc_nellcasey/052316romeo.jpeg" width="640" height="640"> <br> <i> Speedy Romeo</i></div> <p></p>
+
+<p>Neither <strong><a href="https://web.archive.org/web/20171015120413/http://www.speedyromeo.com/">Speedy Romeo</a></strong> nor <strong><a href="https://web.archive.org/web/20171015120413/http://pauliegee.com/">Paulie Gee&apos;s</a></strong> are, strictly speaking, new (though the former&apos;s <a href="https://web.archive.org/web/20171015120413/http://gothamist.com/2016/03/30/speedy_romeos_les_yes.php">recent expansion</a> does count), but they&apos;re both champions of the Hawaiian Pizza all the same. &quot;Our riff on the Hawaiian pizza is named after Dick Dale the father of surf guitar rock,&quot; Speedy Romeo co-owner Todd Feldman revealed. &quot;We layer it in bechamel and top it with speck, wood grilled scallions, provel cheese and of course pineapple.&quot; Paulie Gee&apos;s Porkypineapple ($16), meanwhile, uses Italian tomatoes and fresh mozzarella and Parmigiano-Reggiano cheeses baked with house-pickled pineapple and draped with speck once the pie&apos;s out of the oven.</p>
+
+<p>So will these nostalgic pizza makers elevate the Hawaiian Pizza from flaccid corner slice reject to haute pie status? They&apos;re certainly going to try. And as long as they don&apos;t even <em>look</em> at a stalk of broccoli, we&apos;ll let them.</p>
+
+<p><iframe width="640" height="360" src="https://web.archive.org/web/20171015120413if_/https://www.youtube.com/embed/8W6rntBADUQ" frameborder="0" allowfullscreen></iframe></p>					
+										
+									
+				

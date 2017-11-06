@@ -1,0 +1,55 @@
+---
+author: Dan Dickinson
+date: Jan 7, 2015 4:33 pm
+title: Red Bulls Fire Coach Mike Petke After Two Successful Years
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="20131027chirb013jz.jpg" src="https://web.archive.org/web/20150505175303im_/http://gothamist.com/attachments/Dan Dickinson/20131027chirb013jz.jpg" width="640" height="410"> <br> <i> Mike Petke celebrates winning the Supporters Shield in 2013. (Rob Tringali/New York Red Bulls)</i></div> <p></p>
+
+<p>The <a href="https://web.archive.org/web/20150505175303/http://gothamist.com/tags/redbulls">New York Red Bulls</a> have made a desperate bid to reclaim their title as the Most Miserable NYC-Area Sports Franchise. The club today announced that they&apos;ve fired the only man to ever bring the club silverware, beloved head coach Mike Petke. Eat it, Knicks&#x2014;you&apos;re no longer top of the &quot;WTF ARE YOU DOING?!&quot; Power Rankings!</p>
+
+<p>The story was <a href="https://web.archive.org/web/20150505175303/http://www.metro.us/new-york/source-red-bulls-head-coach-mike-petke-fired-by-team/zsJoag---qi0VbAN2haA5g/">broken overnight</a> by Metro&apos;s Kris Dyer, and confirmed by the team this morning in <a href="https://web.archive.org/web/20150505175303/http://www.newyorkredbulls.com/news/2015/01/new-york-red-bulls-part-ways-head-coach-mike-petke">a tidy two paragraph press release</a>. Sporting Director Ali Curtis spoke on behalf of the &quot;family&quot; he joined 15 days ago:</p>
+
+<blockquote>&quot;On behalf of the New York Red Bulls, I want to thank Mike for his service to the club these past two seasons as head coach. Mike will always be an important member of the Red Bull family.&quot;</blockquote>
+
+<p>A brief history of Mike Petke&apos;s &quot;service to the club&quot;: he retired in 2010 as the club leader in games played (169), games started (158), minutes played (14,060), yellow cards (32), and red cards (5). He was named head coach when all other avenues dried up before the 2013 season, and in two years delivered <a href="https://web.archive.org/web/20150505175303/http://gothamist.com/2013/10/28/18_years_1_cup_red_bulls_win_the_20.php">the club&apos;s first ever major trophy</a> and <a href="https://web.archive.org/web/20150505175303/http://gothamist.com/2014/11/30/just_short_red_bulls_eliminated_fro.php">came up one goal short</a> from making the MLS Cup final in 2014.</p>
+
+<p>In a media conference call this afternoon, Ali Curtis <a href="https://web.archive.org/web/20150505175303/http://www.newyorkredbulls.com/news/2015/01/red-bulls-name-jesse-marsch-head-coach-ahead-2015-season">unveiled his new head coach, Jesse Marsch</a>, and attempted to explain the move. He took responsibility for the cut (&quot;It was a very difficult decision. At the end of the day, it was my decision, I own it.&quot;) but didn&apos;t provide a clear performance-based reason for firing Petke. Instead, this is part of Curtis&apos; grand vision for the club, and that &quot;this wasn&#x2019;t about getting rid of Mike, this was about bringing in Jesse.&quot;</p>
+
+<p>Marsch, who has the unenviable job of mopping this mess up, generally said the sorts of things that new coaches say. He name checked role-players on the team, and talked up the youth system. He promised an &quot;explosive and aggressive&quot; team, both &quot;organized&quot; and &quot;tactically sophisticated&quot;. But he went overboard in trying to compare the desired style for the team with...an energy drink.</p>
+
+<p>Petke, <a href="https://web.archive.org/web/20150505175303/https://twitter.com/petkemike/status/552872080828817408">in a statement released</a> via Twitter, said the following:</p>
+
+<blockquote>I want to take this opportunity to thank all of you for your kind words. I have lived my dream for the past 2 years. It was bound to end some day, and that day has arrived. I want to thank my players and staff for all the work you have done over the past 2 years, specifically Robin Fraser, Ricardo Campos, Juan Romero, John Wolyniek and David Alvarez and [Brian] Tsao. Thank you to Andy Roxburgh for this opportunity and taking a chance on me. To the supporters, especially the South Ward, you have embodied everything that I live my life by; Respect, Accountability and above all Loyalty. Thank you for everything you have done for my family and I. I can never repay you. I will see you at some point at the Arena as I will always support this team. Thanks to everyone for the time of my life.</blockquote>
+
+<p>Up until this point in the off-season, the Red Bulls had been quiet and had avoided debacles like <a href="https://web.archive.org/web/20150505175303/http://gothamist.com/2015/01/02/nycfc_star_frank_lampard_wont_actua.php">Frank Lampard&apos;s contract</a>. But firing a coach that had tremendous goodwill among fans just so you can bring in &quot;the right guy&quot;  to execute on a vision that hasn&apos;t been explained? Bring on the angry fan reactions!</p>
+
+<center><blockquote class="twitter-tweet" lang="en"><p>In 24 hrs I&apos;ve gone from excitement of <a href="https://web.archive.org/web/20150505175303/https://twitter.com/NewYorkRedBulls">@NewYorkRedBulls</a> schedule release to apathy. Firing <a href="https://web.archive.org/web/20150505175303/https://twitter.com/hashtag/Petke?src=hash">#Petke</a> absurd. I won&apos;t attend this year. <a href="https://web.archive.org/web/20150505175303/https://twitter.com/hashtag/RBNY?src=hash">#RBNY</a></p>&#x2014; ryan guinane (@ryanguinane) <a href="https://web.archive.org/web/20150505175303/https://twitter.com/ryanguinane/status/552860411000008704">January 7, 2015</a></blockquote>
+<script async src="//web.archive.org/web/20150505175303js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
+<blockquote class="twitter-tweet" lang="en"><p>I&apos;m just going to go punch myself in the face to feel better. <a href="https://web.archive.org/web/20150505175303/https://twitter.com/hashtag/RBNY?src=hash">#RBNY</a></p>&#x2014; Eduardo Mendez (@Mendez_FC) <a href="https://web.archive.org/web/20150505175303/https://twitter.com/Mendez_FC/status/552853786218487808">January 7, 2015</a></blockquote>
+<script async src="//web.archive.org/web/20150505175303js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
+<blockquote class="twitter-tweet" lang="en"><p>I&apos;ve long said that I don&apos;t understand how a <a href="https://web.archive.org/web/20150505175303/https://twitter.com/hashtag/RBNY?src=hash">#RBNY</a> supporter could just switch to <a href="https://web.archive.org/web/20150505175303/https://twitter.com/hashtag/NYCFC?src=hash">#NYCFC</a>. But now, after this Petke firing ...I get it.</p>&#x2014; Dave Edinger (@SoDaveWasLike) <a href="https://web.archive.org/web/20150505175303/https://twitter.com/SoDaveWasLike/status/552853801905176576">January 7, 2015</a></blockquote>
+<script async src="//web.archive.org/web/20150505175303js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
+<blockquote class="twitter-tweet" lang="en"><p><a href="https://web.archive.org/web/20150505175303/https://twitter.com/NewYorkRedBulls">@NewYorkRedBulls</a> Awful! After two seasons, and one which was pretty successful you sack the manager, who btw was most loyal. <a href="https://web.archive.org/web/20150505175303/https://twitter.com/hashtag/poor?src=hash">#poor</a></p>&#x2014; Kris Brown (@kris007brown) <a href="https://web.archive.org/web/20150505175303/https://twitter.com/kris007brown/status/552857178382798848">January 7, 2015</a></blockquote>
+<script async src="//web.archive.org/web/20150505175303js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
+<blockquote class="twitter-tweet" lang="en"><p><a href="https://web.archive.org/web/20150505175303/https://twitter.com/hashtag/RBNY?src=hash">#RBNY</a> finally hired a totally competent coach, but did it in the most Metro way possible.</p>&#x2014; Isaac (@isaacccccccccc) <a href="https://web.archive.org/web/20150505175303/https://twitter.com/isaacccccccccc/status/552864377901416448">January 7, 2015</a></blockquote>
+<script async src="//web.archive.org/web/20150505175303js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
+<blockquote class="twitter-tweet" lang="en"><p><a href="https://web.archive.org/web/20150505175303/https://twitter.com/hashtag/rbny?src=hash">#rbny</a> sending a clear message to <a href="https://web.archive.org/web/20150505175303/https://twitter.com/hashtag/NYCFC?src=hash">#NYCFC</a>: &quot;No one out clusterfucks us.&quot; Whether <a href="https://web.archive.org/web/20150505175303/https://twitter.com/NYCFC">@NYCFC</a> or <a href="https://web.archive.org/web/20150505175303/https://twitter.com/NewYorkRedBulls">@NewYorkRedBulls</a> <a href="https://web.archive.org/web/20150505175303/https://twitter.com/hashtag/MLS?src=hash">#MLS</a> in NYC is a joke.</p>&#x2014; Mike Vallo (@MikeV88) <a href="https://web.archive.org/web/20150505175303/https://twitter.com/MikeV88/status/552867687320526848">January 7, 2015</a></blockquote>
+<script async src="//web.archive.org/web/20150505175303js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<p>So pick your poison, NYC soccer fans. Will you support <a href="https://web.archive.org/web/20150505175303/http://gothamist.com/tags/redbulls">the underperforming club</a> that has made a tradition of firing coaches for 20 years?  Will you choose <a href="https://web.archive.org/web/20150505175303/http://gothamist.com/tags/nycfc">the brand new farm club</a> playing in a baseball stadium? Or perhaps <a href="https://web.archive.org/web/20150505175303/http://gothamist.com/tags/nycosmos">the second division team</a> playing on Long Island in front of under 5,000 fans?</p>
+
+<p>Congratulations, pro soccer: when every area team is plagued with issues, you&apos;ve officially made it as a NYC sport.</p>
+
+<p><strong>UPDATE:</strong> The Empire Supporters Club issued the following statement to Gothamist following the news:</p>
+
+<blockquote>The Empire Supporters Club is highly disappointed in today&apos;s managerial change by the New York Red Bulls. Mike Petke, a beloved player and coach for this team, won the Supporters&apos; Shield in 2013 and advanced to the conference finals in 2014. He was fired because Ali Curtis felt like it, nothing more, nothing less. If this is Mr. Curtis&apos; idea of connecting or ingratiating himself with the fans, then he either has a very rough time ahead of him, or someone will show mercy on him and make his tenure as sporting director very short.<br><br>Mike Petke is the only person to have a lifetime membership with the ESC, and is welcome to join us anywhere at any time. He will be welcomed as a hero, as he should be. Thank you for your service, Mike.</blockquote>					
+										
+									
+				

@@ -1,0 +1,25 @@
+---
+author: Jen Carlson
+date: May 12, 2016 10:35 am
+title: The Best Part Of Montauk Is Now On The Market For $52 Million :(
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="gosmans16main.jpg" src="https://web.archive.org/web/20161025125101im_/http://gothamist.com/attachments/arts_jen/gosmans16main.jpg" width="640" height="262" class="image-none"> </span><br>
+<span class="photo_caption">(via Gosman&apos;s)</span></p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-right"> <img alt="newmontauk80sb.jpg" src="https://web.archive.org/web/20161025125101im_/http://gothamist.com/attachments/arts_jen/newmontauk80sb.jpg" width="350" height="337"> <br> <i style=" width:350px; ;display:block"> Gosman&apos;s in the early &apos;80s (Jen Carlson Personal Collection)</i></div> The Gosman family, who have owned a prime 14-acre plot in <a href="https://web.archive.org/web/20161025125101/http://gothamist.com/tags/montauk">Montauk</a> for decades, have put their sprawling property on the market for over $50 million. <p></p>
+
+<p>Gosman&apos;s has been a particularly charming staple in Montauk, especially as the area has become less blue collar and more of a popular summertime destination for <a href="https://web.archive.org/web/20161025125101/http://gothamist.com/2015/08/05/montauk_brodown_showdown.php">the &quot;yupster bro&quot; set</a>. Recent changes to the beach town include the takeover of the delightful old movie theater by spinning cult <a href="https://web.archive.org/web/20161025125101/https://www.google.com/maps/uv?hl=en&amp;pb=!1s0x89ef54a9eedf0717:0x6586a164599a2d8d!2m5!2m2!1i80!2i80!3m1!2i100!3m1!7e115!4shttps://www.soul-cycle.com/studios/mntk/1030/!5smontauk+soulcycle+-+Google+Search&amp;imagekey=!1e1!2shttps://77861ea9472dc18d4219-eac685bd65ad1e27603f37681401f52f.ssl.cf2.rackcdn.com/montauk_2.jpg&amp;sa=X&amp;ved=0ahUKEwjkiOjK5NTMAhUqxoMKHYlpBFYQoioIggEwDg">SoulCycle</a>, to paint a picture of what&apos;s happening down there. But Gosman&apos;s has been part of the reason <a href="https://web.archive.org/web/20161025125101/http://gothamist.com/2012/06/14/montauk.php">you could still go to Montauk</a> and find the same Montauk you experienced in the 1980s. So <em>this is very upsetting</em>. Honestly, as for their restaurants, Gosman&apos;s has never been <em>that</em> spectacular when it comes to food, but location, location, location... and nostalgia.</p>
+
+<p>According to <a href="https://web.archive.org/web/20161025125101/http://therealdeal.com/2016/05/06/montauks-gosman-family-lists-chunk-of-downtown-for-52m/">The Real Deal</a>, the owners are asking for $52.5 million, and whoever picks it up is going to have some power to change significant sections of Montauk. The <a href="https://web.archive.org/web/20161025125101/http://www.hamptonsrealestate.com/hamptons-ny/searchResults.php?debugmode=0&amp;status=1&amp;type=home&amp;addedsince=&amp;sevendays=04%2F11%2F16&amp;dummyStatus=1&amp;town6=6&amp;minprice=0&amp;maxprice=200000000&amp;bedroom=&amp;bathroom=&amp;housesize=&amp;prosize=&amp;view=&amp;keywords=&amp;sortOrder=1&amp;limit=12">real estate agent</a>, Julia Prince, says the buyer &quot;is kind of in a way going to be next Carl Fisher.&quot; In 1926, Fisher bought up a chunk of the East End of Long Island (10,000 acres) for $2.5 million, saying he planned to turn Montauk into the &quot;Miami Beach of the North.&quot; </p>
+
+<p>Prince <a href="https://web.archive.org/web/20161025125101/http://patch.com/new-york/montauk/gosmans-iconic-montauk-eatery-market-0">called the Gosman&apos;s offering</a> &quot;iconic,&quot; and it is. The parcel for sale includes both developed and vacant land, featuring retail shops, restaurants, motels, vacant land, a huge parking lot, and an acre of beachfront property. Luckily, Montauk has zoning ordinances that will stop certain nightmare scenarios from happening.</p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="gosmans16dock.jpg" src="https://web.archive.org/web/20161025125101im_/http://gothamist.com/attachments/arts_jen/gosmans16dock.jpg" width="640" height="340" class="image-none"> </span><br>
+<span class="photo_caption">(via Gosman&apos;s)</span></p>
+
+<p><a href="https://web.archive.org/web/20161025125101/http://www.gosmans.com/more.html&amp;page=history">Gosman&apos;s Dock</a> was founded in 1943 by Robert and Mary Gosman, &quot;fish packers and agents for Fulton Market.&quot; It is a treasure, and hopefully zoning rules in The End will stop any crazy overdevelopment from happening... but even so, it&apos;s a real signal that the real Montauk is truly disappearing. <a href="https://web.archive.org/web/20161025125101/http://gothamist.com/2012/06/14/montauk.php">Hang in there White&apos;s drug store</a> and... what else is left, even?</p>					
+										
+									
+				

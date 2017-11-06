@@ -1,0 +1,12 @@
+---
+author: Jen Carlson
+date: August  8, 2012  1:10 PM
+title: Drape Yourself In White: Diner En Blanc Returns On August 20th
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="new7dinerenblanc0811c.jpeg" src="https://web.archive.org/web/20130715201207im_/http://gothamist.com/attachments/arts_jen/new7dinerenblanc0811c.jpeg" width="640" height="420" class="image-none"> </span><br>
+<span class="photo_caption">Photo by <a href="https://web.archive.org/web/20130715201207/http://www.navidbaraty.com/">Navid Baraty</a>/Gothamist</span></p>
+
+<p>New York City got its first <a href="https://web.archive.org/web/20130715201207/http://gothamist.com/tags/dinnerenblanc">Diner En Blanc</a> last year, and the group that throws the dinner party/pop-up picnic is back with another one coming up later this month. <a href="https://web.archive.org/web/20130715201207/http://gothamist.com/2012/05/07/white_dinner_waiting_list_opens_ble.php">Bust out the bleach</a>&#x2014;they&apos;ve just finalized the date: August 20th. On their Facebook page, <a href="https://web.archive.org/web/20130715201207/https://www.facebook.com/DinerEnBlanc.newyork/posts/473102486047585">they announced</a>: &quot;The D&#xEE;ner en Blanc is back for an even more magical event on Monday, August 20th 2012! Get ready&#x2014;the registration process will start this week!&quot;</p>
+
+<p>Take note, you need to be a member to get in during Phase I (and Phase 2), which begins tomorrow at noon and runs through August 14th. If you are a member (maybe you signed up last year or got put on a waiting list), you&apos;ll receive an email in the next 24 hours containing your registration code. If you <em>aren&apos;t</em> a member, <a href="https://web.archive.org/web/20130715201207/http://newyork.dinerenblanc.info/waiting.php">sign up here</a> and you&apos;ll be put on a list to get a chance to join during Phase 3. If you get in, you&apos;ll receive a confirmation telling you the details, including the outdoor space where this year&apos;s will be held (<a href="https://web.archive.org/web/20130715201207/http://gothamist.com/2011/08/26/photos_diner_en_blanc.php#photo-1">last year was at the World Financial Center in Battery Park City</a>). And then you&apos;ll need to get yourself some white threads, and start planning what you&apos;ll pack your white picnic basket with (if you don&apos;t purchase their pre-packed one).</p>

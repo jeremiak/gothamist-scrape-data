@@ -1,0 +1,31 @@
+---
+author: Ben Yakas
+date: September 29, 2011 12:02 PM
+title: The Onion's #CongressHostage Tweet Is Freaking People Out
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="92911onion.jpg" src="https://web.archive.org/web/20120328021414im_/http://gothamist.com/attachments/byakas/92911onion.jpg" width="640" height="442"> <br> <i>The photo that goes along with <a href="https://web.archive.org/web/20120328021414/http://www.theonion.com/articles/congress-takes-group-of-schoolchildren-hostage,26207/#enlarge">the new NOT REAL Onion story</a></i></div> <p></p>
+
+<p>The satirical newspaper The Onion is facing Twitter criticism today after tweeting a story about <a href="https://web.archive.org/web/20120328021414/http://www.theonion.com/articles/congress-takes-group-of-schoolchildren-hostage,26207/#enlarge">congress taking a group of schoolchildren hostage</a>. Earlier today, the Onion initially tweeted, &quot;BREAKING: Witnesses reporting screams and gunfire heard inside Capitol building.&quot; And then the online screaming (and laughing) began: <strong>[Update Below]</strong></p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="92911onion2.jpg" src="https://web.archive.org/web/20120328021414im_/http://gothamist.com/attachments/byakas/92911onion2.jpg" width="640" height="613" class="image-none"> </span></p>
+
+<p>Before we go any further: everybody here knows The Onion isn&apos;t real, right? If you&apos;re still not sure, please take a moment to fall down the rabbit hole that is the <a href="https://web.archive.org/web/20120328021414/http://literallyunbelievable.org/?6c512d00">&quot;Literally Unbelievable&quot; website</a>, which features stories from The Onion as interpreted by people on Facebook who think they are real. </p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="92911onion6.jpg" src="https://web.archive.org/web/20120328021414im_/http://gothamist.com/attachments/byakas/92911onion6.jpg" width="640" height="555" class="image-none"> </span></p>
+
+<p>Above, you can see all of the tweets The Onion has sent out on the story (thus far&#x2014;they don&apos;t seem <a href="https://web.archive.org/web/20120328021414/http://twitter.com/#!/TheOnion">to be letting up on it anytime soon</a>). People were upset that the first tweet didn&apos;t specify the absurdity of the story: &quot;Ill-considered initial tweet leads to confusion among readers. Satire usually has context. Hard to do in 140 characters,&quot; <a href="https://web.archive.org/web/20120328021414/http://twitter.com/#!/ParkyBill/status/119428517783027712">tweeted @ParkyBill</a>, who has been following The Onion&apos;s story all day. </p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="92911onion9.jpg" src="https://web.archive.org/web/20120328021414im_/http://gothamist.com/attachments/byakas/92911onion9.jpg" width="640" height="879" class="image-none"> </span></p>
+
+<p>Many Onion defenders have emerged from the murk as well, all with a similar rallying cry: &apos;don&apos;t you know that nothing The Onion says is real??&apos; Detractors argue that even so, tweets get spread around so fast that they lose context, and many didn&apos;t know this was an Onion story. But it seems to us that this is part of the point: The Onion is satirizing the cult of (irresponsible) &quot;breaking&quot; news stories on Twitter. Some are comparing the whole thing to Orson Welles&apos; <a href="https://web.archive.org/web/20120328021414/http://en.wikipedia.org/wiki/The_War_of_the_Worlds_(radio_drama)">War Of The Worlds broadcast</a>, but many people are still not amused:</p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="92911onion7.jpg" src="https://web.archive.org/web/20120328021414im_/http://gothamist.com/attachments/byakas/92911onion7.jpg" width="640" height="785" class="image-none"> </span></p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="92911onion10.jpg" src="https://web.archive.org/web/20120328021414im_/http://gothamist.com/attachments/byakas/92911onion10.jpg" width="640" height="127" class="image-none"> </span></p>
+
+<p>If you want to follow along with all the fun, check out the #Congresshostage <a href="https://web.archive.org/web/20120328021414/http://twitter.com/#!/search?q=%23CongressHostage">hashtag here</a>. Finally, you should check out <a href="https://web.archive.org/web/20120328021414/http://www.theonion.com/articles/congress-takes-group-of-schoolchildren-hostage,26207/#enlarge">the actual story</a>, since it&apos;s pretty hilarious, and includes this line: &quot;Although cell phones were confiscated immediately, one student managed to tweet a short video showing what appeared to be Sen. Chuck Schumer (D-NY) pistol-whipping a chaperone who attempted to yell for help.&quot;</p>
+
+<p><strong>Update</strong>: Again, in case you were confused: The Onion is satire. According <a href="https://web.archive.org/web/20120328021414/http://www.washingtonpost.com/blogs/blogpost/post/the-onion-tweets-screams-and-gunfire--wheres-the-humor/2011/09/29/gIQASpCI7K_blog.html">to The Washington Post</a>, &quot;The Onion office in New York confirmed that the tweet was not a hack, however, saying, &#x201C;This is satire. That&#x2019;s how it works.&#x201D; That hasn&apos;t stopped the U.S. Capitol Police <a href="https://web.archive.org/web/20120328021414/http://www.washingtonpost.com/blogs/crime-scene/post/capitol-police-issue-all-clear-following-onion-tweets-article/2011/09/29/gIQAYs4J7K_blog.html">from investigating</a> the tweets (and giving the &quot;all clear&quot;). </p>
+
+<p>Adrian Chen of Gawker <a href="https://web.archive.org/web/20120328021414/http://twitter.com/#!/Adrianchen/status/119440488922226688">summed up the situation</a> nicely: &quot;It&apos;s the Onion&apos;s fault for not tweeting the word &quot;Joke&quot; 25 times before and after their #congressHostage tweet.&quot;</p>

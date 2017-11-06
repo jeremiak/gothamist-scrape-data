@@ -1,0 +1,37 @@
+---
+author: Emma Whitford
+date: Feb 28, 2017 10:18 am
+title: De Blasio To Announce Plan For 90 New Homeless Shelters
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="101016_Maspeth2.jpg" src="https://web.archive.org/web/20170620151924im_/http://gothamist.com/attachments/nyc_ewhitford/101016_Maspeth2.jpg" width="640" height="427"> <br> <i> Maspeth residents protesting outside of the proposed shelter site in late August. (Scott Heins / Gothamist) </i></div> <p></p>
+
+<p>Mayor de Blasio is expected to announce a plan to open 90 new homeless shelters across the city on Tuesday, <a href="https://web.archive.org/web/20170620151924/https://www.nytimes.com/2017/02/27/nyregion/new-york-mayor-de-blasio-homeless-shelters.html?rref=collection%2Fsectioncollection%2Fnyregion&amp;action=click&amp;contentCollection=nyregion&amp;region=rank&amp;module=package&amp;version=highlights&amp;contentPlacement=1&amp;pgtype=sectionfront&amp;_r=1">according to anonymous sources</a> who spoke with the New York Times ahead of his scheduled homelessness announcement. Proposals to open new homeless shelters have been met with strong opposition across the city in recent months&#x2014;from <a href="https://web.archive.org/web/20170620151924/http://gothamist.com/2016/09/01/maspeth_homeless_shelter.php">Maspeth, Queens</a> to <a href="https://web.archive.org/web/20170620151924/http://gothamist.com/2016/10/31/madison_square_park_hotel.php">Midtown, Manhattan</a>&#x2014;even as homelessness has <a href="https://web.archive.org/web/20170620151924/http://gothamist.com/2016/09/30/homeless_in_nyc_hits_new_record_hig.php">reached record numbers</a>. (Other cities including Los Angeles, San Francisco, and Washington, have seen similar increases, the Times reports.)</p>
+
+<p>Mayoral spokeswoman Jaclyn Rothenberg declined to comment on the contours of the plan ahead of this afternoon&apos;s official homelessness announcement. </p>
+
+<p>There are currently 275 shelters overseen by the Department of Homeless Services, according to the NY Times. <a href="https://web.archive.org/web/20170620151924/http://www.politico.com/states/new-york/city-hall/story/2016/11/de-blasio-slowed-pace-of-new-shelters-after-opposition-107020">Politico reports</a> that New York City opened 19 shelters in 2014, and only four in 2015. </p>
+
+<p>While homeless New Yorkers and their advocates argue that <a href="https://web.archive.org/web/20170620151924/http://gothamist.com/2017/01/14/de_blasio_homeless.php">permanent affordable housing</a> is the most ironclad solution to the city&apos;s homelessness crisis, the Department of Homeless Services has argued that shelters are crucial if NYC is to meet its <a href="https://web.archive.org/web/20170620151924/http://www.coalitionforthehomeless.org/our-programs/advocacy/legal-victories/the-callahan-legacy-callahan-v-carey-and-the-legal-right-to-shelter/">legal obligation</a> to provide shelter to anyone in need. </p>
+
+<p>City officials have also emphasized what they are up against: a <a href="https://web.archive.org/web/20170620151924/http://gothamist.com/tags/affordablehousingcrisis">housing crisis</a>, stagnant wages, and the void left behind when Governor Andrew Cuomo and former mayor Michael Bloomberg <a href="https://web.archive.org/web/20170620151924/http://www.gothamgazette.com/index.php/government/4938-de-blasio-homelessness-policy-advantage">eliminated the Advantage rental assistance program in 2011</a>. More recently, advocates have criticized Cuomo for <a href="https://web.archive.org/web/20170620151924/http://gothamist.com/2016/08/26/cuomo_supportive_housing.php">not delivering promised funds</a> for homeless housing. According to the city, the homelessness count spiked more than 5,000 per year between 2011 and 2014. </p>
+
+<p>The more communities push back against shelters, Human Resource Administration Commissioner Steven Banks has argued, the more the city must rely on so-called &quot;stop-gap&quot; measures, like temporary shelter within commercial hotels. </p>
+
+<p>According to DHS, there were 6,000 homeless New Yorkers living in commercial hotel rooms as of last October. In 2014, following the <a href="https://web.archive.org/web/20170620151924/http://gothamist.com/2016/02/10/staten_island_homeless_stabbing.php">triple stabbing murder</a> of a mother and two of her small children in a Staten Island motel serving homeless families, de Blasio pledged to phase out the practice of renting out hotel rooms as temporary shelter for the homeless &quot;as quickly as possible.&quot;</p>
+
+<p>The Mayor has also pledged to <a href="https://web.archive.org/web/20170620151924/http://gothamist.com/2016/01/04/homeless_cluster_site.php">phase out cluster site housing</a>&#x2014;a Bloomberg legacy that resulted in homeless families being placed in sordid apartments at high cost to the city&#x2014;by the end of 2018. But cluster sites still have a significant footprint in NYC. According to the city, they currently house about 11,400 adults and children. Without enough shelters, efforts to phase out cluster sites result in more commercial hotel use. </p>
+
+<p>Last fall, protests outside of the Bellerose Inn in Queens prompted the hotel owner to back out of a <a href="https://web.archive.org/web/20170620151924/http://www.theislandnow.com/new_hyde_park/news/outcry-in-bellerose-over-hotel-housing-homeless/article_2f5a8416-80e1-11e6-9dbe-1b7db3a49093.html">DHS contract</a>. &quot;That solved absolutely nothing because those families had to be housed elsewhere in the city,&quot; Banks told reporters at the time. &quot;And I don&apos;t think any New Yorker would want to see someone denied shelter because a particular group of people said &apos;Not in our community.&apos;&quot; </p>
+
+<p><a href="https://web.archive.org/web/20170620151924/http://nypost.com/2017/02/28/de-blasio-to-call-for-90-new-homeless-shelters/">According to the NY Post</a>, the Mayor&apos;s Office will also unveil an &quot;equity plan,&quot; to insure equal distribution of shelters across city neighborhoods. </p>
+
+<p>Any plan to significantly expand the city&apos;s shelter footprint would mark a shift in tactic for de Blasio. <a href="https://web.archive.org/web/20170620151924/http://gothamist.com/2016/11/21/de_blasio_homelessness.php">According to a recent report from Politico</a>, the mayor significantly slowed the pace of shelter creation in 2014, after residents in Elmhurst, Queens <a href="https://web.archive.org/web/20170620151924/http://www.nytimes.com/2014/07/26/nyregion/homeless-shelters-opening-in-queens-stirs-ugly-exchanges.html?_r=2">fought vehemently</a> against a proposed shelter in their neighborhood. </p>
+
+<p>Ahead of de Blasio&apos;s state of the city address last month, members of the homelessness advocacy group Picture the Homeless said they were disappointed that the mayor had not consulted their organization, which has many homeless members, before developing this latest plan. </p>
+
+<p>&quot;I know from bitter experience that a plan developed with no homeless people at the table will fail to address the real issues and provide real solutions,&quot; said Picture the Homeless member Jean Rice in a statement. &quot;The shelter system is not a substitute for permanent housing, and is not a conducive element to community-building and involving homeless New Yorkers in civic participation.&quot; </p>					
+										
+									
+				

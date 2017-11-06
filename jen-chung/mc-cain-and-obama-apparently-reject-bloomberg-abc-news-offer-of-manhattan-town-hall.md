@@ -1,0 +1,15 @@
+---
+author: Jen Chung
+date: June  8, 2008  4:44 PM
+title: McCain and Obama Apparently Reject Bloomberg, ABC News' Offer of Manhattan Town Hall
+---
+
+<center><img src="https://web.archive.org/web/20110521070348im_/http://gothamist.com/attachments/jen/2008_04_federalhall.jpg"></center>
+
+<p><img alt="2008_06_obammac.jpg" src="https://web.archive.org/web/20110521070348im_/http://gothamist.com/attachments/jen/2008_06_obammac.jpg" width="150" height="381" class="left">Given the presidential candidates&apos; interest in a series of town hall-style forums for them to show their stuff to voters, Mayor Bloomberg and ABC News president David Westin proposed this morning that Senator John McCain and Senator Barack Obama <a href="https://web.archive.org/web/20110521070348/http://abcnews.go.com/Politics/Vote2008/story?id=5021604&amp;page=1">kicks things off in NYC and participate in a 90-minute town hall at Federal Hall</a> in lower Manhattan.  However, McCain&apos;s and Obama&apos;s campaigns aren&apos;t so sure.</p>
+
+<p>Bloomberg and Westin&apos;s letter said, &quot;We are thrilled to see you both embrace the idea of joint town hall meetings where voters can an have unfiltered opportunity to hear how each candidate would address the great issues facing our country&quot; and suggested that Diane Sawyer could moderate.  <a href="https://web.archive.org/web/20110521070348/http://www.politico.com/news/stories/0608/10922.html">Politico reported</a> that Bloomberg even offered to &quot;help the candidates shape the format&quot;--he <a href="https://web.archive.org/web/20110521070348/http://gothamist.com/2008/06/05/bloomberg_uncle.php">does love public service</a>, after all.  </p>
+
+<p>Then, a few hours after the offer was reported, the <a href="https://web.archive.org/web/20110521070348/http://thecaucus.blogs.nytimes.com/2008/06/08/a-new-york-moment-waiting-to-happen/">two campaigns indicated that they&apos;d like the town hall</a> to be, per the Obama statement, &quot;open to all networks for broadcast on TV or internet like the presidential commission debates rather than sponsored by a single network or news organization,&quot; and, per the McCain statement, that the town halls should be &quot;open to press but not sponsored or moderated by the press.&#x201D;</p>
+
+<p>ABC News says it&apos;s open to discussing a way to share the town hall, &quot;We think the important thing is bringing the candidates together.&quot;  It would be great to have a town hall at <a href="https://web.archive.org/web/20110521070348/http://www.nps.gov/feha/">Federal Hall</a>, which is where George Washington was sworn in as the first president back in 1789 and where there&apos;s currently an <a href="https://web.archive.org/web/20110521070348/http://gothamist.com/2008/04/29/the_american_pr.php">exhibit of Associated Press photographs of presidents</a>.</p>

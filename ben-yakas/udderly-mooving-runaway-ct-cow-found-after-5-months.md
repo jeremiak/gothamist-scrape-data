@@ -1,0 +1,11 @@
+---
+author: Ben Yakas
+date: December 15, 2011  5:39 PM
+title: Udderly Mooving: Runaway CT Cow Found After 5 Months
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:365px; "> <img alt="121511cow.jpeg" src="https://web.archive.org/web/20130523111721im_/http://gothamist.com/attachments/byakas/121511cow.jpeg" width="365" height="261"> <br> <i>Wanda <a href="https://web.archive.org/web/20130523111721/http://www.courant.com/videogallery/66786959/News/Runaway-Cow-Recaptured-After-5-Months-12-15">(via)</a></i></div> Talk about milking a story for all it&apos;s worth: police captured a 400-pound runaway cow who has been on the lam for the past five months. <a href="https://web.archive.org/web/20130523111721/http://www.ctnow.com/news/hc-milford-missing-cow-1215-2-20111214,0,4258504.story">According to FoxCT</a>, it took 15 people to capture Wanda the runaway cow at a farm in Oxford, CT yesterday. The steaks were high for those involved, who did everything they could to steer clear of hurting the animal, who had escaped capture twice before thanks to her deer friends! <p></p>
+
+<p>Milford animal control director Rick George says it took two tranquilizer darts to subdue the cow; the 1 year old calf was not injured, except for a bloody nose she received when trying to get out of the feeding pen the group had made to contain her. But the oddest part of an overall odd story (the <a href="https://web.archive.org/web/20130523111721/http://www.nypost.com/p/news/local/conn_cow_found_after_months_on_the_8RCkfADHksW1ypqc5i5hoK?CMP=OTC-rss&amp;FEEDNAME=">Post erroneously claimed</a> Wanda was 800 pounds!) is <em>who</em> Wanda was hanging out with during her five month journey: Wanda had joined up with a herd of deer who acted as her protection. The deer would stomp and snort to alert Wanda to possible danger, George said. </p>
+
+<p>So for one brilliant moment, Wanda the 400-pound runaway cow and her deer best friends were legendairy throughout the forests of Connecticut. We feel we should apologize for all the terrible cow puns in the post&#x2014;after all, we cud have stopped, but we didn&apos;t.</p>

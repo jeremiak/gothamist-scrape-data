@@ -1,0 +1,11 @@
+---
+author: Jen Chung
+date: October 31, 2008  2:44 PM
+title: Police Say Walsh Was Spotted During Elaborate Cover-up of Wife's Murder
+---
+
+<p><img alt="2008_10_walshw.jpg" src="https://web.archive.org/web/20130602072243im_/http://gothamist.com/attachments/jen/2008_10_walshw.jpg" width="230" height="295" class="left">The Nassau County police <a href="https://web.archive.org/web/20130602072243/http://www.newsday.com/news/local/ny-liteac3112126349oct31,0,7075453.story">revealed details in how William Walsh&apos;s story fell apart</a> during questioning.  Walsh, who had emotionally pleaded for his missing wife&apos;s r<a href="https://web.archive.org/web/20130602072243/http://gothamist.com/2008/10/28/long_island_man_begs_for_missing_wi.php">eturn on Monday</a>, was arrested for her murder <a href="https://web.archive.org/web/20130602072243/http://gothamist.com/2008/10/30/cops_confirm_body_is_missing_teache.php">on Wednesday</a>.</p>
+
+<p>Newsday reports that the &quot;the chain of events that led to Leah Walsh&apos;s death began with an argument over whether he was cheating on her.&quot; Walsh, 29, confessed to police that he strangled his 29-year-old wife on Sunday morning.  With her body still in the house,  Detective Lt. John Azzata said, &quot;<strong>Mr. Walsh went about his business, including doing his laundry at a local Laundromat, going to a local McDonald&apos;s.</strong>&quot; </p>
+
+<p>On Sunday evening, he drove his wife&apos;s car, dumping her body in North Hills--Azzata said, &quot;In the cover of darkness, he drove around Long Island and Nassau County looking for a dark area.&quot;   On Monday morning, he took her car to the Seaford-Oyster Expressway, left it beside road, with her purse on the road as well, and walked home. He also used her cellphone to send a text message--&quot;Have a great day. Love you bunches. Mwah.&quot;-- to his phone.  But then came a mistake. <a href="https://web.archive.org/web/20130602072243/http://www.nypost.com/seven/10312008/news/regionalnews/killer_li_hubby_was_out_to_lunch_136176.htm">From the NY Post</a>:</p>

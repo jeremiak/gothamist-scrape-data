@@ -1,0 +1,17 @@
+---
+author: Jen Carlson
+date: May 12, 2009 8:30 am
+title: Nick and Rani, Regrets
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="php6RJ5qjAM.jpg" src="https://web.archive.org/web/20150609003458im_/http://gothamist.com/attachments/arts_jen/php6RJ5qjAM.jpg" width="300" height="204" class="image-left"> </span><em><a href="https://web.archive.org/web/20150609003458/http://www.nickandrani.com/">Nick Ferris and Rani Free</a> have collected regrets, but lucky for them, not their own. The two have taken other people&apos;s regrets and turned them into an art show, which will open tomorrow and includes photography, sculptures, video installations, audio installations, an interactive &#x201C;Stage of Regrets&#x201D;, a specially commissioned children&#x2019;s book and also a Wall of Regrets where visitors can post their own regrets at the gallery. There are 250 total that will be exhibited in one form or another, and you can even purchase a photograph of one to take home with you (proceeds go to charity). Learn more about the show <a href="https://web.archive.org/web/20150609003458/http://www.nickandrani.com/thegallery.html">here</a>, and more about the duo who put it together below.</em></p>
+
+<p><strong>Can you tell us how Regrets came about, and a little about the exhibition?</strong> Regrets was conceived during Nick&#x2019;s previous show&#x2014;an exhibition of Napkin art back in February (he spends a lot of time in bars doodling!). We had met briefly once before and started talking about doing a project together. None of us can actually remember who came up with the idea, but we thought the concept of Regrets would be a fun project.</p>
+
+<p>Regrets quickly grew from a small art project to a major exhibition. We found a 3,000 sq ft space and realized we had nothing to fill it! So over 8 weeks, we&#x2019;ve put everything together. The exhibition comprises black and white photography we took of each other&#x2019;s regrets (we took over 1500 pictures and whittled those down to 20), two short films, video interviews, a children&#x2019;s book we wrote and illustrated, regrets sent in by the public, a stage of Regrets (where you can overcome your regrets) and some sculptures and paintings. In total some 250 regrets are featured in the exhibit - both positive and negative. We realized the theme can be somewhat negative and so tried to balance out with things we don&#x2019;t regret. The entire exhibition is to raise money for charity too - You Can Thrive and Sense. We have <a href="https://web.archive.org/web/20150609003458/http://nickandrani.com/">a website</a> where anyone can go and anonymously add their regrets.</p>
+
+<p><strong>How do you collect regrets from people&#x2014;I think I saw a video booth set up in Times Square?</strong> We&#x2019;ve been in Times Square a few times interviewing members of the public. However, the primary way we&#x2019;ve collected regrets is through viral marketing&#x2014;getting our friends, their friends and their friends to post links to the website. It&#x2019;s amazing how quickly you can spread the word through Facebook and other platforms.</p>					
+										
+									
+				

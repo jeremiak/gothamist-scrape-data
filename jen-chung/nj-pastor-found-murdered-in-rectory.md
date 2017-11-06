@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: October 24, 2009  2:13 PM
+title: NJ Pastor Found Murdered In Rectory
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2009_10_edhinds.jpg" src="https://web.archive.org/web/20110623142458im_/http://gothamist.com/attachments/jen/2009_10_edhinds.jpg" width="80" height="83" class="image-right"> </span>Yesterday, the beaten and bloodied body of a beloved church pastor was <a href="https://web.archive.org/web/20110623142458/http://www.nj.com/news/index.ssf/2009/10/death_of_chatham_priest_was_ca.html">found in the rectory kitchen</a> of <a href="https://web.archive.org/web/20110623142458/http://www.st-pats.org/">St. Patrick&apos;s</a> in Chatham, NJ. A friend said of Rev. Edward &quot;Father Ed&quot; Hinds, 61, &quot;He was an exceptional, exceptional ma. He didn&#x2019;t offend anybody. He didn&#x2019;t take on issues, he didn&#x2019;t use the pulpit to take on anything political. A lot of time he&#x2019;d talk and he&#x2019;d say, &#x2018;Well where&#x2019;s God in this?&#x2019;&quot; Morris County prosecutor Robert Bianchi said, &quot;The fact is that this was a community leader whose arms were wide open to downtrodden. Maybe one of those individuals was involved. That kind of generosity is preyed upon.&quot;  </p>

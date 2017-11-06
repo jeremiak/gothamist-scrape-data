@@ -1,0 +1,17 @@
+---
+author: Jen Carlson
+date: June 30, 2010 10:37 AM
+title: Georgi Bikini Ads Stripped From Buses In Hasidic Areas
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="georgiad0610.jpg" src="https://web.archive.org/web/20120602125334im_/http://gothamist.com/attachments/arts_jen/georgiad0610.jpg" width="640" height="480" class="image-none"> </span><br>
+<span class="photo_caption">Photo via <a href="https://web.archive.org/web/20120602125334/http://www.flickr.com/photos/non_delay/1629303692/">syrup-tendons&apos; flickr</a></span></p>
+
+<p>The Georgi Vodka ads that were banned from city buses <a href="https://web.archive.org/web/20120602125334/http://gothamist.com/2006/08/23/public_transpor.php">back in 2006</a> eventually <a href="https://web.archive.org/web/20120602125334/http://wcbstv.com/topstories/georgi.vodka.bikini.2.612854.html">returned</a> a year later&#x2014;but now they&apos;re being removed again, at least in some Brooklyn neighborhoods. The company&apos;s ads have consistently featured a bikini-clad butt, and back during the first ban of aught six, Georgi CEO Martin Silver admitted it was his daughter Laurie&apos;s butt, relaying this charming anecdote: &quot;Best buns in the city. Her friends call her &apos;Buns&apos; now.&quot; It&apos;s unclear whether or not &quot;Buns&quot; was featured in the new ads being pulled, which show a similar bikini-clad butt sitting in the sand. The MTA&apos;s Aaron Donovan told us this morning:</p><blockquote>&quot;At the request of community leaders, the Georgi vodka ads were removed from buses that are likely to serve Brooklyn&apos;s Hasidic neighborhoods.  It has been our longstanding practice, when and where possible, to be sensitive to neighborhood concerns about potentially suggestive advertising. Although it is not always practicable, we try to limit more suggestive ads upon neighborhood request.&quot;</blockquote>In response to the take-down, Silver fired up the PR machine and hired some models to wear the Georgi bikinis and hold signs that read: &quot;MTA should butt out of bikini ads.&quot; This certainly isn&apos;t the first time Silver has dabbled in the fine art of publicity stunts&#x2014;<a href="https://web.archive.org/web/20120602125334/http://gothamist.com/2010/03/26/diddy_4.php">earlier this year</a> he sent Sean &quot;Diddy&quot; Combs a toilet filled with Ciroc vodka.<p></p>
+
+<p>At the scantily clad scene he created yesterday, Silver told <a href="https://web.archive.org/web/20120602125334/http://www.nydailynews.com/ny_local/2010/06/30/2010-06-30_ads_too_sexy_for_brooklyn.html">the Daily News</a>, &quot;They hardly gave us any warning. They just took them off the buses. These ads are clearly not pornography... If you don&apos;t like what&apos;s on a bus, all you have to do is look away and walk past.&quot;</p>
+
+<center><script type="text/javascript" charset="utf-8" src="https://web.archive.org/web/20120602125334js_/http://static.polldaddy.com/p/3412412.js"></script>
+<noscript>
+	<a href="https://web.archive.org/web/20120602125334/http://polldaddy.com/poll/3412412/">Should the MTA leave the Georgi ads up?</a><span style="font-size:9px;"><a href="https://web.archive.org/web/20120602125334/http://polldaddy.com/features-surveys/">customer surveys</a></span>
+</noscript></center>

@@ -1,0 +1,35 @@
+---
+author: Emma Whitford
+date: Feb 29, 2016 12:45 pm
+title: Illegal East Williamsburg Airbnb Turned One Loft Into Eight Tourist "Cubbyholes"
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="022916_CookStreet.png" src="https://web.archive.org/web/20160923062749im_/http://gothamist.com/attachments/nyc_ewhitford/022916_CookStreet.png" width="640" height="333"> <br> <i> 210 Cook Street: Until recently an Australian tourist&apos;s authentic East Williamsburg dream, equipped with graffiti, potted plants, wifi, and no natural light (Google Maps). </i></div> <p></p>
+
+<p>Australian backpackers looking for an Ikea mattress and shelter from the elements within walking distance of the L train have one less option for illegal accommodations as of this week, after a recent city bust at 210 Cook Street in East Williamsburg. Following up on a Department of Buildings <a href="https://web.archive.org/web/20160923062749/http://a810-bisweb.nyc.gov/bisweb/OverviewForComplaintServlet?requestid=2&amp;vlcompdetlkey=0001943048">complaint</a>, inspectors from the city&apos;s Office of Special Enforcement last week found a second floor loft converted into eight furnished rooms with &quot;no natural light and ventilation&quot; and inadequate means of egress. </p>
+
+<p>Although the square footage of the loft was not immediately available, <a href="https://web.archive.org/web/20160923062749/http://www.zillow.com/homedetails/210-Cook-St-APT-309-Brooklyn-NY-11206/2124791245_zpid/">Zillow lists a rental</a> on the third floor at about 950 square feet. The eight Airbnb rooms (the <a href="https://web.archive.org/web/20160923062749/http://www.nydailynews.com/new-york/brooklyn/city-shuts-illegal-airbnb-hotel-williamsburg-article-1.2546218">News described the units</a> as &quot;cubbyholes&quot;), offered stays from $31 per night, according to the tabloid. Dim and unventilated, sure, but visitors also apparently got free wifi, two bathrooms to share, kitchen access, and plenty of murals and potted plants. The listing was deleted Friday. </p>
+
+<p>The city <a href="https://web.archive.org/web/20160923062749/http://nypost.com/2015/07/16/city-beefs-up-unit-probing-airbnb-abuses/">doubled the OSE&apos;s budget</a> to $2.8 million last summer, more than doubling the department&apos;s staff and empowering it to investigate and bust illegal hotels, rather than simply react to complaints. The state&apos;s Multiple-Dwelling Law prohibits New Yorkers from renting out entire apartments for under 30 days if the tenant on the lease is not present. It is also illegal to <a href="https://web.archive.org/web/20160923062749/http://www1.nyc.gov/site/buildings/renter/illegal-conversions-vacates.page">divide your apartment into single-room units</a> without DOB approval. </p>
+
+<p>Councilmembers and advocates have long argued that Airbnb&#x2014;which had 30,483 active units in NYC as of September 1st&#x2014;should be transparent and proactive about New Yorkers who use the platform to operate illegal hotels. Unlike the <a href="https://web.archive.org/web/20160923062749/http://gothamist.com/2015/10/30/sure_drag_tim_burton_into_this.php">cheery couples</a> renting a spare room in Airbnb ads, these operators, they say, jeopardize the safety of longterm tenants, break state laws, and snatch up a significant portion of the city&apos;s <a href="https://web.archive.org/web/20160923062749/http://gothamist.com/2015/06/23/cuomo_rent_albany_samo.php">already-dwindling</a> affordable housing stock.</p>
+
+<p>Airbnb declined to confirm how many tourists were inside 210 Cook Street when the second floor loft was vacated by the city last Tuesday, but said that everyone impacted was reimbursed and relocated to another Airbnb listing for the duration of their stay in New York. </p>
+
+<p>&quot;While these situations are incredibly rare, we take them very seriously, and are committed to continuing to identity and remove bad actors from our platform,&quot; said a spokesman for the startup on Monday morning. &quot;We have no tolerance for illegal hotels and have removed these hosts from our platform.&quot; </p>
+
+<p>Airbnb made a <a href="https://web.archive.org/web/20160923062749/http://gothamist.com/2015/12/01/airbnb_laws_shmaws.php">highly-publicized data dump</a> last December, in response to City Council accusations that the startup was <a href="https://web.archive.org/web/20160923062749/http://gothamist.com/2015/10/30/sure_drag_tim_burton_into_this.php">protecting its bad actors</a>. The data showed that 55% of Airbnb&apos;s users are breaking the law by renting out their entire apartments while they&apos;re away.</p>
+
+<p>The data also indicated that only 6% of Airbnb host revenue in New York between November 2014 and November 2015 came from hosts with more than three rentals to their name&#x2014;another <a href="https://web.archive.org/web/20160923062749/http://gothamist.com/2015/06/26/this_data_tool_will_turn_you_into_a.php">good indicator</a> of illegal hotel activity. For comparison, New York Attorney General Eric Schneiderman <a href="https://web.archive.org/web/20160923062749/http://gothamist.com/2014/10/16/airbnb_illegal_rapacious.php">issued a report in 2010</a> that found that 37% of Airbnb&apos;s revenue comes from such hosts. </p>
+
+<p>Earlier this month, Bed-Stuy-based coder and Airbnb watchdog Murray Cox <a href="https://web.archive.org/web/20160923062749/http://insideairbnb.com/reports/how-airbnbs-data-hid-the-facts-in-new-york-city.pdf">issued a report</a> accusing Airbnb of conducting a &quot;one-time targeted purge&quot; of 1,000 bad actors in the first three weeks of November, and presenting the post-purge data as &quot;typical.&quot; In a response to the report <a href="https://web.archive.org/web/20160923062749/http://www.nytimes.com/2016/02/12/business/airbnb-purged-new-york-listings-to-create-a-rosier-portrait-report-says.html">given to the NY Times</a>, Airbnb spokesman Nick Papas said that &quot;Airbnb is an open people-to-people platform where listings come on and go off throughout the year.&quot;</p>
+
+<p>The landlord at 210 Clark, Castel Baljac Inc., has reportedly been fined $7,800 for building code violations including the illegal hotel, an obstructed passageway, and a propped-open fire exit. </p>
+
+<p>Legislation <a href="https://web.archive.org/web/20160923062749/http://gothamist.com/2015/06/10/airbnb_fines_nyc.php">introduced last summer</a> would increase fines for illegal hotel operators, which currently hover between $1,600 and $25,000, to a minimum of $10,000, and maximum of $50,000. Another piece of legislation up for review calls for a mandatory annual report on the total number of illegal hotel complaints filed, as well as violations issued, and penalties collected. </p>
+
+<p>Councilmember Mark Levine cautioned in September that without higher fines for illegal hotels, monetary punishment will be shrugged off as &quot;the cost of doing business.&quot;  </p>					
+										
+									
+				

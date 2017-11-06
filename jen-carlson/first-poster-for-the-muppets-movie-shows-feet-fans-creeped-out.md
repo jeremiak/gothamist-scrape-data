@@ -1,0 +1,13 @@
+---
+author: Jen Carlson
+date: May 16, 2011 10:57 AM
+title: First Poster For The Muppets Movie Shows Feet, Fans Creeped Out
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="muppetsposter0511.jpg" src="https://web.archive.org/web/20110518083125im_/http://gothamist.com/attachments/arts_jen/muppetsposter0511.jpg" width="640" height="644" class="image-none"> </span></p>
+
+<p>The <a href="https://web.archive.org/web/20110518083125/http://gothamist.com/2009/03/24/jason_segel.php">Jason Segel-scripted</a> <em>Muppets</em> movie is headed to the big screen, due out this fall, and the first poster has now popped up. What does it tell us? <a href="https://web.archive.org/web/20110518083125/http://www.cinemablend.com/new/The-Muppets-First-Poster-Shows-Their-Feet-24704.html">Cinema Blend</a> notes, &quot;Here&#x2019;s what you should notice. Feet. The Muppets have feet. One thing about Muppets, you can&#x2019;t really show their feet very often, because if you do you&#x2019;ll see the Muppeteer... So as a Muppet fan what this poster tells me is that, maybe, showing Muppet feet isn&#x2019;t going to be such a special thing anymore. I suppose it&#x2019;s about time Muppet technology took a step forward, and if there&#x2019;s a next step it probably involves far more Muppet wide shots than we&#x2019;re used to.&quot;</p>
+
+<p>Apparently Muppet feet is <em>a thing</em> (even though we&apos;ve <a href="https://web.archive.org/web/20110518083125/http://gothamist.com/2011/05/09/mysterious_bike-in_movie_rolls_into.php">already seen</a> them). <a href="https://web.archive.org/web/20110518083125/http://www.movieline.com/2011/05/see-the-chillingly-creepy-new-muppets-poster.php">Movieline</a> calls the appearance of their feet on the poster &quot;chillingly creepy,&quot; saying, &quot;there are a few unassailable essential guidelines to film: the villain is always bad, the girl is always pretty, and you should never EVER see the Muppets&#x2019; feet when they walk.&quot; Personally, we&apos;re more disturbed by how thin Animal&apos;s legs are.</p>
+
+<p>Back in 2008, Segel said, &quot;I actually just turned in my first draft of the Muppets and I&apos;m really excited about it. I think we&apos;re bringing them back. Hopefully it will fall right in the pantheon of <em>The Great Muppet Caper</em>, <em>Muppets Take Manhattan</em>, <em>Muppet Movie</em>, you know, we&apos;re trying to make one of those.&quot; He&apos;s also promised to stick to the traditional, CGI-free puppetry.</p>

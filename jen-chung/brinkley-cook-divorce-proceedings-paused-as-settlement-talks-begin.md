@@ -1,0 +1,13 @@
+---
+author: Jen Chung
+date: July  9, 2008  3:22 PM
+title: Brinkley, Cook Divorce Proceedings Paused as Settlement Talks Begin
+---
+
+<p><img alt="2008_07_brinkcook.jpg" src="https://web.archive.org/web/20130603063214im_/http://gothamist.com/attachments/jen/2008_07_brinkcook.jpg" width="250" height="174" class="left">After yesterday&apos;s scathing testimony from a court-appointed psychiatrist, Christie Brinkley and Peter Cook may be <a href="https://web.archive.org/web/20130603063214/http://www.newsday.com/news/local/suffolk/ny-librin0710,0,1392423.story">working to settle the custody portion</a> of their divorce battle in private. The model <a href="https://web.archive.org/web/20130603063214/http://www.nypost.com/seven/07092008/news/regionalnews/brinkley__cook_settlement_could_be_near__119152.htm">told reporters</a> that she&apos;s &quot;wanted to settle for two years.&quot;  </p>
+
+<p>Brinkley had been lobbying for sole custody for their two children, while Cook wants joint custody.  Dr. Stephen Herman, who testified in Woody Allen and Mia Farrow&apos;s split, had described Cook, who Brinkley accused of <a href="https://web.archive.org/web/20130603063214/http://gothamist.com/2008/07/04/dirt_spilled_in_christie_brinkleys.php">ruining their marriage with his infidelity</a>, as a narcissist with a huge ego--&quot;<strong>Where most people need some quiet feeding with their egos, Mr. Cook has an insatiable appetite</strong>.&quot;--and recommended that Brinkley get sole custody.  </p>
+
+<p><img src="https://web.archive.org/web/20130603063214im_/http://gothamist.com/attachments/jen/2008_07_cookgq.jpg" class="right">However, <a href="https://web.archive.org/web/20130603063214/http://www.nypost.com/seven/07092008/news/regionalnews/the_shrink_raps_both_sides_119107.htm">he said</a>, &quot;<strong>She needs to start working on therapy issues related to her parenting, maybe her choice in male figures with whom to get involved</strong>, certain motivations she has herself that can get her into trouble.&quot;  Brinkley said she&apos;s not a fan of psychology, &quot;But if Dr. Herman feels strongly about it, I would do whatever it takes to convince the court that I&apos;m willing to make whatever changes they deem necessary.&quot;</p>
+
+<p>Cook is an architect (he had an affair with an 18-year-old he met at a toy store and hired to be an assistant at his firm), but was once a male model--Inside Edition found this 1981 GQ cover which has a 22-year-old Cook posing with Carol Alt.  If Brinkley and Cook settle custody, the next fight will be over property and some other belongings.</p>

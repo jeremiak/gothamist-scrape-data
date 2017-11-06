@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: October 27, 2008 10:17 AM
+title: 40% Newsroom Cut for The Star-Ledger
+---
+
+<p><img alt="2008_10_sl27.jpg" src="https://web.archive.org/web/20110623152203im_/http://gothamist.com/attachments/jen/2008_10_sl27.jpg" width="130" height="122" class="right">The <a href="https://web.archive.org/web/20110623152203/http://www.nytimes.com/2008/10/27/business/media/27paper.html?ref=nyregion">NY Times reports</a> that the Star-Ledger, NJ&apos;s largest paper (15th largest in the country, with a daily circulation of 345,000), &quot;will cut its newsroom staff about 40 percent by year&#x2019;s end, one of the largest reductions in a single move by a major American paper.&quot;  This comes after grim talk from its publisher, Advance Publications, saying that the newspaper <a href="https://web.archive.org/web/20110623152203/http://gothamist.com/2008/09/17/starledger_may_closed_or_sold_by_ne.php">would fold</a> if there were not a number of concessions made from staff and unions.  The unions <a href="https://web.archive.org/web/20110623152203/http://gothamist.com/2008/10/03/starledger_keeps_hopes_alive.php">agreed to new deals</a> and the Times explains that buyouts will be given to &quot;about 150 news employees who requested them.&quot; A memo said that many employees applied for buyouts and some will be turned down.  Some employees said It&apos;s possible that the paper will hire new employees, too.</p>

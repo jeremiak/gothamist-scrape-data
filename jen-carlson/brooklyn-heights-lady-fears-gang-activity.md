@@ -1,0 +1,11 @@
+---
+author: Jen Carlson
+date: October 30, 2009  3:38 PM
+title: Brooklyn Heights Lady Fears Gang Activity
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-right" style=" width:350px; "> <img alt="vampireinitiationweek.jpg" src="https://web.archive.org/web/20111124165353im_/http://gothamist.com/attachments/arts_jen/vampireinitiationweek.jpg" width="350" height="263"> <br> <i><span class="photo_caption">When is teen vampire gang initiation week?</span></i></div> One <a href="https://web.archive.org/web/20111124165353/http://brooklynheightsblog.com/archives/14097">Brooklyn Heights resident</a> alerted fellow neighbors about possible gang activity in the neighborhood this week, after spotting four unruly teenagers on Hicks.<p></p>
+
+<p>Her red warning flag went up with the following words: &quot;Please be advised at approximately 9:00 p.m. tonight as I was walking home on Hicks between Montague and Joralemon I was accosted by a gang of four boys, approximately 14 -15 years of age.  I am certain it was a gang initiation.  The same thing happened to me five years ago in Cobble Hill. This time when they asked me what time is it, do you have a cigarette, why won&#x2019;t you stop and talk to us, I just kept my head down and kept walking. I saw a cab.  Knocked on the window, and said, call the cops.  When the police arrived of course the gang was long gone.  But I put them on notice.&quot;</p>
+
+<p>Later, after being accused of overreacting, the &quot;victim&quot; explained that she is an expert spotter of teen gang activity, and also says the school she teaches at in the South Bronx has been put on notice over the Blood&apos;s initiation week &#x2014; <a href="https://web.archive.org/web/20111124165353/http://gothamist.com/2009/10/20/annual_gang_initiation_rumormongeri.php">rumors of which</a> go around annually at Halloween (and Easter). We contacted the NYPD for their comment on the initiation rumors, but this Brooklyn Heights resident warns that if you see any &quot;baby-bangers&quot; out there: keep walking! Gang or no gang, teenagers really <em>are</em> terrifying &#x2014; just <a href="https://web.archive.org/web/20111124165353/http://www.freewilliamsburg.com/archives/2009/10/if_you_hear_the.html">check out what the teen girls in Williamsburg</a> are up to!</p>

@@ -1,0 +1,16 @@
+---
+author: Jen Carlson
+date: September 19, 2007  4:20 PM
+title: 150 Year Old Murder Victim And His Suspect Properly Laid to Rest at Green-Wood
+---
+
+<p><img alt="2007_09_butchery.jpg" src="https://web.archive.org/web/20120214065009im_/http://gothamist.com/attachments/jen/2007_09_butchery.jpg" width="234" height="334" class="right">There are likely many unsolved crimes in New York City&apos;s past, but this week, one 150-year-old case finally gets a sort of closure. The crime was well-documented as the Butchery on Bond Street. Love, money, Bellevue, dentists...all the usual makings for criminal behavior are accounted for, and <a href="https://web.archive.org/web/20120214065009/http://www.amny.com/news/local/crime/am-murder0918,0,4949743.story?coll=amny_home_rail_headlines">amNewYork</a> spoke to Benjamin Feldman, who has written a book, The Butchery of Bond Street.  </p>
+
+<p>Harvey Burdell, a dentist who lived at 31 Bond Street, was &quot;found in his office strangled and stabbed 15 times.&quot;   His mistress, Emma Cunningham, was the main suspect.  Feldman explained, &quot;She needed a wealthy new husband willing to take on [her] five children.  And she made a bad choice.&quot;  </p><blockquote>Burdell, according to Feldman, &quot;took ruthless advantage&quot; of [Cunningham], routinely raping her, impregnating her two times, and twice performing an abortion on her with his hands.<p></p>
+
+<p>Still, she needed the money and respectability a husband would bring, and so, when Burdell refused to do right by her, she hired an imposter to stand in for him at a wedding ceremony. When this ruse failed, she took to violence.</p></blockquote>After the dentist died, Cunningham insisted she was to get his fortune because she was carrying his child. But the only thing she was pregnant with was a lot of bad ideas: She stuffed pillows in her petticoat and then took a newborn from Bellevue to pawn it off as her own. <p></p>
+
+<p>Cunningham, who had <a href="https://web.archive.org/web/20120214065009/http://www.nytimes.com/2007/09/19/nyregion/19headstones.html?_r=1&amp;ref=nyregion&amp;oref=slogin">thrown herself on Burdell&apos;s on the open coffin</a> at the funeral, was eventually acquitted at trial (Feldman tells the NY Times he believes she played a role in Burdell&apos;s death).  She left the city but eventually returned, where she died in 1887 -- buried in Green-Wood Cemetery, just a few hundred yards apart from the dentist.  Both were essentially disowned by their families and left in unmarked graves.</p>
+
+<p>Now, fastforward to the present-day for closure:  Feldman has a <a href="https://web.archive.org/web/20120214065009/http://butcheryonbondstreet.blogspot.com/">blog for the book</a>  and he announced that &quot;custom-designed, historically authentic tombstones for Dr. Harvey Burdell and Emma Augusta Hempstead Cunningham will be unveiled in consecutive ceremonies.&quot;  The tombstones use period fonts and images and he writes, &quot;With the generosity and cooperation of Green-Wood Cemetery and the locatable family members of the decedents, appropriate and dignified stones will finally mark Burdell&apos;s and Cunningham&apos;s final resting places.&quot;<br>
+</p>

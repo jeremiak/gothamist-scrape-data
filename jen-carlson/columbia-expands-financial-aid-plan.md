@@ -1,0 +1,11 @@
+---
+author: Jen Carlson
+date: March 11, 2008  4:08 PM
+title: Columbia Expands Financial Aid Plan
+---
+
+<p><img alt="2008_03_columbia.jpg" src="https://web.archive.org/web/20110611053251im_/http://gothamist.com/attachments/jen/2008_03_columbia.jpg" width="293" height="220" class="left">Columbia University <a href="https://web.archive.org/web/20110611053251/http://www.columbia.edu/cu/news/08/03/FinancialAid.html">has a new financial aid plan for undergraduate students</a> whose families make between $60,000-100,000.  Following in the <a href="https://web.archive.org/web/20110611053251/http://www.nytimes.com/2008/02/25/education/25brown.html">footsteps of other Ivy League schools</a>, they will significantly <a href="https://web.archive.org/web/20110611053251/http://www.nytimes.com/2008/03/11/education/11columbia.html?ref=nyregion">expand the aid currently offered</a> to lower and middle income students. The VP of Arts and Sciences Nicholas Dirks said, &#x201C;Our new financial aid policies reflect a more realistic view of the challenges that lower- and middle-income families face in paying for college.&#x201D;</p>
+
+<p>The new plan will have grants replacing loans (even students who currently have loans will be included in this). Families making $60K or less (it&apos;s currently $50K) will no longer pay tuition, room and board or fees starting in Fall 2008, and families making between $60K and $100K will also have expanded aid (though specifics are unclear at this time). </p>
+
+<p>Officials at the university have said &quot;the increased aid will be financed by annual gifts, new fund-raising and an increase in spending from the university&#x2019;s endowment.&quot; <a href="https://web.archive.org/web/20110611053251/http://www.bwog.net/articles/mo_money_less_problems">The BWOG</a> links to a page comparing a school&apos;s <a href="https://web.archive.org/web/20110611053251/http://en.wikipedia.org/wiki/Student_financial_aid#No_loan_financial_aid">current  no-loan financial aid plans</a>.  One question: When will NYU expand its financial aid?</p>

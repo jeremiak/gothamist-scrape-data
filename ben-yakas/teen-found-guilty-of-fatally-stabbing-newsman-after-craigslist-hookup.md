@@ -1,0 +1,13 @@
+---
+author: Ben Yakas
+date: November 16, 2011  5:23 PM
+title: Teen Found Guilty Of Fatally Stabbing Newsman After Craigslist Hookup
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="111611murder.jpg" src="https://web.archive.org/web/20111117072116im_/http://gothamist.com/attachments/byakas/111611murder.jpg" width="640" height="400"> <br> <i>John Katehis</i></div> <p></p>
+
+<p>A teen who went through a mistrial last year <a href="https://web.archive.org/web/20111117072116/http://gothamist.com/tags/johnkatehis">for the murder of</a> WABC Radio newsman George Weber <a href="https://web.archive.org/web/20111117072116/http://brooklyn.ny1.com/content/top_stories/150835/teen-convicted-of-fatally-stabbing-brooklyn-radio-reporter/">was found guilty yesterday</a>. John Katehis, now 18, was found guilty of second-degree murder for stabbing Weber upwards of 50 times in March 2009 inside Weber&#x2019;s Carroll Gardens apartment after responding to his sex ad on Craigslist. And according <a href="https://web.archive.org/web/20111117072116/http://www.nypost.com/p/news/local/brooklyn/murderer_evil_smirk_TgzGY0PHCKst1XNrv0iT6I?CMP=OTC-rss&amp;FEEDNAME=">to the Post</a><a>, Katehis broke into &quot;a wide grin&quot; after the verdict was announced.</a></p><a>
+
+</a><p><a>Katehis had previously admitted to hooking up with Weber, a 47-year-old freelancer for ABC News Radio. Using the name &quot;smotherboy,&quot; Weber has offered $60 on Craigslist for S&amp;M; play. Katehis also gave a </a><a href="https://web.archive.org/web/20111117072116/http://gothamist.com/2010/10/21/matter-of-fact_confession_from_radi.php">matter-of-fact confession</a> to killing him in sex play-gone-wrong: &quot;The knife just goes and jabs him in the neck. We&apos;re fighting over the blade and it jabbed him in the neck,&quot; he had testified on videotape. </p>
+
+<p>Katehis, who was 16 at the time of the incident, claimed it was self-defense&#x2014;Weber had plied him with alcohol and cocaine, and Weber allegedly was the one who first took out the knife. The initial trial resulted in a hung jury last year, and was declared a mistrial&#x2014;the judge actually called it a <a href="https://web.archive.org/web/20111117072116/http://gothamist.com/2010/10/28/mistrial_called_twice_in_trial_for.php">mistrial twice</a> in a strange turn of events. Katehis now faces 25 years-to-life in prison, and will be sentenced on December 7th. </p>

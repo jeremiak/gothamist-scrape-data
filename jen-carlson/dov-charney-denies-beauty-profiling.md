@@ -1,0 +1,11 @@
+---
+author: Jen Carlson
+date: Aug 4, 2009 1:51 pm
+title: Dov Charney Denies Beauty Profiling
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="charney0809.jpg" src="https://web.archive.org/web/20151108132358im_/http://gothamist.com/attachments/arts_jen/charney0809.jpg" width="150" height="113" class="image-right"> </span><a href="https://web.archive.org/web/20151108132358/http://gothamist.com/2009/07/27/dov_charney.php">Last week</a> an anonymous employee of the American Apparel empire spoke out against Dov Charney&apos;s lookist views, saying that recently the CEO was demanding staff photos from each branch and firing the uglies. As the anonymous employee told it, he thought it was hurting his bottom line. Meanwhile, another employee agreed with this statement <a href="https://web.archive.org/web/20151108132358/http://gothamist.com/2009/07/27/dov_charney.php#comment-2297434">in our comments</a>, saying that the incident didn&apos;t even &quot;grasp the magnitude of the company&apos;s dehumanizing policies.&quot; Soon after, <a href="https://web.archive.org/web/20151108132358/http://gothamist.com/2009/07/27/dov_charney.php#comment-2298051">an HR flack</a> seemed to have searched his last name in the company database, replying to his comment with a first name he never revealed, and seemingly scaremongering him into saying that maybe this wasn&apos;t true after all. What a deep-v meshed web of confusion that&apos;s being weaved in the sweatshop-free company! But now Charney <a href="https://web.archive.org/web/20151108132358/http://www.theglobeandmail.com/life/survival-of-the-hottest/article1240424/">speaks out himself</a>, saying, &quot;<strong>At American Apparel, we strive to hire salespeople who have an enthusiasm for fashion and retail and who themselves have good fashion sense. But this does not necessarily mean they have to be physically attractive</strong>.&quot; Well, he did use <a href="https://web.archive.org/web/20151108132358/http://gothamist.com/2009/04/08/woody_allen_calls_american_apparel.php">Woody Allen</a> on a billboard. [via <a href="https://web.archive.org/web/20151108132358/http://gawker.com/5329709/dov-charney-i-do-employ-uglies">Gawker</a>]</p>					
+										
+									
+				

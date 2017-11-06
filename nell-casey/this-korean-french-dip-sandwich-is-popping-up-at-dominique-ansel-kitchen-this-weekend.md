@@ -1,0 +1,18 @@
+---
+author: Nell Casey
+date: Mar 28, 2016 3:35 pm
+title: This Korean French Dip Sandwich Is Popping Up At Dominique Ansel Kitchen This Weekend
+---
+
+	
+										<p>French Dip News is great News of Food and this week&apos;s bringing a bounty of it to NYC. First, there&apos;s the French Dip/Bone Marrow mashup <a href="https://web.archive.org/web/20171021063114/http://gothamist.com/2016/03/28/rider_restaurant_national_sawdust.php#photo-1">happening in Williamsburg</a> and now, another popping up this weekend at Cronut-creator Dominique Ansel&apos;s eponymous Kitchen on 7th Avenue South. Ansel has collaborated with Deuki Hong, the executive chef at smash hit Kang Ho Dong Baekjong, for the Korean French Dip. Napkin at the ready: drool porn ahead.</p>
+
+<blockquote class="instagram-media" data-instgrm-version="6" style=" background:#FFF; border:0; border-radius:3px; box-shadow:0 0 1px 0 rgba(0,0,0,0.5),0 1px 10px 0 rgba(0,0,0,0.15); margin: 1px; max-width:658px; padding:0; width:99.375%; width:-webkit-calc(100% - 2px); width:calc(100% - 2px);"><div style="padding:8px;"> <div style=" background:#F8F8F8; line-height:0; margin-top:40px; padding:50.0% 0; text-align:center; width:100%;"> <div style=" background:url(data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAACwAAAAsCAMAAAApWqozAAAAGFBMVEUiIiI9PT0eHh4gIB4hIBkcHBwcHBwcHBydr+JQAAAACHRSTlMABA4YHyQsM5jtaMwAAADfSURBVDjL7ZVBEgMhCAQBAf//42xcNbpAqakcM0ftUmFAAIBE81IqBJdS3lS6zs3bIpB9WED3YYXFPmHRfT8sgyrCP1x8uEUxLMzNWElFOYCV6mHWWwMzdPEKHlhLw7NWJqkHc4uIZphavDzA2JPzUDsBZziNae2S6owH8xPmX8G7zzgKEOPUoYHvGz1TBCxMkd3kwNVbU0gKHkx+iZILf77IofhrY1nYFnB/lQPb79drWOyJVa/DAvg9B/rLB4cC+Nqgdz/TvBbBnr6GBReqn/nRmDgaQEej7WhonozjF+Y2I/fZou/qAAAAAElFTkSuQmCC); display:block; height:44px; margin:0 auto -44px; position:relative; top:-22px; width:44px;"></div></div><p style=" color:#c9c8cd; font-family:Arial,sans-serif; font-size:14px; line-height:17px; margin-bottom:0; margin-top:8px; overflow:hidden; padding:8px 0 7px; text-align:center; text-overflow:ellipsis; white-space:nowrap;"><a href="https://web.archive.org/web/20171021063114/https://www.instagram.com/p/BDgbwr5FONV/" style=" color:#c9c8cd; font-family:Arial,sans-serif; font-size:14px; font-style:normal; font-weight:normal; line-height:17px; text-decoration:none;" target="_blank">A photo posted by dominiqueansel (@dominiqueansel)</a> on <time style=" font-family:Arial,sans-serif; font-size:14px; line-height:17px;" datetime="2016-03-28T18:28:42+00:00">Mar 28, 2016 at 11:28am PDT</time></p></div></blockquote>
+<script async defer src="//web.archive.org/web/20171021063114js_/http://platform.instagram.com/en_US/embeds.js"></script>
+<br><br>
+You&apos;re looking at slow-roasted prime rib topped with a kimchi marmalade and dotted with black garlic on a split open loaf of potato bread slathered with garlic butter. For dipping, chose either a shiitake mushroom jus or a spicy serrano kalbi jus. 
+<br><br>
+<a href="https://web.archive.org/web/20171021063114/http://www.nytimes.com/2016/03/30/dining/dominique-ansel-korean-french-dip-sandwich.html?ref=topics&amp;_r=0">According to the Times</a>, they&apos;ll only be making 300 sandwiches for the three day pop-up, which begins Friday at 6 p.m. and then Saturday and Sunday at noon. One sandwich runs $22, which is shockingly <a href="https://web.archive.org/web/20171021063114/http://gothamist.com/2015/07/15/french_dip_nyc_ultimate_guide.php">not the most expensive French Dip</a> in NYC&#x2014;it&apos;s just the hardest to come by.					
+										
+									
+				

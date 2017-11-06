@@ -1,0 +1,11 @@
+---
+author: Jen Carlson
+date: January 26, 2011  2:28 PM
+title: No One Wants Jersey Shore Going To Italy
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="jerseyrome01111.jpg" src="https://web.archive.org/web/20130714004206im_/http://gothamist.com/attachments/arts_jen/jerseyrome01111.jpg" width="300" height="208" class="image-left"> </span>Americans want to keep the <em>Jersey Shore</em> cast close to home now that word has come out they&apos;ll be filming <a href="https://web.archive.org/web/20130714004206/http://gothamist.com/2011/01/25/jersey_shore_cast_is_moving_to_ital.php">season 4 in Italy</a>. Like, real Italy, not Little Italy, or Epcot Center Italy, or an Italy they might not embarrass us in. UNICO, the Italian-American organization that pretty much just wants the cast sleeping with the fishes <a href="https://web.archive.org/web/20130714004206/http://gothamist.com/2009/12/02/mtv_1.php">at this point</a>, unsurprisingly has a lot to say about the location change. When the show began they wanted it banned, and now they say sending the castmates to the old country is going to make us <em>all</em> look like &quot;buffoons and bimbos.&quot;</p>
+
+<p>A rep for the group told <a href="https://web.archive.org/web/20130714004206/http://www.tmz.com/2011/01/25/jersey-shore-unico-italian-american-interest-group-buffoons-bimbos-italy-season-4-freak-show-denigration/">TMZ</a>, &quot;It will not only hurt Italians but all Americans &#x2026; their outrageous, reprehensible behavior will make us look like buffoons and bimbos. People used to go to the circus to see the freak show&#x2014;that is what this will be.&quot; Indeed, as someone pointed out <a href="https://web.archive.org/web/20130714004206/http://www.foxnews.com/entertainment/2011/01/26/snooki-jwoww-topless-italy-jersey-shore-italians-enraged/">to Fox</a>, most of the beaches in Italy are topless.</p>
+
+<p>Anyway, get your travel to Italy in now before these ladies and gents <em>ruin it for everyone</em>. And perhaps get a petition going for MTV to send these seven to another exotic locale, like, say, Siberia.</p>

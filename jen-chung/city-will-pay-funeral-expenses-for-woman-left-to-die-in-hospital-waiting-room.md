@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: July  5, 2008  1:09 PM
+title: City Will Pay Funeral Expenses for Woman Left to Die in Hospital Waiting Room
+---
+
+<p><img alt="2008_07_egreen.jpg" src="https://web.archive.org/web/20110811101220im_/http://gothamist.com/attachments/jen/2008_07_egreen.jpg" width="100" height="92" class="left">After being rocked by the death of Esmin Green, a psychiatric patient who died at Kings County Hospital, the city announced it would <a href="https://web.archive.org/web/20110811101220/http://www.nypost.com/seven/07042008/news/regionalnews/esmins_funeral_to_be_on_the_city_118421.htm">pay for her funeral expenses</a>.  A video showed Green <a href="https://web.archive.org/web/20110811101220/http://gothamist.com/2008/07/01/shocking_video_shows_brooklyn_hospi.php">waiting in the waiting room for almost 24 hours</a>, collapsing to the floor with numerous staffers ignoring her.  Mayor Bloomberg said developer Forest City Ratner will fly Green&apos;s relatives from Jamaica to NYC and back, as well as fly the body back to Jamaica.  Though six staffers have been fired, Green&apos;s daughter <a href="https://web.archive.org/web/20110811101220/http://www.nydailynews.com/ny_local/brooklyn/2008/07/03/2008-07-03_friends_of_woman_left_to_die_at_kings_co.html">told the Daily News</a>, &quot;I&apos;m going to put it in the hands of American law. But I can tell you this: That hospital, it needs to be closed down.&quot;</p>

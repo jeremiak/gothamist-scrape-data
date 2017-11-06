@@ -1,0 +1,15 @@
+---
+author: Jen Carlson
+date: Nov 11, 2010 12:07 pm
+title: The Hipster Must Die... Smoking These Williamsburg Cigs
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:350px; "> <img alt="camelburg1110.jpeg" src="https://web.archive.org/web/20171031212008im_/http://gothamist.com/attachments/arts_jen/camelburg1110.jpeg" width="350" height="214"> <br> <i><span class="photo_caption">Camel promo with hipster Joe Camel added</span></i></div> The Camel advertising team has clearly been watching a lot of <em>Mad Men</em>, and is trying <em>so hard</em> (too hard? not hard enough?) to get that <em>thing</em> that Don Draper has. This is actual real-life ad copy for the Williamsburg brand cigarette the company has put out (oh and by the way, there is a Williamsburg brand cigarette, more on that in a sec&#x2014;first, here&apos;s what <em>it&apos;s about</em>): &#x201C;It&#x2019;s about last call, a sloppy kiss goodbye and a solo saunter to a rock show in an abandoned building... It&#x2019;s where a tree grows.&#x201D; As the hipster forefathers would say: alluding to trees growing in Brooklyn is <em>so over</em>.<p></p>
+
+<p>So, yes, as <a href="https://web.archive.org/web/20171031212008/http://www.brooklynpaper.com/stories/33/46/wb_camelsmokes_2010_11_12_bk.html">the Brooklyn Paper</a> reports, R.J. Reynolds has launched a &#x201C;Williamsburg&#x201D; version of Camel smokes as part of some sort of promotion featuring 10 cool neighborhoods in the U.S. The Brooklyn box shows the Domino Sugar Factory and the Williamsburg Bridge&#x2014;where hip pioneers once created a new underground scene, probably whilst puffing away on, well, American Spirits or Parliaments. But Camel is &quot;cool&quot; too, you guys&#x2014;the company promises you&apos;ll earn some &quot;serious street cred&quot; if you smoke these cigarettes, and that Williamsburg&apos;s &quot;artistic approach to life meshes with the Camel brand.&#x201D; Finally, someone gets <em>you</em>. Or as Don Draper <a href="https://web.archive.org/web/20171031212008/http://www.youtube.com/watch?v=yXTJhVBqWOM&amp;feature=related">would say</a>: &quot;whatever you&apos;re doing, it&apos;s okay. You are okay.&quot; </p>
+
+<p>Hipster: Camel is just waiting to give you a warm hug after a long decade of irony in your now post-ironic neighborhood. It&apos;ll only <a href="https://web.archive.org/web/20171031212008/http://gothamist.com/2010/11/10/should_new_cigarette_warning_labels.php">cost you a lung</a> and $12.50 a pack. Hmm, maybe they <a href="https://web.archive.org/web/20171031212008/http://newyork.timeout.com/things-to-do/this-week-in-new-york/80234/the-hipster-must-die"><em>want</em> you to die.</a></p><a href="https://web.archive.org/web/20171031212008/http://newyork.timeout.com/things-to-do/this-week-in-new-york/80234/the-hipster-must-die">					
+										
+									
+				</a>

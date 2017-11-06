@@ -1,0 +1,13 @@
+---
+author: Ben Yakas
+date: December 30, 2011  3:53 PM
+title: I Divorced A Girl: Russell Brand And Katy Perry Split Up
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="123011brand.jpg" src="https://web.archive.org/web/20120104074507im_/http://gothamist.com/attachments/byakas/123011brand.jpg" width="640" height="480"> <br> <i>Even Uncle Rush couldn&apos;t keep these two crazy kids together</i></div> <p></p>
+
+<p><a href="https://web.archive.org/web/20120104074507/http://www.tmz.com/2011/12/30/katy-perry-divorce-russell-brand/?adid=hero1">According to TMZ</a>, as well as every Twitter user and website on the internet, British comedian Russell Brand has filed for divorce from pop starlet Katy Perry after 14 months of marriage. If Brand&#x2014;a former heroin addict, sex addict, and recovering alcoholic&#x2014;and Perry&#x2014;a devout Christian who became famous due to a bi-curious hit single&#x2014;can&apos;t make it, is there any hope for true love?</p>
+
+<p>Brand cited &quot;irreconcilable differences&quot; in the divorce papers, and released a statement, claiming, &quot;Sadly, Katy and I are ending our marriage. I&apos;ll always adore her and I know we&apos;ll remain friends.&quot; Rumors of marital strife hit a fever pitch last week <a href="https://web.archive.org/web/20120104074507/http://www.nydailynews.com/gossip/russell-brand-files-divorce-katy-perry-report-article-1.998941">when the couple was</a> photographed on separate Christmas vacations on opposite sides of the planet. &quot;They had a massive fight,&quot; <a href="https://web.archive.org/web/20120104074507/http://www.myfoxorlando.com/dpps/entertainment/celebrity_news/russell-brand-and-katy-perry-dpgonc-20111230-to_16694722">an insider told</a> U.S. Weekly. &quot;Katy doesn&apos;t think Russell respects her parents&apos; Christian beliefs or her friends,&quot; another source said. Perry&apos;s parents are both Christian pastors.</p>
+
+<p>Even Russell Simmons, the benevolent entrepreneur-quasi-patron of the Occupy Wall Street movement <a href="https://web.archive.org/web/20120104074507/http://gothamist.com/2011/10/23/katy_perry_drops_by_occupy_wall_str.php">who hung out with the couple</a> at Zuccotti Park in October, <a href="https://web.archive.org/web/20120104074507/https://twitter.com/#!/UncleRUSH/status/152842706052333568">didn&apos;t have any mantras</a> to inspire the couple to give it one more shot: &quot;thinking about my two friends Russell Brand and Katy Perry and hoping for happiness for both.&quot;</p>

@@ -1,0 +1,12 @@
+---
+author: Jen Carlson
+date: February  7, 2012 11:24 AM
+title: Madonna Will Play Yankee Stadium This September
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="maddonayankee0212.jpeg" src="https://web.archive.org/web/20120428162639im_/http://gothamist.com/attachments/arts_jen/maddonayankee0212.jpeg" width="350" height="319" class="image-right"> </span>Madonna has just announced details for the Madonna 2012 World Tour, where you&apos;ll be able to see her and her guns up close. Tickets will be going on sale February 13th here in the States, and in New York, her big show will take place on September 6th at Yankee Stadium. Her Madgesty does <a href="https://web.archive.org/web/20120428162639/http://gothamist.com/2012/02/05/madonnas_super_bowl_halftime_lfmao.php#photo-1">love the sports</a> as of late and has been known to <a href="https://web.archive.org/web/20120428162639/http://gothamist.com/2008/07/26/red_sox_fans_taunt_arod_with_madonn.php">support the Yankees</a>.</p>
+
+<p>In <a href="https://web.archive.org/web/20120428162639/http://gothamist.com/2012/02/02/madonna_4.php">a recent interview</a>, Madonna told her fans: &quot;Start saving your pennies now. People spend $300 on crazy things all the time, things like handbags. So work all year, scrape the money together and come to my show. I&apos;m worth it.&quot; So how much will taking in her show cost you? The lowest price <a href="https://web.archive.org/web/20120428162639/http://www.ticketmaster.com/event/1D00483FA61B5F8A?artistid=768011&amp;majorcatid=10001&amp;minorcatid=1">at Yankee Stadium</a> is $94.65 (which includes Ticketmaster fees), with five other ticket price options, topping out at $375.05 (also including fees). There will also be a <a href="https://web.archive.org/web/20120428162639/https://v2.iloveallaccess.com/tours/madonna/madonna/2b3580d2a217b0887a98df69f018e0feVwR5ZPV%3D/9380362b896a6aef0fdd0ec4d6a61460VwZ5ZwDv">VIP package</a>, but pricing for that has not yet been announced. Expect all tickets to sell out within seconds, and then mysteriously pop up <a href="https://web.archive.org/web/20120428162639/http://blogs.reuters.com/felix-salmon/2011/03/24/james-murphys-role-in-the-lcd-soundsystem-ticket-fiasco/">on StubHub</a> with jacked up pricing. </p>
+
+<p>This is Madonna&apos;s first tour since 2009 (when she played MSG), and it will all start on May 29th in Tel Aviv. <br>
+ </p>

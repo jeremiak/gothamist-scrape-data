@@ -1,0 +1,11 @@
+---
+author: Jen Carlson
+date: November 15, 2010  3:32 PM
+title: Prospect Park Swan Gets Hooked By A Fisherman
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:325px; "> <img alt="SWANprospectpark1110.jpg" src="https://web.archive.org/web/20110707173450im_/http://gothamist.com/attachments/arts_jen/SWANprospectpark1110.jpg" width="325" height="245"> <br> <i><span class="photo_caption">Photo by <a href="https://web.archive.org/web/20110707173450/http://www.flickr.com/photos/kesnerster/5042542372/">Josh Kesner</a></span></i></div> The war between humans, humans with fishhooks, and waterfowl continues at Prospect Park Lake. <a href="https://web.archive.org/web/20110707173450/http://gothamist.com/2010/08/04/four_prospect_park_swans_hooked_by.php">In August</a> four swans were hooked by fishermen, prompting locals to question why the Prospect Park Enforcement Patrol officers were turning a blind eye to <a href="https://web.archive.org/web/20110707173450/http://gothamist.com/2010/08/31/prospect_park_not_fining_unlawful_f.php">unlawful fishermen</a>. Well, now <a href="https://web.archive.org/web/20110707173450/http://www.brooklynpaper.com/stories/33/47/dtg_cygnetrescue_2010_11_19_bk.html">the Brooklyn Paper</a> reports that a swan was found with an illegal barbed fishhook through its foot on Friday.<p></p>
+
+<p>Park-goers Anne-Katrin Titze and Ed Bahlman spotted the swan, which had a 10-foot-long fishing line trailing from it; they named him Achilles. The duo waited for him by the lake and grabbed him when he came out, at which time he &quot;squealed like a pig.&quot; Titze is a licensed wildlife rehabilitator, however, and managed to remove the hook.</p>
+
+<p>Now Achilles is back to normal, but it&apos;s most likely only a matter of time before Man strikes again. Though at least the swans don&apos;t have to worry about <a href="https://web.archive.org/web/20110707173450/http://gothamist.com/2010/07/12/canada_geese_1.php">the Feds</a>, for now.</p>

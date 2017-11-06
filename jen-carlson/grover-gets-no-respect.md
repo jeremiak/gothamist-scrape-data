@@ -1,0 +1,7 @@
+---
+author: Jen Carlson
+date: August 29, 2008  1:00 PM
+title: Grover Gets No Respect
+---
+
+<p><img alt="supergrover1.jpg" src="https://web.archive.org/web/20130511041608im_/http://gothamist.com/attachments/arts_jen/supergrover1.jpg" width="130" height="92" class="right">One West Coast <a href="https://web.archive.org/web/20130511041608/http://www.sfgate.com/cgi-bin/blogs/parenting/detail?blogid=29&amp;entry_id=29526">baby blog</a> has had it up to here with the lack of respect Grover is getting on Sesame Street, asking &quot;has anybody gotten screwed over&quot; more than the lovable blue guy? The one time <a href="https://web.archive.org/web/20130511041608/http://www.sfgate.com/cgi-bin/blogs/sfgate/detail?blogid=29&amp;entry_id=12604">Big Muppet on Campus</a> has been overshadowed by that fame whore Elmo. They claim the red muppet, who has less of a pot belly and a dumbed down version of Grover&apos;s schtick, has become what Al Roker is to Willard Scott. It&apos;s also noted that the other Sesame Street elders, like Big Bird, get more respect, with &quot;classy elder statesman&quot; roles. What&apos;s next, will <a href="https://web.archive.org/web/20130511041608/http://muppet.wikia.com/wiki/Image:Macys-supergrover.jpg">Super Grover</a> be taken out of the Macy&apos;s Thanksgiving Day Parade?</p>

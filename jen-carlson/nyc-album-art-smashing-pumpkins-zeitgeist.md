@@ -1,0 +1,17 @@
+---
+author: Jen Carlson
+date: Jul 12, 2007 2:05 pm
+title: NYC Album Art: Smashing Pumpkins, Zeitgeist
+---
+
+	
+										<p><img alt="2007_07_arts_shepsmashing.jpg" src="https://web.archive.org/web/20150509132342im_/http://gothamist.com/attachments/arts_jen/2007_07_arts_shepsmashing.jpg" width="350" height="350" class="right">The Smashing Pumpkins have officially made their return. The comeback (yeah, we&apos;re gonna call it a comeback) appears to be met with little fanfare. The new album, <em>Zeitgeist</em>, came out Tuesday - and was met with a <a href="https://web.archive.org/web/20150509132342/http://www.pitchforkmedia.com/article/record_review/44083-zeitgeist">lack of good reviews</a>. The cover art is what we&apos;re concerned about here though. </p>
+
+<p>Bill Corgan chose (<a href="https://web.archive.org/web/20150509132342/http://gothamist.com/2007/06/21/interview_shepa.php">recent interviewee</a>) Shepard Fairey to design the album art for the new album, <a href="https://web.archive.org/web/20150509132342/http://www.harpmagazine.com/news/detail.cfm?article=11222">saying</a>: &#x201C;Like a great artist can do, Shepard [Fairey] had summed up very simply a lot of complex theme. He also used the type font from our very first single, and I asked him about it and he had no idea. He was just on point.&#x201D;</p>
+
+<p>Fairey told <a href="https://web.archive.org/web/20150509132342/http://www.billboard.com/bbcom/news/article_display.jsp?vnu_content_id=1003585592">Billboard</a> more about the symbolism: &quot;I think global warming is an issue that is currently relevant, time sensitive, and a symptom of the shortsightedness of the U.S. As a broader metaphor, the drowning Statue of Liberty, a revered icon of the U.S., symbolizes the eminent demise of many of the ideals upon which the nation was founded. Civil liberties, freedom of speech, privacy, etc. have been decreasing since 9/11. The sun in the image could either be setting or rising and this ambiguity shows that there is still hope to turn things around.&quot; He gave Lady Liberty a red hue because it&apos;s an &quot;emotionally potent color.&quot;</p>
+
+<p>Even if it&apos;s a little reminiscent of <em><a href="https://web.archive.org/web/20150509132342/http://www.amazon.com/gp/redirect.html?ie=UTF8&amp;location=http%3A%2F%2Fwww.amazon.com%2Fgp%2Fproduct%2Fimages%2FB00005JMXX%2F&amp;tag=gothamist03-20&amp;linkCode=ur2&amp;camp=1789&amp;creative=9325">The Day After Tomorrow</a><img src="https://web.archive.org/web/20150509132342im_/http://www.assoc-amazon.com/e/ir?t=gothamist03-20&amp;l=ur2&amp;o=1" width="1" height="1" border="0" alt="" style="border:none !important; margin:0px !important;"></em> (or <a href="https://web.archive.org/web/20150509132342/http://blogcritics.org/archives/2006/01/12/052452.php">this wall mural in Queens</a>), it&apos;s way better than the cover art for the single off the album, <a href="https://web.archive.org/web/20150509132342/http://en.wikipedia.org/wiki/Tarantula_(Smashing_Pumpkins_song)">which features Paris Hilton</a>. <a href="https://web.archive.org/web/20150509132342/http://www.laist.com/2007/05/16/shepard_fairey.php">LAist</a> has a list of other music artwork Fairey has worked on.</p>					
+										
+									
+				

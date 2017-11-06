@@ -1,0 +1,17 @@
+---
+author: Jen Chung
+date: Jun 25, 2010 9:02 am
+title: Rent Guidelines Board Approves 2.25%, 4.5% Hikes
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:200px; "> <img alt="2010_06_rgb.jpg" src="https://web.archive.org/web/20150506164218im_/http://gothamist.com/attachments/jen/2010_06_rgb.jpg" width="200" height="164"> <br> <i>Photograph by <a href="https://web.archive.org/web/20150506164218/http://www.flickr.com/photos/paolomastrangelo/4711155338/">Paolo Mastrangelo on Flickr</a></i></div> Last night, the Rent Guidelines Board voted to approve rent increases for rent-stabilized apartments. The hikes are 2.25% for one-year leases and 4.5% for two-year leases.  Board member Adrienne Holder, who voted for the hikes, <a href="https://web.archive.org/web/20150506164218/http://www.nydailynews.com/ny_local/2010/06/25/2010-06-25_board_member_so_sorry_after_rent_hike.html">was reportedly tearful as she said,</a> &quot;I know this is going to have an impact on the tenants, and I&apos;m so sorry. This is the best we can get.&quot;<p></p>
+
+<p>Housing advocates argued that rents should not be raised because of the recession, while building owners and landlords point out that their fixed costs (heating oil, etc.) are going up and the hikes aren&apos;t enough to cover those.  A board member representing building owners, Stephen Schaller, who wanted an 8.5% hike for two-year leases, said, &quot;It&apos;s expensive to live in this city, and it&apos;s expensive to provide housing in this city.&quot; But a tenants&apos; advocate, Michael Mckee, <a href="https://web.archive.org/web/20150506164218/http://www.nypost.com/p/news/local/rent_board_goes_easy_on_city_tenants_MuKqQXP83vvILKlxp91yuJ">wasn&apos;t happy either</a>, &quot;There should have been a rollback. At a minimum, there should have been a rent freeze, and the numbers show that.&quot;</p>
+
+<p>The <a href="https://web.archive.org/web/20150506164218/http://www.nytimes.com/2010/06/25/nyregion/25rent.html">NY Times reports</a>, &quot;The number of rent-stabilized apartments in the city continues to fall. About 10,000 such units were lost in 2009, according to a study by the Rent Guidelines Board that was released this month; it was the largest net loss since at least 2003.&quot;  Rent Stabilization Association president Joseph Strasburg also told the TImes that &quot;10 percent of the city&#x2019;s low-income rental units were endangered because owners had fallen behind in real estate taxes and municipal fees. He said the city should subsidize tenants and give property owners tax credits, rather than leave the matter up to the Rent Guidelines Board,&quot; declaring, &quot;This is a process that continues to pit landlords against tenants.&quot;</p>
+
+<p>This news comes days after a court ruled that the Rent Guidelines Board <a href="https://web.archive.org/web/20150506164218/http://www.nydailynews.com/ny_local/2010/06/23/2010-06-23_court_rules_rent_hikes_illegal_refunds_possible.html?r=ny_local&amp;utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+nydnrss%2Fny_local+%28NY+Local%29#ixzz0rh4pdvYX">illegally raised rents for 300,000 rent-stabilized tenants</a> in 2008 and 2009.</p>					
+										
+									
+				

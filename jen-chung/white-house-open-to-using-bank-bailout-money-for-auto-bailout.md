@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: December 12, 2008  4:40 PM
+title: White House Open to Using Bank Bailout Money for Auto Bailout
+---
+
+<p><img alt="2008_12_bushcom.jpg" src="https://web.archive.org/web/20110623135811im_/http://gothamist.com/attachments/jen/2008_12_bushcom.jpg" width="136" height="126" class="right">The White House <a href="https://web.archive.org/web/20110623135811/http://www.nytimes.com/2008/12/13/business/13auto.html?hp">signaled it might use TARP money</a> (the earlier $700 billion bailout) to help out the Big Three.  White House spokeswoman Dana Perino said, &quot;<strong>Under normal economic conditions we would prefer that markets determine the ultimate fate of private firms. </strong>However, given the current weakened state of the U.S. economy, we will consider other options if necessary &#x2014; including use of the TARP program &#x2014; to prevent a collapse of troubled automakers.&#x201D; The Treasury Department also signaled it could help prop up the automakers, and that helped the Dow, Nasdaq and S&amp;P; 500 stay in positive territory. Also interesting: <a href="https://web.archive.org/web/20110623135811/http://www.cnbc.com/id/28198094">CNBC has a chart</a> showing not just the one-day and one-week changes for stock market but the year-to-date change, too: The Dow is off by 35% for the year.</p>

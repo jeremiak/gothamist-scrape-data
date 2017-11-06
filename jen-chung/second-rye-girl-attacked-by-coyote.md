@@ -1,0 +1,17 @@
+---
+author: Jen Chung
+date: Jun 30, 2010 4:48 pm
+title: Second Rye Girl Attacked By Coyote
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2010_06_coyoterye.jpg" src="https://web.archive.org/web/20150427195946im_/http://gothamist.com/attachments/jen/2010_06_coyoterye.jpg" width="240" height="168" class="image-left"> </span>The coyotes have struck again in Rye, NY!  Days after a <a href="https://web.archive.org/web/20150427195946/http://gothamist.com/2010/06/27/coyotes_attack_girl_playing_in_west.php">pair of coyotes bite a 6-year-old girl</a> playing in her Rye, NY front lawn, a coyote attacked a 3-year-old in her yard.  <a href="https://web.archive.org/web/20150427195946/http://www.wpix.com/news/wpix-coyote-attacks-girl,0,6788301.story">According to WPIX</a>, &quot;The home abuts the Rye Nature Center, a 47-acre parcel of woodlands where coyotes are suspected of living. The coyote may have jumped from nature center property through a break in the home&apos;s fence to carry out the attack Tuesday night at around 7:30.&quot;</p>
+
+<p>The little girl suffered non-life-threatening bites to the neck and was taken to a hospital. A neighbor <a href="https://web.archive.org/web/20150427195946/http://abclocal.go.com/wabc/story?section=news/local&amp;id=7528776">told WABC 7</a>, &quot;We&apos;re just a nervous wreck around here. I have two children myself, and I live in an area near the marshlands, and they&apos;ve been in my neighborhood and it&apos;s nerve-wracking.&quot;  Police Chief William Connors, who said police had been <a href="https://web.archive.org/web/20150427195946/http://www.lohud.com/article/20100630/NEWS02/6300369/Another-coyote-attack-in-Rye-Young-friend-called-for-help">patrolling the area for coyotes</a> and responded to the attack within one minute,  emphasized, &quot;This is clearly escalated behavior. We are urging caution, and in particular, we urge residents to pay particular attention to children.&quot;  </p>
+
+<p><a href="https://web.archive.org/web/20150427195946/http://www.lohud.com/article/20106300337">According to the Journal News</a>, &quot;wildlife experts said the coyotes that attacked Emily [Hodulik on Saturday night] were likely too young to know they shouldn&apos;t have been hunting for food in a backyard full of humans.&quot;  NY State Department of Environmental Conservation wildlife biologist Kevin Clarke said, &quot;When they go on feeding forays, coyotes are extremely opportunistic. If they see a cat, they&apos;ll take it. Or a dog. With a small child, they don&apos;t know if it&apos;s prey or not. Their parents might not go after a pack of kids, but you know how juveniles are, they don&apos;t always do what they&apos;ve been taught.&quot; </p>
+
+<p>While there are over two dozen cops (from Rye, Harrison and county) on coyote detail, Rye City Manager Scott Pickup <a href="https://web.archive.org/web/20150427195946/http://www.lohud.com/article/20100630/NEWS02/6300369/Another-coyote-attack-in-Rye-Young-friend-called-for-help">isn&apos;t about to recruit humans to help</a>, &quot;We&apos;re a pretty suburban area. To coordinate 20 or 30 people with weapons, we&apos;re fearful of what could happen. That would be a delicate situation. It&apos;s not something we would entertain.&quot;  And he added, &quot;I don&apos;t want a guy who is a hunting enthusiast to track coyotes tonight.&quot;</p>					
+										
+									
+				

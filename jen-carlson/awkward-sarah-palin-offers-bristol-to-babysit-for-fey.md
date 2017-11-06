@@ -1,0 +1,15 @@
+---
+author: Jen Carlson
+date: Oct 29, 2008 12:35 pm
+title: Awkward: Sarah Palin Offers Bristol to Babysit for Fey
+---
+
+	
+										<p>Tina Fey has been making her 30 Rock promo rounds (the season premiere airs tomorrow) and appeared on Conan last night, where the <a href="https://web.archive.org/web/20150509165951/http://www.nbc.com/Late_Night_with_Conan_O%27Brien/video/clips/tina-fey-part-1-102808/793845/">first segment</a> was all about that <em>other</em> show: SNL. (She says her recent stints at her old gig have been akin to &quot;moving back in with your parents.&quot;) </p>
+
+<center><object type="application/x-shockwave-flash" data="https://web.archive.org/web/20150509165951im_/http://widgets.nbc.com/o/4727a250e66f9723/4908936a0182a615/4908618c6bcc9aee/577a2d47/-cpid/3f43c7f8acf7384/clipID/793845/video_title/Late+Night+with+Conan+OBrien+-+Tina+Fey%2c+Part+1+%2810%2f28%2f08%29/video_imgurl/http%3a%2f%2fvideo.nbc.com%2fplayer%2fmezzanine%2fimage.php%3fw%3d350%26h%3d196%26path%3dnbc2%2f4872e62c032c0421014277734fe1eb41_mezzn.jpg%26hash%3d8bd37d9af4d1031f3f85c38c932a8d6e/video_url/http%3a%2f%2fwww.nbc.com%2fLate_Night_with_Conan_O%5c%27Brien%2fvideo%2fclips%2ftina-fey-part-1-102808%2f793845%2f/video_description/Conan+interviews+Tina+Fey+from+NBC%27s+30+Rock.?storeInPid=true" id="W4727a250e66f97234908936a0182a615" width="384" height="283"><param name="movie" value="http://widgets.nbc.com/o/4727a250e66f9723/4908936a0182a615/4908618c6bcc9aee/577a2d47/-cpid/3f43c7f8acf7384/clipID/793845/video_title/Late+Night+with+Conan+OBrien+-+Tina+Fey%2c+Part+1+%2810%2f28%2f08%29/video_imgurl/http%3a%2f%2fvideo.nbc.com%2fplayer%2fmezzanine%2fimage.php%3fw%3d350%26h%3d196%26path%3dnbc2%2f4872e62c032c0421014277734fe1eb41_mezzn.jpg%26hash%3d8bd37d9af4d1031f3f85c38c932a8d6e/video_url/http%3a%2f%2fwww.nbc.com%2fLate_Night_with_Conan_O%5c%27Brien%2fvideo%2fclips%2ftina-fey-part-1-102808%2f793845%2f/video_description/Conan+interviews+Tina+Fey+from+NBC%27s+30+Rock.?storeInPid=true"><param name="wmode" value="transparent"><param name="allowNetworking" value="all"><param name="allowScriptAccess" value="always"></object></center>
+
+<p>Unsurprisingly, it turns out some of the best parts of <a href="https://web.archive.org/web/20150509165951/http://gothamist.com/2008/10/19/pregnant_poehler_poaches_palins_par.php">Sarah Palin&apos;s appearance</a> on the show happened off-camera; Fey talks about meeting her, and what had to have been the awkward offering-up of Bristol Palin to babysit her 3-year-old that night. Fey comments, <strong>&quot;That&apos;s exactly what 17-year-old Bristol Palin wants to do at SNL, is babysit the toddler of the lady that goofs on her mom.&quot;</strong> Check out the second segment after the jump, for 30 Rock chatter and what it&apos;s like to hug Oprah (spoiler: it&apos;s like &quot;going to a spa for a week&quot;).</p>					
+										
+									
+				

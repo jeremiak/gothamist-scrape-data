@@ -1,0 +1,25 @@
+---
+author: Dan Dickinson
+date: Feb 18, 2012 10:45 am
+title: Red Bulls Return From Mexico, Waive Academy Players
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="rbny-lindperefcdpreseason.jpg" src="https://web.archive.org/web/20150428112155im_/http://gothamist.com/upload/2012/02/rbny-lindpere-lizard.jpg" width="618" height="348" class="image-none"> <br> <i>Joel Lindpere finds a visitor on the training pitch in Mexico. (New York Red Bulls)</i></div><p></p>
+
+<p>Less than a month from the 2012 season kicking off, the <a href="https://web.archive.org/web/20150428112155/http://www.newyorkredbulls.com/">New York Red Bulls</a> returned to the NYC this week after posting back-to-back 1-1 draws.</p>
+
+<p>Last Saturday, the team played to a 1-1 draw with M&#xE9;rida FC of Mexico&apos;s Liga de Ascenso.  Merida&apos;s Rodrigo Noya broke the deadlock off a short corner kick in the 53rd minute.  New York would fight back and find an equalizer ten minutes from full time, as rookie Connor Lade chipped the keeper off a Giorgi Chirgadze through ball.</p>
+
+<p>On Tuesday, the team traveled to Guadalajara to take on Primera Division side Estudiantes Tecos.  This time, RBNY scored first on a highlight reel worthy long-range bomb from Kenny Cooper, his second of the preseason.  Tecos would equalize six minutes later, and not even a straight red card to NY&apos;s Roy Miller late in the game could change the scoreline.  Individual Development Coach Mike Petke <a href="https://web.archive.org/web/20150428112155/http://www.newyorkredbulls.com/video/2012/02/15/tecos-recap">declared in a team video</a> that &quot;I think we can take a lot of good out of this match...the thing that impressed me the most was our fight.&quot;</p>
+
+<p>With the team back in New Jersey, it was <a href="https://web.archive.org/web/20150428112155/http://www.empireofsoccer.com/a-look-at-luis-robles/">widely reported</a> that American goalkeeper Luis Robles would join the team on trial this Friday.  However, MLS&apos; confusing &quot;allocation process&quot; for assigning players <a href="https://web.archive.org/web/20150428112155/http://www.washingtonpost.com/blogs/soccer-insider/post/mls-allocation-drama-eddie-johnson-and-luis-robles/2012/02/16/gIQA2tdkIR_blog.html">has scuttled the trial</a>.  Despite the league previously telling NY&apos;s management that he would not be subject to the process, they reversed their position mid-week.  Robles played a single game for the USMNT in 2009, which was seemingly enough to trigger the allocation process.  Robles promptly canceled the trip to reassess his options, and it becomes increasingly likely that the team will have to choose between their two rookie goalkeepers to wear the #1 jersey at the start of the season.</p>
+
+<p>The team also announced on Friday that they had waived defender Sacir Hot and midfielder Matt Kassel.  While neither Hot or Kassel featured much in 2011 (82 regular season minutes for Kassel, none for Hot), their departure is notable because both were graduates of the Red Bulls Academy.  Sacir Hot <a href="https://web.archive.org/web/20150428112155/http://twitter.com/#!/SacirHot/status/170634008244404224">took to Twitter</a> to address the situation and <a href="https://web.archive.org/web/20150428112155/http://twitter.com/#!/SacirHot/status/170634174930239490">did not mince words</a>: &quot;Obviously I would love to play for the club I cheered and played for my whole life but they have different plans...Young Amercian [sic] talents is not one of them.Want to thank all the fans for the support and I hope to return 1 day back to the place i started!&quot;</p>
+
+<p>A local friendly may be on the cards for the Red Bulls this summer.  While no confirmation has come from the team or the league yet, Brian Lewis from the New York Post <a href="https://web.archive.org/web/20150428112155/http://www.nypost.com/p/blogs/soccerblog/games_bulls_other_host_tottenham_F6FOJfQaPP9LEQSYivmfLI">reported</a> that Premier League side Tottenham Hotspur will feature at Red Bull Arena on either July 31st or August 1st.  Spurs visited Red Bull Arena once before in 2010&#x2014;coincidentally, Thierry Henry&apos;s debut match for NY.</p>
+
+<p>Henry is expected to return to NY this weekend, hoping to put Arsenal&apos;s <a href="https://web.archive.org/web/20150428112155/http://www.bbc.co.uk/sport/0/football/16940618">4-0 thrashing</a> at the hands of AC Milan behind him.  He will rejoin the team as they travel to Arizona on Monday for the second half of their preseason.  The team will compete against Pumas UNAM in the &quot;<a href="https://web.archive.org/web/20150428112155/http://www.redbullusa.com/cs/Satellite/en_US/Red-Bull-Reto-del-Sol/001242956551276">Reto Del Sol</a>&quot; on Thursday (10PM ET, airing on MSG+).</p>					
+										
+									
+				

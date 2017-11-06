@@ -1,0 +1,15 @@
+---
+author: Ben Yakas
+date: Sep 22, 2011 2:05 pm
+title: Malnourished Girl's Father Suing City For $150 Million
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:240px; "> <img alt="92211marchella.jpg" src="https://web.archive.org/web/20170119003302im_/http://gothamist.com/attachments/byakas/92211marchella.jpg" width="240" height="283"> <br> <i>Marchella Pierce (<a href="https://web.archive.org/web/20170119003302/http://www.nytimes.com/2011/05/09/nyregion/short-bleak-life-of-marchella-pierce-emaciated-4-year-old.html?_r=1">via Times</a>)</i></div> The father of a <a href="https://web.archive.org/web/20170119003302/http://gothamist.com/tags/marchellapierce">severely malnourished 4-year-old girl</a> who died in her Bedford-Stuyvesant apartment last year, weighing a scant 18 pounds, is <a href="https://web.archive.org/web/20170119003302/http://www.nydailynews.com/news/ny_crime/2011/09/21/2011-09-21_father_of_5yearold_found_dead_and_weighing_18lbs_plans_to_sue_city_for_150_milli.html">planning to sue the city for $150 million</a>. Tyrone Pierce claims that the city and the Administration of Children&apos;s Services (ACS) failed to act on behalf of Marchella Brett-Pierce despite &quot;knowledge of the threats of physical, mental and emotional abuse being waged on [the child].&quot; But the lawyer for one of the ACS supervisors who have been indicted for criminally negligent homicide says that the father is just as responsible as others who neglected the little girl: &quot;<strong>He&apos;s one more person who has seen this child and never noticed anything or reported any neglect or abuse.&quot;</strong><p></p>
+
+<p>Marchella&apos;s mother Carlotta Brett-Pierce has already been arrested and <a href="https://web.archive.org/web/20170119003302/http://gothamist.com/2011/02/03/malnourished_girls_mother_impatient.php">charged with murder</a>, and grandma Loretta Brett has been charged with manslaughter. The malnourished little girl had been found with marks around her arms and wrists, suggesting she had been tied up at times, and had <a href="https://web.archive.org/web/20170119003302/http://gothamist.com/2010/09/05/prosecutors_malnourished_girl_force.php">drugs in her system</a>. </p>
+
+<p>In addition, two former ACS employees <a href="https://web.archive.org/web/20170119003302/http://gothamist.com/2011/03/24/two_acs_workers_and_grandmother_cha.php">were indicted on charges</a> of criminally negligent homicide, which was the first time in state history that welfare workers were charged with the death of a child. The ACS Commissioner during the incident, John Mattingly, <a href="https://web.archive.org/web/20170119003302/http://gothamist.com/2011/07/27/childrens_services_commissioner_mat.php">also resigned</a>, though supposedly not because of the scrutiny his agency came under in the wake of Marchella&apos;s death.</p>					
+										
+									
+				

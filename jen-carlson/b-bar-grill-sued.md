@@ -1,0 +1,7 @@
+---
+author: Jen Carlson
+date: January 13, 2010  6:30 PM
+title: B Bar & Grill Sued
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-right" style=" width:120px; "> <img alt="bbar0110.jpg" src="https://web.archive.org/web/20111214011126im_/http://gothamist.com/attachments/arts_jen/bbar0110.jpg" width="120" height="117"> <br> <i><span class="photo_caption">via <a href="https://web.archive.org/web/20111214011126/http://www.flickr.com/photos/nine6sevenfour/293458996/">nine6sevenfour</a></span></i></div> <a href="https://web.archive.org/web/20111214011126/http://www.prnewswire.com/news-releases/eric-goodes-b-bar-and-grill-accused-of-labor-violations-according-to-workers-legal-team-81320152.html">A lawsuit was filed yesterday</a> claiming that restaurateur and hotelier Eric Goode&apos;s B Bar and Grill on 4th Street violates federal and state labor laws. Behind the suit are four current and former employees &#x2014; who work(ed) as cooks, dishwashers and bussers. Their lawyers hope to have it certified as a class action which will help the employees recover wages they were cheated out of. One of their attorneys says, &quot;We hope that this lawsuit will convince Mr. Goode&apos;s hospitality enterprise and B Bar and Grill to change their policies and practices. Like all other workers, restaurant workers deserve to be paid all of the wages they are due, including overtime at time and a half, and not just at the straight-time rate.&quot;<p></p>

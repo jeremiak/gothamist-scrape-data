@@ -1,0 +1,21 @@
+---
+author: Jen Chung
+date: Jul 6, 2010 9:30 am
+title: Video: Kobayashi Only Had Sandwich, Milk While In Jail
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="2010_06_kobi.jpg" src="https://web.archive.org/web/20160529131653im_/http://gothamist.com/attachments/jen/2010_06_kobi.jpg" width="640" height="426"> <br> <i>Photograph of Takeru Kobayashi leaving Brooklyn Criminal Court, with his lawyer and translator, by Mary Altaffer/AP</i></div> <p></p>
+
+<p>Here&apos;s video of six-time Nathan&apos;s Famous Hot Dog Eating Contest champion Takeru Kobayashi discussing why he jumped onstage after Sunday&apos;s event, which <a href="https://web.archive.org/web/20160529131653/http://gothamist.com/2010/07/04/tsunami_strikes_kobayashi_arrested.php">led to his arrest</a> on charges of obstruction of governmental administration; resisting arrest; trespassing and disorderly conduct.  Kobayashi, who did not compete due to a <a href="https://web.archive.org/web/20160529131653/http://gothamist.com/2010/07/01/kobayashi_contest_organizers_are_tr.php">contract dispute </a>(he claims organizers would limit his participation in other events), said through a translator, &quot;I went as a spectator to cheer on my friends, and everyone was yelling &apos;let him eat,&apos; so I was hoping they would let me eat and prove I am still the champ.&quot; And, yes, he wished he <a href="https://web.archive.org/web/20160529131653/http://gothamist.com/2010/07/05/chestnut_wins_hot_dog_eating_contes.php">could have had hot dogs</a> because all he had was a peanut butter sandwich and milk!</p>
+
+<center><object width="416" height="374" classid="clsid:D27CDB6E-AE6D-11cf-96B8-444553540000" id="ep"><param name="allowfullscreen" value="true"><param name="allowscriptaccess" value="always"><param name="wmode" value="transparent"><param name="movie" value="http://i.cdn.turner.com/cnn/.element/apps/cvp/3.0/swf/cnn_416x234_embed.swf?context=embed&amp;videoId=us/2010/07/05/sot.kobayashi.arrest.cnn"><param name="bgcolor" value="#000000"><embed src="https://web.archive.org/web/20160529131653oe_/http://i.cdn.turner.com/cnn/.element/apps/cvp/3.0/swf/cnn_416x234_embed.swf?context=embed&amp;videoId=us/2010/07/05/sot.kobayashi.arrest.cnn" type="application/x-shockwave-flash" bgcolor="#000000" allowfullscreen="true" allowscriptaccess="always" width="416" wmode="transparent" height="374"></object></center>
+
+<p>Of course, he jumped onstage <em>after</em> Joey Chestnut took the Mustard Belt for a <a href="https://web.archive.org/web/20160529131653/http://gothamist.com/2010/07/04/nathans_hot_dog_eating_contest_is_o.php">fourth year in a row</a> (and how much English does Kobayashi understand?).  Chestnut wasn&apos;t impressed with Kobayashi&apos;s claims and suggested that Kobayashi is <a href="https://web.archive.org/web/20160529131653/http://www.nypost.com/p/news/local/kobi_dogged_fans_rLTbEeJSUeN0lBeJWKx2tK?CMP=OTC-rss&amp;FEEDNAME=">just talking a big game</a>, &quot;<strong>I know he thinks he&apos;s entitled to privileges, but he&apos;s lost three years in a row.</strong>&quot;  </p>
+
+<p>Major League Eating&apos;s Richard Shea insisted that this was not a publicity stunt, <a href="https://web.archive.org/web/20160529131653/http://www.nydailynews.com/ny_local/2010/07/05/2010-07-05_former_hot_dog_champ_takeru_kobayashi_released_from_jail_after_distrupting_natha.html">telling the Daily News</a>, &quot;We did not plan this. I stake my whole reputation on that,&quot; adding, &quot;I think [Kobayashi&apos;s] gone a bit loony. I don&apos;t know what his deal is. Does he want to start his own organization? If so, he can&apos;t stay in this one. I just hope he gets his head screwed back on.&quot; Shea also wasn&apos;t sure if Kobayashi would be banned from other events, &quot;We have to let everything digest before we do anything.&quot;</p>
+
+<p>Kobayashi&apos;s rematch with the justice system is on August 5. </p>					
+										
+									
+				

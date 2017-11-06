@@ -1,0 +1,13 @@
+---
+author: Jen Carlson
+date: May 15, 2008  4:00 PM
+title: BED Rooftop Reawakens Under New Name
+---
+
+<p><img alt="0805bedtime.jpg" src="https://web.archive.org/web/20110623132107im_/http://gothamist.com/attachments/arts_jen/0805bedtime.jpg" width="350" height="262" class="right">Just in time for <em>Sex and the City</em>&apos;s big screen release: BED is back. The club was one of the many featured in the HBO series, and is housed, of course, in the Meatpacking District. Last year when <a href="https://web.archive.org/web/20110623132107/http://gothamist.com/2007/02/04/trouble_in_club.php">a man died there</a>, it was put under a dark spotlight and ended up <a href="https://web.archive.org/web/20110623132107/http://eater.com/archives/2007/02/breaking_nightc.php">shutting its doors</a>.</p>
+
+<p>Word is that the Meatpacking militia has gotten the rooftop reopened for the upcoming season (we&apos;re told, &quot;As of now, it is just the roof top for the summer, with new plans for the coming months&quot;), and the space formerly known as Bed Rooftop will likely be called Sky Garden. Hold your oohs and ahhs however, while <a href="https://web.archive.org/web/20110623132107/http://www.goodnightmrlewis.com/2008/05/bed-bottles-and.html">Mr. Lewis</a> (nightlife guru) flashes back to the dark days of last year:</p><blockquote>The closing of Bed, precipitated by a nail in the coffin incident that has kept it shuttered, had a real negative effect on the whole 27th Street experience.</blockquote>But maybe BED&apos;s rebirth will bring back the carefree vibes to the Meatpacking District &quot;experience,&quot; which used to <em>mean</em> something. Miracles do happen, people, and just in the knick of time &#x2013; the frilly-dressed set <a href="https://web.archive.org/web/20110623132107/http://www.williamsburgisdead.typepad.com/my_weblog/2008/05/snooty-writer-f.html">isn&apos;t having <em>any</em> luck in Williamsburg</a>.<p></p>
+
+<p><strong>UPDATE:</strong> <a href="https://web.archive.org/web/20110623132107/http://www.goodnightmrlewis.com/2008/05/bed-bottles-a-1.html">Rumors</a> are that the building may be converted &quot;into a major film production facility and hotel, replete with a super-private club&quot; after the summer.</p>
+
+<p><span class="photo_caption">Photo of BED rooftop via <a href="https://web.archive.org/web/20110623132107/http://www.flickr.com/photos/lexifer/32390203">lexifer&apos;s flickr</a>.</span></p>

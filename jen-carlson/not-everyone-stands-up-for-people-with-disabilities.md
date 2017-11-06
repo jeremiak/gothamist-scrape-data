@@ -1,0 +1,11 @@
+---
+author: Jen Carlson
+date: March 31, 2009  3:46 PM
+title: Not Everyone "Stands Up for People with Disabilities"
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2009_03_nocrutches.jpg" src="https://web.archive.org/web/20110917195819im_/http://gothamist.com/attachments/arts_jen/2009_03_nocrutches.jpg" width="640" height="277" class="image-none"> </span></p>
+
+<p>Passive-aggressive blogging is the new passive-aggressive <a href="https://web.archive.org/web/20110917195819/http://www.passiveaggressivenotes.com/">note-leaving</a>. The crutches-bound blogger behind the <a href="https://web.archive.org/web/20110917195819/http://www.peoplewhositinthedisabilityseatswhenimstandingonmycrutches.com/">People Who Sit In The Disability Seats When I&#x2019;m Standing On My Crutches</a> website documents able-bodied straphangers who won&apos;t give up their seat for the disabled. He says he doesn&apos;t take pictures of anyone &quot;if there&apos;s an open seat within sight. I also don&apos;t take pictures of elderly people, visibly pregnant women, or anyone who looks like they might have a disability.&quot; But even those getting some <a href="https://web.archive.org/web/20110917195819/http://gothamist.com/2009/01/22/asleep_on_the_subway.php">subway shut-eye</a> could land on the site. Do <em>you</em> get up from your seat if someone clearly needs it? Seems not everyone pays attention to the &#x201C;Stand Up for People with Disabilities&#x201D; campaign.</p>
+
+<p>We asked NYC Transit&apos;s Paul Fleuranges for some tips on what to do if you need a seat but your fellow commuters won&apos;t get up. He told us, simply, &quot;Best advice to this particular rider and others is to politely ask that the occupant of the priority seating allow him to sit. I stress politely.&quot; He also mentioned there will be a new &quot;stand up&quot; campaign unveiled in the near future. And perhaps someone can get to work on www.PeopleWhoTakeUpTooMuchRoomOnNYCSidewalks.com?</p>

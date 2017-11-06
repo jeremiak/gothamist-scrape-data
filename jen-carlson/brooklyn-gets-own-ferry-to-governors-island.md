@@ -1,0 +1,11 @@
+---
+author: Jen Carlson
+date: Jun 4, 2009 12:22 pm
+title: Brooklyn Gets Own Ferry to Governors Island
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="0609ferryswoon.jpg" src="https://web.archive.org/web/20150407192909im_/http://gothamist.com/attachments/arts_jen/0609ferryswoon.jpg" width="160" height="125" class="image-right"> </span>Brooklynites rejoice: the new free ferry between your borough and <a href="https://web.archive.org/web/20150407192909/http://www.govisland.com/">Governors Island</a>, that has been in the works for over a year, will be in operation come June 6th. <a href="https://web.archive.org/web/20150407192909/http://lostnewyorkcity.blogspot.com/2009/06/new-ferry-from-brooklyn-to-governors.html">Lost City</a> points to a letter sent out by State Senator Daniel Squadron, stating he&apos;ll be on the inaugural launch this Saturday at 11 a.m. &quot;The ferry will leave Fulton Ferry Landing <a href="https://web.archive.org/web/20150407192909/http://www.govisland.com/Visit_the_Island/directions.asp">every hour</a>, every Saturday when there is programming scheduled for Governors Island. It will stop at Governor&apos;s Island and Battery Park in Manhattan.&quot; So it should be smooth sailing for Brooklynites who wants to attend this year&apos;s <a href="https://web.archive.org/web/20150407192909/http://figmentnyc.org/">Figment</a> extravaganza, which takes place on the weekend of June 12th and will include the unveiling the new <a href="https://web.archive.org/web/20150407192909/http://gothamist.com/2009/03/24/figment_is_back.php">mini golf course</a>. And don&apos;t forget about all <a href="https://web.archive.org/web/20150407192909/http://gothamist.com/2009/03/31/governors_island_will_open_this_sum.php">the other events</a> the island has to offer this summer, including a new Water Taxi Beach of its own (<a href="https://web.archive.org/web/20150407192909/http://gothamist.com/2009/02/24/water_taxi_beach_coming_to_governor.php">opening on July 4th</a>).</p>					
+										
+									
+				

@@ -1,0 +1,16 @@
+---
+author: Jen Carlson
+date: Feb 8, 2016 2:15 pm
+title: Video: Child & Baby Go For Hoverboard Joy Ride On The Sidewalks Of NYC
+---
+
+	
+										<p>It&apos;s just 15 seconds of video, but it really delivers a WTF-punch to the brain. We fade in on a child, alone on the sidewalk in New York City, <a href="https://web.archive.org/web/20160720201028/http://gothamist.com/2015/11/18/mcfly_and_get_fined.php">illegally</a> operating a hoverboard (<em>which <a href="https://web.archive.org/web/20160720201028/http://gothamist.com/2016/01/03/hoverboard_peril.php">could explode</a> at any moment</em>) while pushing around a baby carriage <em>with a real baby in it</em>. &quot;We&apos;re really reaching peak Idiocracy levels already in 2016,&quot; Hanksy (who shot this video on Grand Street in Manhattan yesterday) told us.</p>
+
+<blockquote class="instagram-media" data-instgrm-captioned="" data-instgrm-version="6" style=" background:#FFF; border:0; border-radius:3px; box-shadow:0 0 1px 0 rgba(0,0,0,0.5),0 1px 10px 0 rgba(0,0,0,0.15); margin: 1px; max-width:658px; padding:0; width:99.375%; width:-webkit-calc(100% - 2px); width:calc(100% - 2px);"><div style="padding:8px;"> <div style=" background:#F8F8F8; line-height:0; margin-top:40px; padding:50.0% 0; text-align:center; width:100%;"> <div style=" background:url(data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAACwAAAAsCAMAAAApWqozAAAAGFBMVEUiIiI9PT0eHh4gIB4hIBkcHBwcHBwcHBydr+JQAAAACHRSTlMABA4YHyQsM5jtaMwAAADfSURBVDjL7ZVBEgMhCAQBAf//42xcNbpAqakcM0ftUmFAAIBE81IqBJdS3lS6zs3bIpB9WED3YYXFPmHRfT8sgyrCP1x8uEUxLMzNWElFOYCV6mHWWwMzdPEKHlhLw7NWJqkHc4uIZphavDzA2JPzUDsBZziNae2S6owH8xPmX8G7zzgKEOPUoYHvGz1TBCxMkd3kwNVbU0gKHkx+iZILf77IofhrY1nYFnB/lQPb79drWOyJVa/DAvg9B/rLB4cC+Nqgdz/TvBbBnr6GBReqn/nRmDgaQEej7WhonozjF+Y2I/fZou/qAAAAAElFTkSuQmCC); display:block; height:44px; margin:0 auto -44px; position:relative; top:-22px; width:44px;"></div></div> <p style=" margin:8px 0 0 0; padding:0 4px;"> <a href="https://web.archive.org/web/20160720201028/https://www.instagram.com/p/BBh-YfHNfIZ/" style=" color:#000; font-family:Arial,sans-serif; font-size:14px; font-style:normal; font-weight:normal; line-height:17px; text-decoration:none; word-wrap:break-word;" target="_blank">SOCIETY WE DID IT #nyc #zoom</a></p> <p style=" color:#c9c8cd; font-family:Arial,sans-serif; font-size:14px; line-height:17px; margin-bottom:0; margin-top:8px; overflow:hidden; padding:8px 0 7px; text-align:center; text-overflow:ellipsis; white-space:nowrap;">A video posted by hanksy (@hanksynyc) on <time style=" font-family:Arial,sans-serif; font-size:14px; line-height:17px;" datetime="2016-02-08T15:47:41+00:00">Feb 8, 2016 at 7:47am PST</time></p></div></blockquote>
+<script async defer src="//web.archive.org/web/20160720201028js_/http://platform.instagram.com/en_US/embeds.js"></script>
+
+<p><a href="https://web.archive.org/web/20160720201028/http://gothamist.com/tags/hanksy">Hanksy</a> caught this one his way back to the city from New Hampshire, where he brought his new campaign, &quot;Dump Across America,&quot; a grass-roots bowel movement looking to promote an anti-Trump agenda.</p>					
+										
+									
+				

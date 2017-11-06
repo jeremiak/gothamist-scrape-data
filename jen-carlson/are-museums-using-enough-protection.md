@@ -1,0 +1,15 @@
+---
+author: Jen Carlson
+date: January 26, 2010  2:59 PM
+title: Are Museums Using Enough Protection?
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="phpTQXBPMAM.jpg" src="https://web.archive.org/web/20130327040651im_/http://gothamist.com/attachments/arts_jen/phpTQXBPMAM.jpg" width="640" height="480" class="image-none"> </span></p>
+
+<p>In light of the recent <a href="https://web.archive.org/web/20130327040651/http://gothamist.com/2010/01/26/picasso.php">Picasso accident</a> at the Met, it&apos;s sort of nerve-racking to see a masterpiece like this out in the open, no? <a href="https://web.archive.org/web/20130327040651/http://doanie.wordpress.com/2010/01/15/cant-believe-guggenheim-gets-art-delivered-like-a-pizza/">One blogger</a> recently spotted this painting being unloaded at the Guggenheim during lunchtime, noting how it &quot;is only clad in plastic wrapping and the 2 handlers look about as professional as the college stoners I used to hire to move my Ikea furniture in a minivan.&quot; And what artist gets this kind of handling? <a href="https://web.archive.org/web/20130327040651/http://www.guggenheim.org/new-york/collections/collection-online/show-full/piece/?search=Joan%20Mir%C3%B3&amp;page=1&amp;f=People&amp;cr=4">Joan Mir&#xF3;</a>, who is certainly worthy of some bubble wrap, at least.</p>
+
+<p>We contacted the Guggenheim to clarify what exactly is happening in this photo, and in the meantime, <a href="https://web.archive.org/web/20130327040651/http://www.mobia.org/">MOBIA</a> director of exhibitions Paul Tabor has enlightened us about the practice of handling art in museums. He tells us &quot;there are two types of specialized packing methods for works of art, hard crating and soft crating. Both begin by wrapping the art in glycine paper and then a layer of foam or bubble wrap to give it a cushion of air. Hard crating involves placing the artwork into slots inside a larger wooden box. With soft crating, cardboard is wrapped around the frame of the work and then it&#x2019;s packed into larger cardboard boxes.&quot; </p>
+
+<p>Hard crating, soft crating... it still looks like that Mir&#xF3; could use some more protection around the surface! If something <em>is</em> damaged while at the museum, we&apos;re told the museum&apos;s insurance policy is responsible... but what about when it&apos;s on <em>the truck</em>?</p>
+
+<p><strong>UPDATE:</strong> the Guggenheim enlightens us some more, saying, &quot;As a matter of policy, we do not discuss specific security and registrar arrangements as they pertain to the handling and transportation of art works. The museum observes and as appropriate, exceeds, the highest level of safety and security measures in the industry. The item in question was transported according to the strictest guidelines and was at no risk at any time.&quot;</p>

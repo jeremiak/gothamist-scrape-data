@@ -1,0 +1,11 @@
+---
+author: Jen Chung
+date: Jun 14, 2009 4:56 pm
+title: Commuters Say Taking Of Pelham 1 2 3 Is Outlandish
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2009_06_pel123.jpg" src="https://web.archive.org/web/20160519215121im_/http://gothamist.com/attachments/jen/2009_06_pel123.jpg" width="140" height="117" class="image-right"> </span>The remake of <em><a href="https://web.archive.org/web/20160519215121/http://gothamist.com/2009/06/12/weekend_movie_forecast_the_taking_o.php?gallery0Pic=2#gallery">The Taking of Pelham 1 2 3</a></em> was this weekend&apos;s big release, but some subway riders feel like it&apos;s too much of a leap, even for the big screen.  The <a href="https://web.archive.org/web/20160519215121/http://www.nydailynews.com/ny_local/2009/06/14/2009-06-14_hijack_this_train_pel_no_you_cant_steal_subway_thats_so_crowded_no_one_can_move.html">Daily News spoke to some 6 train riders</a>: One said, &quot;Good luck hijacking this train during rush hour. I don&apos;t know how all these gunmen are going to squeeze into the car. They would have to empty some people out first,&quot; while another explained, &quot;That token clerk at the [Pelham Park station] booth is mean and angry. <strong>He won&apos;t even give you change for the machine. That man could take out all four bad guys with his glare. Seriously!</strong>&quot;  And don&apos;t even get the folks on SubChat started&#x2014;<a href="https://web.archive.org/web/20160519215121/http://www.subchat.com/read.asp?Id=795768">here&apos;s one opinion</a>: &quot;I never knew that the Pelham Bay terminated at Coney Island!! It also went past Shea Stadium on the way to CI. I never knew that subway cars can travel at 60+ mph. The most I have seen is about 42 MPH going downhill under Queens Blvd...Instead of halting all traffic under Lex. for a &apos;police action,&apos; express trains passed and some of them were R32 cars.  <strong>There were many more and I am sure I will see even more inconsistencies after I watch it for the second and third times.</strong>&quot;</p>					
+										
+									
+				

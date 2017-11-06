@@ -1,0 +1,19 @@
+---
+author: Jen Carlson
+date: Nov 4, 2012 5:00 pm
+title: Surge Pricing: One NYC Uber User Paid $219 For 7-Mile Ride
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="ubercar1112.jpeg" src="https://web.archive.org/web/20150429211524im_/http://gothamist.com/attachments/arts_jen/ubercar1112.jpeg" width="325" height="279" class="image-left"> </span>While <a href="https://web.archive.org/web/20150429211524/http://gothamist.com/2012/09/07/tlc_puts_breaks_on_taxi_hailing_app.php">Uber&apos;s taxi service</a> may have been phased out of New York City, its car service arm remains&#x2014;and in the past week, it has come under scrutiny for its surge pricing.</p>
+
+<p>According to <a href="https://web.archive.org/web/20150429211524/http://www.hunterwalk.com/2012/11/uber-nyc-surge-right-wrong-lessons.html">Hunter Walk</a>&#x2014;who has written a great, lengthy explanation on how the service works&#x2014;&quot;Their secret sauce, as CEO Travis K will note, are their algorithms which attempt to minimize response time. They do this through routing (where should drivers be) and a pricing model which allows prices to &apos;surge&apos; during periods of intense demand such as holidays and weekend evenings.&quot; So when Hurricane Sandy hit, they put their surge pricing into effect.</p>
+
+<p>One tipster who used the service last week tells us he was charged $219 for a 7.67 mile, 46 minute ride, from the Upper East Side to DUMBO. Normally this ride (in an Uber SUV) <a href="https://web.archive.org/web/20150429211524/https://www.uber.com/cities/new-york-city">would have cost</a> around the $110 mark: $57 for duration, $38 for distance, and $14 for the base fee. Last week, while mass transit was still barely working, the total ended up being $219.</p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="UBERRECEIPT1112.jpeg" src="https://web.archive.org/web/20150429211524im_/http://gothamist.com/attachments/arts_jen/UBERRECEIPT1112.jpeg" width="640" height="512" class="image-none"> </span></p>
+
+<p>Their surge prices fluctuate year round&#x2014;according to <a href="https://web.archive.org/web/20150429211524/http://techcrunch.com/2012/11/01/uber-tripled-number-of-drivers-yesterday-owing-an-extra-100k-in-payments-so-surge-pricing-is-coming-back/">TechCrunch</a> on New Year&#x2019;s Eve it was 6.25x the amount, and &quot;after Sandy, prices in New York were only at 2x.&quot; The above receipt shows a 2.5x surge charge&#x2014;this was from November 2nd, one day after Uber reinstated <a href="https://web.archive.org/web/20150429211524/http://blog.uber.com/2012/11/01/hurricane-sandy-pricing-update/">their surge pricing</a>, which they very briefly waived under the circumstances until realizing it was not a sustainable model. When they sent out their release on November 1st, they explained the reinstatement:</p><blockquote>&quot;We will be reverting back to standard Surge Pricing for riders. It is a hard decision, but one we feel strongly about. Without raising the price, there will be less than &#xBD; the number of drivers on the system with several times more demand on far fewer drivers. Without Surge Pricing, Uber would become essentially unusable this week. For those needing a ride this week, it&#x2019;s going to be expensive... During this emergency price increase, Uber will waive all of its own fees with 100% of the fare going directly to the drivers helping New Yorkers move around the city.&quot;</blockquote>So, while it&apos;s nice they are giving all of the fare to their drivers, is this just a tool for gougers during a time of crisis?<p></p>					
+										
+									
+				

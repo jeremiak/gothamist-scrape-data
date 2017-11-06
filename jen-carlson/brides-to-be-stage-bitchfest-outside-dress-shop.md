@@ -1,0 +1,11 @@
+---
+author: Jen Carlson
+date: July 28, 2010  5:37 PM
+title: Brides-To-Be Stage Bitchfest Outside Dress Shop
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="phpKbnQ3qPM.jpg" src="https://web.archive.org/web/20120605080731im_/http://gothamist.com/attachments/arts_jen/phpKbnQ3qPM.jpg" width="185" height="270" class="image-left"> </span>If you&apos;re going to get into the scamming business, it&apos;s probably not a great idea to make your clientele brides-to-be. According to <a href="https://web.archive.org/web/20120605080731/http://wcbstv.com/local/wedding.dress.lily.2.1828190.html">WCBS</a>, about a dozen women getting ready to walk down the aisle showed up screaming at a Yonkers storefront yesterday. There were accusations of assault and the police were brought in as they caused a scene outside of the Lily Fleur Wedding Dress Shop, where they hoped to confront owner Michelle Mears. </p>
+
+<p>Mears allegedly scammed them all out of thousands of dollars by never delivering their dresses after they were paid for. State Senator Jeffrey Klein says Mears has been running this scam for years in and around NYC, closing up shop after taking deposits from clients, then reopening elsewhere under a new name. In the past Mears has also delivered &quot;unwearable&quot; dresses; one old client says she &quot;refused to take the dress because it wasn&apos;t what I ordered. It was horrible, there were strings hanging from it, it looked like it was falling apart.&quot;</p>
+
+<p>According to Mears, the disgruntled brides simply change their minds too much! She told WCBS, &quot;They may not have liked the fact that they were held to their contract, they may not have liked the fact that we didn&apos;t throw things in free. I mean a lot of these girls have an unfair sense of entitlement because they&apos;re getting married, that everything should be given to them, but this is a living for us.&quot; Mears is now under investigation by the Westchester County district attorney.</p>

@@ -1,0 +1,11 @@
+---
+author: Jen Carlson
+date: November  5, 2009  9:52 AM
+title: Man Killed By Bus, Locals Say Intersection Is Dangerous
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="W53RDST1109.jpg" src="https://web.archive.org/web/20110623142221im_/http://gothamist.com/attachments/arts_jen/W53RDST1109.jpg" width="350" height="232" class="image-right"> </span><a href="https://web.archive.org/web/20110623142221/http://gothamist.com/2009/11/04/pedestrian_killed_in_hells_kitchen.php">Yesterday morning</a> a 22-year-old man was killed when an MTA bus struck him at the corner of <a href="https://web.archive.org/web/20110623142221/http://maps.google.com/maps?hl=en&amp;source=hp&amp;q=53rd+street+and+9th+avenue+ny&amp;ie=UTF8&amp;hq=&amp;hnear=9+Ave+&amp;ll=40.76642,-73.987577&amp;spn=0.00837,0.017037&amp;z=16&amp;iwloc=A&amp;layer=c&amp;cbll=40.765354,-73.987573&amp;panoid=YEbDmXlN2B0q7acMpp70Vg&amp;cbp=12,0,,0,5">West 53rd Street and 9th Avenue</a>. He was rushed to Roosevelt hospital but was pronounced dead by 9:11 a.m.</p>
+
+<p><a href="https://web.archive.org/web/20110623142221/http://www.nypost.com/p/news/local/manhattan/man_dies_under_th_avenue_bus_3upE96a7e7i4xSgNbUUqsN">The NY Post</a>, which recently came down on <a href="https://web.archive.org/web/20110623142221/http://gothamist.com/tags/jaywalking">jaywalking</a>, confirms that he was &quot;on the southbound avenue at 8:44 a.m. when he was hit by an express bus, which was making a left turn from West 53rd Street.&quot;</p>
+
+<p>A witness told the paper, &quot;The front of the bus hit him, and his legs went under the wheel.&quot; <a href="https://web.archive.org/web/20110623142221/http://ny1.com/1-all-boroughs-news-content/top_stories/108462/mta-bus-hits--kills-woman-on-west-side/">NY1</a> (which says the victim was a woman) notes that those familiar with the area regard it as a very dangerous intersection. One local told them, &quot;<strong>That particular corner always has some accidents. All the cars travel very fast and there&apos;s too many buses using 53rd Street and they don&apos;t even look for pedestrians. I got hit about two months ago</strong>, and last month one lady got hit.&quot;</p>

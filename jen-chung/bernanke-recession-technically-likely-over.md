@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: September 15, 2009  2:03 PM
+title: Bernanke: Recession (Technically) "Likely Over"
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2009_09_bern.jpg" src="https://web.archive.org/web/20130511130315im_/http://gothamist.com/attachments/jen/2009_09_bern.jpg" width="140" height="127" class="image-right"> </span>Federal Reserve Chairmand Ben Bernanke said that the recession is <a href="https://web.archive.org/web/20130511130315/http://www.google.com/hostednews/ap/article/ALeqM5gQ6iVGh2tkgdbkyaZBrqeP-BqpdwD9ANSQ880">probably over but had a caveat</a>: &quot;<strong>From a technical perspective, the recession is very likely over at this point. It&apos;s still going to feel like a very weak economy for some time because many people will still find that their job security and their employment status is not what they wish it was.</strong>&quot;  He added in his remarks to the Brookings Institute, &quot;Unfortunately, unemployment will be slow to come down. It will come down but it may take some time. Obviously, that&apos;s a very serious concern.&quot;  Unemployment was <a href="https://web.archive.org/web/20130511130315/http://gothamist.com/2009/09/04/unemployment_edges_up_to_97_but_lay.php">9.7% last month</a>; it&apos;s expected to hit 10% by the end of the year.  </p>

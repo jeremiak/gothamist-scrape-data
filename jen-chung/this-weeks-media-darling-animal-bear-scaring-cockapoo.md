@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: August 26, 2008  8:45 AM
+title: This Week's Media Darling Animal: Bear-Scaring Cockapoo
+---
+
+<p><img alt="2008_08_pawlee2.jpg" src="https://web.archive.org/web/20110611055210im_/http://gothamist.com/attachments/jen/2008_08_pawlee2.jpg" width="130" height="107" class="right">Pawlee, the NJ cockapoo puppy who scared a bear and her two cubs from her owners&apos; backyard, is officially a star.  <a href="https://web.archive.org/web/20110611055210/http://wcbstv.com/watercooler/bears.cockapoo.wyckoff.2.802347.html">WCBS 2 visited</a> the Osiason family to find out what family, and apparently the 8-month-old, 15-pound pup &quot;ran up to them and started barking his head off. I thought he was gonna wake up the whole neighborhood.&quot;  WCBS even uses a clip from the movie Anchorman, noting that the Will Ferrell movie was the <a href="https://web.archive.org/web/20110611055210/http://www.ew.com/ew/gallery/0,,20191737,00.html">last time a dog had saved humans</a> from bears.  Pawlee&apos;s dogsitter <a href="https://web.archive.org/web/20110611055210/http://www.nypost.com/seven/08262008/news/regionalnews/bears_fear_plucky_pup_126150.htm">tells the Post</a>, &quot;<strong>He&apos;s crazy. He has a lot of energy. He&apos;s always barking at things.</strong>&quot;  And let&apos;s flashback to 2006 when Jack the cat scared a bear up the tree <i>twice</i> (<a href="https://web.archive.org/web/20110611055210/http://gothamist.com/2006/06/10/picture_of_the_4.php">see the photo</a>). </p>

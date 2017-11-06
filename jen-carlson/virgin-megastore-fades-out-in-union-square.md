@@ -1,0 +1,11 @@
+---
+author: Jen Carlson
+date: Jun 15, 2009 1:48 pm
+title: Virgin Megastore Fades Out in Union Square
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-right" style=" width:150px; "> <img alt="phpY4ciezPM.jpg" src="https://web.archive.org/web/20140405062807im_/http://gothamist.com/attachments/arts_jen/phpY4ciezPM.jpg" width="150" height="95"> <br> <i><span class="photo_caption">via <a href="https://web.archive.org/web/20140405062807/http://www.flickr.com/photos/9736580@N06/3593753682/">krzysztof.poluchowicz</a></span></i></div> <a href="https://web.archive.org/web/20140405062807/http://gothamist.com/2009/03/16/virgin.php">The Virgin Megastore</a> in Union Square has officially closed (get ready <a href="https://web.archive.org/web/20140405062807/http://gothamist.com/2009/05/20/union_square_wal-mart_out_nordstrom.php">for Nordstrom</a>). Yesterday was the last day the doors were open to bargain hunters, who only had about two tables of remaining merchandise to browse (allegedly stocked with plenty of Jonas Brothers memorabilia). <a href="https://web.archive.org/web/20140405062807/http://www.nytimes.com/2009/06/15/arts/music/15virgin.html?_r=1&amp;ref=nyregion">The NY Times</a> reports on what was &quot;the last large-scale record store in New York City,&quot; saying that while the closure isn&apos;t surprising, it is dispiriting. One analyst told the paper, &#x201C;The Titanic that is physical media started slowly sinking in 2000. Certainly this is a traumatic event for those who worked there, but it&#x2019;s an expected product of the digital transition.&#x201D; While there may not be any more larger chain record stores left in the city, there are some independents left, and come June 20th they&apos;ll be celebrating <a href="https://web.archive.org/web/20140405062807/http://pitchfork.com/news/35503-wilco-modest-mouse-to-release-new-singles-for-vinyl-saturday/">Vinyl Saturday</a>, &quot;which will feature specially produced records by artists like Wilco and Modest Mouse to draw customers.&quot; And those fancy digitized music files are nothing compared to the sound of a needle hitting vinyl.<p></p>					
+										
+									
+				

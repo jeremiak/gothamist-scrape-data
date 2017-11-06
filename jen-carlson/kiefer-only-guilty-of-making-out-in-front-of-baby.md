@@ -1,0 +1,11 @@
+---
+author: Jen Carlson
+date: Jul 22, 2009 12:44 pm
+title: Kiefer Only Guilty Of Making Out In Front Of Baby
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="kiefergf0709.jpg" src="https://web.archive.org/web/20150425150114im_/http://gothamist.com/attachments/arts_jen/kiefergf0709.jpg" width="140" height="121" class="image-right"> </span>If you thought his troubles with designer Jack McCollough <a href="https://web.archive.org/web/20150425150114/http://gothamist.com/2009/05/23/kiefer_sutherland_and_designer_he_h.php">were resolved</a>, you were wrong. <a href="https://web.archive.org/web/20150425150114/http://gothamist.com/tags/kiefersutherland">Kiefer Sutherland</a> had been waiting to find out if the misdemeanor assault charges against him would be dropped until <em>just now</em>. Good thing we weren&apos;t holding our breath. <a href="https://web.archive.org/web/20150425150114/http://www.tmz.com/2009/07/21/d-a-rejects-sutherland-headbutt-case/">TMZ</a> reports that Sutherland is totally in the clear for the incident that took place back <a href="https://web.archive.org/web/20150425150114/http://gothamist.com/2009/05/06/odd_celeb_behavior_at_the_mets_cost.php">in May</a>. An incident that would have been way more interesting if the actor were more Jack Bauer in real life, or even if he channeled his previous <a href="https://web.archive.org/web/20150425150114/http://www.youtube.com/watch?v=PhB_3Jz0x_s">Christmas tree attack</a>. So let&apos;s get on to the juicier Kiefer news. <a href="https://web.archive.org/web/20150425150114/http://www.nypost.com/seven/07222009/gossip/pagesix/kiefer__gal_have_public_make_out_session_180678.htm">Page Six</a> reports that he was spotted making out in public! With his girlfriend! Stars, they&apos;re just like us but with headlines. He and Siobhan Bonnouvrier lost themselves in a &quot;hot make-out session&quot; on on the lawn of Hudson River Park near 12th Street this past Saturday. An eye witness told the rag, <strong>&quot;They had their hands all over each other. They really got into it. One young mom breast-feeding her baby nearby was like, &apos;Go Kiefer!&apos;&quot;</strong> Our sources who were on the scene <em>with</em> said breast-feeding mom say there was even a thong-flashing involved.</p>					
+										
+									
+				

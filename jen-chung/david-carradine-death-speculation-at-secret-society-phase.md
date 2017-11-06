@@ -1,0 +1,11 @@
+---
+author: Jen Chung
+date: Jun 7, 2009 11:45 am
+title: David Carradine Death Speculation At Secret Society Phase
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2009_06_kbill.jpg" src="https://web.archive.org/web/20170415120728im_/http://gothamist.com/attachments/jen/2009_06_kbill.jpg" width="145" height="139" class="image-right"> </span>The family of actor David Carradine, whose bound body dead in a Bangkok hotel room last week, <a href="https://web.archive.org/web/20170415120728/http://www.nypost.com/seven/06072009/news/regionalnews/whacky_kung_fu_172948.htm">want the FBI to investigate the death</a> and the Post reports, &quot;<strong>attorney Mark Geragos suggested that Carradine may have been killed as he tried to uncover groups working in the martial-arts underworld.</strong>&quot;  When the secret society angle was mentioned on Larry King Live (<a href="https://web.archive.org/web/20170415120728/http://transcripts.cnn.com/TRANSCRIPTS/0906/05/lkl.01.html">transcript</a>), Geragos said, &quot;There is a suspicion that if there was some foul play, that that may be the first area where they should look.&quot; Carradine&apos;s fourth wife Gail Jenson <a href="https://web.archive.org/web/20170415120728/http://www.nydailynews.com/entertainment/2009/06/07/2009-06-07_kung_fu_kill_bill_david_carradines_family_ask_fbi_to_investigate_whether_death_w.html">spoke to the Daily News</a>, &quot;David was pretty strange. He would tie himself up, and I would walk in and see him and say, &apos;Oh, my God, David, you&apos;ve got to be kidding me.&apos;&quot;  A previous wife, Marina Anderson, noted Carradine&apos;s <a href="https://web.archive.org/web/20170415120728/http://www.thesmokinggun.com/archive/years/2009/0605092carradine1.html">&quot;deviant sexual behavior&quot; in a divorce filing</a>, also claiming he was having an incestuous relationship with a close family member; Anderson said to the Post, &quot;If he was involved in secret societies, it was a secret that even I didn&apos;t know about. But he did have some big secrets.&quot; Related: TMZ on why a <a href="https://web.archive.org/web/20170415120728/http://www.tmz.com/2009/06/07/david-carradine-second-autopsy/">second autopsy is important</a>.</p>					
+										
+									
+				

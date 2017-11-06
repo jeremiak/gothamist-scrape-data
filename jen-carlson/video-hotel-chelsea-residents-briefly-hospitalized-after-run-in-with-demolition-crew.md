@@ -1,0 +1,19 @@
+---
+author: Jen Carlson
+date: Dec 8, 2011 5:35 pm
+title: Video: Hotel Chelsea Residents Briefly Hospitalized After Run In With Demolition Crew
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="hotelchelsea120811.jpeg" src="https://web.archive.org/web/20150416005113im_/http://gothamist.com/attachments/arts_jen/hotelchelsea120811.jpeg" width="640" height="362" class="image-none"> </span></p>
+
+<p>Last night <a href="https://web.archive.org/web/20150416005113/http://www.chelseahotelblog.com/living_with_legends_the_h/2011/12/joseph-chetrits-chelsea-hotel-history-and-tenants-under-attack.html">Ed Hamilton</a>, a resident at the <a href="https://web.archive.org/web/20150416005113/http://gothamist.com/tags/hotelchelsea">Hotel Chelsea</a>, emailed us pointing us to the below video on his Facebook page, saying, &quot;The tenant in the video, Arthur Nash, was filming the ongoing destruction of the Hotel when he was assaulted by the demolition crew. Also significant is that Arthur was showing Union reps around the building (the crew is non-union). The woman in the video is the hotel manager, Lilly Sitrit, but where are the Chelsea Hotel security guards? About a dozen demolition crew members waited outside the Hotel for Nash, and when he emerged from the Hotel, they chased him down 23rd Street to 7th Avenue where they assaulted him again. Still no sign of Hotel security, and the Hotel does not appear to have called the police. I was there for the second assault, and when I attempted to intervene, I was assaulted as well. Both Nash and I were teated at Beth Israel emergency room and released.&quot;</p>
+
+<p>The NYPD told <a href="https://web.archive.org/web/20150416005113/http://www.dnainfo.com/20111208/chelsea-hells-kitchen/hotel-chelsea-residents-assaulted-by-construction-workers-witnesses-say#ixzz1fz7hpIrU">DNAInfo</a> that Nash was allegedly attacked after taking photos of the non-unionized contractors, and that a criminal complaint had been filed with the 10th Precinct. The incident is under investigation, but no arrests have been made as of yet.</p>
+
+<p><object id="flashObj" width="480" height="270" classid="clsid:D27CDB6E-AE6D-11cf-96B8-444553540000" codebase="https://web.archive.org/web/20150416005113oe_/http://download.macromedia.com/pub/shockwave/cabs/flash/swflash.cab#version=9,0,47,0"><param name="movie" value="http://c.brightcove.com/services/viewer/federated_f9?isVid=1&amp;isUI=1"><param name="bgcolor" value="#FFFFFF"><param name="flashVars" value="videoId=1315162043001&amp;playerID=69540120001&amp;playerKey=AQ~~,AAAADJS3ODk~,1zuCN4o5A0KpuWrpI8PFzdV7i2SNHVRn&amp;domain=embed&amp;dynamicStreaming=true"><param name="base" value="http://admin.brightcove.com"><param name="seamlesstabbing" value="false"><param name="allowFullScreen" value="true"><param name="swLiveConnect" value="true"><param name="allowScriptAccess" value="always"><embed src="https://web.archive.org/web/20150416005113oe_/http://c.brightcove.com/services/viewer/federated_f9?isVid=1&amp;isUI=1" bgcolor="#FFFFFF" flashvars="videoId=1315162043001&amp;playerID=69540120001&amp;playerKey=AQ~~,AAAADJS3ODk~,1zuCN4o5A0KpuWrpI8PFzdV7i2SNHVRn&amp;domain=embed&amp;dynamicStreaming=true" base="http://admin.brightcove.com" name="flashObj" width="640" height="373" seamlesstabbing="false" type="application/x-shockwave-flash" allowfullscreen="true" allowscriptaccess="always" swliveconnect="true" pluginspage="http://www.macromedia.com/shockwave/download/index.cgi?P1_Prod_Version=ShockwaveFlash"></object></p>
+
+<p>Recently, photos of the legendary hotel&apos;s soulless makeover surfaced&#x2014;which you can <a href="https://web.archive.org/web/20150416005113/http://gothamist.com/2011/12/05/photos_of_the_hotel_chelsea.php">check out here</a>.</p>					
+										
+									
+				

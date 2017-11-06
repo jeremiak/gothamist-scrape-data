@@ -1,0 +1,17 @@
+---
+author: Ben Yakas
+date: Oct 9, 2011 2:30 pm
+title: Not Science: Chicks Dig Fat Rich Guys For Their Money!
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:300px; "> <img alt="10911fat.jpg" src="https://web.archive.org/web/20160922163017im_/http://gothamist.com/attachments/byakas/10911fat.jpg" width="300" height="234"> <br> <i>Harvey Weinstein and wife Georgina Chapman</i></div> We&apos;ve been told that <a href="https://web.archive.org/web/20160922163017/http://gothamist.com/2011/08/15/being_fat_can_be_healthy_too_says_s.php">being fat can also be healthy</a>, but we don&apos;t think we&apos;re going to see any fat guys <a href="https://web.archive.org/web/20160922163017/http://gothamist.com/2011/09/29/is_chris_christie_too_fat_to_squeez.php">squeezing into the Oval Office</a> anytime soon. At this point, Americans would rather give up sex <a href="https://web.archive.org/web/20160922163017/http://gothamist.com/2011/05/28/youre_the_one_for_me_fatty_ten_song.php">than their favorite dessert</a>! But there is one silver lining for zaftig dudes: pretty skinny ladies don&apos;t care how fat you are as long as you&apos;re rich!<p></p>
+
+<p>That&apos;s <a href="https://web.archive.org/web/20160922163017/http://www.nypost.com/p/news/national/gals_dig_fat_wallet_kR39fvZMqpYgzWLJ1v8PpO?CMP=OTC-rss&amp;FEEDNAME=">according to a new study by</a> Columbia University researcher and economist Pierre-Andre Chiappori. He claims he&apos;s crafted a mathematical formula to calculate how men and women choose their partners. And it seems all those women who told you they liked you for your humor (or the contents of your soul) didn&apos;t <em>really</em> mean it, because there are only two defining traits: physical and socioeconomic attractiveness. And even the physical part isn&apos;t that important: &#x201C;Our findings tell us that physical appearance is not such a big deal, and it&#x2019;s easy to compensate for,&#x201D; said Chiappori.</p>
+
+<p>To that end, <a href="https://web.archive.org/web/20160922163017/http://www.dailymail.co.uk/news/article-2047078/Women-dont-mind-fat-men-long-rich.html">he found that</a> for every 10 per cent increase in body mass index, single men must increase their salary by 2 per cent to keep dating partners in the same dating pool. So a six-foot man weighing 180 pounds and earning $100,000 would need to get a $2,000 pay raise if he put on 20 pounds, unless he wanted to date less attractive women. For women, it&apos;s about intelligence: if a single woman who is 5-foot-8 and weighs 140 pounds gains seven pounds, she must have one year more of education to remain at the same level of attractiveness.</p>
+
+<p>Of course, the whole study was based on data collected from 667 white American couples by the Panel Study of Income Dynamics...which leaves out <a href="https://web.archive.org/web/20160922163017/http://gothamist.com/2011/08/31/study_half_of_america_will_obese_by.php">quite a bit of the population</a>. Really, the only thing this study tells us is that married white Americans are narcissistic, body-conscious, gold digging, short-sighted and judgmental. Which <a href="https://web.archive.org/web/20160922163017/http://gothamist.com/2011/07/10/double-borough_dating_weve_all_got.php">sounds about right.</a></p>					
+										
+									
+				

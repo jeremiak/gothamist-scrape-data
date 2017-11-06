@@ -1,0 +1,19 @@
+---
+author: Jen Chung
+date: May 23, 2009 9:44 am
+title: City, State Honor Agents Who Busted Terror Plot
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="2009_05_terplot7.jpg" src="https://web.archive.org/web/20150408141724im_/http://gothamist.com/attachments/jen/2009_05_terplot7.jpg" width="640" height="432"> <br> <i>Photograph of Mayor Bloomberg (front row center), Police Commissioner Raymond Kelly (front row, 4th from right), FBI Assistant Director In Charge of N.Y., Joseph Demarest Jr. (front row far right) and N.Y. Gov. David Paterson (front row 3rd from right) posing for a photo with the Joint Terrorism Task Force and Emergency Service Unit members who foiled terror plot in the Bronx by Mary Altaffer/AP. A close-up photograph is after the jump.</i></div> <p></p>
+
+<p>Yesterday, the city <a href="https://web.archive.org/web/20150408141724/http://www.nydailynews.com/news/ny_crime/2009/05/22/2009-05-22_nypd_fbi_heros_honored_after_foiling_terror_plot_to_bomb_.html">honored the 110 members of teams</a> from the NYPD, FBI and other agencies who helped <a href="https://web.archive.org/web/20150408141724/http://gothamist.com/2009/05/21/terror_plot_suspects_allegedly_upse.php">foil the terror plot</a> to bomb Bronx synagogues and attack the National Guard base in Newburgh, NY.  Mayor Bloomberg said, &quot;<strong>I feel safer today in this city than ever before.</strong> They have prevented what could have been a terrible loss of life.&quot; And Governor Paterson said, &quot;The work was simply outstanding, and it demonstrates the increased sophistication that counterterrorist activity has had to undergo to keep up with the widespread threats.<strong> I can&apos;t thank all of them enough.</strong>&quot;</p>
+
+<p><a href="https://web.archive.org/web/20150408141724/http://www.nypost.com/seven/05232009/news/regionalnews/meet_the_bomber_busters_170605.htm">According to the Post</a>, &quot;57 [of the members]were from the NYPD, 39 were FBI, 10 were State Troopers, and there were four others.&quot; Police Commissioner Ray Kelly also added that while the suspects in the terror plot were Muslim, the NYPD was <em>not</em> targeting Muslims, &quot;We have to follow the leads wherever they take us. We&apos;re not looking to focus on any particular community in the city. That&apos;s the world we live in.&quot;  </p>
+
+<p>The suspects ultimately did meet the informant, who fed information to the authorities and <a href="https://web.archive.org/web/20150408141724/http://www.nypost.com/seven/05232009/news/regionalnews/a_bunch_of_terror_dummies_170636.htm">even managed to take the suspects&apos; gun to the FBI</a> (who filed down the firing pin), at a mosque in Newburgh, NY.  Even though other worshippers were surprised by the <a href="https://web.archive.org/web/20150408141724/http://www.nytimes.com/2009/05/23/nyregion/23informant.html?_r=1&amp;ref=nyregion">informant who would apparently immediately talk about jihad</a>, James Cromitie, one of the suspects and the alleged leader, <a href="https://web.archive.org/web/20150408141724/http://www.nydailynews.com/news/ny_crime/2009/05/22/2009-05-22_nypd_fbi_heros_honored_after_foiling_terror_plot_to_bomb_.html">told him</a>, &quot;I hate those motherf-----s, those f-----g Jewish bastards. I would like to get [bomb] a synagogue.&quot;</p>
+
+<p>Bronx Borough President Ruben Diaz Jr. said, at a press conference with other religious leaders, &quot;Let this moment not be defined by four idiots, by four cowards and their plan. Let it be defined by the many voices of different religions, the song that we should sing as one united choir.&quot; Cromitie, Onta Williams, David Williams and Laguerre Payen are being held without bail.  </p>					
+										
+									
+				

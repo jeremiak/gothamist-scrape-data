@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: September 10, 2008 11:07 AM
+title: Israeli Security Suspicious of Alvin Ailey Dancer
+---
+
+<p><img alt="2008_09_aadance.jpg" src="https://web.archive.org/web/20110811101855im_/http://gothamist.com/attachments/jen/2008_09_aadance.jpg" width="130" height="126" class="right">The <a href="https://web.archive.org/web/20110811101855/http://www.nydailynews.com/ny_local/2008/09/10/2008-09-10_untitled__a-3.html">Daily News reports</a> that a dancer in the Alvin Ailey dance company was forced to dance &quot;to convince Israeli airport security he was no Islamic terrorist.&quot;  <a href="https://web.archive.org/web/20110811101855/http://www.alvinailey.org/page.php?p=art_d&amp;sec=aaadt&amp;c=1&amp;v=14">Abdur-Rhaim Jackson</a>&apos;s first name aroused attention, and he explained that his father &quot;converted to Islam and gave me this name.&quot; He also showed them a brochure with his photographs in it, prompting them to ask him to dance, &quot;I was embarrassed, but I was afraid to do something wrong that may cause me to look suspicious.&quot; So he did and then was asked to dance again for another guard before being allowed to pass.  Jackson said he would not formally complain, &quot;<strong>We&apos;re only here to bring positive light to our lives and the people here.</strong>&quot;  The <a href="https://web.archive.org/web/20110811101855/http://www.alvinailey.org/">Alvin Ailey Dance Theater</a> is celebrating its 50th anniversary with an international tour and many other events.</p>

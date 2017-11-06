@@ -1,0 +1,19 @@
+---
+author: Jen Carlson
+date: Jul 19, 2007 4:45 pm
+title: Celebrity Owned Restaurants: Recipe for Disaster?
+---
+
+	
+										<p><img alt="2007_07_arts_timberlake.jpg" src="https://web.archive.org/web/20150405014231im_/http://gothamist.com/attachments/arts_jen/2007_07_arts_timberlake.jpg" width="285" height="370" class="left">We&apos;re just going to get this out of the way: Justin Timberlake is bringing deep-fried pickle-sicles back. The modern day song and dance man has gone and opened his very own restaurant called Southern Hospitality (at 1460 2nd Ave and 76th St). It opened last night to a crowd of <strike>A-listers</strike> people you may have heard of, hankering for some barbecue. Amongst the <a href="https://web.archive.org/web/20150405014231/http://nymag.com/listings/restaurant/southern-hospitality/menus/main.html">items offered</a> are deviled eggs, pulled pork, mac-n-cheese, fried catfish, and yes...the aforementioned pickle treat (we hope JT took <a href="https://web.archive.org/web/20150405014231/http://www.responsesource.com/releases/rel_display.php?relid=32209&amp;hilite=">his indigestion pills</a> last night).</p>
+
+<p>One of the first reports from the frontline of the opening is scathing and comes from NYMag. Apparently there was no southern hospitality in air last night, as their reporter tells of <a href="https://web.archive.org/web/20150405014231/http://nymag.com/daily/intel/2007/07/at_jts_restaurant_opening_long.html">an epically poorly run opening</a>. JT himself was reportedly too cool to talk much to the press (we&apos;re sure in a few weeks when he has seats to fill he&apos;ll have a change of heart). However, co-owner and JT&apos;s bff assures <a href="https://web.archive.org/web/20150405014231/http://www.nypost.com/seven/07182007/entertainment/food/star_reviews_food_farrah_weinstein.htm">The Post</a> that: &#x201C;We&#x2019;re not trying to be trendy.&quot;</p>
+
+<p>With the opening JT joins the rank of celebs who have owned eateries, the question is: will his succeed? His ex Britney Spears&#x2019; southern-flared NYLA <a href="https://web.archive.org/web/20150405014231/http://www.people.com/people/article/0,,625179,00.html 917 499 2538">didn&apos;t do so well</a>, neither did the Baldwin brothers Alaia (shocking). On the other hand <a href="https://web.archive.org/web/20150405014231/http://www.imdb.com/name/nm0801248/">Valerie Simpson</a> and <a href="https://web.archive.org/web/20150405014231/http://www.imdb.com/name/nm0038935/">Nick Ashford</a>&apos;s <a href="https://web.archive.org/web/20150405014231/http://www.sugarbarnyc.com/">Sugar Bar</a> on West 72nd has been around for 11 years. Jay-Z&apos;s 40/40 sports bar and restaurant is a success so far (despite getting bad press <a href="https://web.archive.org/web/20150405014231/http://gothamist.com/2007/06/26/4040.php">from time to time</a>), and Sean Combs&apos; Justin in the Flatiron District is still going strong, too. Outside of the music world, Timothy Hutton&apos;s <a href="https://web.archive.org/web/20150405014231/http://www.pjclarkes.com/htm/m05/PJC_SALVATION_ARMY.htm">PJ Clarke&apos;s</a> has decent fare that&apos;s kept its doors open, the Jimmy Fallon-backed Mo Pitkins is thriving after opening two years ago in the East Village, and Robert De Niro&apos;s Tribeca Grill has been around for 20 years. </p>
+
+<p>Check out some pictures of Southern Hospitality <a href="https://web.archive.org/web/20150405014231/http://nymag.com/daily/food/2007/07/more_topsecret_timberlake_the_1.html">here</a>, and, one from the opening of a <a href="https://web.archive.org/web/20150405014231/http://nymag.com/daily/food/2007/07/justin_timberlake_eats_barbecu.html">blurry Timberlake</a>.</p>
+
+<p><em>Photo from the opening via <a href="https://web.archive.org/web/20150405014231/http://www.flickr.com/photos/8073917@N03/852431701/">The Life Files&apos; Flickr</a>.</em></p>					
+										
+									
+				

@@ -1,0 +1,7 @@
+---
+author: Jen Carlson
+date: April  2, 2010  4:05 PM
+title: New Yorker Refuses To Embrace PDA
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="phpimWsECPM.jpg" src="https://web.archive.org/web/20120316055137im_/http://gothamist.com/attachments/arts_jen/phpimWsECPM.jpg" width="110" height="105" class="image-right"> </span>Over at the <a href="https://web.archive.org/web/20120316055137/http://cityroom.blogs.nytimes.com/2010/04/02/complaint-box-public-smooching/">NY Times</a> a 26-year-old woman fills the complaint box with disgust over public displays of affection. She says, &quot;Everywhere I go, people are fondling each other as if the entire city were a cheap motel room.&quot; Lip lockers, hand holders, ear nibblers, and the worst: subway romantics. She recalls one recent encounter with just such an underground heathen who &quot;stuck his hand down his date&#x2019;s sweater. There is something about watching people suck each other&#x2019;s lips on public transportation that just does not do it for me.&quot; Hmm... what about <a href="https://web.archive.org/web/20120316055137/http://gothamist.com/2009/12/28/freaky_photoshop_or_really_revoltin.php">a naked lapdance</a>?</p>

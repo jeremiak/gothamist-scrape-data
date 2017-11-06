@@ -1,0 +1,12 @@
+---
+author: Jen Carlson
+date: November 17, 2010  2:46 PM
+title: Video: Keith Urban Busks In Penn Station
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="urbanpenn1110.jpg" src="https://web.archive.org/web/20110412164437im_/http://gothamist.com/attachments/arts_jen/urbanpenn1110.jpg" width="640" height="440" class="image-none"> </span><br>
+<span class="photo_caption">Photo via <a href="https://web.archive.org/web/20110412164437/http://twitter.com/#!/KeithUrban">Keith Urban</a></span></p>
+
+<p>Was there a secret meeting in which country music stars decided to turn transportation hubs into their own personal stages? Recently Taylor Swift performed at JFK&apos;s Terminal 5, and yesterday Keith Urban surprised commuters at Penn Station by turning into a busker for a short time. According to <a href="https://web.archive.org/web/20110412164437/http://newyork.cbslocal.com/2010/11/16/keith-urban-surprises-penn-station-commuters-with-concert/">the AP</a>, he sang five songs to several hundred fans&#x2014;allegedly part of a promotional tour that&apos;s taking him to train stations nationwide. The musician, and husband of Nicole Kidman, told <a href="https://web.archive.org/web/20110412164437/http://www.foxnews.com/entertainment/2010/11/16/keith-urban-plays-surprise-new-york-train-station/">FOX</a> the station has &#x201C;good acoustics&#x2026; it was cool. I&#x2019;ve never played a train station before.&#x201D; Be a lot cooler if it were in the <a href="https://web.archive.org/web/20110412164437/http://www.nyc-architecture.com/GON/GON004.htm"><em>old</em></a> Penn Station.</p>
+
+<center>&#xA0;<embed type="application/x-shockwave-flash" salign="l" flashvars="&amp;titleAvailable=true&amp;playerAvailable=true&amp;searchAvailable=false&amp;shareFlag=N&amp;singleURL=http://wpix.vidcms.trb.com/alfresco/service/edge/content/0ca095d5-b6ec-4e83-b66f-a66de6222904&amp;propName=wpix.com&amp;hostURL=http://www.wpix.com&amp;swfPath=http://wpix.vid.trb.com/player/&amp;omAccount=tribglobal&amp;omnitureServer=wpix.com" allowscriptaccess="always" allowfullscreen="true" menu="true" name="PaperVideoTest" bgcolor="#ffffff" devicefont="false" wmode="transparent" scale="showall" loop="true" play="true" pluginspage="http://www.macromedia.com/go/getflashplayer" quality="high" src="https://web.archive.org/web/20110412164437oe_/http://wpix.vid.trb.com/player/PaperVideoTest.swf" align="middle" height="450" width="300"></center>

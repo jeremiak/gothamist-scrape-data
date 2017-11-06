@@ -1,0 +1,26 @@
+---
+author: Jen Carlson
+date: Apr 29, 2005 3:06 pm
+title: Upcoming
+---
+
+	
+										<p>If you aren&apos;t in Indio, California this weekend then you aren&apos;t seeing Nine Inch Nails, the Arcade Fire or Spoon. You also aren&apos;t going to be suffering from heat stroke in a desert and buying $8 bottles of water, so we think you made a wise decision to skip <a href="https://web.archive.org/web/20150429140630/http://www.coachella.com/">Coachella</a>. This weekend in New York we say goodbye to April, which if the old saying is correct - no more rain! Right? So throw away your umbrella and head to the <a href="https://web.archive.org/web/20150429140630/http://www.blackkat.org/">May Day Festival</a> in Tompkins Square Park this Sunday. And in the meantime, check this stuff out: </p>
+
+<p><a href="https://web.archive.org/web/20150429140630/http://www.gothamist.com/images/2005_04_artswritersconf.jpg"><img alt="2005_04_artswritersconf.jpg" src="https://web.archive.org/web/20150429140630im_/http://www.gothamist.com/images/2005_04_artswritersconf-thumb.jpg" width="175" height="247" align="right" hspace="5"></a>CONFERENCE: We didn&apos;t really know what category to put this under, &quot;conference&quot; sounds a little boring. The 1st Annual Round Table Writer&apos;s Conference is all weekend and looks pretty interesting. You can check out the full schedule and details <a href="https://web.archive.org/web/20150429140630/http://smallpress.org/events/workshops/first_writers_conference.asp">here</a>. Of particular interest to us are the Saturday afternoon discussion with memoirist and MSNBC columnist Jeanette Walls and SPIN writer Andy Greenweald. They will join a panel called &quot;Don&apos;t Quit Your Day Job,&quot;<br>
+with authors who balance their professional writing with another career.</p>
+
+<p>SHOPPING: Housing Works is holding its 1st Annual <a href="https://web.archive.org/web/20150429140630/http://www.housingworksauctions.com/dime/">Design on a Dime Benefit</a> today through Sunday [10am to 6pm / Noon to 5pm on Sunday]. The event is pretty cool and the money raised goes to a <a href="https://web.archive.org/web/20150429140630/http://www.housingworksauctions.com/about.cfm">good cause</a>. You can even bid online for items in <a href="https://web.archive.org/web/20150429140630/http://www.housingworksauctions.com/program/stores.cfm">these store windows</a>. Offline however, head over to 157 E 23rd Street. </p>
+
+<p>COMEDY: This Friday April 29th you can just plan on staying at Juvie Hall [24 Bond St.(between Bowery and Lafayette)] all night. Not the one you were sent to as an adolescent - the comedy venue. First up at 8pm <a href="https://web.archive.org/web/20150429140630/http://chelseaperetti.blogspot.com/">Chelsea Peretti</a> and <a href="https://web.archive.org/web/20150429140630/http://youcantmakeitup.blogspot.com/">Michelle Collins</a>, both bloggers (!), host an evening with and with AD Miles, Aziz Ansari, Ahna &amp; Lauren, Adam Wade. <br>
+Then at midnight Elliott Kalan hosts <a href="&lt;br /&gt;
+http://www.midnightkalan.com">Midnight Kalan</a>: a free form talk forum &amp; pizza party. Discussions range from 1930&apos;s Hollywood to Elliott&apos;s failures with women. This week special guests Samantha Bee and Rob Corddry (both from The Daily Show with Jon Stewart) join in. Did we mention there is FREE PIZZA AND SODA?! And tickets are only 3 bucks. Notable: Rocket Joe of Rocket Joe&apos;s Pizza is also slated as a guest. Rocket Joe&apos;s pizza is a block away from us, so we&apos;re asking ourselves: do we want to know the man behind the often 3am slice? The jury is out...<br>
+[Watch this space for more weekend comedy events, coming up tomorrow.]</p>
+
+<p>THEATER: <a href="https://web.archive.org/web/20150429140630/http://67.89.63.10/here/website/showDetail.cfm?showID=1314">Forest Blue</a>, a play by Sarah Doyle starring Justin Reinsilber, Melisa McGregor, Simon Kendall and Mary Tuomanen. The tagline is: <em>a place to bask in the sun, a place for childhood explorations, to fantasise, a place in the last hours of a life that ends and then keeps going</em>. However basking in the sun doesn&apos;t seem to be on the schedule when you&apos;re on a secluded beach in Tasmania with two disturbed sisters and a detoxing boyfriend. So...we&apos;re not really sure about that tagline.<br>
+<img alt="2005_04_artscherryblossom.jpg" src="https://web.archive.org/web/20150429140630im_/http://www.gothamist.com/images/2005_04_artscherryblossom.jpg" width="130" height="173" align="right" hspace="5">Performance dates: Friday April 29, 7pm // Saturday April 30, 4pm, 7pm // Sunday May 1st, 4pm, 7pm @ the HERE Arts Center [145 6th Ave. (between Spring &amp; Broome)] Tickets are $15.</p>
+
+<p>MUSIC: As usual, Brooklyn Vegan has posted it all <a href="https://web.archive.org/web/20150429140630/http://www.gothamist.com/archives/2005/04/27/this_weeks_wedsun_music_picks.php">here</a>. However you can always check out more at the Brooklyn Botanical Gardens this weekend, we&apos;re sure there will be some amongst the other activities planned for the <a href="https://web.archive.org/web/20150429140630/http://www.bbg.org/exp/cherrywatch/sakura.html">Sakura Matsuri Cherry Blossom Festival</a>.</p>					
+										
+									
+				

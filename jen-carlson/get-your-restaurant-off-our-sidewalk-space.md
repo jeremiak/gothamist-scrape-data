@@ -1,0 +1,15 @@
+---
+author: Jen Carlson
+date: Oct 2, 2009 1:07 pm
+title: Get Your Restaurant Off Our Sidewalk Space!
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:350px; "> <img alt="phpIUnEtQAM.jpg" src="https://web.archive.org/web/20150422144548im_/http://gothamist.com/attachments/arts_jen/phpIUnEtQAM.jpg" width="350" height="248"> <br> <i><span class="photo_caption">Ugghhh! Photo via <a href="https://web.archive.org/web/20150422144548/http://westsidespirit.com/?p=3337">West Side Spirit</a></span></i></div> First the Upper East Siders were ranting about <a href="https://web.archive.org/web/20150422144548/http://gothamist.com/2009/09/15/sidewalk_congestion.php">sidewalk congestion</a>, and now the Upper <em>West</em> Side is joining in on the complaint chorus. A writer for <a href="https://web.archive.org/web/20150422144548/http://westsidespirit.com/?p=3337">West Side Spirit</a> has a bone to pick with enclosed sidewalk caf&#xE9;s; because what else are you going to get worked up about these days? <a href="https://web.archive.org/web/20150422144548/http://whitewhine.com/">La la la</a>, there are really no other problems except dining establishments jutting out on to public property. Really, <a href="https://web.archive.org/web/20150422144548/http://www.theawl.com/2009/10/guest-op-ed-could-you-sleep-last-night-man-me-neither"><em>nothing</em></a>.<p></p>
+
+<p>Citizen Uptown declares that not only are abandoned outdoor caf&#xE9;s an eyesore (saying they &quot;not only look messy and run down but some of them also appear downright gaudy&quot;), but the papered up windows are even more so, and the illegal ads that cover those up are even <em>more so</em>. There&apos;s no solution! Will no one do anything about these &quot;unused, enclosed structure that encroach on public property?&quot; Council Member Gale Brewer&apos;s office says: &#x201C;We are trying to find a balance in helping the building owner to find a new tenant to use that space for a restaurant. We don&#x2019;t want them tearing them down and bringing them back up in four months. That doesn&#x2019;t help anybody.&#x201D;</p>
+
+<p>As for the illegal ads being placed on the abandoned storefronts, this sort of thing has been happening <a href="https://web.archive.org/web/20150422144548/http://gothamist.com/2009/05/29/ad.php">all over</a> <a href="https://web.archive.org/web/20150422144548/http://gothamist.com/2009/03/13/illegal_snickers_billboards.php">the city</a>. A spokesperson from the Department of Buildings said the advertising &quot;is not permitted in this district and that the agency is investigating the illegal ads.&quot; Until action is taken and justice is served, you&apos;ll have to avert your eyes from (or shake your fist at) all of these unsightly sidewalk-encroaching messes when your just trying to enjoy a nice walk to the Chase bank and Duane Reade.</p>					
+										
+									
+				

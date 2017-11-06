@@ -1,0 +1,24 @@
+---
+author: Jen Chung
+date: Jun 29, 2010 10:22 am
+title: Feds Arrest Suspected Russian Spies, Including 5 In NJ, NY
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2010_06_spies.jpg" src="https://web.archive.org/web/20160711145325im_/http://gothamist.com/attachments/jen/2010_06_spies.jpg" width="640" height="386" class="image-none"> </span></p>
+
+<p>Yesterday, the Justice Department <a href="https://web.archive.org/web/20160711145325/http://www.justice.gov/opa/pr/2010/June/10-nsd-753.html">announced it arrested 10 people</a> for &quot;allegedly carrying out long-term, &apos;deep-cover&apos; assignments in the United States on behalf of the Russian Federation.&quot; And in case you were wondering, &quot;Federal law prohibits individuals from acting as agents of foreign governments within the United States without prior notification to the U.S. Attorney General.&quot;  However, <a href="https://web.archive.org/web/20160711145325/http://www.nydailynews.com/news/world/2010/06/29/2010-06-29_russian_spy_ring_11th_suspect_arrested_in_cyprus_moscow_calls_spy_claims_baseles.html">Russia&apos;s Foreign Ministry is blasting the arrests</a>, saying, &quot;We do not understand what prompted the U.S. Justice Department to make a public statement in the spirit of Cold War espionage. Such incidents have occurred in the past, when our relations were on the rise. In any case it is regrettable that all these things are happening on the background of the &apos;reset&apos; in Russian-U.S. relations announced by the U.S. administration.&quot;  </p>
+
+<p><a href="https://web.archive.org/web/20160711145325/http://www.nytimes.com/2010/06/30/world/europe/30spy.html?hp">According to the NY Times</a>, the suspects were looking for information on nuclear weapons, details on the U.S.&apos;s Iran policy, the CIA:</p><blockquote>Criminal complaints filed in Federal District Court in Manhattan on Monday read like an old-fashioned cold war thriller: Spies swapping identical orange bags as they brushed past each other in a train station stairway. An identity borrowed from a dead Canadian, forged passports, messages sent by shortwave burst transmission or in invisible ink. A money cache buried for years in a field in upstate New York.<p></p>
+
+<p>But the network of so-called illegals &#x2014; spies operating under false names outside of diplomatic cover &#x2014; also used cyber-age technology, according to the charges. They embedded coded texts in ordinary-looking images posted on the Internet, and they communicated by having two agents pass casually with laptops containing special software flashed messages between them.</p>
+
+<p>Neighbors in Montclair, N.J., of the couple who called themselves Richard and Cynthia Murphy were flabbergasted when a team of F.B.I. agents turned up Sunday night and led the couple away in handcuffs. One person who lives nearby called them &#x201C;suburbia personified,&#x201D; saying that they had asked people for advice about the local schools. Others worried about the Murphys&#x2019; elementary-age daughters.</p></blockquote><br>
+Even a 15-year-old neighbor of the Murphys was able to joke, &quot;They couldn&#x2019;t have been spies. Look what she did with the hydrangeas.&quot;  Another neighbor said of Richard Murphy, &quot;He&apos;d wear khakis, golf shirts, baseball caps and jeans.&quot; OMG, alleged spies wear clothes like us!<p></p>
+
+<p>On the cover of the tabloids is Anna Chapman, whom the <a href="https://web.archive.org/web/20160711145325/http://www.nypost.com/p/news/local/spy_ring_qzWW8bImf9yEDTbtXcQnUL">Post calls</a> &quot;a 28-year-old divorcee with a masters in economics, an online real-estate business, a fancy Financial District apartment and a Victoria&#x2019;s Secret body.&quot; She allegedly passed information to a Russian official every Wednesday this year.  <a href="https://web.archive.org/web/20160711145325/http://wcbstv.com/breakingnewsalerts/russian.secret.agents.2.1777352.html">Another of the suspects</a> is Vicky Pelaez, a columnist for El Diario newspaper.  The Daily News <a href="https://web.archive.org/web/20160711145325/http://www.nydailynews.com/news/ny_crime/2010/06/29/2010-06-29_where_the_accused_russian_spies_did_their_business.html">lists the places were the alleged spies</a> would do their business: The Forest Hills LIRR station, the globe outside the Trump International at Columbus Circle, a Starbucks in Midtown, a restaurant in Sunnyside, Queens, etc.</p>
+
+<p>An 11th alleged spy was arrested today in Cyrpus.  </p>					
+										
+									
+				

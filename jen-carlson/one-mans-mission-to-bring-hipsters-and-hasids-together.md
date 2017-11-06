@@ -1,0 +1,11 @@
+---
+author: Jen Carlson
+date: Aug 27, 2009 4:05 pm
+title: One Man's Mission To Bring Hipsters And Hasids Together
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="0809hasidhipster.jpg" src="https://web.archive.org/web/20140511120926im_/http://gothamist.com/attachments/arts_jen/0809hasidhipster.jpg" width="140" height="145" class="image-right"> </span>Typically you hear stories of the Hasids in Williamsburg <a href="https://web.archive.org/web/20140511120926/http://gothamist.com/2008/11/26/bike_lane_backlash_hasidim_to_block.php">revolting against</a> the hipster bicyclists, especially those wearing <a href="https://web.archive.org/web/20140511120926/http://gothamist.com/2008/09/12/hasids_say_cyclists_too_sexy_for_bi.php">skimpy clothing</a>. But now <a href="https://web.archive.org/web/20140511120926/http://www.forward.com/articles/112918/">The Forward</a> reports on a sign that popped up in the neighborhood this month that could bridge the gap between the groups; &quot;On it is a large Star of David constructed out of 50 or so rubber chickens. In the middle of the star, Yiddish text offers a free bike loan to any of the Yiddish-speaking Satmar Hasidim who live in the area.&quot; Baruch Herzfeld (himself a Sabbath-observant Modern Orthodox Jew, with two rabbi brothers) is the man behind the sign, and he hopes his efforts will help the Hasids understand their cycling neighbors. The 37-year-old Herzfeld is described as a &quot;neighborhood gadfly/clown/activist/businessman who owns a small bicycle repair shop below the offices of his cell phone company&quot; (it&apos;s noted that he loaned out the 1st floor space to <a href="https://web.archive.org/web/20140511120926/http://times-up.org/">Time&apos;s Up</a>). He&apos;s already had some takers, and he &quot;just received 500 used bikes from Japan that will allow him to expand his program.&quot; He says, &#x201C;<strong>The goal is just to make it acceptable. I&#x2019;m not doing it because I want to change the world&#x2014;I just think it would be a healthy thing for the whole city if some of these guys got on bicycles.</strong>&quot;</p>					
+										
+									
+				

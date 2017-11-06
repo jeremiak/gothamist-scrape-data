@@ -1,0 +1,21 @@
+---
+author: Nell Casey
+date: Apr 22, 2016 11:00 am
+title: Weekend Eats: Bacon, Egg And Cheese Pizza Bruuuunch
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="042216pizzabrunch.jpeg" src="https://web.archive.org/web/20160904015445im_/http://gothamist.com/attachments/nyc_nellcasey/042216pizzabrunch.jpeg" width="640" height="480"> <br> <i> (@BrunchBoys)</i></div> <p></p>
+
+<p>The Put An Egg On It edict is alive and well at <a href="https://web.archive.org/web/20160904015445/http://pizzabeachclub.com/home/">Pizza Beach LES</a>, who are launching their new Saturday and Sunday brunch this weekend. They&apos;ve come up with a few bonkers ways to celebrate traditional breakfast ingredients on a pie, including a Bacon, Egg and Cheese Pizza; an Avocado Pizza; a Lox &amp; Cream Cheese Pizza; and a Truffled Egg Pizza. If pizza&apos;s not your thing (<a href="https://web.archive.org/web/20160904015445/https://www.youtube.com/watch?v=SrDSqODtEFM">shame</a>), opt for Eggs in Purgatory with a spicy tomato sauce, Bacon Egg &amp; Cheese on Ciabatta or Italian oatmeal with farro, berries, mint, raisins, cranberries and nuts. </p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="033116AprilGuide15.jpg" src="https://web.archive.org/web/20160904015445im_/http://gothamist.com/attachments/nyc_nellcasey/033116AprilGuide15.jpg" width="640" height="427"> <br> <i> (via <a href="https://web.archive.org/web/20160904015445/https://www.facebook.com/bandbclassic/photos/pb.343542565784467.-2207520000.1459360447./608637335941654/?type=3&amp;theater">Facebook</a>)</i></div> <p></p>
+
+<p>The <a href="https://web.archive.org/web/20160904015445/http://www.baconandbeerclassic.com/#!nyc/c334">Bacon and Beer Classic</a> will return to Citi Field this year and offer you the perfect excuse to indulge in two of life&apos;s great pleasures. Craft drinks from over thirty breweries will keep you buzzed throughout the day, and bacon-themed plates from just as many restaurants will give you the fuel you need to go the distance during this fest that will take almost the entire ballpark and be filled with plenty of attractions, including a formally-judged contest to declare the best ale and pork strips in all the land. The Mets&apos; future is still murky at best, but you can nail a delicious double play with this one. Tickets for Saturday and Sunday are sold out, but <a href="https://web.archive.org/web/20160904015445/http://www.baconandbeerclassic.com/#!new-york-city-tickets/c8b5">Friday evening tickets</a> are still available for $79 - $139, depending on access level. <em>(Scott Heins)</em></p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="042216winson.jpeg" src="https://web.archive.org/web/20160904015445im_/http://gothamist.com/attachments/nyc_nellcasey/042216winson.jpeg" width="640" height="445"> <br> <i> Pork Buns (via <a href="https://web.archive.org/web/20160904015445/https://www.facebook.com/474780369348593/photos/a.545827805577182.1073741828.474780369348593/565732213586741/?type=3&amp;theater">Facebook</a>)</i></div> <p></p>
+
+<p>This Friday and next, April 29th, a <a href="https://web.archive.org/web/20160904015445/https://www.facebook.com/events/1069001289826395/">Taiwanese supper club</a> will be popping up at 159 Graham Avenue in Brooklyn to preview the grand opening of Taiwanese-American restaurant Win Son in May of this year. Win Son&apos;s Trigg Brown and Yumpling&apos;s Jeffrey Fann are collaborating with author Cathy Erway for the events, which&apos;ll begin at 6:30 p.m. or 8:30 p.m. On the menu this week: Pork Dumplings with Vegetables and Chile Oil, Big Chicken Bun with Billy Sauce and Herbs, and Taiwanese Pineapple Cake with a Glass of Sweet Soybean Milk with two other courses. <a href="https://web.archive.org/web/20160904015445/http://www.brownpapertickets.com/event/2542116">Tickets are $35</a> (does not include tip or drinks).</p>					
+										
+									
+				

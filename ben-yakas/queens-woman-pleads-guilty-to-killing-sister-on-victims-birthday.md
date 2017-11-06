@@ -1,0 +1,11 @@
+---
+author: Ben Yakas
+date: November  3, 2011  4:34 PM
+title: Queens Woman Pleads Guilty To Killing Sister On Victim's Birthday
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:240px; "> <img alt="11311webb.jpg" src="https://web.archive.org/web/20130718222633im_/http://gothamist.com/attachments/byakas/11311webb.jpg" width="240" height="240"> <br> <i>Victim Tara Webb</i></div> A Long Island City woman <a href="https://web.archive.org/web/20130718222633/http://www.nydailynews.com/news/crime/melanie-webb-long-island-city-woman-pleads-guilty-shooting-slay-sister-tara-vic-s-birthday-article-1.971848">pleaded guilty to shooting and killing her sister</a> the night of her sister&apos;s 27th birthday party. Melanie Webb, 25, admitted to fatally shooting her sister Tara Webb, as well as non-fatally shooting her sister&apos;s boyfriend Terrell Carmichael on March 26 in the Long Island City apartment they all shared. No motive was given for the shooting.<p></p>
+
+<p>The sisters had lived in the same Queensbridge Houses building together for the last ten years; more recently, Carmichael plus Tara Webb and Carmichael&apos;s four-year-old son had joined them there. Police initially suspected that Carmichael might have tried a murder-suicide, but that was ruled out quickly. Webb pleaded guilty to first-degree manslaughter in exchange for a sentence of 25 years behind bars and five years parole</p>
+
+<p>Back in the spring, Deshawn Casey, a friend of the sisters, <a href="https://web.archive.org/web/20130718222633/http://gothamist.com/2011/03/30/tragic_details_emerge_about_mom_kil.php">shed some light on the tragic circumstances</a> around the shooting, saying that the whole thing was an accident, and Tara was never the intended target: &quot;She wanted [Carmichael] out of the house and he started laughing at her, so she went and handled her business and Tara got caught in the crossfire,&quot; Casey said.</p>

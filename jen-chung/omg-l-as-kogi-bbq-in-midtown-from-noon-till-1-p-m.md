@@ -1,0 +1,11 @@
+---
+author: Jen Chung
+date: Jun 8, 2009 8:04 am
+title: OMG: LA's Kogi BBQ In Midtown From Noon Till 1 p.m.
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2009_06_kogi2.jpg" src="https://web.archive.org/web/20150504170853im_/http://gothamist.com/attachments/jen/2009_06_kogi2.jpg" width="130" height="147" class="image-right"> </span>When we <a href="https://web.archive.org/web/20150504170853/http://gothamist.com/2009/06/07/elsewhere_in_the_ist-a-verse_22.php">mentioned Kogi BBQ</a>, LA&apos;s breakout food truck, yesterday, a <a href="https://web.archive.org/web/20150504170853/http://gothamist.com/2009/06/07/elsewhere_in_the_ist-a-verse_22.php#comment-1874062">reader pointed out</a> that the Korean BBQ-inspired Mexican food will be available for one hour today!  The Kogi BBQ team, in town for a <a href="https://web.archive.org/web/20150504170853/http://www.citymeals.org/eventsnews/chefs-tribute">Citymeals-on-Wheels benefit</a>, explains on its website, &quot;It&#x2019;LL be the <a href="https://web.archive.org/web/20150504170853/http://www.desserttruck.com/">Dessert Truck</a> parked out on Lexington and 55th, but once those doors fLip open, it shaLL be the KoGi crew on the inside. We&#x2019;LL be there from noon-1PM and then POOF! we&#x2019;re outta there... NYC, let&#x2019;s kick it &#xE0; la ride-or-die styLe.&quot; And on its <a href="https://web.archive.org/web/20150504170853/http://twitter.com/kogibbq">Twitter feed</a>, it&apos;s the more intriguing: &quot;<strong>NYC, WE ARE COMING FOR YOUSE</strong>&quot; <a href="https://web.archive.org/web/20150504170853/http://midtownlunch.com/2009/06/07/breaking-las-kogi-bbq-korean-taco-truck-coming-to-midtown-on-monday/">According to Midtown Lunch</a>, there will be 200 Kogi-Dessert Truck sampling plates available for $4/plate&#x2014;dare we predict a foodie mob? For a little more on the Kogi madness, <a href="https://web.archive.org/web/20150504170853/http://laist.com/2008/12/04/kogi_bbq.php">check out this gallery from LAist</a>.</p>					
+										
+									
+				

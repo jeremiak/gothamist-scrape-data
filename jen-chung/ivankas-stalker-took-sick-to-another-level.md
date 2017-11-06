@@ -1,0 +1,17 @@
+---
+author: Jen Chung
+date: Apr 2, 2010 12:28 pm
+title: Ivanka's Stalker "Took Sick To Another Level"
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2010_03_ivankas.jpg" src="https://web.archive.org/web/20170713142558im_/http://gothamist.com/attachments/jen/2010_03_ivankas.jpg" width="640" height="312" class="image-none"> </span></p>
+
+<p>At a court hearing yesterday, prosecutors revealed that the man accused of<a href="https://web.archive.org/web/20170713142558/http://gothamist.com/2010/03/19/man_obsessed_with_ivanka_trump_arre.php"> stalking socialite Ivanka Trump</a> allegedly threatened her and her husband.  The <a href="https://web.archive.org/web/20170713142558/http://www.nypost.com/p/news/local/manhattan/terror_of_mNrPlSTeGIuqdha76Z1yQM">Post reports</a>, &quot;From August 2009, [Justin] Massler, who legally changed his name to Cloud Starchaser, set up fan Web sites, penned gushy love letters and scolding screeds, drew loony cartoons of Ivanka rescuing him -- and once sent photos of himself drenched in red liquid that looked like blood.&quot; One source told the paper, &quot;Without a doubt, he is very sick. He took sick to another level. This is one of the worst cases of stalking I&apos;ve ever seen.&quot;</p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2010_03_trumpk.jpg" src="https://web.archive.org/web/20170713142558im_/http://gothamist.com/attachments/jen/2010_03_trumpk.jpg" width="140" height="162" class="image-left"> </span>Massler also <a href="https://web.archive.org/web/20170713142558/http://www.nydailynews.com/gossip/2010/04/02/2010-04-02_ivanka_stalk_susp_ill_kill_myself_in_her_jewelry_shop.html">threatened to kill himself</a> in her jewelry store and one of Massler&apos;s Tweets stated, &quot;I used to stalk her but psychiatrists chased me out of NYC, so I can&apos;t now.&quot;  Massler also allegedly emailed Trump&apos;s husband Jared Kushner, publisher of the NY Observer,  &quot;I am the king of the Jews and I have decided to commandeer the New York Observer for this purpose which I can do since it is owned [by] Jared Kushner who is a Jew and therefore one of my subjects,&quot; and was upset that Trump was <a href="https://web.archive.org/web/20170713142558/http://gothamist.com/2009/10/26/trump_kushner_to_follow_nj_wedding.php">getting married</a>, &quot;Jared Kushner has stolen everything from me, leaving me with nothing. Jared Kushner has ruined my life for all time and eternity. Thanks to Kushner, there is no sun in the sky, no stars in the wind and no moon in the trees.&quot;</p>
+
+<p>Massler&apos;s lawyer, who represented Uma Thurman&apos;s <a href="https://web.archive.org/web/20170713142558/http://gothamist.com/2008/05/03/umas_stalker_wa.php">stalker Jack Jorda</a>n (who was<a href="https://web.archive.org/web/20170713142558/http://gothamist.com/2008/05/06/uma_thurman_sta.php"> found guilty</a>), said his client was never going to hurt the glamorous couple, &quot;The reason we&apos;re here, your honor, is because we&apos;re dealing with the Trump family.&quot; The 27-year-old was released on $10,000 bail and reportedly flashed the thumbs up sign.</p>					
+										
+									
+				

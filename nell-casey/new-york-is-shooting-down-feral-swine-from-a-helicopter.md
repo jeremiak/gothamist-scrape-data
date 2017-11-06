@@ -1,0 +1,17 @@
+---
+author: Nell Casey
+date: Jan 31, 2014 2:43 pm
+title: New York Is Shooting Down Feral Swine From A Helicopter
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="013114wildboar.jpg" src="https://web.archive.org/web/20140309175624im_/http://gothamist.com/attachments/nyc_nellcasey/013114wildboar.jpg" width="640" height="427"> <br> <i> <span class="photo_caption">(<a href="https://web.archive.org/web/20140309175624/http://www.shutterstock.com/gallery-1128992p1.html">Neil Burton</a>/<a href="https://web.archive.org/web/20140309175624/http://www.shutterstock.com/index-in.mhtml">Shutterstock</a>)</span></i></div> <p></p>
+
+<p>Run for your lives, little piggies, because the Big Bad Department of Agriculture is coming to blow you away...from the <em>skies</em>. It seems that New York state has been quietly battling a wild pig problem, and the USDA has escalated their efforts by arming a team of federal wildlife agents with sniper rifles and <a href="https://web.archive.org/web/20140309175624/http://www.watershedpost.com/2014/bad-news-boars-helicopter-crew-fights-ny-feral-swine">sticking them in a helicopter</a>. Watershed Post reports that on January 28th the team took to the skies to survey rural parts of the state with the idea to track populations of the feral swine and determine what can be done to stop the population.</p>
+
+<p>But it&apos;s not just about taking notes. &quot;The main goal is to survey, to see if we can find any from the air, where are they, how many,&quot; explains DEC wildlife biologist Kelly Stang. &quot;If they do have the opportunity to shoot them, they will take that shot.&quot; It&apos;s the first time executions by helicopter have taken place in New York state, but the team carrying out this operation has been on similar missions on the East Coast. &quot;USDA&apos;s got all the good toys. They&apos;ve got night scopes, silencers, everything else,&quot; gushes farmer Peter Andersen.<strong> &quot;They&apos;re well equipped to take these pigs out.&quot;</strong></p>
+
+<p>Feral swine sound kinda cute and possibly good for supper, but in fact the critters are incredibly dangerous and destructive. Pig populations have already <a href="https://web.archive.org/web/20140309175624/http://blog.gulflive.com/mississippi-press-news/2013/02/wild_hog_population_cutting_de.html">taken over Mississippi</a> and <a href="https://web.archive.org/web/20140309175624/http://chronicle.augusta.com/news/metro/2012-08-05/feral-hog-control-sometimes-warrants-military-solution">taken on the military</a> in Florida. The 400 pound animals can be aggressive and have been known to <a href="https://web.archive.org/web/20140309175624/http://www.reuters.com/article/2011/07/29/us-wildboar-newyork-idUSTRE76S3I220110729">kill pets</a> and other small animals. Their <a href="https://web.archive.org/web/20140309175624/http://www.thebraiser.com/new-york-resorts-to-shooting-feral-pigs-from-helicopters/">sharp, four-inch tusks</a> don&apos;t look particularly friendly; guess we know why they&apos;re not <a href="https://web.archive.org/web/20140309175624/https://www.facebook.com/SerBoar">hunting Westeros-style</a>. </p>					
+										
+									
+				

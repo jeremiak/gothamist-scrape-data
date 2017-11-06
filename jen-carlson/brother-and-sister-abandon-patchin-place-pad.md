@@ -1,0 +1,11 @@
+---
+author: Jen Carlson
+date: December 31, 2007 10:55 AM
+title: Brother and Sister Abandon Patchin Place Pad
+---
+
+<p><img alt="200712patchin.jpg" src="https://web.archive.org/web/20120515214701im_/http://gothamist.com/attachments/arts_jen/200712patchin.jpg" width="240" height="160" class="right">New Yorkers have been known to live in some pretty dismal conditions just to avoid the hassle of finding another apartment. Roaches, rats, mice, bedbugs, loud neighbors with thin walls, odd smelling hallways...but where does one draw the line? <a href="https://web.archive.org/web/20120515214701/http://www.nypost.com/seven/12302007/news/regionalnews/renters_flee_kinky_clinic_407695.htm">The Post</a> has a story about a brother and sister who ran screaming from their new Greenwich Village digs after finding out it was above a clinic for sexual deviants.</p><blockquote>William and Amy Grace claim landlord Dr. Christine Samuels never told them the truth about their new home, and now they are suing in Manhattan Supreme Court to get back their $22,500 deposit.<p></p>
+
+<p>They say Samuels misrepresented the apartment by not telling them that her practice treats sex addicts and sexual aggressors and is called The Sex Addiction and Training Institute.</p></blockquote>C&apos;mon, sex addicts going to their weekly routine scream therapy session is <em>still</em> better than having bedbugs. Nonetheless, their lawyer says they packed their bags and left after less than a week. Fun fact about Patchin Place, where the two fled from: e.e. cummings lived there after escaping army life; it&apos;s been <a href="https://web.archive.org/web/20120515214701/http://harvardmagazine.com/2005/03/the-rebellion-of-ee-cumm.html">noted</a> that this is &quot;where he threw himself into writing, painting, and sexual adventure.&quot; So what did they expect, really?<p></p>
+
+<p><em>Photo via <a href="https://web.archive.org/web/20120515214701/http://www.flickr.com/photos/wallyg/371382868/">WallyG&apos;s Flickr</a>.</em></p>

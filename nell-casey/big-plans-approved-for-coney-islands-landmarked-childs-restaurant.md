@@ -1,0 +1,19 @@
+---
+author: Nell Casey
+date: Jul 10, 2013 5:22 pm
+title: Big Plans Approved For Coney Island's Landmarked Childs Restaurant 
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="childsconey0812.jpeg" src="https://web.archive.org/web/20160222114528im_/http://gothamist.com/attachments/nyc_nellcasey/childsconey0812.jpeg" width="640" height="424"> <br> <i> <span class="photo_caption">(<a href="https://web.archive.org/web/20160222114528/http://www.flickr.com/photos/sixeight/91046895/">sixeight</a>/Flickr)</span></i></div> <p></p>
+
+<p>Marty Markowitz&apos;s <a href="https://web.archive.org/web/20160222114528/http://gothamist.com/2012/08/22/coney_islands_landmarked_childs_res.php">longtime dream</a> finally comes true now that the Landmarks Preservation Commission has approved plans to rehabilitate the long-vacant Childs Restaurant structure on Coney Island. Yesterday the LPC unanimously approved plans proposed by <a href="https://web.archive.org/web/20160222114528/http://www.gkvarchitects.com/">GKV Architects</a>, which includes repairing existing details like the terracotta facade and converting the space to hold an amphitheater, restaurant and other public amenities. &quot;The LPC has taken a major step towards ensuring that&#x2014;rain or shine&#x2014;the show will go on in Coney Island and America&#x2019;s Playground will continue to grow bigger and better than ever,&#x201D; Markowitz said. </p>
+
+<p>The <a href="https://web.archive.org/web/20160222114528/http://www.nydailynews.com/new-york/brooklyn/grandfather-childs-article-1.1394348?localLinksEnabled=false">$53 million Seaside Park and Community Arts Center</a> includes a 5,000 capacity amphitheater&#x2014;plus room for 2,000 more in the park behind it&#x2014;with a retractable roof, which will host concerts between May and October. The space will also house a restaurant and though the operator has yet to be chosen, in all likelihood it will serve breakfast fare just like the original Childs. </p>
+
+<p>Along with the <a href="https://web.archive.org/web/20160222114528/http://gothamist.com/2013/04/11/coney_islands_parachute_jump.php">refurbished Parachute Jump</a>, the restored structure will brighten up a less frequented section of the boardwalk. Markowitz himself will provide most of the money to fund the project, leaving the city responsible for buying the building and the adjoining lot. Though Commissioner Frederick Bland worried the project lacked &quot;gaiety,&quot; he probably just wasn&apos;t picturing <a href="https://web.archive.org/web/20160222114528/http://gothamist.com/2013/04/12/photos_marty_markowitz_throws_150k.php#photo-1">Marty&apos;s inevitable visits</a>. </p>
+
+<p style=" margin: 12px auto 6px auto; font-family: Helvetica,Arial,Sans-serif; font-style: normal; font-variant: normal; font-weight: normal; font-size: 14px; line-height: normal; font-size-adjust: none; font-stretch: normal; -x-system-font: none; display: block;">   <a title="View Childs Restaurant Final Plans on Scribd" href="https://web.archive.org/web/20160222114528/http://www.scribd.com/doc/152998879/Childs-Restaurant-Final-Plans" style="text-decoration: underline;">Childs Restaurant Final Plans</a></p><iframe class="scribd_iframe_embed" src="https://web.archive.org/web/20160222114528if_/http://www.scribd.com/embeds/152998879/content?start_page=1&amp;view_mode=scroll&amp;show_recommendations=true" data-auto-height="false" data-aspect-ratio="undefined" scrolling="no" id="doc_73097" width="100%" height="600" frameborder="0"></iframe>					
+										
+									
+				

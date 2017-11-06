@@ -1,0 +1,13 @@
+---
+author: Jen Carlson
+date: March 30, 2012  6:04 PM
+title: MTV Is Finally Bringing Back Some Old Programming
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="basquiatartbreaks.jpeg" src="https://web.archive.org/web/20130513142317im_/http://gothamist.com/attachments/arts_jen/basquiatartbreaks.jpeg" width="343" height="280" class="image-right"> </span>Any move that <a href="https://web.archive.org/web/20130513142317/http://gothamist.com/tags/mtv">MTV</a> makes backwards is a good one at this point, so it was with great joy we read a press release today announcing the comeback of Art Breaks, their 1985 tv spots created by downtown New York artists. For the reincarnation of the project, the network has teamed up with MoMA PS1 and Creative Time, who announced today that they&apos;ll debut the first &quot;Break&quot; on MTV, MTV.com, MTV&#x2019;s Facebook page <em>and</em> a dedicated Tumblr page beginning Monday, April 2nd. They will continue throughout the year. </p>
+
+<blockquote>Art Breaks builds on MTV&#x2019;s rich legacy of introducing its audience to vanguard video art, including early work from Keith Haring, Jean&#x2010;Michel Basquiat, Spike Jonze, Kenny Scharf and Doug Aitken, as well as Andy Warhol&#x2019;s 15 Minutes.&#xA0;The first five videos in the new series include works by Rashaad Newsome, Mickalene Thomas, Tala Madani, Jani Ruscica, and Mads Lynnerup.</blockquote>
+
+<p>President of MTV, Stephen Friedman says, &#x201C;Creative expression and experimentation are at the core of MTV&#x2019;s DNA. Through this groundbreaking collaboration with MoMA PS1 and Creative Time, we&#x2019;re thrilled to use the enormous power of television to introduce audiences around the world to this pioneering art work.&#x201D; He made no comment on MTV plans to introduce audience to <em>music</em> again, however. Check out an old clip of Basquiat:</p>
+
+<center><embed src="https://web.archive.org/web/20130513142317oe_/http://media.mtvnservices.com/mgid:uma:video:mtv.com:753897/cp~vid%3D753897%26uri%3Dmgid%3Auma%3Avideo%3Amtv.com%3A753897" width="512" height="288" type="application/x-shockwave-flash" allowfullscreen="true" allowscriptaccess="always" base="."><div style="margin:0px;padding:4px;width:500px;text-align:center;font-family:Verdana,sans-serif;font-size:12px;"><a href="https://web.archive.org/web/20130513142317/http://artbreaks.mtv.com/" style="color:#439CD8;" target="_blank">Art Breaks</a> - <a href="https://web.archive.org/web/20130513142317/http://www.mtv.com/ontv/" style="color:#439CD8;" target="_blank">MTV Shows</a></div></center>

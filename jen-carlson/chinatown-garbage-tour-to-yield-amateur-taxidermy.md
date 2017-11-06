@@ -1,0 +1,11 @@
+---
+author: Jen Carlson
+date: March 17, 2008  4:54 PM
+title: Chinatown Garbage Tour to Yield Amateur Taxidermy
+---
+
+<p><img alt="200803hilln.jpg" src="https://web.archive.org/web/20110629185841im_/http://gothamist.com/attachments/arts_jen/200803hilln.jpg" width="180" height="270" class="left">Bringing together taxidermy, <a href="https://web.archive.org/web/20110629185841/http://gothamist.com/2007/08/24/freegan.php">freeganism</a> and art -- Nate Hill has created a not-for-the-faint-of-heart event called the New York City Chinatown Garbage Tour. <a href="https://web.archive.org/web/20110629185841/http://stoproadkill.org/welcome.html">Hill is an artist</a> who makes new animals from dead animal parts; he explains his craft: &quot;I sew together random animal parts to make a new animal that doesn&apos;t really exist. Many of the parts I have used over the years have come from Chinatown&apos;s garbage.&quot; Earlier this year he opened his <a href="https://web.archive.org/web/20110629185841/http://stoproadkill.org/adamproject.html">A.D.A.M. Project</a> (A Dead Animal Man), you can view some photos <a href="https://web.archive.org/web/20110629185841/http://flickr.com/photos/kevinwalsh/sets/72157603802996162">here</a>.</p>
+
+<p>He&apos;s found sharks, frogs and we&apos;re guessing many, many rats while dipping his hands in garbage cans around town, creating new life from the lifeless (see photo; more after the jump). Want to become a <a href="https://web.archive.org/web/20110629185841/http://www.roguetaxidermy.com/">rogue taxidermist</a> yourself? Head over to the SE corner of Canal and Lafayette at 9 p.m. next Thursday (3/27) and Hill will take you on a tour of the best trash bins around (<a href="https://web.archive.org/web/20110629185841/http://stoproadkill.org/chinatowngarbagetour.html">more details here</a>). He promises &quot;a haphazard display of how to put animals together on the ground&quot; and, of course, appetizers...so come hungry!</p>
+
+<p>If you practice practice practice, you may just be the shining star at the next Secret Science Club <a href="https://web.archive.org/web/20110629185841/http://gothamist.com/2007/11/05/pictures_of_the.php">taxidermy night</a>. Move over, <a href="https://web.archive.org/web/20110629185841/http://www.sideshowworld.com/SSA-15.html">Takeshi Yamada</a>! </p>

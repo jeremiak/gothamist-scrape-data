@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: October 22, 2008 10:57 AM
+title: City Shelter Worker Borrows $600. From Homeless Man.
+---
+
+<p><img alt="2008_10_cash2.jpg" src="https://web.archive.org/web/20110811102054im_/http://gothamist.com/attachments/jen/2008_10_cash2.jpg" width="130" height="102" class="right">The <a href="https://web.archive.org/web/20110811102054/http://www.nypost.com/seven/10222008/news/regionalnews/city_shelter_worker_hit_up_homeless_guy__134727.htm">NY Post</a> suggests that a &quot;homeless man was better off than the city employee paid to protect him,&quot; because the employee--Department of Homeless Services security officer Robert Proctor--borrowed $600 from the homeless man in November 2006.  Apparently the homeless man filed a complaint against Proctor when he only paid back $350 of the money by March 2007.  Proctor admitted he violated the City Charter and &quot;agreed to a 10-day suspension, worth $1,499.50, a loss of 10 vacation days, which total $770 in value, and a one-year probation period.&quot;  He has also since paid off the loan. Other things the Conflicts of Interests Board has been dealing with: <a href="https://web.archive.org/web/20110811102054/http://www.nydailynews.com/blogs/dailypolitics/2008/10/coib-no-conflict-to-consider-t.html">Term limits</a>.</p>

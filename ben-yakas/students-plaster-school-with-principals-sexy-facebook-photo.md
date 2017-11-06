@@ -1,0 +1,17 @@
+---
+author: Ben Yakas
+date: Dec 3, 2011 2:40 pm
+title: Students Plaster School With Principal's Sexy Facebook Photo
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:365px; "> <img alt="12311sexyfb.jpg" src="https://web.archive.org/web/20150224062126im_/http://gothamist.com/attachments/byakas/12311sexyfb.jpg" width="365" height="315"> <br> <i><a href="https://web.archive.org/web/20150224062126/http://schools.nyc.gov/SchoolPortals/08/X650/default.htm">Jane Addams High School</a> Principal Sharron Smalls and a bare-chested friend get friendly</i></div> Things are not looking good for Sharron Smalls, the principal of the troubled Jane Addams High School in the South Bronx. It was bad enough that her &quot;persistently low-achieving&quot; school got <a href="https://web.archive.org/web/20150224062126/http://gothamist.com/2011/03/03/public_hss_filled_with_ipods_sleepi.php">a terrible independent external review</a> which recommended it be shut down&#x2014;she&apos;s also become embroiled in a <a href="https://web.archive.org/web/20150224062126/http://www.nydailynews.com/new-york/ed-dept-probes-principal-sharron-smalls-credit-scam-jane-addams-h-s-south-bronx-article-1.984905">massive course credit scandal</a>. Students have turned on her now too, accusing her of <a href="https://web.archive.org/web/20150224062126/http://www.nydailynews.com/new-york/principal-sharron-smalls-charged-free-parking-jane-addams-high-teachers-article-1.984928">charging them for free parking</a>. Oh, and they also plastered <a href="https://web.archive.org/web/20150224062126/http://www.nydailynews.com/new-york/principal-sharron-smalls-jane-addams-high-school-bronx-sexy-facebook-picture-article-1.986134">a scantily clad photo of her</a> grinding with a half-naked man around the school.<p></p>
+
+<p>Teachers and parents are furious that Smalls allegedly gave students chemistry credits for cosmetology courses and geography credits for tourism classes; more than 100 seniors may not graduate as a result. Students say her bad judgment extends to her online presence: Smalls left the photo, in which the man appears to be showering her with chocolate, up as her Facebook profile. The picture got passed around by kids in an email chain before they were printed out and taped up in the school this week. </p>
+
+<p>&#x201C;I cannot believe my principal would dance like that,&#x201D; said 18-year-old senior Christine Daniels. &#x201C;She doesn&apos;t want us to come to school with short shorts and then she turns around and does this,&#x201D; said 17-year-old senior Tehrra Smith, referring to Smalls&apos; &#x201C;the thug look is out&quot; dress code. &#x201C;It&#x2019;s gonna be bad for college, very bad.&#x201D;</p>
+
+<p>An <a href="https://web.archive.org/web/20150224062126/http://gothamist.com/2011/03/03/public_hss_filled_with_ipods_sleepi.php">independent external review of the F-rated school</a>, which graduated only 48 percent of its students last year, found damning evidence of a lack of learning at the school: &quot;After visiting 51 classes, the team determined that there was little evidence of learning taking place...Students were observed listening to headphones and communicating on mobile devices -- including telephone and text messages&#x2014;in hallways and in classrooms. Students were observed asleep in many classes.&quot;</p>					
+										
+									
+				

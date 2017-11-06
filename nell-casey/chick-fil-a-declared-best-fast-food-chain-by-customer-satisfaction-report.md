@@ -1,0 +1,25 @@
+---
+author: Nell Casey
+date: Jun 21, 2016 5:10 pm
+title: Chick-Fil-A Declared Best Fast Food Chain By Customer Satisfaction Report
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="010316chickfila.jpg" src="https://web.archive.org/web/20161025143221im_/http://gothamist.com/attachments/nyc_nellcasey/010316chickfila.jpg" width="640" height="426"> <br> <i> (Scott Heins/Gothamist)</i></div> <p></p>
+
+<p>Like Middle Schoolers and <a href="https://web.archive.org/web/20161025143221/http://gothamist.com/2012/08/01/c_is_for_crappy_2012_subway_report.php">subway systems</a>, things like retails stores, banks and airlines are subject to yearly report cards by the <a href="https://web.archive.org/web/20161025143221/http://www.theacsi.org/">American Customer Satisfaction Index</a>, who survey the public on a wide spectrum of industries to see how companies compare to one another and to a broader view of American commerce. <a href="https://web.archive.org/web/20161025143221/http://gothamist.com/2016/06/09/twc_can_suck_it.php">Unsurprisingly</a>, the internet service provider industry ranks dead last in satisfying us; if the infinite patience of Captain Picard has been <a href="https://web.archive.org/web/20161025143221/http://gothamist.com/2012/09/14/even_patrick_stewart_cant_get_time.php">tested</a>, there&apos;s little hope for the rest of us.</p>
+
+<p>Among the industries ranked by the ACSI are restaurants, specifically national chains including sit-down (full-service) and fast food (limited service). Participants in the survey are asked to rank the chains on things like menu variety, cleanliness and courtesy of the staff. The results are then transformed into a ranking of places that received the best (and worst) marks [<a href="https://web.archive.org/web/20161025143221/https://consumermediallc.files.wordpress.com/2016/06/acsi-restaurant-report-2016.docx">downloadable version</a>], which is then compared to data compiled in the previous year. </p>
+
+<p>The 2016 results? All hail supreme leader Chick-Fil-A.</p>
+
+<p>The chicken chain scored the highest ranking of any fast-food (or full-service) eatery in the United States, scoring 87 points out of a possible 100, up one point since last year&apos;s ranking. There have been <a href="https://web.archive.org/web/20161025143221/http://gothamist.com/2016/04/12/chick-fil-a_everywhere.php">big moves</a> made by the company to expand into other markets, which could be reflected in this year&apos;s rankings. We&apos;d hope it&apos;s not because of their <a href="https://web.archive.org/web/20161025143221/http://gothamist.com/2016/06/06/anthony_bourdain_chick-fil-as_chair.php">&quot;really stupid, offensive&quot; views</a>, but <a href="https://web.archive.org/web/20161025143221/http://gothamist.com/tags/donaldtrump">at this point</a>, anything horrible is possible.</p>
+
+<p>Also notable in the limited-service category: <strike>Peyton Manning pizza</strike> Papa John&apos;s is the most popular of the &quot;pizza&quot; chains and overall second place in the rankings, with Little Caesar&apos;s not far behind. The embattled Chipotle had a <a href="https://web.archive.org/web/20161025143221/http://gothamist.com/2016/06/19/chipotle_bosses_accused_of_distorti.php">no good</a>, <a href="https://web.archive.org/web/20161025143221/http://gothamist.com/2015/11/20/taco_bell_it_is.php">very bad</a> year indeed, dropping five points since last year for a score of 78. But McDonald&apos;s still faces the biggest uphill battle at 69, even if <a href="https://web.archive.org/web/20161025143221/http://gothamist.com/2016/01/25/breakfast_saved_mcdonalds.php">its big breakfast push</a> gave it a two point bump since 2015.</p>
+
+<p>The top full-service rankings don&apos;t have much relevance within the five boroughs, as the city has no Cracker Barrels or Texas Roadhouses (#1 and #3, respectively) and only one LongHorn Steakhouse (#2). My beloved Applebee&apos;s gained a bit of traction this year, but overall full-service restaurants are down 2% across the board, though &quot;the industry overall remains very even.&quot;</p>
+
+<p>While the rise of a <a href="https://web.archive.org/web/20161025143221/http://gothamist.com/2011/11/02/chick-fil-as_charitable_foundation.php">morally bankrupt</a> national company and the fall of a <a href="https://web.archive.org/web/20161025143221/http://gothamist.com/2013/04/25/chipotle_momofuku_to_cut_back_50_of.php">slightly less</a> <a href="https://web.archive.org/web/20161025143221/http://gothamist.com/2016/06/19/chipotle_bosses_accused_of_distorti.php">corrupt</a> national company feels like a fitting metaphor for the current political and social climate, it&apos;s important to note that this survey only interviewed 4,786 customers out of the nearly 319 million people living in the United States. As with most things, it&apos;s always the squeaky wheel that gets the grease, which in this case, is being used to fry chickens.</p>					
+										
+									
+				

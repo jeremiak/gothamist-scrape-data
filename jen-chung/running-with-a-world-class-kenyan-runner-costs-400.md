@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: December 12, 2008  1:25 PM
+title: Running with a World-Class Kenyan Runner Costs $400
+---
+
+<p><img alt="2008_12_running.jpg" src="https://web.archive.org/web/20110623141458im_/http://gothamist.com/attachments/jen/2008_12_running.jpg" width="140" height="144" class="right">The <a href="https://web.archive.org/web/20110623141458/http://www.nytimes.com/2008/12/12/sports/othersports/12run.html?ref=nyregion">NY Times reports on a very original birthday gift</a>.  On his 40th birthday, Michael Chambers received a visit from <a href="https://web.archive.org/web/20110623141458/http://www.letsrun.com/2008/richard-kiplagat-0517.php">Richard Kiplagat</a>, former star Iona runner.  Chambers, an investor, is an avid runner inspired by Kenyan runners.  His family, who already planned a gift of a trip to Kenya, called up the New York Road Runners Club, asking if there was a Kenyan runner who could run with Chambers: &quot;Sam Grotewold, manager of professional athletes for the Road Runners, made the connection with Kiplagat&#x2019;s manager. Kiplagat was game. <strong>Not having a precedent for such a gift, they decided on the rather arbitrary figure of $400.</strong>&quot;  Kiplagat, who used to run five miles to and from school (barefoot) as a child in Kenya, ran with Chambers in Hudson River Park and told the Times, &quot;When it comes to running, I&#x2019;m always ready to do it.&quot;</p>

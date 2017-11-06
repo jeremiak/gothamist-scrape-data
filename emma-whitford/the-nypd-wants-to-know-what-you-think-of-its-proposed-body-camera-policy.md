@@ -1,0 +1,45 @@
+---
+author: Emma Whitford
+date: Jun 29, 2016 3:07 pm
+title: The NYPD Wants To Know What YOU Think Of Its Proposed Body Camera Policy
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="090514copcam.jpg" src="https://web.archive.org/web/20170720180348im_/http://gothamist.com/attachments/nyc_ewhitford/090514copcam.jpg" width="640" height="551"> <br> <i> (Gothamist) </i></div> <p></p>
+
+<p>Ahead of a fall 2016 pilot project that will outfit 1,000 NYPD officers with <a href="https://web.archive.org/web/20170720180348/http://gothamist.com/2014/12/03/photos_de_blasio_bratton_introduce.php#photo-3">body cameras</a>, the NYPD today <a href="https://web.archive.org/web/20170720180348/https://policingproject.org/nypd-body-worn-camera-feedback/">launched an online survey</a> to solicit public feedback on how the technology should be applied. In addition to providing demographic information like race, gender and zip code, New Yorkers are asked to weigh in on how often body cameras should record&#x2014;during home searches, stop and frisks, traffic stops&#x2014;and when they should be turned off. The survey also asks how and when footage should be made available to the public. </p>
+
+<p>NYU Law School&apos;s <a href="https://web.archive.org/web/20170720180348/https://policingproject.org/">Policing Project</a> compiled an <a href="https://web.archive.org/web/20170720180348/https://policingproject.org/nypd-body-worn-camera-proposed-policy-fact-sheet/">online fact sheet</a> on the NYPD&apos;s proposed body camera policy that&apos;s worth skimming before you click through to the survey. Policing Project Director Barry Friedman said on Wednesday that NYU will share its findings with the department ahead of a final report on policy adjustments. </p>
+
+<p>&quot;I think groundbreaking is the word I&apos;d use,&quot; Friedman added. &quot;It&apos;s true that in all of government we regularly solicit public views, but that hasn&apos;t been true in policing.&quot;</p>
+
+<p>The NYPD&apos;s body camera pilot program debuted <a href="https://web.archive.org/web/20170720180348/http://gothamist.com/2014/12/03/photos_de_blasio_bratton_introduce.php#photo-3">on a much smaller scale</a> in December 2014, as part of the five-year oversight and reform plan outlined in the l<a href="https://web.archive.org/web/20170720180348/http://gothamist.com/tags/stopandfrisktrial">andmark federal stop-and-frisk trial</a>, <em><a href="https://web.archive.org/web/20170720180348/http://gothamist.com/2014/03/05/stop_and_frisk_nypd.php">Floyd v. City of New York</a></em>. That winter the NYPD outfitted a handful of officers in one precinct per borough&#x2014;specifically, precincts with the highest concentration of stop and frisks. </p>
+
+<p>Currently, members of the public and the media have to file a FOIL request for body camera footage under most circumstances&#x2014;a frustrating and <a href="https://web.archive.org/web/20170720180348/http://www.ny1.com/nyc/all-boroughs/news/2015/08/27/nypd-ready-to-hit-record-on-body-camera-pilot.html">largely fruitless endeavor</a>. </p>
+
+<p>Last fall, after the pilot was implemented, Public Advocate Letitia James sent a letter to the NYPD&apos;s federal monitor Peter Zimroth demanding that the footage gathered from the pilot body-camera program be made accessible to the public. &quot;As our City expands the use of police body cameras, we must avoid half-measures that would undermine real reform,&quot; she stated. </p>
+
+<p>Beyond &quot;Should the NYPD be required to show the footage to the person in it upon request?&quot; this survey asks explicitly whether cops should be required to hand over footage to reporters and advocacy groups, and release video pertaining to a &quot;high profile incident&quot; immediately&#x2014;say, <a href="https://web.archive.org/web/20170720180348/http://gothamist.com/2015/07/17/eric_garner_chokehold.php">Eric Garner&apos;s murder</a> at the hands of a police officer using an <a href="https://web.archive.org/web/20170720180348/http://gothamist.com/2014/07/18/de_blasio_eric_garner.php">illegal chokehold</a>&#x2014;regardless of the status of the investigation. </p>
+
+<p>Many questions in the survey are followed by a blank (optional) comment section. &quot;We encourage NYC residents, especially communities of color, public housing residents, and other individuals most likely to interact with police officers, to participate in the questionnaire,&quot; said <a href="https://web.archive.org/web/20170720180348/http://www.naacpldf.org/">Legal Defense Fund</a> council Angel Harris in a statement. </p>
+
+<p>The Policing Project conducted a similar survey [<a href="https://web.archive.org/web/20170720180348/https://policingproject.org/wp-content/uploads/2016/06/Report_Public-Feedback-on-the-CCPDs-Body-Worn-Camera-Policy.pdf">PDF</a>] earlier this year in Camden, NJ. The Camden PD ultimately revised its policy to mandate recording all police activities, not simply reported crimes; Camden residents can now acquire body camera footage if they are considering filing a complaint against an officer&#x2014;so long as the District Attorney doesn&apos;t decide that releasing the footage would compromise an ongoing investigation. </p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="062816_NYPD.jpeg" src="https://web.archive.org/web/20170720180348im_/http://gothamist.com/attachments/nyc_ewhitford/062816_NYPD.jpeg" width="640" height="602"> <br> <i> A question from the survey (via Policing Project). </i></div> <p></p>
+
+<p>Currently in English and Spanish, the survey will soon be available in Arabic, Chinese, Haitian Creole, Italian, Korean, Russian as well. It will be accessible until July 31st at midnight. </p>
+
+<p>Joo-Hyun Kang of <a href="https://web.archive.org/web/20170720180348/http://changethenypd.org/releases/cpr-calls-changes-nypd-body-camera-policy-ensure-transparency-independent-third-party">Change the NYPD</a> believes strongly that the NYPD should solicit feedback from the constituents its policies impact the most&#x2014;New Yorkers of color, as well as those who are homeless or transgender. She said on Wednesday that while the survey is a &quot;positive step,&quot; she wishes the department had added an option for homeless and transgender New Yorkers to identify themselves. She also wishes the survey period were longer than 30 days&#x2014;60 days at least&#x2014;especially since it&apos;s being dropped right before the 4th of July holiday. </p>
+
+<p>But Kang is most concerned that the survey fails to address how the footage might be managed or stored. Last winter in Chicago, she noted, the police <a href="https://web.archive.org/web/20170720180348/https://www.dnainfo.com/chicago/20160127/archer-heights/whats-behind-no-sound-syndrome-on-chicago-police-dashcams">blamed lost audio</a> corresponding with 80% of its dashcam footage on officer error and &quot;intentional destruction.&quot; In New York, Bratton has <a href="https://web.archive.org/web/20170720180348/http://gothamist.com/2015/10/22/cop_body_cameras.php">cited the high cost of storing body camera footage</a>; last fall he described the storage needs as &quot;phenomenal,&quot; and said that the city would need to decide when footage might be legally deleted (the current proposal is after six months, with a few exceptions like video involved in <a href="https://web.archive.org/web/20170720180348/http://gothamist.com/tags/ccrb">Criminal Complaint Review Board</a> cases, and use of force cases). Ideally, Kang believes an independent city agency should be in charge of the footage.</p>
+
+<p>&quot;The big question is, will the use of body worn cameras lead to more officer accountability,&quot; Kang added. &quot;In-and-of themselves, they&apos;re never going to be the solution to police brutality. What they <em>can</em> be is a tool for transparency.&quot; </p>
+
+<p>&quot;What&apos;s clear is that this is going to be policy that the NYPD sets. What we don&apos;t want to do is create an illusion that simply because there&apos;s public input, the outcome will be what we need, especially because who owns the footage is not being debated.&quot; </p>
+
+<p>Friedman said that the question of how the footage would be stored should be directed to the city, rather than the NYPD; the mayor&apos;s office did not immediately respond to a request for comment.</p>
+
+<p><strong>UPDATE:</strong> Mayoral spokeswoman Monica Klein stated that, &quot;Body camera footage will be handled and stored like all other evidence NYPD recovers during criminal investigations and law enforcement encounters,&quot; adding, &quot;an independent court-appointed monitor is overseeing the entire court-ordered 1,000 camera program.&quot; </p>					
+										
+									
+				

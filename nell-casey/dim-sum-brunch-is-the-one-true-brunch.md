@@ -1,0 +1,21 @@
+---
+author: Nell Casey
+date: Feb 19, 2016 10:32 am
+title: Dim Sum Brunch Is The One True Brunch
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="021916juelanclub.jpg" src="https://web.archive.org/web/20170324030812im_/http://gothamist.com/attachments/nyc_nellcasey/021916juelanclub.jpg" width="640" height="425"> <br> <i> (courtesy Jue Lan Club)</i></div> <p></p>
+
+<p>The clattering carts of the city&apos;s Chinatowns are a brunch meal everyone should experience, but dim sum can be procured outside those neighborhoods like at newly-opened <a href="https://web.archive.org/web/20170324030812/http://juelanclub.com/">Jue Lan Club</a>, which took over the former Limelight nightclub space last December. Executive Chef Oscar Toro is doing a Saturday and Sunday <strong>dim sum brunch</strong> beginning at 11 a.m., offering plates of gossamer-skinned Bone Marrow &amp; Prawn Dumplings ($15), the requisite Pan Fried Pork and Chive Dumplings ($13) and his Chinese Sausage &amp; Egg Dumplings ($8). It&apos;s not just dumplings on the menu, he&apos;s doing takes on spring rolls, wraps and other bao, in addition to larger plates of Chicken Egg Foo Young ($12) and Duck Salad ($15). </p>
+
+<p>On Saturday evening, <a href="https://web.archive.org/web/20170324030812/http://bowerystation.openhouse.me/">The Old Bowery Station</a> <a href="https://web.archive.org/web/20170324030812/http://gothamist.com/2015/12/07/yumpling_asian_street_food_pop-up.php">once again</a> hosts Taiwanese supper pop-up <a href="https://web.archive.org/web/20170324030812/https://www.facebook.com/yumpling"><strong>Yumpling</strong></a>, who are <a href="https://web.archive.org/web/20170324030812/https://www.universe.com/events/yumpling-taiwanese-food-feat-cathy-erway-nomz-tickets-new-york-SBW1T3">collaborating</a> with food writer Cathy Erway and food entrepreneur Anthony Wu for this month&apos;s event. On the menu, five courses celebrating the flavors of Taiwan, beginning with chilled five spice boiled peanuts and cod and garlic chive dumplings in hot chili oil, followed by Yan Su Ji (Salt and Pepper Popcorn Chicken) with Basil Yumpling Sauce, Soy-braised Oxtail and Cang Ying Tou, a dish made with garlic chives and ground pork. Dinners are $24 with reservations available in 15 minute increments beginning at 6 p.m.</p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="021916osaka.jpg" src="https://web.archive.org/web/20170324030812im_/http://gothamist.com/attachments/nyc_nellcasey/021916osaka.jpg" width="640" height="495"> <br> <i> (via <a href="https://web.archive.org/web/20170324030812/https://www.facebook.com/OsakaGrub/photos/pb.642356445909818.-2207520000.1455891138./743453849133410/?type=3&amp;theater">Facebook</a>)</i></div> <p></p>
+
+<p>The vendors of the <a href="https://web.archive.org/web/20170324030812/http://www.essexstreetmarket.com/#welcome">Essex Street Market</a> are traveling next door to the <a href="https://web.archive.org/web/20170324030812/http://www.thelowline.org/">Lowline Lab</a> for the <strong>Winter DayLife Pop-Up Food Festival</strong> on Sunday. Organizers are promising some indoor blossoms at the underground park in lieu of the actual outdoors, plus plenty of food to keep our winter bodies well-insulated. Saxelby Cheesemongers, Osaka Grub, Davidovich Bakery, Puebla Mexican Food, Arancini Bros., and more Essex vendors are tapped for the event, which runs from 11 a.m. to 5 p.m. <em>Cash Only</em></p>
+
+<p>While you <a href="https://web.archive.org/web/20170324030812/http://gothamist.com/2016/02/18/climate_change_rip_lobsters.php">still can</a>, sup on lobster at <a href="https://web.archive.org/web/20170324030812/http://www.eltoroblanconyc.com/">El Toro Blanco&apos;s</a> <strong>Sunday Lobster Night</strong>, where chef Josh Capon is serving Lobster Rosarito Style, a 1.5 pound grilled Maine lobster served with pico and garlic chili butter. The lobster, along with sides of rice and elote, runs $25, and the restaurant is also offering two lobster tacos topped with all the good stuff for $12.</p>					
+										
+									
+				

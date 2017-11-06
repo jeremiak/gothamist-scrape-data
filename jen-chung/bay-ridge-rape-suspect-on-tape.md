@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: September 20, 2008  9:44 AM
+title: Bay Ridge Rape Suspect on Tape
+---
+
+<p><img alt="2008_09_bayridr.jpg" src="https://web.archive.org/web/20111117121713im_/http://gothamist.com/attachments/jen/2008_09_bayridr.jpg" width="130" height="114" class="right">The NYPD <a href="https://web.archive.org/web/20111117121713/http://abclocal.go.com/wabc/story?section=news/local&amp;id=6402423">released surveillance footage</a> of the suspect in the Bay Ridge rape on Wednesday.  Police believe the man seen running down a street in the video raped a woman in her apartment building <a href="https://web.archive.org/web/20111117121713/http://gothamist.com/2008/09/18/woman_sexually_assaulted_in_bay_rid.php">on Wednesday morning</a>; he had apparently been <a href="https://web.archive.org/web/20111117121713/http://gothamist.com/2008/09/19/bay_ridge_rapist_asked_victim_for_f.php">lurking in and around the building</a>.  He <a href="https://web.archive.org/web/20111117121713/http://www.nydailynews.com/ny_local/brooklyn/2008/09/19/2008-09-19_brooklyn_rape_suspect_caught_on_tape.html">is now described</a> as &quot;white, between 30 and 40, and about 5-foot-10 with brown hair and brown eyes.&quot;  There is a $12,000 reward for information leading to his arrest and conviction.  Contact Crimestoppers at (800) 577-TIPS or text 274637 and enter &quot;TIP577.&quot;</p>

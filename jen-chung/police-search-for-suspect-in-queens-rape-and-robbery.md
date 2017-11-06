@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: August 26, 2008  9:09 AM
+title: Police Search for Suspect in Queens Rape and Robbery
+---
+
+<p><img alt="2008_08_qnsassault.jpg" src="https://web.archive.org/web/20110611054938im_/http://gothamist.com/attachments/jen/2008_08_qnsassault.jpg" width="130" height="102" class="right">Early yesterday morning, an 18-year-old woman was attacked in the Richmond Hill section of Queens.  <a href="https://web.archive.org/web/20110611054938/http://abclocal.go.com/wabc/story?section=news/local&amp;id=6348773">WABC 7 reports</a> the woman had been walking down a street when an man wielding a gun &quot;took her to the back of a building where she was robbed and sexually assaulted.&quot;  <a href="https://web.archive.org/web/20110611054938/http://www.nydailynews.com/news/ny_crime/2008/08/25/2008-08-25_queens_teen_raped_robbed_by_armed_thug_i.html">According to the Daily News</a>, the victim ran back home and &quot;hysterically pointed out her attacker to [her boyfriend] and his friends.&quot;  The group tried to chase the suspect, but he got into a waiting car.  The police do not think this incident is related to the two apparently serial rapists, but there was a recent gunpoint robbery in the neighborhood. The boyfriend said, &quot;<strong>If I find out who did it before the police find out, it&apos;s not going to be a happy case.</strong>&quot;  </p>

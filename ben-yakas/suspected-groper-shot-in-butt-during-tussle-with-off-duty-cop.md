@@ -1,0 +1,19 @@
+---
+author: Ben Yakas
+date: Dec 10, 2011 11:10 am
+title: Suspected Groper Shot In Butt During Tussle With Off-Duty Cop
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:365px; "> <img alt="121011shooting.jpg" src="https://web.archive.org/web/20150427151213im_/http://gothamist.com/attachments/byakas/121011shooting.jpg" width="365" height="237"> <br> <i><a href="https://web.archive.org/web/20150427151213/http://www.nbcnewyork.com/news/local/Harlem-Subway-Shooting-ACE-Train-Police-Off-Duty-Cop-135334618.html">via NBC</a></i></div> Yesterday, an off-duty cop <a href="https://web.archive.org/web/20150427151213/http://gothamist.com/2011/12/09/off-duty_cop_shoots_suspected_grope.php">shot an ex-con</a> with a long rap sheet during a confrontation at a Harlem subway station after two teenager girls accused him of groping them. Jacob Sanford, 22, <a href="https://web.archive.org/web/20150427151213/http://www.nbcnewyork.com/news/local/Harlem-Subway-Shooting-ACE-Train-Police-Off-Duty-Cop-135334618.html">is accused of groping</a> the two teens on their buttocks in the subway station at 125th Street and St. Nicholas Avenue around noon yesterday. And in the ensuing struggle with the off-duty officer who arrested him, Sanford was himself shot in the butt.<p></p>
+
+<p><a href="https://web.archive.org/web/20150427151213/http://www.nypost.com/p/news/local/manhattan/groper_shot_VSaBnlAfPDET83WwgibTIP?CMP=OTC-rss&amp;FEEDNAME=">Police say that </a>the 40-year-old officer, who hasn&apos;t been named yet, was waiting on the northbound D line platform of the station when an 18-year-old girl yelled that she had just been groped on the mezzanine level. Then a 13-year-old girl also started yelling, &#x201C;Mommy, the man groped me!&#x201D;&#x2014;the girl&#x2019;s mother shouted &#x201C;Police!&#x201D; at a station agent standing nearby. Police added that at some point, a witness yelled, &#x201C;You pervert, why don&#x2019;t you grab someone your own age!&#x201D;</p>
+
+<p>While the mother called 911, the 18-year-old pointed out the nearby Sanford, who was sitting on a bench between the uptown C and D tracks, to the off-duty cop. The cop identified himself and ordered Sanford to the floor; witnesses told police that they then saw Sanford pick up the officer as if he was going to flip or body-slam him, and heard him shout &quot;police&#x2014;get down&quot; before the shot was fired. </p>
+
+<p>Sanford, from the Bronx, was taken to Harlem Hospital in stable condition. Police said he has 19 unsealed prior arrests, including two separate arrestes for felony assaults on police officers and arrests for robbery, menacing, and reckless endangering. He has been charged on multiple counts of forcible touching, sexual abuse and endangering the welfare of a child.</p>
+
+<p><a href="https://web.archive.org/web/20150427151213/http://www.ny1.com/content/top_stories/152300/alleged-harlem-groper-charged-with-sex-abuse--child-endangerment">Subway riders told NY1</a> that Sanford was asking for trouble: &quot;He shouldn&apos;t have gotten shot, but at the same time they should know not to go around doing things like that. It&#x2019;s horrible. There&apos;s children on the train and they&#x2019;re going around doing these things,&quot; one straphanger said. Another person was even less sympathetic: &quot;Stop groping people. Who are you to go around groping someone? How dare you, [it&apos;s the] holidays and you want to go around groping people. Get a life, get over it.&quot;</p>					
+										
+									
+				

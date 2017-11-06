@@ -1,0 +1,19 @@
+---
+author: Jen Carlson
+date: Aug 14, 2007 11:12 am
+title: New Venue Alert: Terminal 5
+---
+
+	
+										<p><img alt="2007_08_arts_terminal5.jpg" src="https://web.archive.org/web/20150502110345im_/http://gothamist.com/attachments/arts_jen/2007_08_arts_terminal5.jpg" width="350" height="208" class="right">In their <a href="https://web.archive.org/web/20150502110345/http://gothamist.com/2007/06/07/bowery.php">quest to take over New York</a>, Bowery Presents is opening yet another venue! Ask just about anyone (<a href="https://web.archive.org/web/20150502110345/http://gothamist.com/band_interview">and</a> <a href="https://web.archive.org/web/20150502110345/http://gothamist.com/interview">we have</a>) and they&apos;ll say that the Bowery Ballroom is their favorite place to see and/or play music - so who better to open even more spaces than the creators of that one? </p>
+
+<p>The latest establishment will be in Midtown and is called <a href="https://web.archive.org/web/20150502110345/http://www.terminal5nyc.com/">Terminal 5</a> (the old <a href="https://web.archive.org/web/20150502110345/http://www.clubplanet.com/Venues/130501/New-York/Club-Exit">Club Exit</a>). Currently there are no photos, but in the meantime it looks like that Google Street View image is the outside building where the new venue is housed (it will be one door down from that car dealership on the corner). While it looks like a diversion aesthetically for <a href="https://web.archive.org/web/20150502110345/http://bowerypresents.com/">BP</a>, it keeps with the neighborhood - looking decidedly &quot;Midtown&quot;. According to the press release: &quot;Architect Brian Swier designed the multi-million dollar renovation of Terminal 5, creating a clean, open layout for the 40,000-square-foot multilevel venue.  A main floor with the performance space will feature 40&apos; ceilings, unobstructed sightlines, and state-of-the-art sound and lighting, and a first and second wrap-around mezzanine will provide excellent views to the stage from all areas of the venue.  Three bars -one on each level - will provide easy access to refreshments.&quot; </p>
+
+<p>Touting itself as the &quot;Largest Midtown Venue To Open In More Than a Decade,&quot; it&apos;s also the largest capacity venue for the Bowery Presents team to date (3000). Currently Mercury Lounge is 250, Bowery Ballroom is 550, Webster Hall is 2500 (incl. club)/1400 (main stage) and the Music Hall of Williamsburg (<a href="https://web.archive.org/web/20150502110345/http://gothamist.com/2007/06/20/wburg.php">opening in September</a>) has a capacity of 550. Another interesting note is that it seems they&apos;ll be branching out into the non-music world with this venue as well - they&apos;ve partnered with The Fred Seidler Group to book art and other special events.</p>
+
+<p>As for the music, the inaugural season will include performances by: The National, M.I.A., Justice, The Shins, The Decemberists and Ween. Doors will open in October, about a month after those at The Music Hall of Williamsburg. Our only small complaint would be the address: <a href="https://web.archive.org/web/20150502110345/http://maps.google.com/maps?q=610+W+56th+St,+New+York,+NY+10019,+USA&amp;ie=UTF8&amp;ll=40.76974,-73.992019&amp;spn=0.001014,0.002261&amp;t=k&amp;z=19&amp;om=0">610 West 56th Street</a> between 11th and 12th Avenues - that&apos;s a bunch of long post-show avenue walks to the subway in a fairly desolate area, but it <em>will</em> be creating a nice alternative to the nightmarish Roseland!</p>
+
+<p>Lineup and ticket details after the jump...</p>					
+										
+									
+				

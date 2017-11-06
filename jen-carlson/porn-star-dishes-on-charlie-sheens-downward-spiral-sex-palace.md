@@ -1,0 +1,15 @@
+---
+author: Jen Carlson
+date: Feb 1, 2011 11:20 am
+title: Porn Star Dishes On Charlie Sheen's Downward Spiral, Sex Palace
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="kcjordan0211.jpg" src="https://web.archive.org/web/20150503193749im_/http://gothamist.com/attachments/arts_jen/kcjordan0211.jpg" width="310" height="236" class="image-right"> </span>Allegedly <a href="https://web.archive.org/web/20150503193749/http://gothamist.com/tags/charliesheen">Charlie Sheen</a> dropped $500,000 on hookers and drugs in the six months before checking into <strike>rehab</strike> home this week. Doesn&apos;t that number seem a little <em>low</em>? This is the highest paid man on television, who cannot stop going on benders that involve freebasing, consuming &quot;mountains of cocaine and other drugs,&quot; binge drinking, and high paid escorts. And sometimes these benders happen in fancy hotels, and sometimes he has to buy his entourage escorts for the night, too! Anyway, the number just seems low&#x2014;but these are the <strike>facts</strike> rumors <a href="https://web.archive.org/web/20150503193749/http://www.radaronline.com/exclusives/2011/02/exclusive-interview-charlie-sheens-influential-assistant-im-going-do-everything-i">we&apos;re working with</a>, so let&apos;s just move along and pretend we live in a world where Charlie Sheen only spends $500K on hookers and blow every six months. </p>
+
+<p>This figure is just one of the things to come out as insiders and sources and friends of friends of family members begin to speak out. Amongst them is porn star <a href="https://web.archive.org/web/20150503193749/http://gothamist.com/2011/01/31/porn_star_in_nyc.php">Kacey Jordan</a>, who is currently in New York City dishing on the 36-hour sex, drugs and drinking bender she was a part of last week, just before Sheen was rushed to the hospital. She told GMA, &quot;I&apos;ve never seen someone so self-destructive and able to take in so much at once. I thought maybe it was almost like a suicide binge.&quot;</p>
+
+<p>Jordan was paid $30,000 to attend Sheen&apos;s party, and claims that the actor asked her if she could babysit his kids at a mansion he was setting up as his own personal sex palace. He allegedly told her, &quot;Can you babysit? I need a girl I can rely on to babysit, you know?&quot; (Well, she babysat <a href="https://web.archive.org/web/20150503193749/http://celebs.gather.com/viewArticle.action?articleId=281474979001747">for K-Fed</a>!) His ex-wife Denise Richards responded via Twitter, &quot;If you caught GMA today... FYI.. No &apos;adult film star&apos; will be babysitting our kids!&quot; Today&apos;s episode can be <a href="https://web.archive.org/web/20150503193749/http://abcnews.go.com/watch/good-morning-america/SH5587637/VD55108829/gma-131-kacey-jordan-speaks">viewed here</a>, the porn star tell-all is just after an Egypt update with Christiane Amanpour.</p>					
+										
+									
+				

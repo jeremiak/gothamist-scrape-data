@@ -1,0 +1,15 @@
+---
+author: Jen Chung
+date: Mar 26, 2010 6:00 pm
+title: Bloomberg LP Discrimination Suit May Go On Trial In 2011
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2010_03_pregnant.jpg" src="https://web.archive.org/web/20150426134151im_/http://gothamist.com/attachments/jen/2010_03_pregnant.jpg" width="200" height="179" class="image-left"> </span>After posting about the <a href="https://web.archive.org/web/20150426134151/http://gothamist.com/2010/03/25/lawsuit_claims_mommy_tracking_at_go.php">mommy-tracking lawsuit against Goldman Sachs</a>, we wondered where things stood with the Bloomberg LP discrimination suit, where a number of employees accuse the media information services company of <a href="https://web.archive.org/web/20150426134151/http://gothamist.com/2007/10/04/mayor_faulted_f.php">bias against  employees</a> who took maternity leave.  Now we know: Three more plaintiffs have <a href="https://web.archive.org/web/20150426134151/http://www.nytimes.com/2010/03/26/nyregion/26bloomberg.html?ref=nyregion">joined the class-action lawsuit</a>.  </p>
+
+<p>The <a href="https://web.archive.org/web/20150426134151/http://www.nytimes.com/2010/03/26/nyregion/26bloomberg.html?ref=nyregion">NY Times reports</a> that yesterday&apos;s hearing was &quot;testy&quot;&#x2014;Bloomberg LP&apos;s lawyer said at one point, &quot;If the plaintiffs wake up and see the error of their ways, and dismiss this case, this case will settle. Otherwise, this case will not settle. There is no appetite for settling the case. So I don&#x2019;t want your honor to think there&#x2019;s any easy way out of this.&quot;  And the <a href="https://web.archive.org/web/20150426134151/http://www.nydailynews.com/news/2010/03/25/2010-03-25_bloomberg_suit.html">Daily News reports</a> that the two sides also disagree (naturally!) on who will hear the case&#x2014;the judge, which is preferred by the company, or, the plaintiffs&apos; choice, a jury.  A lawyer for the Equal Employment Opportunity Commission, which filed the lawsuit after finding a pattern of discrimination, thinks the trial could start early next year.</p>
+
+<p>The plaintiffs claim that they received demotions, pay cuts and other barriers to the career when they took maternity leave.  While Mayor Bloomberg left his company in 2001 to be mayor  (he&apos;s still majority stockholder), the plaintiffs accuse him of creating a &quot;systemic, top-down culture of discrimination&quot; &#x2014;a former Bloomberg CEO allegedly said, &quot;I&apos;m not having any pregnant bitches working for me.&quot;  Bloomberg himself was <a href="https://web.archive.org/web/20150426134151/http://gothamist.com/2009/05/14/bloomberg_deposed_in_discrimination.php">deposed in last year</a> and may be asked to be testify.  </p>					
+										
+									
+				

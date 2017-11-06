@@ -1,0 +1,18 @@
+---
+author: Jen Chung
+date: Jan 6, 2009 9:58 am
+title: Manhattan DA Accuses Crane Rigger of Being Cheap
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2009_01_morgy2.jpg" src="https://web.archive.org/web/20150426150750im_/http://gothamist.com/attachments/jen/2009_01_morgy2.jpg" width="260" height="306" class="image-right"> </span>Manhattan District Attorney Robert Morgenthau <a href="https://web.archive.org/web/20150426150750/http://www.nypost.com/seven/01062009/news/regionalnews/crane_boss_in_cheap_trouble_147431.htm">slammed the crane rigger</a> who was responsible for a crane at a Midtown construction site, calling his actions &quot;shocking&quot; and &quot;outrageous.&quot;  The <a href="https://web.archive.org/web/20150426150750/http://gothamist.com/2008/03/15/midtown_crane_c.php">crane collapsed on March 15</a>, killing seven people, and yesterday Morgenthau (pictured) announced that William Rapetti would be charged with manslaughter, as well as criminally negligent homicide, reckless endangerment and second-degree assault.  </p>
+
+<p><a href="https://web.archive.org/web/20150426150750/http://www.nypost.com/seven/01062009/news/regionalnews/crane_boss_in_cheap_trouble_147431.htm">According to the Post</a>, Morgenthau detailed how Rapetti used worn and damaged nylon slings&#x2014;used to raise a 12,000 pound crane component&#x2014;instead of new ones: &quot;<strong>The construction manager had new slings available and offered them to Rapetti, but Rapetti rejected them... A sling costs $50, but Rapetti was willing to risk these lives by failing to use new slings.</strong>&quot;  Additionally, Rapetti and his crew only used four slings&#x2014;not the required eight&#x2014;to raise the equipment. The Daily News <a href="https://web.archive.org/web/20150426150750/http://www.nydailynews.com/news/ny_crime/2009/01/05/2009-01-05_contractor_william_rapetti_indicted_in_d.html">explains what happened</a>:</p><blockquote>While a crane collar is being connected it is temporarily suspended with nylon slings attached to the mast and collar.<br>
+Rapetti attached the four slings with a so-called choke knot, the weakest of three standard knots used in the operation, and tied them around sharp metal edges without protective padding, a violation of both city Building Code and federal law, the indictment said.<p></p>
+
+<p>When the damaged sling failed, the collar plummeted from the 19th floor, crashing into a collar around the mast at the 9th floor, cutting through it like butter, then hitting a collar on the third floor.</p>
+
+<p>The impact of 36,000 pounds of fast-falling steel severed the crane mast from the building. It toppled on the four-story townhouse on E. 50th St., smashing it and the Fubar tavern on the first floor to bits.</p></blockquote>Rapetti, whose company was also indicted, <a href="https://web.archive.org/web/20150426150750/http://www.nytimes.com/2009/01/06/nyregion/06crane.html?ref=nyregion">pleaded not guilty</a>.  His lawyer questioned the straps Morgenthau showed during the press conference, &quot;For them to rely on one strap of dozens or maybe more than dozens that were at that scene, it remains to be seen how strong that evidence really is. Because Bill Rapetti would not look at a strap that was even slightly worn and put it on a crane.&#x201D;<p></p>					
+										
+									
+				

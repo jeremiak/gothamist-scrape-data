@@ -1,0 +1,24 @@
+---
+author: Jen Carlson
+date: Dec 28, 2012 12:00 pm
+title: FBI Finally Releases "Communist" Marilyn Monroe's Unredacted Files
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="phpP0DgWmAM.jpeg" src="https://web.archive.org/web/20150415015148im_/http://gothamist.com/attachments/arts_jen/phpP0DgWmAM.jpeg" width="640" height="421" class="image-none"> </span><br>
+<span class="photo_caption">Miller and Monroe at the Waldorf Astoria Hotel, 1957. (via LIFE)</span></p>
+
+<p>The first systematic Hollywood blacklist&#x2014;which barred screenwriters, actors, directors and anyone in the industry that was a member of or sympathizer of the Communist Party&#x2014;was instituted on November 25, 1947. In the 1950s a <a href="https://web.archive.org/web/20150415015148/http://en.wikipedia.org/wiki/Red_Channels">Red Channels</a> (Report of Communist Influence in Radio and Television) pamphlet was published, which listed Arthur Miller as a communist. So when Miller started dating Marilyn Monroe in 1955, The Man started keeping an eye on her as well... and now an unredacted classified file has been released by the FBI, showing how the agency tracked her ties to the Reds.</p>
+
+<p><a href="https://web.archive.org/web/20150415015148/http://www.google.com/hostednews/ap/article/ALeqM5jZ82W8RAWqAi5zqYXxUSLOVE-h9A?docId=1e8fab7c454049e2a48cf341c5811c55">The AP</a> has been using the Freedom of Information Act to get the FBI to release files, which they claimed had been lost. The files have now been &quot;found,&quot; and reissued without the redactions that previously existed (which basically blacked everything out&#x2014;<a href="https://web.archive.org/web/20150415015148/http://vault.fbi.gov/Marilyn%20Monroe/Marilyn%20Monroe%20Part%202%20of%202/view">as you can see here</a>). </p>
+
+<p>With the black bars lifted, the files now reveal more details, as well as names of the actress&apos;s inner circle who were concerned about her association with <a href="https://web.archive.org/web/20150415015148/http://en.wikipedia.org/wiki/Frederick_Vanderbilt_Field">Frederick Vanderbilt Field</a>, who was known for his leftist views, the year of her death.</p><blockquote>&quot;A trip to Mexico earlier that year to shop for furniture brought her in contact with Field, who was living in the country with his wife in self-imposed exile. Informants reported to the FBI that a &apos;mutual infatuation&apos; had developed between Field and Monroe, which caused concern among some in her inner circle, including her therapist. &apos;This situation caused considerable dismay among Miss Monroe&apos;s entourage and also among the (American Communist Group in Mexico),&apos; the file states.&quot;</blockquote>The files also show an early tip that the agency documented&#x2014;on July 11th, 1956 they had received word about an anonymous phone call that was made to the NY Daily News, warning of the Miller/Monroe marriage and how the actress had &quot;drifted into the communist orbit&quot;&#x2014;specifically, that Marilyn Monroe Productions was &quot;filled with communists&quot; and that money from the company was being used to finance communist activities. In <em>Marilyn In Manhattan</em> (which you can <a href="https://web.archive.org/web/20150415015148/http://www.hulu.com/watch/387408">watch on Hulu</a>), much of the focus is on her escape from Hollywood and starting this production company (which she ran with photographer Milton Greene).<p></p>
+
+<p>In total, the files track Monroe for seven years, from 1955 through just before her death in 1962. The FBI&apos;s role in Monroe&apos;s life, and death, has been questioned in the past, including by the man who performed Monroe&apos;s autopsy, Dr. Thomas Noguchi. In his 1983 memoir he wrote that no one will ever know all the details of Monroe&apos;s death, noting that &quot;until the complete FBI files are made public and the notes and interviews of the suicide panel released, controversy will continue to swirl around her death.&quot;</p>
+
+<p>In the end, the FBI never seemed to find proof Monroe was a member in the party&#x2014;in July of 1962 the file states that the &quot;subject&apos;s views are very positively and concisely leftist; however, if she is being actively used by the Communist Party, it is not general knowledge among those working with the movement in Los Angeles.&quot;</p>
+
+<center><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="monroefiles1122.jpeg" src="https://web.archive.org/web/20150415015148im_/http://gothamist.com/attachments/arts_jen/monroefiles1122.jpeg" width="621" height="770" class="image-none"> </span></center>					
+										
+									
+				

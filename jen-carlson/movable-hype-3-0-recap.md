@@ -1,0 +1,15 @@
+---
+author: Jen Carlson
+date: Jun 21, 2005 11:00 am
+title: Movable Hype 3.0 Recap
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-right" style=" width:350px; "> <img alt="GLOMH3goth.jpg" src="https://web.archive.org/web/20160516222807im_/http://gothamist.com/attachments/arts_jen/GLOMH3goth.jpg" width="350" height="284"> <br> <i><span class="photo_caption"><a href="https://web.archive.org/web/20160516222807/http://www.flickr.com/photos/larimdame/20763231/">via</a></span></i></div> Last night&apos;s Movable Hype show was a great time, thanks to everyone who came out and to Nick <a href="https://web.archive.org/web/20160516222807/http://Catchdubs.com/">Catchdubs</a> for deejaying. And a very special thanks to <a href="https://web.archive.org/web/20160516222807/http://maningray.com/">all</a> <a href="https://web.archive.org/web/20160516222807/http://clapyourhandssayyeah.com/">of</a> <a href="https://web.archive.org/web/20160516222807/http://ghostlandobservatory.com/">the</a> <a href="https://web.archive.org/web/20160516222807/http://the-fame.com/">bands</a>. And did we mention that David Bowie even showed up?! Which, actually, we knew was going to happen, as he needed a reserved seat and list spots. Once he arrived he sat upstairs in the balcony with a baseball hat on and stayed through Clap Your Hands Say Yeah&apos;s set.<p></p>
+
+<p>Stay tuned for the next Hype, which will hopefully be taking place in August/September. In the meantime, we feel it&apos;s our duty to tell you that you MUST see <a href="https://web.archive.org/web/20160516222807/http://www.ghostlandobservatory.com/">Ghostland Observatory</a> (pictured at last night&apos;s show) again (or for the first time) while they&apos;re still in town this week. These guys are so amazing and we&apos;re pretty sure we kept hugging them and telling them so last night.  </p>
+
+<p>Dates are listed <a href="https://web.archive.org/web/20160516222807/http://www.austinist.com/archives/2005/06/16/local_boys_do_good_part_2.php">here</a>. <a href="https://web.archive.org/web/20160516222807/http://www.brooklynvegan.com/archives/2005/06/you_look_like_d.html">Brooklyn Vegan</a> has more on the show, as does Austinist editor <a href="https://web.archive.org/web/20160516222807/http://ilovebenbrown.com/post/26636232098/my-friend-jen-asked-that-i-repost-this-entry-from">Ben Brown</a> - who has been travelling with Ghostland on this tour. Above photo of Aaron of Ghostland taken by &quot;<a href="https://web.archive.org/web/20160516222807/http://www.flickr.com/photos/jenc/">us</a>&quot;. Brian V was also on hand documenting the night and you can see his photos <a href="https://web.archive.org/web/20160516222807/http://www.flickr.com/photos/brianvan/sets/482384/">here</a>.</p>					
+										
+									
+				

@@ -1,0 +1,19 @@
+---
+author: Jen Carlson
+date: Jun 18, 2015 3:50 pm
+title: Watch The Rolling Stones Handle The Press At Danceteria In 1980
+---
+
+	
+										<p>Almost exactly 35 years ago, The Rolling Stones were celebrating their album <em>Emotional Rescue</em> at <a href="https://web.archive.org/web/20150904080858/http://gothamist.com/tags/danceteria">Danceteria</a> on West 37th Street. In the video below, WABC anchor Peter Bannon declares that the June 26th event was a press party (with a &quot;Hospital Punk motif&quot;), which meant the Stones were &quot;guaranteed&quot; not to stay too long. While they did pose for the cameras, however, Bannon asked them, &quot;Can you do this forever?&quot; </p>
+
+<p><iframe width="640" height="480" src="https://web.archive.org/web/20150904080858if_/https://www.youtube.com/embed/qAJN5gNz_IU" frameborder="0" allowfullscreen></iframe></p>
+
+<p>Bannon also declares that &quot;rock n&apos; roll is 35 years old, no one expected it to be around this long,&quot; and here we are another 35 years later&#x2014;The Stones are touring, and rock n&apos; roll is alive.</p>
+
+<center><div class="getty embed image" style="background-color:#fff;display:inline-block;font-family:&apos;Helvetica Neue&apos;,Helvetica,Arial,sans-serif;color:#a7a7a7;font-size:11px;width:100%;max-width:594px;"><div style="overflow:hidden;position:relative;height:0;padding:73.569024% 0 0 0;width:100%;"><iframe src="//web.archive.org/web/20150904080858if_/http://embed.gettyimages.com/embed/150882203?et=FjT-d68KSIZcvgwF3zV9IA&amp;viewMoreLink=on&amp;sig=_UgXJH5I_yYCGniy0JzAMAbEeA_gOnY950krUGDHTL8=&amp;caption=true" width="594" height="437" scrolling="no" frameborder="0" style="display:inline-block;position:absolute;top:0;left:0;width:100%;height:100%;"></iframe></div><p style="margin:0;"></p><div style="padding:0;margin:0 0 0 10px;text-align:left;"><a href="https://web.archive.org/web/20150904080858/http://www.gettyimages.com/detail/150882203" target="_blank" style="color:#a7a7a7;text-decoration:none;font-weight:normal !important;border:none;display:inline-block;">View image</a> | <a href="https://web.archive.org/web/20150904080858/http://www.gettyimages.com/" target="_blank" style="color:#a7a7a7;text-decoration:none;font-weight:normal !important;border:none;display:inline-block;">gettyimages.com</a></div></div></center>
+
+<center><div class="getty embed image" style="background-color:#fff;display:inline-block;font-family:&apos;Helvetica Neue&apos;,Helvetica,Arial,sans-serif;color:#a7a7a7;font-size:11px;width:100%;max-width:594px;"><div style="overflow:hidden;position:relative;height:0;padding:66.666667% 0 0 0;width:100%;"><iframe src="//web.archive.org/web/20150904080858if_/http://embed.gettyimages.com/embed/151001545?et=iiziVQDCRaB_3_EsAwo6rA&amp;viewMoreLink=on&amp;sig=diyt4u3U4XpbqaVhqp0-p-kUOd-OnfySFzBWEolF0ak=&amp;caption=true" width="594" height="396" scrolling="no" frameborder="0" style="display:inline-block;position:absolute;top:0;left:0;width:100%;height:100%;"></iframe></div><p style="margin:0;"></p><div style="padding:0;margin:0 0 0 10px;text-align:left;"><a href="https://web.archive.org/web/20150904080858/http://www.gettyimages.com/detail/151001545" target="_blank" style="color:#a7a7a7;text-decoration:none;font-weight:normal !important;border:none;display:inline-block;">View image</a> | <a href="https://web.archive.org/web/20150904080858/http://www.gettyimages.com/" target="_blank" style="color:#a7a7a7;text-decoration:none;font-weight:normal !important;border:none;display:inline-block;">gettyimages.com</a></div></div></center>					
+										
+									
+				

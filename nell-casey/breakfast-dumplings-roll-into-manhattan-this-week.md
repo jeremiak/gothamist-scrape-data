@@ -1,0 +1,22 @@
+---
+author: Nell Casey
+date: Jun 12, 2017 2:45 pm
+title: Breakfast Dumplings Roll Into Manhattan This Week
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="061217nomwah.jpeg" src="https://web.archive.org/web/20170612212245im_/http://gothamist.com/attachments/nyc_nellcasey/061217nomwah.jpeg" width="640" height="480"> <br> <i> Breakfast Siu Mai from the Meat Hook/Nom Wah</i></div> <p></p>
+
+<p>On Tuesday, eat your way around the neighborhood at the 4th annual <strong><a href="https://web.archive.org/web/20170612212245/http://www.thebushwickstarr.org/TasteofBushwick.html">Taste of Bushwick</a></strong> event taking place at the <a href="https://web.archive.org/web/20170612212245/https://www.google.com/maps/place/24+Rock+St,+Brooklyn,+NY+11206/@40.703766,-73.9341351,17z/data=!3m1!4b1!4m5!3m4!1s0x89c25c01316b4e55:0x9e1228fee0af911!8m2!3d40.703766!4d-73.9319464">Boar&#x2019;s Head distribution plant</a>. Local eateries including <a href="https://web.archive.org/web/20170612212245/http://www.forrestpoint.com/">Forrest Point</a>, <a href="https://web.archive.org/web/20170612212245/http://farobk.com/">Faro</a>, <a href="https://web.archive.org/web/20170612212245/http://www.lucyskitchenny.com/">Lucy&apos;s Vietnamese Kitchen</a>, <a href="https://web.archive.org/web/20170612212245/https://www.seawolfbk.com/">Sea Wolf</a> and <a href="https://web.archive.org/web/20170612212245/http://montanastrailhouse.com/">Montana&apos;s Trail House</a> and a few dozen others will be in attendance, serving bites from their menus, along with beverages provided by spots like Braven Brewery and Bruce Cost Ginger Ale. Proceeds from the event benefit <a href="https://web.archive.org/web/20170612212245/http://www.thebushwickstarr.org/">The Bushwick Starr</a>, an OBIE Award-winning non-profit theater. <a href="https://web.archive.org/web/20170612212245/https://web.ovationtix.com/trs/pe.c/10171378">Tickets $55 or $125</a>. </p>
+
+<p><a href="https://web.archive.org/web/20170612212245/http://nomwah.com/nolita/">Nom Wah&apos;s</a> <a href="https://web.archive.org/web/20170612212245/http://gothamist.com/2016/09/19/nom_wah_tea_parlor_expansion.php">new Nolita location</a> has some special guests joining them on Wednesday: Brooklyn&apos;s <a href="https://web.archive.org/web/20170612212245/http://the-meathook.com/">The Meat Hook</a>. The team will be bringing three specials to the Nolita restaurant, including breakfast siu mai dumpling with cured egg yolk, drunken vegetables pickled with the Vliet pilsner from <a href="https://web.archive.org/web/20170612212245/https://www.threesbrewing.com/">Threes Brewing</a>, and blackout clams made with Chinese sausage, fermented black beans and a hit of Threes Double Trouble IPA. Score the siu mail and the veggies throughout the month of June, but the clams are only available this Wednesday. </p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="061217burger.jpeg" src="https://web.archive.org/web/20170612212245im_/http://gothamist.com/attachments/nyc_nellcasey/061217burger.jpeg" width="640" height="427"> <br> <i> (<a href="https://web.archive.org/web/20170612212245/https://www.yelp.com/biz_photos/the-anthony-new-york?select=b8UNy-dwlvOij_RMjuJN0w">Yelp</a>)</i></div> <p></p>
+
+<p>Clubstaurant <a href="https://web.archive.org/web/20170612212245/http://www.theanthonynyc.com/">The Anthony</a> in the Village has launched a new <strong>later night happy hour</strong>&#x2014;complete with a DJ&#x2014;on Wednesday nights. Head over between 6 p.m. and 10 p.m. for a $15 burger and beer (pictured above), plus $4 buffalo deviled eggs, $6 fried oysters, and $5 tap beers and $8 well cocktails, among other specials. </p>
+
+<p>It&apos;s nieuwe maatjes season and to celebrate the arrival of the Dutch fish the <a href="https://web.archive.org/web/20170612212245/http://www.oysterbarny.com/">Grand Central Oyster Bar</a> hosts their annual <strong>Holland Herring Festival</strong> beginning Wednesday at noon and running through Friday, June 30th. Stop by the iconic restaurant the nosh on herring filets ($7) served with hard boiled egg, sweet onion and chives or the herring salad ($7.95). The Oyster Bar is always the first restaurant in the USA to receive the little fishies, which are air expressed from Scheveningen, The Netherlands, on the North Sea. <br>
+</p>					
+										
+									
+				

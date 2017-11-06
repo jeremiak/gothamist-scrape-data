@@ -1,0 +1,21 @@
+---
+author: Jen Carlson
+date: Dec 23, 2008 8:30 am
+title: Max Silvestri, Comedian
+---
+
+	
+										<p><img alt="1208maxsilvestri.jpg" src="https://web.archive.org/web/20150424160058im_/http://gothamist.com/attachments/arts_jen/1208maxsilvestri.jpg" width="350" height="302" class="left"><em><a href="https://web.archive.org/web/20150424160058/http://www.maxsilvestri.com/">Max Silvestri</a> can teach you <a href="https://web.archive.org/web/20150424160058/http://www.youtube.com/watch?v=PPsUmhqncAg">how to use the internet</a>, how to maximize <a href="https://web.archive.org/web/20150424160058/http://www.youtube.com/watch?v=TTl6ReaRhms&amp;feature=channel">your man style</a> and, according to our research, about four other things. Each Thursday you can find him at Sound Fix for his <a href="https://web.archive.org/web/20150424160058/http://www.maxsilvestri.com/index.php/category/big-terrific/">Big Terrific</a> comedy show (returning January 8th)&#x2014;but he&apos;s also writing Top Chef <a href="https://web.archive.org/web/20150424160058/http://eater.com/archives/2008/12/top_chef_recaps.php">recaps</a>, hosting <a href="https://web.archive.org/web/20150424160058/http://stereogum.com/archives/concert/gummy-awards-live-starring-deerhunter-mhow_040542.html">award shows</a>, making videos <a href="https://web.archive.org/web/20150424160058/http://www.youtube.com/watch?v=TTl6ReaRhms">for Details</a>, entertaining <a href="https://web.archive.org/web/20150424160058/http://www.radiohead.com/deadairspace/index.php?a=394">Radiohead</a>, and allegedly sitting in the basement of MoMA. He recently told us all about most of this.</em></p>
+
+<p><strong>What does 2009 have in store for Big Terrific?</strong> Gabe Liedman, Jenny Slate and I plan to keep putting on a fun and friendly show and inviting the funniest people we know to help us. But there will be a few changes. We&apos;re going to make the whole thing a little more professional, by doing stuff like testing the microphones *before* the show starts and trying to wear clean sweatpants. Also, we&apos;ll have some new drink specials: I cooked up something called the Eggy Mary, which is egg nog, super spicy Bloody Mary mix, and white wine. I say &quot;cooked up&quot; because it&apos;s served piping hot in a champagne flute. It&apos;ll cost one hundred dollars and even if we only sell 20, 30 a night, we&apos;ll be rich really soon. </p>
+
+<p><strong>How did you and <a href="https://web.archive.org/web/20150424160058/http://videogum.com/">Gabe</a> get involved with Details?</strong> They sent us an email, and they included lots of compliments in that email. Pro tip for other men&apos;s glossies looking to employ Gabe Delahaye &amp; me: we love compliments. Also, give us walking around money. And a retainer. Are those things? Clearly I graduated magna cum stupid from Showbusiness University.</p>
+
+<p><strong>You have a couple of Gabe&apos;s in your life, which one is your favorite?</strong> Gabriel Garcia Marquez and I just sold a Dark Knight parody video to CollegeHumor.com called Why So Magical Realist? I can&apos;t wait to get started on that never.</p>
+
+<p><strong>Which New Yorker would you say has the most man style?</strong> My old roommate Jesse Finkelstein, who runs a design company called JF and Son. The nicest clothes I own are things he was about to throw out for being too stupid. I am blatantly plugging him here so that he continues to hand me down his garbage sweaters.<br>
+ <br>
+<strong>What was your reaction when <a href="https://web.archive.org/web/20150424160058/http://www.youtube.com/watch?v=PPsUmhqncAg">your video</a> was linked to by Radiohead? </strong> I think of all of us were a bit awed at the idea that Radiohead had maybe sat around and laughed at that video in their studio. It was a pretty cool feeling. But then the flirty MySpace messages from the band turned from harmless to relentless and stalkerish. I literally just got a message from Colin Greenwood saying &quot;wherez yr house i wanna meet your mouth&quot; and it&apos;s like, enough, you know? We get it.</p>					
+										
+									
+				

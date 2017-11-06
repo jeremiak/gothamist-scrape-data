@@ -1,0 +1,21 @@
+---
+author: Nell Casey
+date: Mar 14, 2014 11:10 am
+title: Gigantic Bug In Queens Restaurant's Soup Leaves Woman "Traumatized"
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="031414soupbug.jpg" src="https://web.archive.org/web/20141005012015im_/http://gothamist.com/attachments/nyc_nellcasey/031414soupbug.jpg" width="640" height="360"> <br> <i> <span class="photo_caption"> (<a href="https://web.archive.org/web/20141005012015/http://pix11.com/2014/03/14/exclusive-woman-finds-giant-bug-inside-soup-from-far-rockaway-restaurant/#ixzz2vwYuJ9yv">Pix 11</a>)</span></i></div> <p></p>
+
+<p>A woman slurping some sancocho soup from a Queens restaurant yesterday discovered a most unwelcome addition to the recipe. Natalie Estrella was dining at Mi Mundo Restaurant in Far Rockaway when she <a href="https://web.archive.org/web/20141005012015/http://pix11.com/2014/03/14/exclusive-woman-finds-giant-bug-inside-soup-from-far-rockaway-restaurant/#ixzz2vwYuJ9yv">discovered a large insect</a> floating in her meal. The antennae-wearing encroacher bears striking resemblance to a <a href="https://web.archive.org/web/20141005012015/http://www.aphotofauna.com/bristletail_silverfish_lepisma_saccharina_thysanura.html"></a><a href="https://web.archive.org/web/20141005012015/http://www.aphotofauna.com/bristletail_silverfish_lepisma_saccharina_thysanura.html">silverfish</a> (CLICK AT YOUR OWN RISK), also known as those terrifying insects that scuttle from your sink drain when you flip on the lights. It could also be a roach&#x2014;not that that makes it any better.</p>
+
+<p>Estrella notified a waiter, who disposed of the offending soup. He could have left us in a state of ignorance, however he returned to explain to Estrella that the restaurant &quot;has these bugs all over the pipes.&quot; Understandably grossed out, Estrella visited nearby St. John&apos;s Episcoal Hospital, where she was treated for &quot;insect ingestion.&quot; &#x201C;Today was the worst day of my life. I felt dizzy, my stomach started hurting and then I threw up,&#x201D; she <a href="Read more: http://pix11.com/2014/03/14/exclusive-woman-finds-giant-bug-inside-soup-from-far-rockaway-restaurant/#ixzz2vwpfjqC1">told PIX 11</a>. &#x201C;I can say now I am traumatized by eating out.&quot; Estrella plans to file a lawsuit against the restaurant.</p>
+
+<p>The restaurant, listed at Nuevo Mundo Restaurant on the Health Department&apos;s website, boasts a Grade Pending with 44 violation points from an inspection in December of last year. Of the citations, the most telling includes &quot;filth flies or food/refuse/sewage-associated (FRSA) flies present in facility&#x2019;s food and/or non-food areas. Filth flies include house flies, little house flies, blow flies, bottle flies and flesh flies. Food/refuse/sewage-associated flies include fruit flies, drain flies and Phorid flies.&quot; Add pipe-dwelling insects of unknown origin to the list.</p>
+
+<p>Insect ingestion in and of itself isn&apos;t bad, so long as the bugs are sourced responsibly and not crawling up from the depths of our sewer system. In fact, insect diets are being <a href="https://web.archive.org/web/20141005012015/http://gothamist.com/2013/08/15/photos_cricket_canapes_cookies_and.php#photo-1">widely promoted</a> as a means to reduce the environmental impact of factory farming and find more sustainable types of protein. Still, the surprise discovery is enough to make your stomach turn, like the unfortunate women who recently found <a href="https://web.archive.org/web/20141005012015/http://gothamist.com/2014/03/12/lizard_in_salad_thinspo.php">lizards</a> and <a href="https://web.archive.org/web/20141005012015/http://gothamist.com/2013/12/30/woman_finds_frog_in_pret_a_manger_s.php">frogs</a> in their salads. Makes you long for the simple days of flies in your soup.</p>
+
+<p><iframe width="640" height="480" src="//web.archive.org/web/20141005012015if_/http://www.youtube.com/embed/1C8nl8eBoq0" frameborder="0" allowfullscreen></iframe></p>					
+										
+									
+				

@@ -1,0 +1,15 @@
+---
+author: Jen Chung
+date: October  8, 2009  3:46 PM
+title: Brooke Astor's Son Found Guilty Of Grand Larceny
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="2009_10_anthmarshall.jpg" src="https://web.archive.org/web/20130308024214im_/http://gothamist.com/attachments/jen/2009_10_anthmarshall.jpg" width="640" height="454"> <br> <i>Photograph of Anthony Marshall at court last week by Louis Lanzano/AP</i></div> <p></p>
+
+<p>After a 19 week long trial, a jury has found Anthony Marshall <a href="https://web.archive.org/web/20130308024214/http://www.nytimes.com/2009/10/09/nyregion/09astor.html?hp">guilty on one count of first-degree grand larceny</a> related to stealing the $200 million fortune of his late mother, the philanthropist Brooke Astor. The NY Times notes, &quot;Barring an appeal, the jury&#x2019;s verdict means that [Marshall], an 85-year-old war veteran who fought at Iwo Jima, can be sentenced to anywhere from 1 to 25 years behind bars.&quot;</p>
+
+<p>Marshall was, as the <a href="https://web.archive.org/web/20130308024214/http://www.nypost.com/p/news/local/manhattan/jury_convicts_astor_son_of_conspiracy_gjKiObVipPOmzNbYMGnMDL">Post reports</a>, &quot;cleared of second first-degree grand larceny charging he swindled his mother into thinking she was broke so he could sell her favorite painting for $10 million and pocket a $2 million commission,&quot; but all told, he was found guilty of 16 of the 18 counts, such as conspiracy and scheming to defraud. Francis Morrissey, Marshall&apos;s lawyer who also handled Astor&apos;s will, was found &quot;guilty of forgery and conspiracy and faces up to seven years behind bars.&quot;</p>
+
+<p>Prosecutors told the jury that Marshall was driven to loot Astor&apos;s estate&#x2014;as she was ailing with Alzheimer&apos;s&#x2014;because his second wife Charlene wanted more money.  The <a href="https://web.archive.org/web/20130308024214/http://www.nydailynews.com/news/ny_crime/2009/10/08/2009-10-08_brooke_astor_trial_verdict_antony_marshall_lawyer_pal_found_guilty_of_.html">Daily News reports</a> that Charlene Marshall &quot;practically yelled,<strong>I love my husband</strong>,&quot; while leading him through the courtroom.  The prosecution also <a href="https://web.archive.org/web/20130308024214/http://gothamist.com/2006/07/26/astors_scary_pl.php">accused Marshall of elder abuse</a> (cutting back on her care, not letting her buy creams and nightgowns), while he and his wife enjoyed Astor&apos;s riches.</p>
+
+<p>Marshall&apos;s sentencing is scheduled for December, but his lawyers will probably appeal&#x2014;they do have the instance of the<a href="https://web.archive.org/web/20130308024214/http://gothamist.com/2009/10/07/astor_trial_jurors_endure_threats_c.php"> allegedly threatened juror</a>.  </p>

@@ -1,0 +1,15 @@
+---
+author: Ben Yakas
+date: Sep 30, 2011 10:16 am
+title: "Vicious" Pit Bull That Mauled LI Woman's Face On The Loose
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:260px; "> <img alt="93011pitbull.jpg" src="https://web.archive.org/web/20150424161300im_/http://gothamist.com/attachments/byakas/93011pitbull.jpg" width="260" height="193"> <br> <i><a href="https://web.archive.org/web/20150424161300/http://www.shutterstock.com/cat.mhtml?lang=en&amp;search_source=search_form&amp;version=llv1&amp;anyorall=all&amp;safesearch=1&amp;searchterm=pit+bull&amp;search_group=&amp;orient=&amp;search_cat=&amp;searchtermx=&amp;photographer_name=&amp;people_gender=&amp;people_age=&amp;people_ethnicity=&amp;people_number=&amp;commercial_ok=&amp;color=&amp;show_color_wheel=1#id=82069633&amp;src=d2a4b2f37c1cb3eee375b5899a58f13f-1-3">Shutterstock/defpicture</a></i></div> A 62-year-old woman <a href="https://web.archive.org/web/20150424161300/http://www.nbcnewyork.com/news/local/Pit-Bull-Attack-Long-Island-North-Merrick-Dogs-on-Loose-130794818.html">was seriously injured</a> by two pit bulls yesterday on Long Island, and police are now warning locals to stay inside. Victim Sashi Sharma was bitten by the dogs on her face, head, legs and arms, mangling her left arm badly. She was able to call 911 and scream that she was being mauled; police shot and killed one of the dogs, while the other escaped. &quot;This dog is vicious,&quot; warned Detective Lt. Kevin Smith of Nassau County Police.<p></p>
+
+<p>Sharma underwent emergency surgery after the attack, and is in serious condition, <a href="https://web.archive.org/web/20150424161300/http://www.nydailynews.com/news/ny_crime/2011/09/30/2011-09-30_li_pit_bull_in_mauling_roams_free.html">according to police</a>. Cops believe these are the same dogs that attacked a 67-year-old man riding a bicycle in the North Merrick area Wednesday night. The dog that escaped is described as weighing 80 to 90 pounds, with a tan coat and a patch of white fur on its belly. Smith said authorities weren&apos;t sure if the dogs had an owner, but added that they are serious about warning residents in North Merrick to stay in their homes. &quot;Stay far away. Don&apos;t go anywhere near this dog,&quot; said resident John Fiedel, who aided the man on the bike in escaping the dogs.</p>
+
+<p>There have been several highly publicized incidents with pit bulls, who were responsible for the <a href="https://web.archive.org/web/20150424161300/http://gothamist.com/2011/02/18/are_tiny_dogs_the_bitiest_dogs.php">most number of bites</a> in the city last year, including one in which a LI man shot and killed a four-year-old pit bull who was off his leash last year, and another where police mistakenly <a href="https://web.archive.org/web/20150424161300/http://gothamist.com/2011/03/02/police_fatally_shoot_pit_bull_in_do.php">shot and killed a pit bull</a> in the Bronx while responding to a domestic dispute call in the spring.  </p>					
+										
+									
+				

@@ -1,0 +1,13 @@
+---
+author: Jen Chung
+date: September 20, 2008  4:30 PM
+title: Government's $700 Billion Bad Mortgage Bailout
+---
+
+<p><img alt="2008_09_bailout2.jpg" src="https://web.archive.org/web/20111117102005im_/http://gothamist.com/attachments/jen/2008_09_bailout2.jpg" width="250" height="229" class="right">The Bush administration&apos;s $700 billion request to bail out bad mortgages was <a href="https://web.archive.org/web/20111117102005/http://www.washingtonpost.com/wp-dyn/content/article/2008/09/20/AR2008092000883.html?hpid=topnews">formally sent to Congress today</a>.  From the Washington Post:</p><blockquote>The package, the most sweeping government intervention in the markets since the Great Depression, was $200 billion higher than lawmakers had been told yesterday to expect. It also does not include the $200 billion that officials said earlier this month the government will spend on the rescue of Fannie Mae and Freddie Mac.<p></p>
+
+<p><strong>To accommodate the spending, the package also would also raise the federal debt limit to $11.3 trillion from the current $10.6 trillion.</strong> The debt now stands at $9.6 trillion.</p></blockquote>President Bush told reporters today, &quot;It is a big package because it&apos;s a big problem. The risk of doing nothing far outweighs the risk of the package.&quot;  Further, he tried to explain why he did it, being the MBA President and all: &quot;I&apos;m sure there are some of my friends out there that are saying, &apos;I thought this guy was a market guy, what happened to him?&apos;  <strong>My first instinct was to let the market work, until I realized, while being briefed by the experts, how significant this problem became.</strong>&apos;&apos;<p></p>
+
+<p>The NY Times <a href="https://web.archive.org/web/20111117102005/http://www.nytimes.com/2008/09/20/opinion/20sat1.html?hp">has an editorial</a>, saying, &quot;Taxpayers have every right to be alarmed and angry&quot; about this fifth bailout, but it&apos;s &quot;not necessarily a bad&quot; plan.  However: &quot;Make no mistake, this crisis could have been avoided if regulators had enforced rules and officials had dared to question risky lending and other dubious practices.&quot; </p>
+
+<p>For the give-me-a-goddamn-break file, the Wall Street Journal looks at <a href="https://web.archive.org/web/20111117102005/http://online.wsj.com/article/SB122187131490959185.html?mod=article-outset-box">how &quot;New York&apos;s Wealthy Economize&quot;</a>:</p>

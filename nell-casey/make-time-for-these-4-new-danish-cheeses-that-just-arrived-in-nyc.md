@@ -1,0 +1,37 @@
+---
+author: Nell Casey
+date: Oct 4, 2013 4:17 pm
+title: Make Time For These 4 New Danish Cheeses That Just Arrived In NYC
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="100413unika_maine2.jpg" src="https://web.archive.org/web/20160429161648im_/http://gothamist.com/attachments/nyc_nellcasey/100413unika_maine2.jpg" width="640" height="357"> <br> <i> <span class="photo_caption">L: Gnalling; R: Krondild</span></i></div> <p></p>
+
+<p>Oenophiles toss around the term terroir to describe the flavor contributions a specific geographical location lend to each vintage. They&apos;ll talk about the soil the grapes grew in, the climate and meteorological conditions and even what other kinds of flora and fauna are present near vineyards. The casual wine drinker may not delve as deeply into this stuff, but suffice to say it&apos;s the terroir&#x2014;in addition to the type of grape, aging and manufacturing&#x2014;that makes us favor a California Chardonnay over, say, a Sauvignon Blanc from New Zealand. </p>
+
+<p>Ten years ago, a group of Danish dairymen joined forces with some of Denmark&apos;s top chefs to create new cheeses that&#x2014;above all else&#x2014;reflected the <em>terroir</em> of their home country. Using the <em><a href="https://web.archive.org/web/20160429161648/http://newnordicfood.org/about-nnf-ii/new-nordic-kitchen-manifesto/">New Nordic Kitchen Manifesto</a></em>&#x2014;a declaration from Nordic chefs to celebrate and elevate Nordic cuisine&#x2014;as a jumping off point and employing old world storing and cooking techniques, the group painstakingly created four new cheeses that embodied the flavor and spirit of Denmark. </p>
+
+<p>Unbound by strict guidelines set forth by more prominent cheese countries like France and England, the group was able to be as creative as they wanted, even going so far as to soak pieces of oak wood in milk (it didn&apos;t work out...yet!) to capture the tree&apos;s ubiquitous presence; a hallmark of Denmark, if you will. John Gynther, a daring &quot;cheese man&quot; and leader of the Unika by Castello cheese project, spent a decade importing French and Italian cheese before realizing he wanted to apply his personal passion for cheese into something unique to his home country. </p>
+
+<p>Of his creations and collaborations, Gynther hopes eaters of the line of artisanal cheese will have an experience akin to drinking a well-produced wine. In his dream, as he described it to us, we&apos;d be eating a delicious slice of Krondill years from now and say, &quot;Remember the 2012? That was a good year.&quot; </p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="100413unika_havgus.jpg" src="https://web.archive.org/web/20160429161648im_/http://gothamist.com/attachments/nyc_nellcasey/100413unika_havgus.jpg" width="640" height="477" class="image-none"> </span></p>
+
+<p>The <strong><em>Havgus</em></strong>, a semi-hard cheese akin in texture to a creamy, sharp cheddar, contains flavors of the marshlands of southwest Denmark where the cows who provide the milk graze. In accordance with laws regarding organic products, the cows spend much of their lives outdoors&#x2014;even when it&apos;s raining and the sea mist comes in strong. The mild cheese has a smooth salinity to it, with flecks of crunchy protein crystals in each bite. It&apos;s the least funky of the bunch but has a unique flavor that channels the salt sea air where it starts its life.</p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="100413unika_main.jpg" src="https://web.archive.org/web/20160429161648im_/http://gothamist.com/attachments/nyc_nellcasey/100413unika_main.jpg" width="640" height="442"> <br> <i> <span class="photo_caption"> </span></i></div> <p></p>
+
+<p>For devotees of the triple cream varieties, the <strong><em>Krondill</em></strong> offers that mouth-coating lusciousness found in the ripe, soft-rined cheese from France but with a forward flavor of dill, an herb and seed used very frequently in Danish cuisine. The salt added to the curds gets packed with dill and allowed to sit for a day until the essential oils seep into the crystals. It doesn&apos;t hit you over the head, but there&apos;s no doubt about what you&apos;re eating, especially with the dill-seed flecked rind. </p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="100413unika_HOGELUNDGAARD.jpg" src="https://web.archive.org/web/20160429161648im_/http://gothamist.com/attachments/nyc_nellcasey/100413unika_HOGELUNDGAARD.jpg" width="640" height="527" class="image-none"> </span></p>
+
+<p>Getting into funkier territory, there&apos;s the <strong><em>H&#xF8;gelundgaard</em></strong>, an insanely creamy blue cheese with a surprisingly sweet flavor and lots of piquant mold flavor. To create this unusual cheese, its stored in vacuum-sealed bags for 40 weeks, a length heretofore unheard of for aging that variety. It&apos;s got that sharp kick that accompanies all blue-veined cheeses, but the strong sweetness balances it out, resulting in a rich texture and flavor that even die hard blue-phobes might capitulate to.</p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="100413unika_gnalling.jpg" src="https://web.archive.org/web/20160429161648im_/http://gothamist.com/attachments/nyc_nellcasey/100413unika_gnalling.jpg" width="640" height="449" class="image-none"> </span></p>
+
+<p>Finally, the delightfully named <em>Gnalling</em>, an accidental creation discovered when a batch of cheese was left to dry out. From the outside, the cheese appears hard, possibly even past its prime. But like books, cheese shouldn&apos;t be judged by their rinds; cutting through the exterior reveals a firm, nutty-scented flesh that&apos;s firm but not completely devoid of moisture. Gynther suggests placing thin slices on your tongue and letting the cheese gradually soften and melt like a square of chocolate. </p>
+
+<p>Suffice to say that if you&apos;re a cheesehead looking for something completely new, you&apos;d do well to seek out this awesome <em>ost</em>. The cheese debuted at <a href="https://web.archive.org/web/20160429161648/http://www.aquavit.org/restaurant/newyork/index.asp">Aquavit</a> this month and will be available exclusively at the Scandinavian restaurant until mid-October. The cheeses then travel to other restaurants in New York City&apos;s growing Scandinavian contingent, including <a href="https://web.archive.org/web/20160429161648/http://gothamist.com/2013/07/19/momofuku_alum_opens_scandinavian-in.php">recently opened Luksus</a> in Greenpoint and TriBeCa&apos;s <a href="https://web.archive.org/web/20160429161648/http://gothamist.com/2013/07/21/aamanns-copenhagen.php">Aamanns-Copenhagen</a>. Additionally, this weekend the city hosts the <a href="https://web.archive.org/web/20160429161648/http://honestcooking.com/category/north-festival/">NORTH Nordic Food Festival</a>, where Unika and parent company Castello are offering <a href="https://web.archive.org/web/20160429161648/http://honestcooking.com/north-nordic-food-festival-tickets/">wine and cheese pairing classes</a> by John Gynther, featuring six of the new cheeses.</p>					
+										
+									
+				

@@ -1,0 +1,27 @@
+---
+author: Jen Chung
+date: Apr 23, 2009 11:10 am
+title: Gun Found In Craigslist Killer Suspect's Gray's Anatomy Book
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="2009_04_briswake.jpg" src="https://web.archive.org/web/20160529001248im_/http://gothamist.com/attachments/jen/2009_04_briswake.jpg" width="640" height="350"> <br> <i>Photograph outside the R.G. Ortiz funeral home by Stephen Chernin/AP</i></div> <p></p>
+
+<p>Yesterday, a wake was held in Washington Heights for Julissa Brisman, a young woman who was <a href="https://web.archive.org/web/20160529001248/http://gothamist.com/2009/04/17/nyc_woman_killed_in_boston_hotel_cr.php">killed last week during an appointment</a> with a massage client at a Boston hotel.  The <a href="https://web.archive.org/web/20160529001248/http://www.nydailynews.com/news/ny_crime/2009/04/22/2009-04-22_craiglist_it_can_happen_to_you.html">Daily News&apos; Michael Daly reports </a>that the aspiring actress&apos;s mother wailed in Spanish, &quot;Why not me? Why her? She was only 25. She was just beginning to live her life.&quot;  And Brisman&apos;s friend, Mark Pines, said she would screen clients who responded to her Craigslist listing for massage services but added, &quot;We will use her memory to try to keep other girls from ending up in the same situation.&quot;  </p>
+
+<p>The suspect in Brisman&apos;s murder, as well as in the Boston robbery of a prostitute who advertised on Craigslist, is <a href="https://web.archive.org/web/20160529001248/http://gothamist.com/2009/04/22/craigslist_killer_suspect_held_with.php">Boston University medical student Philip Markoff</a>, who has pleaded not guilty to the charges and is being held without bail.  Police sources have said that detectives <a href="https://web.archive.org/web/20160529001248/http://bostonherald.com/news/regional/view/2009_04_23_Craigslist_suspect_allegedly_hoarded_panties__gun:_Cops_unearth_secret_stash/srvc=home&amp;position=0">found panties belonging to the victims</a> in his apartment as well as a gun in a hollowed-out copy of Gray&apos;s Anatomy.  </p>
+
+<p>Detectives revealed that Brisman&apos;s friend, the day after her murder, <a href="https://web.archive.org/web/20160529001248/http://www.boston.com/news/local/massachusetts/articles/2009/04/23/a_high_tech_tip_an_old_school_stakeout/?page=1">forwarded them e-mail from the suspect</a>.  Sergeant Detective Daniel Duff told the Boston that tip let them &quot;leapfrog&quot; other steps they would usually take in an investigation and allowed them to zero in on Markoff as a suspect.  <a href="https://web.archive.org/web/20160529001248/http://www.bostonherald.com/news/regional/view.bg?articleid=1167465">After observing him for a few days</a>&#x2014;Duff said, &quot;Everything we had up until that point was, yeah, he looks like the guy. We didn&apos;t want to jump to any conclusions, and so we couldn&apos;t just go down there and lock him based on, yes, he&apos;s 6-3 and blond.&quot;&#x2014; they approached him on Monday, after the <a href="https://web.archive.org/web/20160529001248/http://www.nydailynews.com/news/2009/04/22/2009-04-22_surviving_victim_of_craigslist_killer_.html">surviving victim identified him</a> as her attacker.  </p>
+
+<p>Markoff, who was driving to Foxwoods with his fiance Megan McAllister, was apparently quiet and calm while McAllister was confused.  The detectives said she broke down when they told her her fiance would be charged with murder.  She had been in NJ with her parents during the week and hadn&apos;t been following the case, but her mother told her, &quot;&apos;Be careful. There was some guy that killed somebody up in Boston.&apos;&quot;</p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2009_04_markdn.jpg" src="https://web.archive.org/web/20160529001248im_/http://gothamist.com/attachments/jen/2009_04_markdn.jpg" width="250" height="333" class="image-right"> </span>The Daily News has a <a href="https://web.archive.org/web/20160529001248/http://www.nydailynews.com/news/ny_crime/2009/04/22/2009-04-22_morgan_houston_recalls_close_call_markoff.html">cover story with a friend of Markoff&apos;s </a>from his undergraduate days at SUNY Albany.  Morgan Houston claims that she and Markoff were study buddies but one night, after drinking, he got aggressive: </p><blockquote>&quot;He pushed me up against the wall and tried kissing me,&quot; Houston told the Daily News on Wednesday in an exclusive interview about her former classmate.<p></p>
+
+<p>&quot;No, Phil, get off me, stop kissing me, I&apos;m not interested in you, what are you trying to do?&quot; a panicked Houston told Markoff as she struggled to free herself on the dark campus.</p>
+
+<p>&quot;I couldn&apos;t physically get him off of me. Thankfully, he wasn&apos;t on top of me, but I couldn&apos;t push him away.&quot;</p>
+
+<p>Houston said she was &quot;scared,&quot; but fortunately, another male friend walked by and pulled Markoff away from the soft-spoken brunette.  &quot;I don&apos;t know what would have happened,&quot; Houston said.</p></blockquote>She said that was the only time he ever tried anything&#x2014;though he did remark how her butt looked good in a pair of jeans and apparently just pretended to be clueless in class to study with her&#x2014;&quot;He was a little awkward, but he was nice ... smart.&quot;<p></p>					
+										
+									
+				

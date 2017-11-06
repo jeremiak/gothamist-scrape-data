@@ -1,0 +1,29 @@
+---
+author: Emma Whitford
+date: Aug 4, 2016 5:15 pm
+title: MTA Testing Fancy New Countdown Clocks At Manhattan N/Q/R Stations 
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="080416_MTACountdown.jpeg" src="https://web.archive.org/web/20170624063918im_/http://gothamist.com/attachments/nyc_ewhitford/080416_MTACountdown.jpeg" width="640" height="426"> <br> <i> (via MTA) </i></div> <p></p>
+
+<p>So far, 2016 has been the year of Governor Cuomo Professes His Love To The MTA. The same man who for a record time <a href="https://web.archive.org/web/20170624063918/http://gothamist.com/2015/10/10/at_last_cuomo_and_de_blasio_have_ag.php">declined to fund</a> the cash-strapped Authority&apos;s Capital Plan, who <a href="https://web.archive.org/web/20170624063918/http://gothamist.com/2015/08/25/cuomo_bus_ted.php">never rode a bus</a> or train except for a photo opp, whose preferred mode of transit is a <a href="https://web.archive.org/web/20170624063918/http://www.nytimes.com/2016/06/28/nyregion/cuomo-and-billy-joel-ride-for-breast-cancer-awareness.html">motorcade led by Billy Joel</a>, has been making statement after scripted statement about his commitment to &quot;modernized&quot; <a href="https://web.archive.org/web/20170624063918/http://gothamist.com/2016/03/08/ferrari_bus_identical.php">buses</a>, <a href="https://web.archive.org/web/20170624063918/http://gothamist.com/2016/07/18/no_escape_poop_car.php">trains</a>, and <a href="https://web.archive.org/web/20170624063918/http://gothamist.com/2016/07/18/gothamist.com/2016/01/08/subway_facelift_shutdown.php">stations</a>. </p>
+
+<p>Cuomo&apos;s already confirmed plans to <a href="https://web.archive.org/web/20170624063918/http://gothamist.com/2016/07/18/gothamist.com/2016/01/08/subway_facelift_shutdown.php">shut down 31 subway stations for six month chunks</a> to achieve his ideal, but this week the Governor seems to be making good on a less-disruptive promise: for the next three months, the MTA will <a href="https://web.archive.org/web/20170624063918/https://www.facebook.com/232635164606/photos/a.248049229606.138612.232635164606/10153809161179607/?type=3&amp;theater">test countdown clocks</a> on N, Q and R train platforms at  23rd Street, 28th Street, 34th Street, 42nd Street, 49th Street, 57th Street, 5th Avenue/59th street, and Lexington Avenue/59th Street.</p>
+
+<p>Unlike the basic countdown clocks we&apos;ve gotten used to on the numbered trains, these latest designs have LCD screens, and display factoids like the time and weather, in addition to arrival times. </p>
+
+<p>The MTA stated Thursday that, assuming the three-month trial goes well, the Authority is &quot;developing a roll out plan&quot; for the other lettered stations: the A, C, E; the B, D, F; the G; and the J, M, Z. </p>
+
+<p>Granted, they made the same promise way <a href="https://web.archive.org/web/20170624063918/http://go.redirectingat.com/?id=50913X1248263&amp;site=gothamist.com&amp;xs=1&amp;isjs=1&amp;url=http%3A%2F%2Fwww.nytimes.com%2F2009%2F10%2F02%2Fnyregion%2F02countdown.html&amp;xguid=14733c6dea481944c590e16ed2613468&amp;xuuid=6be05e07809c9c11ed8f4342bf978d14&amp;xsessid=d026d12468aa64bb855b75f04f49c998&amp;xcreo=0&amp;xed=0&amp;sref=http%3A%2F%2Fgothamist.com%2F2016%2F03%2F28%2Fcountdown_to_gecstasy.php&amp;pref=http%3A%2F%2Fr.search.yahoo.com%2F_ylt%3DA0LEVjs4n6NX3AUAeLEnnIlQ%3B_ylu%3DX3oDMTEyMDUyOWJpBGNvbG8DYmYxBHBvcwMxBHZ0aWQDQjI0MDZfMQRzZWMDc3I-%2FRV%3D2%2FRE%3D1470369721%2FRO%3D10%2FRU%3Dhttp%253a%252f%252fgothamist.com%252f2016%252f03%252f28%252fcountdown_to_gecstasy.php%2FRK%3D0%2FRS%3DfC7ROZIo0WSB5emZrjXijNon3Ak-&amp;xtz=240">back in 2009</a>, predicting countdown clocks for lettered train commuters by 2014. That deadline <a href="https://web.archive.org/web/20170624063918/http://gothamist.com/2015/03/09/the_countdown_to_countdown_clocks.php">came and went</a>, in part because it&apos;s quite expensive and disruptive to overhaul antiquated signaling systems, which, on the lettered trains, make it impossible to track train locations accurately.  </p>
+
+<p>That is, until now, apparently. The MTA says the new clocks use Bluetooth technology. Here&apos;s a bit more context, from the <a href="https://web.archive.org/web/20170624063918/http://www.mta.info/press-release/mta-headquarters/governor-cuomo-announces-testing-begins-new-countdown-clocks-and">press release</a>: </p>
+
+<blockquote>The system uses the existing wireless network in the stations and cloud computing, and involves four Bluetooth receivers placed in each station, two at each end of the platform. These receivers communicate with four Bluetooth devices that have been installed in the first and last cars of each train set running on the line. As the train enters and leaves a station, the system uses its arrival and departure time to estimate the time at which the train will reach the next stop in the line, and display the arrival times on the two LCD display screens that have been installed at each station.</blockquote>
+
+<p>&quot;The Governor challenged the MTA to develop an aggressive approach to putting countdown clocks on the lettered lines, and our technology team&#x2019;s response has been phenomenal,&quot; said MTA Chairman Thom Prendergast on Thursday. &quot;In very short order they developed an easy to deploy, cost-effective system that we think will play a central role in bringing this essential service to more and more of our customers.&quot; </p>
+
+<p>Great! Now maybe Cuomo can devote his full attention to <a href="https://web.archive.org/web/20170624063918/http://gothamist.com/2016/08/03/cuomo_deigned_to_stand_on_the_subwa.php">personally killing all the subway mosquitos</a>.</p>					
+										
+									
+				

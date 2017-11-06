@@ -1,0 +1,13 @@
+---
+author: Jen Carlson
+date: September 18, 2008 12:31 PM
+title: Whale Population in NYC Proves to Be "Extraordinary"
+---
+
+<p><img alt="whalenyc.jpg" src="https://web.archive.org/web/20111117101903im_/http://gothamist.com/attachments/arts_jen/whalenyc.jpg" width="350" height="250" class="right">Some big news on the off-shore population in NYC: scientists have discovered an impressive amount of whales &quot;only a couple of miles from the Statue of Liberty,&quot; <a href="https://web.archive.org/web/20111117101903/http://www.nypost.com/seven/09182008/news/regionalnews/thar_she_blows__129638.htm">the NY Post</a> reports.</p><blockquote>&quot;This isn&apos;t exactly great real estate for whales,&quot; said Dr. Christopher Clark, director of bioacoustics research at Cornell&apos;s ornithology lab. &quot;It would be like trying to make a home in the middle of the Long Island Expressway.&quot;<p></p>
+
+<p>When Clark&apos;s team placed three buoys with microphones a few miles from Kennedy Airport and another seven off Jones Beach, they expected to hear some whales, but were struck by the fact that there were hundreds - rights, fins and humpbacks - some commuting and others making their home near the city.</p></blockquote>For the most part the mammal&apos;s songs are drowned out by our own city noise, but Clark (who calls the discovery <a href="https://web.archive.org/web/20111117101903/http://www.nytimes.com/2008/09/17/science/17whale.html?ref=science">&quot;extraordinary&quot;</a>) says it is possible to hear them--and the Bioacoustics Researchers and State Department of Environmental Conservation plan to keep the listening stations running year-round.<p></p>
+
+<p><a href="https://web.archive.org/web/20111117101903/http://www.usnews.com/articles/science/plants-animals/2008/09/16/whales-heard-near-new-york-city.html">Clark added</a> that, &quot;These are some of the largest and rarest animals on this planet trying to make a living just a few miles from New York&apos;s shores.&quot; While it&apos;s a nice idea to have an underwater choir surrounding NYC, there is a lot of ship traffic coming through the harbor and whales are getting run over--something researchers hope to put an end to by studying their travel paths. In addition, the new information can now help policymakers develop management plans to protect the whales--which is particularly important due to the presence of the right whales, which are endangered.</p>
+
+<p><span class="photo_caption">Photo of a humpback whale beached on Fire Island circa 2002, via <a href="https://web.archive.org/web/20111117101903/http://moneyries.blogspot.com/2008/06/old-news-beached-whale-at-fire-island.html">Moneyries</a>.</span></p>

@@ -1,0 +1,11 @@
+---
+author: Jen Chung
+date: March 26, 2010 10:45 AM
+title: Dwight Gooden Not Talking About DUI Arrest (Yet)
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2010_03_dwightg.jpg" src="https://web.archive.org/web/20110811072914im_/http://gothamist.com/attachments/jen/2010_03_dwightg.jpg" width="170" height="170" class="image-left"> </span>After being <a href="https://web.archive.org/web/20110811072914/http://gothamist.com/2010/03/24/dwight_gooden_busted_for_dwi.php">arrested for DUI</a> in Franklin Lakes, NJ on Wednesday, former Mets and Yankees pitcher Dwight Gooden spoke to reporters yesterday but didn&apos;t want to talk about the arrest, &quot;When the time is right I will&#x2026;but now&apos;s not the right time, sorry.&quot; </p>
+
+<p>Gooden, who has had a history of drug problems, was pulled over for allegedly rear-ending a neighbor&apos;s car, and then he left the scene of the accident, saying he needed to take his son to school.  <a href="https://web.archive.org/web/20110811072914/http://wcbstv.com/local/dwight.gooden.arrest.2.1589184.html">Then</a>: &quot;He was arrested minutes later for driving under the influence - with his 5-year-old son unrestrained in the backseat.&quot;  He was eventually charged with driving while under the influence of a controlled substance, endangering the welfare of a child, and many others. </p>
+
+<p>However, Gooden&apos;s agent Ronald Goldstein <a href="https://web.archive.org/web/20110811072914/http://www.northjersey.com/news/crime_courts/89145367_Agent_decries_media_portrayal_of_Dwight_Gooden_s_arrest_in_Franklin_Lakes.html">said that Gooden was not intoxicated</a>, &quot;All the facts have been distorted by the media. He is a very good father and a very good friend. The amount of lies and untruths being spread hurts me.&quot;  Goldstein claims that Gooden was prescribed Ambien because his wife recently had a baby girl and that the former pitcher was sleep deprived (also, Gooden had recently traveled cross-country from an autograph signing). Goldstein said, referring to how his client had been sober since 2006, &quot;Four years of hard work have been destroyed. It&#x2019;s just appalling.&quot;</p>

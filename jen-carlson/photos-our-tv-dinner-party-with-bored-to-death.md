@@ -1,0 +1,56 @@
+---
+author: Jen Carlson
+date: Oct 25, 2011 12:41 pm
+title: Photos: Our TV Dinner Party With Bored To Death
+---
+
+	
+					<div class="galleryEase" id="gallery-494695">
+<!-- gallery js -->
+<script type="text/javascript" src="https://web.archive.org/web/20141108064454js_/http://assets.gothamistllc.com/v5/js/gallery.js"></script>
+<!-- end gallery js -->
+
+<style type="text/css">
+#imgContainer {
+min-height: 300px;
+min-width: 300px;
+background: url('https://web.archive.org/web/20141108064454im_/http://assets.gothamistllc.com/v5/images/progress.gif') center center no-repeat;
+}
+</style>
+
+<!--start of gallery code-->
+<a name="gallery"></a>
+<div class="galleryEaseDisplayed">
+<div id="imgContainer">
+    <img id="galleryImg">
+</div>
+<div class="galleyEaseInfo"></div>
+<div class="galleryEaseNext"></div>
+<div class="galleryEasePrev"></div>
+</div>
+<div class="galleryEaseThumbs">
+		<img src="https://web.archive.org/web/20141108064454im_/http://gothamist.com/assets_c/2011/10/5boredtodeath1011-thumb-60x60-669233.jpg" title="" id="photo_1" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":1, "image": "https://web.archive.org/web/20141108064454/http://gothamist.com/upload/2011/10/5boredtodeath1011.jpg", "caption": "Jonathan Ames and John Hodgman", "credit":"Photo by \<a href=\"http://colormekatie.blogspot.com/\"\>Katie Sokoler\<\/a\>/Gothamist"};galleryObj['photo_1'] = photo;</script>
+		<img src="https://web.archive.org/web/20141108064454im_/http://gothamist.com/assets_c/2011/10/17boredtodeath1011-thumb-60x60-669245.jpg" title="" id="photo_2" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":2, "image": "https://web.archive.org/web/20141108064454/http://gothamist.com/upload/2011/10/17boredtodeath1011.jpg", "caption": "", "credit":"Photo by \<a href=\"http://colormekatie.blogspot.com/\"\>Katie Sokoler\<\/a\>/Gothamist"};galleryObj['photo_2'] = photo;</script>
+		<img src="https://web.archive.org/web/20141108064454im_/http://gothamist.com/assets_c/2011/10/27boredtodeath1011-thumb-60x60-669251.jpg" title="" id="photo_3" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":3, "image": "https://web.archive.org/web/20141108064454/http://gothamist.com/upload/2011/10/27boredtodeath1011.jpg", "caption": "The band Radical Dads played our lobby party.", "credit":"Photo by \<a href=\"http://colormekatie.blogspot.com/\"\>Katie Sokoler\<\/a\>/Gothamist"};galleryObj['photo_3'] = photo;</script>
+		<img src="https://web.archive.org/web/20141108064454im_/http://gothamist.com/assets_c/2011/10/30boredtodeath1011-thumb-60x60-669253.jpg" title="" id="photo_4" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":4, "image": "https://web.archive.org/web/20141108064454/http://gothamist.com/upload/2011/10/30boredtodeath1011.jpg", "caption": "", "credit":"Photo by \<a href=\"http://colormekatie.blogspot.com/\"\>Katie Sokoler\<\/a\>/Gothamist"};galleryObj['photo_4'] = photo;</script>
+		<img src="https://web.archive.org/web/20141108064454im_/http://gothamist.com/assets_c/2011/10/2boredtodeath1011-thumb-60x60-669230.jpg" title="" id="photo_5" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":5, "image": "https://web.archive.org/web/20141108064454/http://gothamist.com/upload/2011/10/2boredtodeath1011.jpg", "caption": "", "credit":"Photo by \<a href=\"http://colormekatie.blogspot.com/\"\>Katie Sokoler\<\/a\>/Gothamist"};galleryObj['photo_5'] = photo;</script>
+		<img src="https://web.archive.org/web/20141108064454im_/http://gothamist.com/assets_c/2011/10/14boredtodeath1011-thumb-60x60-669242.jpg" title="" id="photo_6" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":6, "image": "https://web.archive.org/web/20141108064454/http://gothamist.com/upload/2011/10/14boredtodeath1011.jpg", "caption": "", "credit":"Photo by \<a href=\"http://colormekatie.blogspot.com/\"\>Katie Sokoler\<\/a\>/Gothamist"};galleryObj['photo_6'] = photo;</script>
+		<img src="https://web.archive.org/web/20141108064454im_/http://gothamist.com/assets_c/2011/10/6boredtodeath1011-thumb-60x60-669234.jpg" title="" id="photo_7" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":7, "image": "https://web.archive.org/web/20141108064454/http://gothamist.com/upload/2011/10/6boredtodeath1011.jpg", "caption": "", "credit":"Photo by \<a href=\"http://colormekatie.blogspot.com/\"\>Katie Sokoler\<\/a\>/Gothamist"};galleryObj['photo_7'] = photo;</script>
+<br>		<img src="https://web.archive.org/web/20141108064454im_/http://gothamist.com/assets_c/2011/10/8boredtodeath1011-thumb-60x60-669236.jpg" title="" id="photo_8" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":8, "image": "https://web.archive.org/web/20141108064454/http://gothamist.com/upload/2011/10/8boredtodeath1011.jpg", "caption": "Eggplant Parmesan, mac & cheese, green beans and a brownie", "credit":"Photo by \<a href=\"http://colormekatie.blogspot.com/\"\>Katie Sokoler\<\/a\>/Gothamist"};galleryObj['photo_8'] = photo;</script>
+		<img src="https://web.archive.org/web/20141108064454im_/http://gothamist.com/assets_c/2011/10/22boredtodeath1011-thumb-60x60-669247.jpg" title="" id="photo_9" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":9, "image": "https://web.archive.org/web/20141108064454/http://gothamist.com/upload/2011/10/22boredtodeath1011.jpg", "caption": "", "credit":"Photo by \<a href=\"http://colormekatie.blogspot.com/\"\>Katie Sokoler\<\/a\>/Gothamist"};galleryObj['photo_9'] = photo;</script>
+		<img src="https://web.archive.org/web/20141108064454im_/http://gothamist.com/assets_c/2011/10/12boredtodeath1011-thumb-60x60-669240.jpg" title="" id="photo_10" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":10, "image": "https://web.archive.org/web/20141108064454/http://gothamist.com/upload/2011/10/12boredtodeath1011.jpg", "caption": "", "credit":"Photo by \<a href=\"http://colormekatie.blogspot.com/\"\>Katie Sokoler\<\/a\>/Gothamist"};galleryObj['photo_10'] = photo;</script>
+		<img src="https://web.archive.org/web/20141108064454im_/http://gothamist.com/assets_c/2011/10/9boredtodeath1011-thumb-60x60-669237.jpg" title="" id="photo_11" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":11, "image": "https://web.archive.org/web/20141108064454/http://gothamist.com/upload/2011/10/9boredtodeath1011.jpg", "caption": "\<a href=\"http://tylercoates.tumblr.com\"\>Tyler Coates\<\/a\> and \<a href=\"http://lindsayrobertson.tumblr.com\"\>Lindsay Robertson\<\/a\>! \<a href=\"http://www.stereogum.com\"\>Amrit Singh\<\/a\> and \<a href=\"http://www.foodrepublic.com\"\>Matt Robard\<\/a\>! \<a href=\"http://www.huffingtonpost.com\"\>Arianna Huffington\<\/a\> and \<a href=\"http://drudgereport.com/\"\>Matt Drudge\<\/a\>! ", "credit":"Photo by \<a href=\"http://colormekatie.blogspot.com/\"\>Katie Sokoler\<\/a\>/Gothamist"};galleryObj['photo_11'] = photo;</script>
+		<img src="https://web.archive.org/web/20141108064454im_/http://gothamist.com/assets_c/2011/10/29boredtodeath1011-thumb-60x60-669252.jpg" title="" id="photo_12" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":12, "image": "https://web.archive.org/web/20141108064454/http://gothamist.com/upload/2011/10/29boredtodeath1011.jpg", "caption": "Ames and us", "credit":"Photo by \<a href=\"http://colormekatie.blogspot.com/\"\>Katie Sokoler\<\/a\>/Gothamist"};galleryObj['photo_12'] = photo;</script>
+		<img src="https://web.archive.org/web/20141108064454im_/http://gothamist.com/assets_c/2011/10/21boredtodeath1011-thumb-60x60-669248.jpg" title="" id="photo_13" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":13, "image": "https://web.archive.org/web/20141108064454/http://gothamist.com/upload/2011/10/21boredtodeath1011.jpg", "caption": "", "credit":"Photo by \<a href=\"http://colormekatie.blogspot.com/\"\>Katie Sokoler\<\/a\>/Gothamist"};galleryObj['photo_13'] = photo;</script>
+		<img src="https://web.archive.org/web/20141108064454im_/http://gothamist.com/assets_c/2011/10/19boredtodeath1011-thumb-60x60-669257.jpg" title="" id="photo_14" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":14, "image": "https://web.archive.org/web/20141108064454/http://gothamist.com/upload/2011/10/19boredtodeath1011.jpg", "caption": "", "credit":"Photo by \<a href=\"http://colormekatie.blogspot.com/\"\>Katie Sokoler\<\/a\>/Gothamist"};galleryObj['photo_14'] = photo;</script>
+									
+</div></div>					<p>Last night we held our first <a href="https://web.archive.org/web/20141108064454/http://gothamist.com/2011/10/20/contest_win_tickets_to_gothamists_f.php">TV Dinner Party</a> at <a href="https://web.archive.org/web/20141108064454/http://gothamist.com/2011/06/24/inside_nitehawk_cinema_williamsburg.php">Nitehawk Cinema</a> in Brooklyn, with a viewing of the very Brooklyn <em>Bored To Death</em>. Before the screening, as old Buster Keaton movies flickered on the screen, guests seated in the theater enjoyed a delicious, specially prepared &quot;haute TV dinner&quot; homage by chef <a href="https://web.archive.org/web/20141108064454/http://gothamist.com/2009/07/23/saul_interview.php">Saul Bolton</a>, paired with wine from <a href="https://web.archive.org/web/20141108064454/http://www.brooklynoenology.com/">Brooklyn Oenology</a>. Then the latest episode was aired, and it&apos;s arguably one of the funniest in the series: In this one the fictional Jonathan Ames, played by Jason Schwartzman, appears on a fictional Dick Cavett talk show to promote his new book. But his arch nemesis, Louis Green, played by John Hodgman, is also booked on the show, to promote his book! Horns hilariously lock.</p>
+
+<p><iframe width="640" height="360" src="https://web.archive.org/web/20141108064454if_/http://www.youtube.com/embed/aHYCqcvYZHY" frameborder="0" allowfullscreen></iframe></p>
+
+<p>Afterward, our special guests Ames and Hodgman fielded questions during a Q&amp;A;, where Hodgman told the audience that in Jonathan Ames&apos;s world things are better, and the Dick Cavett Show is still a wildly popular show on television, and can help an author sell a million books. That is probably what we love best about the show&#x2014;it&apos;s Brooklyn, and New York City, but a little bit better. And just look at how happy the guy who writes it is&#x2014;<a href="https://web.archive.org/web/20141108064454/http://areasofmyexpertise.com/post/11890452720/at-the-nitehawk-for-the-gothamist-screening-of-the">on his Tumblr last night,</a> Hodgman wrote, &quot;At Nitehawk for the Gothamist screening of the <em>Bored to Death</em> episode 3.3... Here is the real Jonathan Ames, the cheeriest and most rosy cheeked I&#x2019;ve ever seen him.&quot;</p>
+
+<p>Stay tuned for our next TV Dinner Party...</p>					
+										
+									
+				

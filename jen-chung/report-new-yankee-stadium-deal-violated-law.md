@@ -1,0 +1,9 @@
+---
+author: Jen Chung
+date: September 17, 2008  2:44 PM
+title: Report: New Yankee Stadium Deal Violated Law
+---
+
+<p><img alt="2008_09_nys.jpg" src="https://web.archive.org/web/20111117101827im_/http://gothamist.com/attachments/jen/2008_09_nys.jpg" width="300" height="182" class="left">Assemblyman Richard Brodsky had strong words--and a damning report--<a href="https://web.archive.org/web/20111117101827/http://www.nytimes.com/2008/09/17/nyregion/17stadium.html?ref=nyregion">for the new Yankee Stadium yesterday</a>.  Brodsky believes the Yankees got too good a deal from the city, &quot;This stadium is being built by the people of the city and the state of New York. In return, they&#x2019;re getting almost nothing. <strong>This deal does not serve the public&#x2019;s interest. It serves the Yankees&#x2019; interest.</strong>&#x201D;</p>
+
+<p>His <a href="https://web.archive.org/web/20111117101827/http://www.nydailynews.com/money/2008/09/16/2008-09-16_its_house_that_ruse_built__pol.html">31-page report claims</a> the city &quot;inflat[ed]property values and promis[ed]nonexistent jobs to get as much as $1 billion in tax-exempt bonds and public subsidies for the Bronx Bombers.&quot;  The Yankees apparently made an &quot;unsubstantiated threat&quot; to leave New York, so the city <a href="https://web.archive.org/web/20111117101827/http://ap.google.com/article/ALeqM5j_pGpnFpEj6zdQYsKvuTlM7o42ywD93831DG1">committed $550 million to $850 million to the project</a>. The Yankees are paying for the stadium themselves, but did get almost $1 billion in tax-exempt bonds from the city.  And don&apos;t get Brodsky started on the <a href="https://web.archive.org/web/20111117101827/http://www.nytimes.com/2008/09/16/nyregion/16stadium.html?em">luxury box for city officials at the new stadium</a>!</p>

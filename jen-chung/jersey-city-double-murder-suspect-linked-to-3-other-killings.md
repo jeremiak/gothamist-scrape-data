@@ -1,0 +1,11 @@
+---
+author: Jen Chung
+date: April 13, 2010  4:33 PM
+title: Jersey City Double Murder Suspect Linked To 3 Other Killings
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2010_04_sbella.jpg" src="https://web.archive.org/web/20130424022344im_/http://gothamist.com/attachments/jen/2010_04_sbella.jpg" width="239" height="164" class="image-left"> </span>A 19-year-old man charged with <a href="https://web.archive.org/web/20130424022344/http://gothamist.com/2010/04/05/jersey_city_couple_killed_during_su.php">killing a Jersey City couple</a> has also been charged with three other murders.  The <a href="https://web.archive.org/web/20130424022344/http://www.nj.com/hudson/index.ssf/2010/04/jersey_city_man_charged_in_sla.html">Jersey Journal reports</a> that Shiquan Bellamy&apos;s bail was set at $6 million cash only.  There have been nine murders in Jersey City this year, which means Bellamy is <a href="https://web.archive.org/web/20130424022344/http://abclocal.go.com/wabc/story?section=news/local&amp;id=7381907">involved with over half of them</a>.  Hudson County Prosecutor Edward DeFazio said, &quot;This is beyond humanity that one young man can be charged with causing this much destruction of human life.&quot;</p>
+
+<p>Last week, Michael Muchioki and Nia Haqq, who had just returned from a dinner celebrating their engagement with friends, were shot execution-style on Randolph Avenue in apparently botched carjacking.  Besides Bellamy, <a href="https://web.archive.org/web/20130424022344/http://gothamist.com/2010/04/09/three_arrested_for_murder_of_jersey.php">Darmelia Lawrence and Latonia Bellamy</a>, both 19, were charged for the killings.  </p>
+
+<p>Shiquan Bellamy&apos;s other alleged murders are February 2 double murder and a March 27 murder.   Jersey City police chief Tom Comey said, &quot;As an agency, maybe, just maybe, by our swift action we prevented another victim, that&apos;s the only thing we can hang our hat on because we would have rather have prevented any one of these from happening, there&apos;s no victory here.&quot; </p>

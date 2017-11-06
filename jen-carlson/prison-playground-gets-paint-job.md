@@ -1,0 +1,11 @@
+---
+author: Jen Carlson
+date: March 25, 2010 11:47 AM
+title: Prison Playground Gets Paint Job
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:225px; "> <img alt="prisonplay0310.jpg" src="https://web.archive.org/web/20110629204858im_/http://gothamist.com/attachments/arts_jen/prisonplay0310.jpg" width="225" height="208"> <br> <i><span class="photo_caption">Monifa Bandele/<a href="https://web.archive.org/web/20110629204858/http://blackandbrownnews.com/front/568028906_story.php">Black &amp; Brown News</a></span></i></div> That controversial <a href="https://web.archive.org/web/20110629204858/http://gothamist.com/2010/03/24/jail.php">prison-themed playground</a> at the Tompkins Houses in Bed-Stuy has been there for <em>six years</em>, but has only just now caused enough outrage to get some press and set a change into motion. <p></p>
+
+<p>Lumumba Bandele, a local resident and lecturer in black history at CUNY, told <a href="https://web.archive.org/web/20110629204858/http://cityroom.blogs.nytimes.com/2010/03/24/a-jail-for-children-stirs-a-ruckus-in-brooklyn/">the Times</a> that he&apos;d started complaining last week, explaining, &#x201C;The fact is that this community along with six others in New York City makes up the majority of the prison population in New York State. And to have this here under the auspices of NYCHA is absolutely insulting.&#x201D;</p>
+
+<p>Bandele isn&apos;t the first to speak out about the playground, however&#x2014;and one resident even spray painted over the word &quot;Jail&quot; twice since it was installed, but it mysteriously reappeared both times. Yesterday, Housing Authority workers made the word and its accompanying prison bars a thing of the past, however, and the entire playground will be replaced in the future. They also confirmed there is another identical playground in New York, but would not say where... we&apos;re guessing it isn&apos;t in the <a href="https://web.archive.org/web/20110629204858/http://gothamist.com/2010/02/24/upper_east_side_6.php">East 70s</a>.</p>

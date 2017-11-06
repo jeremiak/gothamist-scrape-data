@@ -1,0 +1,17 @@
+---
+author: Ben Yakas
+date: September 24, 2011 10:55 AM
+title: Video: Brooklyn Rapper Waxes Poetic About Welfare Abuse
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="92411ebt.jpg" src="https://web.archive.org/web/20120301215846im_/http://gothamist.com/attachments/byakas/92411ebt.jpg" width="640" height="380" class="image-none"> </span></p>
+
+<p>Conservatives have been up in arms all week over a rapper who seemingly glorifies the decadent lifestyle of food stamps and welfare. Stanley Lafleur, aka rapper Mr EBT (H-Man), watched as the video for his single &quot;My EBT,&quot; which joyously depicts him using his government-issued Electronic Benefit Transfer card to pay for junk food, went viral this week after Drudge Report and other conservative bloggers  held it up as The Reason This Country Is Going To Hell (not the <a href="https://web.archive.org/web/20120301215846/http://gothamist.com/2011/09/23/anti-occupy_wall_street_champagne_t.php">champagne toasts</a>). But Lafleur <a href="https://web.archive.org/web/20120301215846/http://www.nydailynews.com/news/politics/2011/09/24/2011-09-24_just_a_dopey_video_dont_rip_me_sez_mr_ebt_its_a_parody.html">tells the News that</a> conservatives just don&apos;t get his message: &quot;I couldn&apos;t believe people are hating on me like I&apos;m rubbing the benefit card in the face of taxpayers. <strong>They don&apos;t get it. My video is a parody.&quot;</strong></p>
+
+<p><iframe width="640" height="360" src="https://web.archive.org/web/20120301215846if_/http://www.youtube.com/embed/-IGfe2tAUbM" frameborder="0" allowfullscreen></iframe></p>
+
+<p>Lafleur gives a hilarious instructional rundown of the abuses of the EBT system with <em>poetic</em> flourishes: &quot;I&apos;m never going hungry, swiping all day y&apos;all. Sandwiches, chips, a big box of Oreos. Cereal, Kix, but I couldn&apos;t buy a 40, dog?&quot; At one point, he laments that his dealer doesn&apos;t accept food stamps: &quot;I wish I could buy some weed with my EBT but the drug dealer fronted me.&quot;</p>
+
+<p>The <a href="https://web.archive.org/web/20120301215846/http://theconservativetreehouse.wordpress.com/2011/09/20/call-me-mr-ebt-video-warning-graphic-language/">Conservative TreeHouse accused</a> Lafleur of &quot;celebrating the pure coolness of any and all things gotten for nothing.&quot; The <a href="https://web.archive.org/web/20120301215846/http://conservativeoutpost.com/new_hit_youtube_video_glorifies_welfare_song">Conservativepost.com wrote</a> that the &quot;video glorifies welfare.&quot; Columnist <a href="https://web.archive.org/web/20120301215846/http://townhall.com/columnists/benshapiro/2011/09/21/four_minutes_to_explain_all_that_is_wrong_with_america/page/full/">Ben Shapiro of Town Hall described</a> Lafleur as <strong>&quot;the sort of leech who is bankrupting our society.&quot;</strong></p>
+
+<p>But Lafleur is having the last laugh, since conservatives missed the point entirely&#x2014;the video is a reflection of the EBT abuse, not a glorification of it. &quot;That&apos;s the whole point of my video and that&apos;s what I&apos;m trying to stop. There&apos;s a lot of people who really need help but aren&apos;t getting it while too many are abusing the system,&quot; he told the News. His producer Jermaine Gomes agreed with his sentiment: &quot;It&apos;s just amazing that some people don&apos;t get it. <strong>They think it&apos;s seriously some dumb guy just using his EBT card.&quot;</strong></p>

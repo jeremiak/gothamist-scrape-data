@@ -1,0 +1,13 @@
+---
+author: Jen Carlson
+date: November 12, 2009  3:05 PM
+title: Mysterious Gravestone Becomes Less Mysterious
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="tombstonejj1109.jpg" src="https://web.archive.org/web/20130609233409im_/http://gothamist.com/attachments/arts_jen/tombstonejj1109.jpg" width="275" height="286" class="image-left"> </span>The mystery is being lifted little-by-little around James Jackson, whose <a href="https://web.archive.org/web/20130609233409/http://gothamist.com/2009/10/26/washington_square_park.php">tombstone</a> was recently unearthed in Washington Square Park. In under a week <a href="https://web.archive.org/web/20130609233409/http://gothamist.com/2009/10/28/washington_square_park_gravestone.php">it was theorized</a> that Jackson resided at 19 East George Street (the former name of Market Street), and was a watchman and grocer.</p>
+
+<p>Now <a href="https://web.archive.org/web/20130609233409/http://cityroom.blogs.nytimes.com/2009/11/12/clues-emerge-in-life-of-irishman-buried-under-park/">CityRoom</a> reports that by &quot;using centuries-old tax records, city directories, court files and medical examiners logs, historians have begun to piece together the life of Mr. Jackson, an Irish immigrant.&quot; Joan H. Geismar, the Parks Deptment&apos;s archaeological consultant who made the discovery, said, &#x201C;I find this an extraordinary story, the surprise of it and the record of it. We&#x2019;ve been able to find out what was going on then.&#x201D;</p>
+
+<p>Jackson was a young Irish immigrant who became a citizen, started a family and contracted yellow fever, which caused his death. &quot;A tax assessment record declares the value of Mr. Jackson&#x2019;s personal estate at $262,&quot; he lost a child a year before his own death, and his widow kept living at their home after he died. While Washington Square Park was a potters field at one time, it also housed some church cemeteries. In a New York Gazette article dated August 28, 1799, it explains that &quot;[during an outbreak of yellow fever] It is important to remark here that no persons dead of fever are admitted into any other cemetery, which was not the case heretofore.&#x201D;</p>
+
+<p>Government officials in Ireland are attempting to document parts of his life there, as well, and would eventually like to discover some ancestors or descendants.</p>

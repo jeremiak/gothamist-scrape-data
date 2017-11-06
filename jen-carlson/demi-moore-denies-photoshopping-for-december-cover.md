@@ -1,0 +1,14 @@
+---
+author: Jen Carlson
+date: December 28, 2009  5:08 PM
+title: Demi Moore Denies Photoshopping For December Cover
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="phpzTHWk5PM.jpg" src="https://web.archive.org/web/20120201170508im_/http://gothamist.com/phpzTHWk5PM.jpg" width="640" height="432" class="image-none"> </span><br>
+<span class="photo_caption">Courtesy of Boing Boing</span></p>
+
+<p>Is it <a href="https://web.archive.org/web/20120201170508/http://twitter.com/mrskutcheR">Demi Moore Twitter</a>-deathwatch time? The actress has been forced to defend her looks in 140-characters or less multiple times in the past month. First when one of her followers said she looked old, she had the applaudable <a href="https://web.archive.org/web/20120201170508/http://gawker.com/5430290/demi-moores-ages+old-empire-of-dirt">response</a> of: &quot;I&apos;m 47. How am I supposed to look?&quot;; and now she&apos;s defending her W cover, <a href="https://web.archive.org/web/20120201170508/http://twitter.com/mrskutcher/status/5867092975">swearing it wasn&apos;t Photoshopped</a>. Not so applaudable.</p>
+
+<p>Now <a href="https://web.archive.org/web/20120201170508/http://www.zigzaglens.com/demi-moores-hip-and-handling-the-truth/">a photographer</a> (who didn&apos;t take the photo, but commented on it) <em>and</em> <a href="https://web.archive.org/web/20120201170508/http://www.boingboing.net/2009/12/28/demi-moores-lawyers.html">Boing Boing</a> are facing the actress&apos;s team of lawyers. The website reported today that her lawyers &quot;sent a threatening letter to Boing Boing over the holidays which demanded that we remove a post I published <a href="https://web.archive.org/web/20120201170508/http://boingboing.net/2009/11/17/demi-moore-is-ralph.html">in November</a>, or face legal consequences. In the referenced Boing Boing post, I published photographer Anthony Citrano&apos;s speculation that a recent W Magazine cover image of the actress may have been crudely manipulated by magazine staff to alter her hip, and appear thinner.&quot; (Since they received the letter, photos of the same magazine cover in South Korea have surfaced with Demi&apos;s leg is fully in tact.) The site&apos;s lawyer retorted noting that Ms. Moore posted about the photo on Twitter, thrusting herself &quot;into the public eye (and into this debate).&quot;</p>
+
+<p>It&apos;s a shame Demi isn&apos;t shaming the magazine for hacking off parts of her body &#x2014; even former <a href="https://web.archive.org/web/20120201170508/http://gothamist.com/2009/10/14/ralph_lauren_model.php">Ralph Lauren model Filippa Hamilton</a> stood up for her figure after the company distorted her in ads.</p>

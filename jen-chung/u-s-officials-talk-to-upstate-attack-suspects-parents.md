@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: July  8, 2008  2:24 PM
+title: U.S. Officials Talk to Upstate Attack Suspect's Parents
+---
+
+<p><img alt="2008_07_miladin.jpg" src="https://web.archive.org/web/20130716012349im_/http://gothamist.com/attachments/jen/2008_07_miladin.jpg" width="70" height="99" class="right">The U.S. Embassy in Serbia issued a statement saying officials had met with the parents of Miladin Kovacevic, the Serbian national <a href="https://web.archive.org/web/20130716012349/http://gothamist.com/2008/06/29/outrage_over_serbian_students_upsta.php">charged with beating a Brooklyn man in upstate NY</a>.  <a href="https://web.archive.org/web/20130716012349/http://www.nydailynews.com/news/ny_crime/2008/07/07/2008-07-07_us_officials_meet_with_parents_lawyer_to.html">Per the AP</a>, the statement read, &quot;The United States has not formally requested extradition at this time.<strong> We sincerely believe that it is in the best interests of Mr. Kovacevic to return voluntarily to the U.S., rather than to remain a fugitive.</strong> The meeting was constructive and the Kovacevic family and counsel were receptive to the points raised in the discussion.&quot;  To reporters, Kovacevic&apos;s parents denied their son was involved in the attack and said he was &quot;depressed.&quot;</p>

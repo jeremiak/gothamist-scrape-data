@@ -1,0 +1,11 @@
+---
+author: Jen Carlson
+date: Sep 16, 2009 5:46 pm
+title: NY State Pavilion Gets Landmarked
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-right" style=" width:145px; "> <img alt="2009_09_nystpav.jpg" src="https://web.archive.org/web/20160520004307im_/http://gothamist.com/attachments/jen/2009_09_nystpav.jpg" width="145" height="125"> <br> <i>Photo: <a href="https://web.archive.org/web/20160520004307/http://www.flickr.com/photos/seanhopkins/3800940909/">SeanieDawg</a></i></div> The New York State Pavilion, just one part of the decaying 1964 World&apos;s Fair in Queens, won state landmark approval! A designation that <a href="https://web.archive.org/web/20160520004307/http://www.nydailynews.com/ny_local/queens/2009/09/16/2009-09-16_new_york_state_pavilion_.html">the Daily News</a> says &quot;opens it to desperately needed rehab grants.&quot; (Plans to do something with the site <a href="https://web.archive.org/web/20160520004307/http://www.gothamist.com/archives/2004/07/08/what_to_do_with_the_1964_worlds_fair_towers_in_queens.php">have been in the</a> <a href="https://web.archive.org/web/20160520004307/http://gothamist.com/2006/11/11/pity_the_new_yo.php">works for years</a>.) It&apos;s also been nominated as a national landmark. In related news, <a href="https://web.archive.org/web/20160520004307/http://cityroom.blogs.nytimes.com/2009/09/16/middle-class-homes-get-landmark-status/">Jenny 8. Lee</a> pens a breathless piece on city landmark status granted to 100 middle-class residential buildings in Queens and on Staten Island; &quot;The bulk of these buildings, 96, are modest century-old three-story buildings in the Ridgewood North Historic District.&quot; It looks like everything is coming up Queens today! Perhaps they&apos;ll take another gander at <a href="https://web.archive.org/web/20160520004307/http://gothamist.com/2009/05/28/kerouac_1.php">Kerouac&apos;s old house</a>.<p></p>					
+										
+									
+				

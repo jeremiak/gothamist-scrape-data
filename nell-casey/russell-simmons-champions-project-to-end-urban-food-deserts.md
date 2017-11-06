@@ -1,0 +1,20 @@
+---
+author: Nell Casey
+date: May 22, 2013 11:55 am
+title: Russell Simmons Champions Project To End Urban "Food Deserts"
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="052213qualityaccess.jpg" src="https://web.archive.org/web/20140901190243im_/http://gothamist.com/attachments/nyc_nellcasey/052213qualityaccess.jpg" width="640" height="473"> <br> <i> <span class="photo_caption">(<a href="https://web.archive.org/web/20140901190243/http://www.flickr.com/photos/hbomb/2372475797/">Harvey Silikovitz</a>/Flickr)</span></i></div> <p></p>
+
+<p>When he&apos;s not <a href="https://web.archive.org/web/20140901190243/http://gothamist.com/2007/04/24/russell_simmons.php">championing for change in rap music</a> and <a href="https://web.archive.org/web/20140901190243/http://gothamist.com/2011/11/17/russell_simmons_2.php">selling OWS-branded t-shirts</a>, <a href="https://web.archive.org/web/20140901190243/http://gothamist.com/2011/03/14/russell_simmons_entrepreneur.php">Russell Simmons</a> is <a href="https://web.archive.org/web/20140901190243/http://www.nydailynews.com/new-york/brooklyn/russell-simmons-helping-cook-plan-sell-healthier-food-article-1.1351064?localLinksEnabled=false">helping to bring fresh food to the city&apos;s food deserts</a>. The entrepreneur and Def Jam co-founder has teamed up with fellow entrepreneur Hajj Hasaun Muhammad and his partner Luanna Williams to launch an innovative grocery business model to serve populations who have limited or no access to fresh produce and other quality food items. The Quality Access grocery, as it&apos;s been dubbed, would set up markets in underserved communities to sell high quality food at reasonable rates, which they&apos;ll accomplish by sourcing 90% of their items via private label, a model used most famously by discount grocer Trader Joe&apos;s.</p>
+
+<p>Simmons&apos;s website <a href="https://web.archive.org/web/20140901190243/http://globalgrind.com/news/qualityaccess-hajj-hasaun-muhammad-luanna-williams-food-deserts-interview">GlobalGrind interviewed the team</a>, who offered insight about their lives in food deserts and the similar struggles of people in their community. &quot;The options are so limited that it feels like a conspiracy: either bad fruits or no fruits and vegetables, yet tons of junk food and fast food,&quot; explained Williams. A mother in her early 30s &quot;has to walk over three miles to Trader Joe&apos;s at least once a week, because that&apos;s the nearest supermarket with quality food at affordable prices and it&apos;s difficult to maneuver on a crowded bus or subway with bags, baby and a stroller,&quot; lamented Williams. &quot;Not to mention it&apos;s an added cost.&quot; </p>
+
+<p>Similar projects, like the <a href="https://web.archive.org/web/20140901190243/http://gothamist.com/2010/04/27/green_cart_initiative_having_tough.php">Green Cart initiative saw mixed results</a>, with certain vendors making decent profits while others struggled to attract buyers. Seasonal markets like the <a href="https://web.archive.org/web/20140901190243/http://gothamist.com/2012/06/12/125th_street_farmers_market_returns.php">125th Street Farmer&apos;s Market</a> also provided fresh food oasis in underserved neighborhoods and accepted Food Stamp Benefits as an added incentive for shoppers.</p>
+
+<p>The team has <a href="https://web.archive.org/web/20140901190243/http://www.indiegogo.com/projects/quality-access-join-us-to-bring-better-food-to-a-community-near-you">launched an IndieGoGo campaign</a> to source funding for the startup, which seeks $175,000 to begin the project. The initial funds will go towards brand development and establishing the supply chain, which will initially service New York City neighborhoods like Brownsville and Central Harlem before hopefully expanding nationwide. The project has adopted the social media tag #QualityAccess to help spread the word. <br>
+</p>					
+										
+									
+				

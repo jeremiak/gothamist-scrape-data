@@ -1,0 +1,13 @@
+---
+author: Jen Carlson
+date: March 25, 2008  5:01 PM
+title: Megabus Readies for the Road
+---
+
+<p><img alt="200803megabus.jpg" src="https://web.archive.org/web/20110623142730im_/http://gothamist.com/attachments/arts_jen/200803megabus.jpg" width="350" height="250" class="left"><a href="https://web.archive.org/web/20110623142730/http://blog.modernmechanix.com/2008/03/24/gliding-cars-planned-for-new-railway/?Qwd=./PopularScience/5-1933/gliding_cars&amp;Qif=gliding_cars_0.jpg&amp;Qiv=thumbs&amp;Qis=XL#qdig">Back in 1933</a> Popular Science reported on New York engineer Walter H. Judson&apos;s new railway which would have trains running from San Francisco to New York in 18 hours, and Chicago to New York in 5.5 hours. Now it&apos;s the buses battling it out to have the quickest times and cheapest fares to and from New York. </p>
+
+<p>Earlier this month <a href="https://web.archive.org/web/20110623142730/http://gothamist.com/2008/03/05/boltbus_from_ny.php">BoltBus</a> announced fares from NYC to DC and Boston starting at as low as $1. And now, just in time for Boltbus&apos;s launch on the 27th, <a href="https://web.archive.org/web/20110623142730/http://www.megabus.com/us">Megabus</a> is rolling in to steal its thunder. </p>
+
+<p><a href="https://web.archive.org/web/20110623142730/http://www.wcbs880.com/Megabus-com-Hopes-to-Bring-$1-Service-to-NYC/1882541">The AP</a> reports that &quot;Megabus.com is based in Paramus, N.J. It already operates in several states and is a subsidiary of Coach USA. Tickets will start at $1 a fare. Prices rise as the departure date approaches. Its vehicles are equipped with movie screens and free wireless Internet connections.&quot; Their service will begin on May 30th, and they&apos;re expected to announce cheap fares to six other East Coast cities in the future. </p>
+
+<p>BoltBus told <a href="https://web.archive.org/web/20110623142730/http://www.nytimes.com/2008/03/25/nyregion/25bus.html?ref=nyregion">The NY Times</a> that they won&apos;t be outdone by their new competitor, saying they&apos;re &#x201C;the best of all worlds in terms of extreme value and on-board service, with three inches of extra leg room and electrical outlets at every seat.&#x201D; It&apos;s anyone&apos;s game, but the <a href="https://web.archive.org/web/20110623142730/http://gothamist.com/tags/chinatownbus">Chinatown Bus</a> is looking more and more like a spectator.</p>

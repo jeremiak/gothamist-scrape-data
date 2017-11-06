@@ -1,0 +1,14 @@
+---
+author: Nell Casey
+date: December 28, 2011  4:47 PM
+title: Mulch Ado About Christmas: Recycle Your Tree At MulchFest!
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="122811treerecycling.jpg" src="https://web.archive.org/web/20120104095144im_/http://gothamist.com/attachments/nyc_nellcasey/122811treerecycling.jpg" width="640" height="480" class="image-none"> </span> <br>
+<span class="photo_caption">This is not proper tree recycling! (Flickr/<a href="https://web.archive.org/web/20120104095144/http://www.flickr.com/photos/slice/350581010/in/photostream/">Adam Kuban</a>)</span></p>
+
+<p>Sadly, the holidays are coming to an end, leaving behind only fond memories of Yuletide glee and the five pounds you gained gorging on Nana&apos;s gingerbread. And if you welcomed a Christmas tree into your home this year, you&apos;re probably starting to notice dropping needless and browned branches, a sign that your festive fir is going the way of <a href="https://web.archive.org/web/20120104095144/http://gothamist.com/2011/12/28/video_kim_jong-il_mourners_sobbing.php">&quot;Dear Leader&quot; Kim Jong-Il</a>. Stop hysterically sobbing and pull yourself together! Since we&apos;re sure you don&apos;t want to be <em>that person</em> who keeps their tree until spring, we suggest you take advantage of this free city service for recycling your precious pine. Here&apos;s how:</p>
+
+<p>The Parks Department, the Department of Sanitation and GreeNYC are teaming up once again for <a href="https://web.archive.org/web/20120104095144/http://www.nycgovparks.org/highlights/festivals/mulchfest">MulchFest</a>, their annual tree grinding extravaganza that repurposes your Christmas tree into much needed mulch for the city&apos;s parks. On January 7th and 8th, recreate your very own version of <em>Fargo</em> at dozens of locations throughout the boroughs or&#x2014;if you can&apos;t bear to see your beautiful balsam ground to bits before your very eyes&#x2014;drag your tree to one of 35 drop off locations between January 2nd and January 8th. We&apos;ve mapped a few locations below, but consult the MulchFest website for a more detailed list. Biodegradable bags will also be on hand so mulchers can take home a bag of wood chips for their own gardens or to help keep a street tree warm and cozy through the winter. </p>
+
+<p>If you&apos;re too <strike>lazy</strike> busy to haul your tree a few measly blocks to the park, the Department of Sanitation will be <a href="https://web.archive.org/web/20120104095144/http://www.nyc.gov/html/dsny/html/pr2011/122711.shtml">picking up clean, unbagged trees</a> curbside starting Tuesday, January 3rd and concluding on Saturday, January 14th. But do the right thing and stop by one of the locations below!</p>

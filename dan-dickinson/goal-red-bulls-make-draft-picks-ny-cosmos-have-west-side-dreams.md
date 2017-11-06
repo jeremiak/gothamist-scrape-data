@@ -1,0 +1,27 @@
+---
+author: Dan Dickinson
+date: Jan 13, 2012 3:19 pm
+title: Goal: Red Bulls Make Draft Picks, NY Cosmos Have West Side Dreams
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="6265641140_5d3f92e75d_z.jpg" src="https://web.archive.org/web/20150428112210im_/http://gothamist.com/attachments/Dan Dickinson/6265641140_5d3f92e75d_z.jpg" width="640" height="427"> <br> <i>The Red Bulls <a href="https://web.archive.org/web/20150428112210/http://gothamist.com/2011/10/21/rbny_clinches_final_playoff_spot_wi.php">during the regular season last fall.</a></i></div> <p></p>
+
+<p>After a quiet first two months of the off-season, and with team management stating they were &quot;<a href="https://web.archive.org/web/20150428112210/http://www.newyorkredbulls.com/news/2012/01/red-bulls-not-banking-superdraft-major-help">not banking</a>&quot; on Thursday&apos;s MLS SuperDraft for major help, Red Bulls fans could be forgiven for thinking the team might not even show up in Kansas City.  Yet the team still manage to make waves, acquiring goalkeeper Ryan Meara in the draft, Swedish defender Markus Holgersson on a transfer, and Portland Timbers forward Kenny Cooper in a trade.</p>
+
+<p>Yonkers native Ryan Meara spent the last four years playing for Fordham University, where he made 74 appearances, registered 31 shut-outs, and was named the 2011 Atlantic 10 Defensive Player of the Year.  Despite having only the 31st natural pick this year, GM Erik Soler appears to have gotten what he came to Kansas City for, stating &quot;We think he&#x2019;s the best goalkeeper in the college system. He&#x2019;s big, he&#x2019;s strong, we need a goalie, and he&#x2019;s from New York. Every factor that we looked at was there, and he was the player we wanted most from the draft simply because we needed a goalkeeper.&quot;</p>
+
+<p>The Red Bulls also continued to strengthen the back four, completing the rumored deal for Swedish defender Markus Holgersson.  The 26 year old was a fixture in a Helsingborg side that became the first Swedish team to win a treble in history.  With <a href="https://web.archive.org/web/20150428112210/http://www.telegraph.co.uk/sport/football/teams/bolton-wanderers/9011519/Bolton-target-bargain-buy-Tim-Ream-from-New-York-Red-Bulls-as-replacement-for-Chelsea-bound-Gary-Cahill.html">Tim Ream&apos;s move to Bolton seeming inevitable</a>, it&apos;s unknown whether Holgersson would pair up with Stephen Keel, or if the team would move to find another central defender.</p>
+
+<p>The move for Kenny Cooper came as a shock to fans in both Portland and New York, with New York giving up their first round pick in next year&apos;s SuperDraft and an unspecified amount of allocation money to acquire him.  Cooper, a 2008 MLS Best XI forward, was widely seen as having a subpar 2011 season despite leading the Timbers scoring with 8 goals.  His acquisition brings less questions about his form and more questions about what NY&apos;s coaching staff will decide up front.  While many fear this may be a sign the team is ready to sell off youth phenom Juan Agudelo, Soler argued the move is motivated by a need for depth: &quot;We simply need to ensure that we don&#x2019;t get in a situation where we have injuries and have no one to put up top.&quot;</p>
+
+<p>Over in England, on-loan striker Thierry Henry sent Arsenal fans worldwide into delight as he subbed onto the field at Emirates Stadium during the team&apos;s FA Cup match against Leeds United.  Ten minutes later, he sent those fans into a frenzy as he scored the lone goal of the match, one that can only be described as a textbook Thierry Henry finish.  Coach Arsene Wenger <a href="https://web.archive.org/web/20150428112210/http://www.arsenal.com/news/news-archive/-the-perfect-script-for-a-special-player-">described it</a> as &quot;the perfect script from a perfectly special player&quot;.</p>
+
+<p><iframe width="640" height="360" src="https://web.archive.org/web/20150428112210if_/http://www.youtube.com/embed/_bNBN9XlTK0?rel=0#t=90s" frameborder="0" allowfullscreen></iframe></p>
+
+<p>While the Red Bulls begin their preseason training camp this Monday, MLS commissioner Don Garber continues his quest to bring another team to the NYC area.  Speaking to the media from the SuperDraft, Garber expressed a strong desire to have the stadium in Manhattan itself.  A league source <a href="https://web.archive.org/web/20150428112210/http://www.bigapplesoccer.com/sections/mls2.php?article_id=29562">told Big Apple Soccer</a> that most of the location scouting has been focused on the west side, particularly the <a href="https://web.archive.org/web/20150428112210/http://gothamist.com/tags/westsiderailyards">West Side Rail Yards</a>.  The New York Cosmos remain one of a handful of ownership groups who would be interested in becoming &quot;NY2&quot;, but the league continues to work to secure a stadium within the city limits before working to find a team.</p>
+
+<p>Lastly, while the US Men&apos;s National Team won&apos;t be playing locally again in the near future, two South American powerhouses will clash in the area on June 9th.  Argentina and Brazil <a href="https://web.archive.org/web/20150428112210/http://www.empireofsoccer.com/argentina-v-brazil-this-summer-at-metlife-stadium/">will face off</a> at Metlife Stadium in front of what will undoubtedly be a capacity crowd.</p>					
+										
+									
+				

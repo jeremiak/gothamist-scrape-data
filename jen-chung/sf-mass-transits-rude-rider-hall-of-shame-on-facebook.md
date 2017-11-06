@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: January  2, 2009  2:19 PM
+title: SF Mass Transit's "Rude Rider Hall of Shame" on Facebook!
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2009_01_art.jpg" src="https://web.archive.org/web/20120117120144im_/http://gothamist.com/attachments/jen/2009_01_art.jpg" width="145" height="124" class="image-right"> </span>Via <a href="https://web.archive.org/web/20120117120144/http://sfist.com/2009/01/02/rude_rider_hall_of_shame_asks_bart.php">SFist</a> (which calls it &quot;deliciously big brother-y&quot;), the Bay Area&apos;s mass transit system, BART, has created a Facebook page to help shame rude riders.  BART, a government agency, says the <a href="https://web.archive.org/web/20120117120144/http://www.facebook.com/album.php?aid=67528&amp;id=44117131915">Rude Rider Hall of Shame</a> will feature &quot;<strong>Rider-contributed photos of people blocking doorways, eating on trains, bringing their dogs on board, breaking all the rules and generally displaying rude behavior</strong>.&quot;  So far, there are only two photos (one of a pole hugger and another of a man-sitter with bicycle), but we can imagine the madness if the MTA has a Facebook page like that.</p>

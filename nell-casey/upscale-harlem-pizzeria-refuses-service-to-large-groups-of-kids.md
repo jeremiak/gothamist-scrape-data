@@ -1,0 +1,23 @@
+---
+author: Nell Casey
+date: Feb 18, 2014 11:45 am
+title: Upscale Harlem Pizzeria Refuses Service To Large Groups Of Kids
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="021814badhorse.jpg" src="https://web.archive.org/web/20150426152018im_/http://gothamist.com/attachments/nyc_nellcasey/021814badhorse.jpg" width="640" height="425"> <br> <i> <span class="photo_caption">(<a href="https://web.archive.org/web/20150426152018/http://www.shutterstock.com/gallery-81193p1.html">Cheryl Casey</a>/<a href="https://web.archive.org/web/20150426152018/http://www.shutterstock.com/index-in.mhtml">Shutterstock</a>)</span></i></div> <p></p>
+
+<p><strong>[Update below]</strong> A fancy pizza restaurant in Harlem has put the kibosh on kids, instituting a partial ban on greasy-fingered groups of youngsters. <a href="https://web.archive.org/web/20150426152018/http://www.badhorsepizza.com/">Bad Horse Pizza</a>, a three-year-old spot dishing out upscale pies on Frederick Douglass Boulevard, has angered local parents by not allowing groups with multiple children to dine in the restaurant. A reservation for 12 was <a href="https://web.archive.org/web/20150426152018/http://www.dnainfo.com/new-york/20140218/central-harlem/bad-horse-pizza-wary-of-serving-too-many-children">unceremoniously canceled by the restaurant</a> after owner John Kandel discovered it would include nine children, according to DNAInfo. </p>
+
+<p>&quot;They basically said that they don&apos;t want a lot of kids or parties in their restaurant,&quot; says disgruntled customer April Patrick-Rabiu. &quot;When I asked them how many was too many they wouldn&apos;t be specific, but just said that their customers didn&apos;t like it, kids are noisy and bothersome and that it was a definite &apos;no.&apos;&quot; Kandel stands by his decision, citing bad behavior by wild children in the restaurant on previous occasions. &quot;Over time I&apos;ve had to tailor what I do because some people let their kids treat my store really disrespectfully by standing on stuff, pulling on curtains and wiping bloody noses with my napkins.&quot; At least they&apos;re not <a href="https://web.archive.org/web/20150426152018/http://gothamist.com/2013/04/18/ps_parents_are_putting_diaperless_b.php">pooping on the seats</a>?</p>
+
+<p>Besides the naughty antics, Kandel says it comes down to economics, explaining that large groups of kids don&apos;t reap the same financial baseline needed to make ends meet. &quot;Having a group with kids at 5 p.m. is fine, I just can&apos;t have it during adult meal time,&quot; he concedes. Plus, diners seeking out the quiet, candlelit tables and cloth napkin service aren&apos;t thrilled by the potential antics of a big group of rowdy youngsters. &quot;I felt it was affecting my business,&quot; he said. &quot;I can&apos;t lose customers who spend $30 to $40.&quot;</p>
+
+<p>I&apos;ve seen the insanity firsthand during years in the service industry; the kids might be wreaking havoc, but it must be said it&apos;s the parents who are to blame. Kids darting between the legs of tray-carrying food runners, children casually strolling behind the bar&#x2014;all while the adults eat and drink and relax knowing that some harried server will probably prevent their offspring from walking out of the restaurant into traffic. It&apos;s especially common when the kids outnumber the adults, like people passing blame when dirty dishes pile up in a communal kitchen space. </p>
+
+<p>While some restaurants are <a href="https://web.archive.org/web/20150426152018/http://gothamist.com/2010/05/09/fancy_restaurants_now_catering_to_k.php">catering to kids</a> these days, even creating <a href="https://web.archive.org/web/20150426152018/http://gothamist.com/2010/05/12/park_slopes_fornino.php">special menus</a> for youngsters, that&apos;s not an invitation to treat an eatery like Chuck E. Cheese. On the other hand, children are humans too and should be treated as such (say some parents we know). We&apos;ve reached out to the Department of Consumer Affairs to discern whether or not excluding kids is a form of discrimination; we&apos;ll update if we hear back.</p>
+
+<p><strong>Update:</strong> Betsy Herzog, spokesperson for the <a href="https://web.archive.org/web/20150426152018/http://www.nyc.gov/html/cchr/html/home/home.shtml">Commission on Human Rights</a>, says that denying entry to children is &quot;definitely against the city human rights law.&quot; Nobody has come forward yet to file a complaint but the Commission would welcome and encourage people to do so.</p>					
+										
+									
+				

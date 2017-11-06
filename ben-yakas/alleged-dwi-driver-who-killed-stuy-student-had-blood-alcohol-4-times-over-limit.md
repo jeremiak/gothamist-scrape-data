@@ -1,0 +1,11 @@
+---
+author: Ben Yakas
+date: December 24, 2011 11:40 AM
+title: Alleged DWI Driver Who Killed Stuy Student Had Blood Alcohol 4 Times Over Limit
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:250px; "> <img alt="122411tsao.jpg" src="https://web.archive.org/web/20120603172613im_/http://gothamist.com/attachments/byakas/122411tsao.jpg" width="250" height="335"> <br> <i>Victim Terence Tsao</i></div> Last week, a Brooklyn teen standing on a street divider in Gravesend <a href="https://web.archive.org/web/20120603172613/http://gothamist.com/2011/12/17/brooklyn_teen_fatally_struck_on_str.php">was struck and killed</a> by an alleged drunk driver. Driver Vitali Korzavin, 46, <a href="https://web.archive.org/web/20120603172613/http://gothamist.com/2011/12/18/brooklyn_teen_killed_by_alleged_dru.php">was arrested and charged with</a> a DWI, speeding, and vehicular manslaughter in the death of 17-year-old Stuyvesant High School student Terence Tsao. Yesterday, Korzavin&apos;s charges <a href="https://web.archive.org/web/20120603172613/http://www.nydailynews.com/news/crime/drunken-driver-killed-stuyvesant-student-times-legal-drinking-limit-prosecutor-article-1.995995?localLinksEnabled=false">were upgraded to aggravated vehicular homicide</a> from manslaughter, after it was revealed his blood alcohol level was .32, four times over the legal limit.<p></p>
+
+<p>Assistant District Attorney David Ingle added that a court ordered blood test taken seven hours after the accident registered .20, still two times more than the legal limit. Korzavin was ordered held in lieu of $500,000 bail; he faces up to 25 years in prison if convicted. </p>
+
+<p>Terence, a senior at Stuyvesant, was standing on a Cropsey Ave. traffic island at Bay 37th St. in Gravesend when a 2000 Dodge minivan jumped the curb and hit him last Friday evening. <a href="https://web.archive.org/web/20120603172613/http://gothamist.com/2011/12/18/brooklyn_teen_killed_by_alleged_dru.php">Terence&apos;s father said</a> his son was returning home from his school&#x2019;s Board Game Society, of which he was the president: &#x201C;He stayed late on Fridays to be with his friends. That was his fun night.&#x201D;</p>

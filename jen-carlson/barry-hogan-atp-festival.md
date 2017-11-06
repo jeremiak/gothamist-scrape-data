@@ -1,0 +1,15 @@
+---
+author: Jen Carlson
+date: Sep 8, 2009 8:30 am
+title: Barry Hogan, ATP Festival
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="3899178886_bb2ccd9f10.jpg" src="https://web.archive.org/web/20150104205451im_/http://gothamist.com/attachments/arts_jen/3899178886_bb2ccd9f10.jpg" width="196" height="350" class="image-left"> </span><em><a href="https://web.archive.org/web/20150104205451/http://www.atpfestival.com/Events/ATPNewYork2009.php">All Tomorrow&apos;s Parties</a> (better known as ATP) got a New York home last year in the Catskills, and the old upstate resort <a href="https://web.archive.org/web/20150104205451/http://www.kutshers.com/">Kutshers</a> provided such a perfect space that it&apos;ll all be happening again this year. The fest is hands down the most enjoyable event we&apos;ve ever personally attended, and the soundtrack provided isn&apos;t too shabby either. This year Animal Collective, Sufjan Stevens, Flaming Lips, Deerhoof and <a href="https://web.archive.org/web/20150104205451/http://www.atpfestival.com/Events/ATPNewYork2009/LineUp.php">many many many more</a> will be performing throughout the three days; there&apos;s also poker with Steve Albini (don&apos;t miss his band Shellac, either), and plenty of other distractions to keep you entertained (check out photos from last year <a href="https://web.archive.org/web/20150104205451/http://www.flickr.com/photos/punkphoto/sets/72157607650076559/">here</a>). If you&apos;re free this weekend, we highly recommend <a href="https://web.archive.org/web/20150104205451/http://www.seetickets.com/atp/price.asp?code=351322&amp;filler1=id1atp&amp;filler2=multiatp&amp;filler3=&amp;pgroup=all">buying yourself a ticket</a>&#x2014;but first, get to know the organizer a little better.</em></p>
+
+<p><strong>Can you tell us a little bit about the history of ATP? How did you decide to start it?</strong> I got bored of corporate music festivals that were all about treating bands and fans badly and decided to start one that had a sense of community and wasn&#x2019;t about making money and was designed to look after artists and fans alike.</p>
+
+<p><strong>What was the biggest challenge putting together the New York ATP?</strong> The idea of people getting out of the city and going away to a music festival in the Catskills seems to be a work in progress.  It&apos;s a real commitment to do it but totally worthwhile.   I think the hardest task has been to educate people that it&apos;s a getaway and like an anti-festival, where the music sounds good through a decent PA and the line up is incredible and you won&apos;t get rained on because it&apos;s all indoors.  It is getting through to folks but we need to work on it so that it becomes a firm fixture in the festival diary every year.</p>					
+										
+									
+				

@@ -1,0 +1,7 @@
+---
+author: Jen Carlson
+date: September 17, 2010 12:14 PM
+title: Wild Animals Removed From San Gennaro
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="lion0910sang.jpg" src="https://web.archive.org/web/20110706132316im_/http://gothamist.com/attachments/arts_jen/lion0910sang.jpg" width="125" height="128" class="image-right"> </span>This year&apos;s San Gennaro festival was offering up more than just zeppoles... it introduced real wild animals into Little Italy! <a href="https://web.archive.org/web/20110706132316/http://www.capitalnewyork.com/article/culture/2010/09/464654/lions-and-tigers-no-bears-little-italy">Capital reports</a> that on Mulberry Street, just south of Houston Street, there&apos;s &quot;a set of three cages&#x2014;one empty, one holding a caged baby lion, and a third with a box containing two tiger cubs&quot; (looks like the empty one held <a href="https://web.archive.org/web/20110706132316/http://www.flickr.com/photos/capitalnewyorkcity/4996751578/in/set-72157624970355312/">a bear</a>). And we&apos;re guessing these little guys have the same opinion on street fairs <a href="https://web.archive.org/web/20110706132316/http://gothamist.com/2010/02/27/bloomberg_likes_hot_sausages_doesnt.php">as Bloomberg</a>. The site notes that &quot;the lion&apos;s style was kinda cramped,&quot; and it appears that the people already spoke on their behalf, because yesterday the exhibit was being dismantled. Did you see them while they were there?</p>

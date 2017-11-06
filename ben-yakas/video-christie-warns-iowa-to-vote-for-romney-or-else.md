@@ -1,0 +1,17 @@
+---
+author: Ben Yakas
+date: December 31, 2011 11:30 AM
+title: Video: Christie Warns Iowa To Vote For Romney, Or Else 
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="123111christie.jpg" src="https://web.archive.org/web/20120118130610im_/http://gothamist.com/attachments/byakas/123111christie.jpg" width="640" height="465"> <br> <i>Aw, what an affectionate gaze (AP) </i></div> <p></p>
+
+<p>The remaining Republican presidential candidates are pulling out all the stops to try to convince people they actually like one of them. Newt Gingrich <a href="https://web.archive.org/web/20120118130610/http://www.google.com/hostednews/ap/article/ALeqM5juBXqksLOZswOIINHrcRJo4JFEeA?docId=55f4d9ae85834e9ea8da79935510294a">has learned to cry</a>, Ron Paul has harnessed the power of <a href="https://web.archive.org/web/20120118130610/http://gothamist.com/2011/12/29/kelly_clarkson_reveals_she_is_part.php">the Kelly Clarkson Nation</a>, and Mitt Romney has now put all his eggs in one incredibly heavy, charismatic New Jersey basket. During an appearance in Iowa on Romney&apos;s behalf yesterday, NJ Gov. Chris Christie <a href="https://web.archive.org/web/20120118130610/http://www.nydailynews.com/news/politics/jersey-gov-chris-christie-tells-iowa-voters-vote-mitt-romney-article-1.998981">laid down the law</a> with the crowd: &quot;Let me tell you, if you people disappoint me on Tuesday, if you don&apos;t do what you&apos;re supposed to do on Tuesday for Mitt Romney, I will be back&#x2014;Jersey style, people. I will be back.&quot;</p>
+
+<p><iframe width="640" height="360" src="https://web.archive.org/web/20120118130610if_/http://www.youtube.com/embed/fmfnu29ykJM" frameborder="0" allowfullscreen></iframe></p>
+
+<p>Channeling his inner &quot;stereotypically overbearing New Jersey tough guy,&quot; Christie added, &#x201C;America is watching Iowa, as we always do every four years. New Jersey is watching you, too. We&apos;re watching you really closely.&#x201D; Christie repeated his promise in an interview a few hours later: &quot;I hope they&#x2019;ve taken me seriously because I will come back here plenty angry if they don&#x2019;t do the right thing on Tuesday night. So they don&#x2019;t want that. They&#x2019;ve seen that. It&#x2019;s not good.&quot;</p>
+
+<p>Romney, <a href="https://web.archive.org/web/20120118130610/http://abcnews.go.com/GMA/video/mitt-romney-poll-shows-major-surge-15251886">who has been surging</a> in the latest polls, also name-checked Christie in an attempt to tie the two together as effective leaders: &quot;We finally have to have someone go to Washington who will do what Chris Christie is doing in New Jersey, which is to finally bring sanity to the people there, to work across the aisle.&quot;</p>
+
+<p>John Wisniewski, chairman of the Democratic Party in New Jersey, <a href="https://web.archive.org/web/20120118130610/http://www.nj.com/news/index.ssf/2011/12/christie_uses_tough-talk_in_io.html">told the Star-Ledger that</a> the comparison is completely undeserved&#x2014;mostly because Romney is too milquetoast to pull off the con Christie has: &quot;Let&#x2019;s face it, Mitt Romney could never do what Governor Christie has done in Trenton. He couldn&#x2019;t generate enough razzle-dazzle to distract people from the fact that he&#x2019;s picking their pocket to reward millionaires with tax cuts as if his life depended on it.&quot;</p>

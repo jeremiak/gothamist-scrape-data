@@ -1,0 +1,21 @@
+---
+author: Dan Dickinson
+date: Apr 19, 2012 1:50 pm
+title: Opponent's Broken Clavicle Means Rafa Marquez Draws ANOTHER 3-Game Suspension
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-right" style=" width:350px; "> <img alt="2012_04_rafamarquez.jpg" src="https://web.archive.org/web/20150428112052im_/http://gothamist.com/attachments/jen/2012_04_rafamarquez.jpg" width="350" height="290"> <br> <i>Rafa Marquez (Gothamist)</i></div> It was only a matter of time.  After <a href="https://web.archive.org/web/20150428112052/http://www.mlssoccer.com/video/2012/04/14/replay-salinas-takes-boot-marquez">his rugby tackle and kick</a> that broke the clavicle of San Jose Earthquakes midfielder Shea Salinas <a href="https://web.archive.org/web/20150428112052/http://gothamist.com/2012/04/15/red_bulls_escape_san_jose_clash_wit.php">last Saturday</a>, the MLS Disciplinary Committee <a href="https://web.archive.org/web/20150428112052/http://www.mlssoccer.com/news/article/2012/04/19/mls-suspends-and-fines-nyrbs-marquez-sjs-chavez">today announced</a> a three match suspension for Red Bulls midfielder Rafa Marquez , as well as an undisclosed fine.<p></p>
+
+<p>In his almost two years in MLS, Marquez is no stranger to being suspended.  He served a one game suspension imposed by the team last year for <a href="https://web.archive.org/web/20150428112052/http://gothamist.com/2011/09/22/rbny_falls_to_salt_lake_rafa_marque.php">demeaning his fellow defenders</a> post-game, infamously saying they weren&apos;t on his level.  In the 2011 post season, he <a href="https://web.archive.org/web/20150428112052/http://gothamist.com/2011/10/31/red_bulls_lose_0-1_to_la_in_first_s.php">threw a ball</a> at LA&apos;s Landon Donovan, and the subsequent fist fight and red card landed him a three game suspension that lasted into the 2012 regular season.</p>
+
+<p>This latest suspension will see Marquez miss matches away at DC, home against New England, and away at Los Angeles.  He will return to the lineup for the team&apos;s home game against the Houston Dynamo on May 9th.  New York&apos;s injured defensive corps means the suspension will force more reserves into the starting XI; Victor Palsson is expected to fill Marquez&apos;s spot again, and is <a href="https://web.archive.org/web/20150428112052/http://www.mlssoccer.com/news/article/2012/04/18/rbnys-palsson-prepared-potential-redemption">looking for redemption</a> after underperforming in the first two matches of the season.</p>
+
+<p>The knives came out quickly after the announcement this morning.  Sports Illustrated&apos;s Grant Wahl <a href="https://web.archive.org/web/20150428112052/https://twitter.com/#!/GrantWahl/status/192991901354442755">tweeted</a> <strong>&quot;Deserved more. M&#xE1;rquez has been a disaster in NY.&quot;</strong>  The Sporting News&apos; Brian Straus went further, <a href="https://web.archive.org/web/20150428112052/http://aol.sportingnews.com/soccer/story/2012-04-18/cheap-shot-artist-rafa-marquez-a-menace-to-mls">insisting the team sell off Marquez in the summer transfer window</a>.  &quot;If Red Bulls officials don&#x2019;t make every effort to move M&#xE1;rquez this summer, even if that means buying out the remainder of his contract, they&#x2019;re foolish and self-destructive. M&#xE1;rquez won&#x2019;t change, and now it&#x2019;s not just his own team that&#x2019;s suffering.&quot;</p>
+
+<p><object width="620" height="349" id="cf2b14boi" name="cf2b14bon" classid="clsid:D27CDB6E-AE6D-11cf-96B8-444553540000"><param name="movie" value="http://p.mlssoccer.com/SAu5a/video/941761/mls_2012-04-14-201001.640hq.mp4"><param name="allowFullScreen" value="true"><param name="allowScriptAccess" value="always"><embed width="620" height="349" src="https://web.archive.org/web/20150428112052oe_/http://p.mlssoccer.com/SAu5a/video/941761/mls_2012-04-14-201001.640hq.mp4" id="cf2b14bei" name="cf2b14ben" type="application/x-shockwave-flash" allowfullscreen="true" allowscriptaccess="always"></object></p>
+
+<p>The league also fined and suspended San Jose&apos;s Marvin Chavez for a single game thanks to his reckless challenge on NY&apos;s Roy Miller.</p>					
+										
+									
+				

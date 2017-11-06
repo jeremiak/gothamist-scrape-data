@@ -1,0 +1,13 @@
+---
+author: Ben Yakas
+date: Dec 9, 2011 4:03 pm
+title: Off-Duty Cop Shoots Suspected Groper In Harlem Subway Station
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:280px; "> <img alt="12911shooting.jpeg" src="https://web.archive.org/web/20150427151218im_/http://gothamist.com/attachments/byakas/12911shooting.jpeg" width="280" height="210"> <br> <i>Scene outside the 125th Street Station <a href="https://web.archive.org/web/20150427151218/http://www.dnainfo.com/20111209/harlem/man-shot-on-subway-train-at-125th-street-station">(via DNAInfo)</a></i></div> An off-duty cop <a href="https://web.archive.org/web/20150427151218/http://www.dnainfo.com/20111209/harlem/man-shot-on-subway-train-at-125th-street-station">shot and apprehended</a> a suspected groper in a subway station in Harlem today. The shooting happened on the platform of an A train at the 125th Street station just after 12:30 p.m. <a href="https://web.archive.org/web/20150427151218/http://www.nydailynews.com/news/crime/opens-fire-wounds-suspect-harlem-subway-article-1.989236">According to the News</a>, a mother screamed that her teen daughter had just been groped, and a second woman also came forward that she had been groped. The officer spotted the suspect sitting on a bench in front of the train: &#x201C;As he approaches [the suspect] the officer identifies himself as a police officer,&#x201D; said NYPD spokesman Paul Browne. &#x201C;A struggle ensues and one round is discharged from the officer&#x2019;s gun, striking the suspect in the [buttocks].&#x201C;<p></p>
+
+<p>The <a href="https://web.archive.org/web/20150427151218/http://www.nypost.com/p/news/local/manhattan/off_duty_cop_shoots_alleged_groper_g9rDaATZLoBsQFEQuK33HL?CMP=OTC-rss&amp;FEEDNAME=">Post identified</a> the suspect as 22-year-old Jacob Sanford; he is currently in stable condition at Harlem Hospital. The News says Sanford has 20 previous arrests on his record. The officer, a 19-year veteran who has spent his entire career in the Transit Bureau, wasn&apos;t injured in the scuffle. The A, B, C &amp; D subway trains <a href="https://web.archive.org/web/20150427151218/http://abclocal.go.com/wabc/story?section=news/local/new_york&amp;id=8461345&amp;rss=rss-twitter-wabc-article-8461345&amp;utm_source=twitterfeed&amp;utm_medium=twitter">were bypassing</a> the 125th Street station after the incident.</p>					
+										
+									
+				

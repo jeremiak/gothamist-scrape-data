@@ -1,0 +1,20 @@
+---
+author: Jen Carlson
+date: May 20, 2010 11:45 AM
+title: Snowball 4 Surveillance Video Released
+---
+
+
+                            
+                            
+                            
+                            <p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="phpF25ryPAM.jpg" src="https://web.archive.org/web/20140202020948im_/http://gothamist.com/attachments/arts_jen/phpF25ryPAM.jpg" width="261" height="192" class="image-left"> </span><a href="https://web.archive.org/web/20140202020948/http://gothamist.com/2010/03/10/snowball.php">Earlier this year</a> four Bronx teenagers hit off-duty officer Adonis Ramirez with a snowball, and quickly found themselves on the wrong side of a gun barrel. They were charged with weapons possession, attempted assault, menacing and harassment, but then earlier <a href="https://web.archive.org/web/20140202020948/http://gothamist.com/2010/05/05/charges_dropped_against_snowball_fo.php">this month</a> the Bronx DA dropped those charges due to &quot;insufficient evidence.&quot; Now some surveillance video of the incident has been released, which may help the Snowball 4, as they&apos;re called, win their $10MM lawsuit against the city.</p>
+
+<p>Officer Ramirez&apos;s claim was that he was hit on the back by multiple snowballs, chased down the street and taunted before drawing his gun, but the new video (below) doesn&apos;t seem to show any of that. It <em>does</em> seem to show him drawing his gun just seconds after getting hit by a snowball&#x2014;which may have been an accident. According to <a href="https://web.archive.org/web/20140202020948/http://www.nydailynews.com/ny_local/2010/05/20/2010-05-20_vid_gun_after_1st_snowball.html">the Daily News</a>, the teens also claim he never identified himself as an officer, and 18-year-old <a href="https://web.archive.org/web/20140202020948/http://abclocal.go.com/wabc/story?section=news/local&amp;id=7451572">Minuel Rondon told ABC News</a>, &quot;I felt that at that moment one of us was going to get killed or shot.&quot;</p>
+
+<p>Their lawyer says, &quot;He&apos;s creating a dangerous situation by taking out his weapon. It&apos;s definitely an abuse of power and authority.&quot;</p>
+
+<center><script src="https://web.archive.org/web/20140202020948js_/http://www.nydailynews.com/js/AC_RunActiveContent.js" type="text/javascript"></script><script type="text/javascript">AC_FL_RunContent('codebase','https://web.archive.org/web/20140202020948/http://download.macromedia.com/pub/shockwave/cabs/flash/swflash.cab#version=9,0,28,0','width','485','height','350','title','Video Player','src','https://web.archive.org/web/20140202020948/http://www.nydailynews.com/swf/video_player/vp_485_single', 'FlashVars', 'embedCode=pqb3VlMTrkZxgKuhquhzsP_ncC1oJH_2', 'quality','high', 'play', 'true', 'loop', 'true', 'allowFullScreen', 'true', 'pluginspage','https://web.archive.org/web/20140202020948/http://www.adobe.com/shockwave/download/download.cgi?P1_Prod_Version=ShockwaveFlash','movie','https://web.archive.org/web/20140202020948/http://www.nydailynews.com/swf/video_player/vp_485_single' );</script><noscript><object classid="clsid:D27CDB6E-AE6D-11cf-96B8-444553540000" codebase="https://web.archive.org/web/20140202020948oe_/http://download.macromedia.com/pub/shockwave/cabs/flash/swflash.cab#version=9,0,28,0" width="485" height="350" title="Video Player">  <param name="movie" value="http://www.nydailynews.com/swf/video_player/vp_485_single.swf"/>  <param name="quality" value="high"/>  <param name="flashvars" value="embedCode=pqb3VlMTrkZxgKuhquhzsP_ncC1oJH_2"/>  <embed src="https://web.archive.org/web/20140202020948oe_/http://www.nydailynews.com/swf/video_player/vp_485_single.swf" quality="high" flashvars="embedCode=pqb3VlMTrkZxgKuhquhzsP_ncC1oJH_2" pluginspage="http://www.adobe.com/shockwave/download/download.cgi?P1_Prod_Version=ShockwaveFlash" allowfullscreen="true" type="application/x-shockwave-flash" width="485" height="350"></embed></object></noscript></center>
+                            
+                            
+                            

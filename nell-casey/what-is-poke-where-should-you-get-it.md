@@ -1,0 +1,35 @@
+---
+author: Nell Casey
+date: Jan 28, 2016 12:20 pm
+title: What Is Poke & Where Should You Get It?
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="012616poke.jpg" src="https://web.archive.org/web/20170302164218im_/http://gothamist.com/attachments/nyc_nellcasey/012616poke.jpg" width="640" height="427"> <br> <i> (<a href="https://web.archive.org/web/20170302164218/http://www.shutterstock.com/gallery-1176530p1.html">yasuhiro amano</a>/<a href="https://web.archive.org/web/20170302164218/http://www.shutterstock.com/index-in.mhtml">shutterstock</a>)</i></div> <p></p>
+
+<p>As the <a href="https://web.archive.org/web/20170302164218/http://gothamist.com/2015/11/04/uhoh_spaghettios.php">trend watchers predicted</a>, New York City is in the midst of poke-sanity, with multiple new restaurants dedicated to the Hawaiian fish dish open now or in the near future. <a href="https://web.archive.org/web/20170302164218/http://gothamist.com/2015/09/01/nyc_chicken_lovers_guide.php">Check ya later chicken</a>! The poke trend has already <a href="https://web.archive.org/web/20170302164218/http://laist.com/2015/08/07/poke_rules_everything_around_me.php">exploded over Los Angeles</a>, so now it&apos;s time for New Yorkers to get in on the fish party. </p>
+
+<p>But what exactly is poke (poh-kay)? In the simplest terms, it&apos;s a raw fish salad, similar to a tartare or even ceviche, though poke is typically less acidic. Raw tuna, typically, is marinated in soy sauce and sesame oil then tossed with onions, jalapenos and wasabi, for example, though the combinations are myriad. Regardless of the protein source, another poke standout is the cubed shape of the meat, as the word comes from the Hawaiian for &quot;to slice or cut.&quot; </p>
+
+<p>Some restaurants offer pre-set poke creations, but a popular choice is a DIY version, where diners are in charge of their own destiny. Regardless your predilection, here are a few options for experiencing a little bit of Hawaii amidst the NYC snowscape.</p>
+
+<p><strong><a href="https://web.archive.org/web/20170302164218/http://www.pokeworks.com/">Pokeworks</a></strong> This fast casual spot opened late last year in Midtown West and offers both &quot;Signature Works&quot; and the opportunity for guests to create their own poke bowls, burritos or salads with proteins including ahi tuna, shrimp, chicken and organic tofu. Neophytes should opt for the Hawaiian Classic, a blend of ahi tuna, green and sweet onion, ogo seaweed, cucumber, Hawaiian salt, chili flakes and roasted sesame oil. <em>63 West 37th Street</em></p>
+
+<p><strong><a href="https://web.archive.org/web/20170302164218/http://www.wisefishpoke.com/">Wisefish Poke</a></strong> Another NYC newcomer, this Chelsea restaurant also offers counter service poke dishes like the Heat Wave, with salmon, cucumber, house herb mix, jalapeno, scallion and a spicy citrus shoyu. Diners can also design their own poke bowls with fish sourced from local purveyor Greenpoint Fish &amp; Lobster Co. or opt for a vegetarian creation made with tofu. <em>263 West 19th Street</em></p>
+
+<p><strong><a href="https://web.archive.org/web/20170302164218/http://www.noreetuh.com/">Noreetuh</a></strong> There&apos;s <a href="https://web.archive.org/web/20170302164218/http://gothamist.com/2015/03/30/hawaiian_food_can_now_be_found_in_t.php#photo-1">a lot more than poke</a> on the menu at this East Village newcomer, but naturally the Hawaiian eatery is also serving their own version of the fish dish. Their Big-Eye Tuna Poke includes macadamia nuts combined with pickled jalapenos and seaweed, for a spicy, crunchy umami bomb of fish flavors. <em>128 1st Avenue</em></p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="012816poke2.jpg" src="https://web.archive.org/web/20170302164218im_/http://gothamist.com/attachments/nyc_nellcasey/012816poke2.jpg" width="640" height="480"> <br> <i> Sons of Thunder (via <a href="https://web.archive.org/web/20170302164218/http://www.yelp.com/biz_photos/sons-of-thunder-manhattan">Yelp</a>)</i></div> <p></p>
+
+<p><strong><a href="https://web.archive.org/web/20170302164218/http://onomeanyc.com/">Onomea</a></strong> Over in Williamsburg, Onomea is also celebrating the many cuisines of Hawaii including a simple but flavorful version of poke. Their offering is a starter of ahi tuna with white onions, seaweed, green onions and sesame, in very classic style. <em>84 Havemeyer Street</em></p>
+
+<p><strong><a href="https://web.archive.org/web/20170302164218/http://www.suzumebk.com/">Suzume</a></strong> Also in Williamsburg, Suzume offers several ways to indulge in raw fish alongside <a href="https://web.archive.org/web/20170302164218/http://gothamist.com/2013/01/24/suzume_brings_bowls_of_ramen_to_a_c.php#photo-1">steaming bowls of ramen</a>. Their poke comes wrapped in nori, like a piece of sushi, in salmon (in a calamansi ramp vinaigrette) and tuna (sweet onion, sesame, chili oil) varieties. <em>545 Lorimer Street</em></p>
+
+<p><strong><a href="https://web.archive.org/web/20170302164218/http://www.motherofpearlnyc.com/">Mother of Pearl</a></strong> This new <a href="https://web.archive.org/web/20170302164218/http://gothamist.com/2015/07/13/mother_of_pearl_east_village.php#photo-1">Avenue A Polynesian tiki bar</a> employs savory miso and seaweed furikake for their tuna poke, which is studded with soy tapioca and macadamia nuts. Instagram it alongside the bar&apos;s <a href="https://web.archive.org/web/20170302164218/http://www.yelp.com/biz_photos/mother-of-pearl-new-york?select=p0t18w35ZBwzcFkRNE3Yrg">bloody shark cocktail</a>. <em>95 Avenue A</em></p>
+
+<p><strong><a href="https://web.archive.org/web/20170302164218/http://www.sonsofthunder.com/">Sons of Thunder</a></strong> Brave Murray Hill for a taste of West Coast cuisine, which to the minds at Sons of Thunder means hot dogs and <a href="https://web.archive.org/web/20170302164218/http://gothamist.com/2016/01/11/nyc_food_every_state.php">poke</a>. They&apos;re offering five different versions of poke here, all served over white or brown rice and some tortilla chips. opt for traditional ahi tuna, salmon, tako octopus and more, tossed in either shoyu or a spicy marinade with the option to add mix-ins like avocado, edamame and nori. <em>204 East 38th Street</em></p>
+
+<p>On the horizon, a <a href="https://web.archive.org/web/20170302164218/http://ny.eater.com/2016/1/27/10848156/sweetcatch-poke">fleet of fast casual poke bars</a> dubbed <strong>Sweetcatch Poke Bar</strong> are set to debut later this year. Behind the restaurants, Korean barbecue vet Deuki Hong (Kang Ho Dong Baekjeong) and Lee Anne Wong, whom you&apos;ll recognize from <em>Top Chef</em>. </p>					
+										
+									
+				

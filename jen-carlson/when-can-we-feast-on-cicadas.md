@@ -1,0 +1,19 @@
+---
+author: Jen Carlson
+date: May 17, 2013 1:02 pm
+title: When Can We Feast On Cicadas?
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="cicadafork04123.jpg" src="https://web.archive.org/web/20150428142948im_/http://gothamist.com/attachments/arts_jen/cicadafork04123.jpg" width="640" height="426" class="image-none"> </span></p>
+
+<p>It has been nearly two weeks since our <a href="https://web.archive.org/web/20150428142948/http://gothamist.com/2013/05/06/this_interactive_cicada_map_will_he.php">last cicada article</a>, and we&apos;re starting to wonder: <a href="https://web.archive.org/web/20150428142948/http://wherearethecicadas.com/">Where are the cicadas</a>? Seriously, we were promised <em>&quot;<a href="https://web.archive.org/web/20150428142948/http://gothamist.com/2013/05/05/billion_of_cicadas_returning_to_nyc.php">Billions Of Cicadas</a>&quot;</em> so WHY DON&apos;T WE SEE ANY? We&apos;re hungry for cicadas, universe, please send them immediately...</p>
+
+<p>Two days ago we were <em>supposed</em> to sit down to a nice staff dinner filled with dishes made of cicada, paired with some nice cicada cocktails. A week prior, Gothamist reporter <a href="https://web.archive.org/web/20150428142948/http://twitter.com/christrobbins">Chris Robbins</a> ventured around the city to find cicadas in the wild, as well as in Chinatown (where they sometimes have <a href="https://web.archive.org/web/20150428142948/http://eatinggoodly.files.wordpress.com/2010/12/img00060-20101209-1400.jpg">dried cicadas</a>). Robbins was to pick up 2 lbs, and deliver the goods to our cicada dinner chef... but he came up empty handed. We put contributor <a href="https://web.archive.org/web/20150428142948/https://twitter.com/marc_yearsley">Marc Yearsley</a> to the task of doing one final sweep, but he reported back with bad news: there&apos;s a cicada famine in NYC right now:</p><blockquote>&quot;Google searches, variously, for &apos;cicadas, cicadas for sale, where to buy cicadas online, cicadas on sale, I WANT CICADAS&apos; came up empty. eBay, craigslist, and Amazon searches... nothing. Someone is offering to BUY cicadas from California on the NJ Craigslist. My thinking is: NO ONE has cicadas yet. Scientists are saying that while it may have started, we haven&apos;t seen nothing yet, and once they come, we&apos;ll know it. Anyone who is saying they have cicadas now has to be fucking lying.&quot;</blockquote>So for now, we are gathering information, and preparing even more... because we <em>will</em> be sitting down to a nice goddamn family dinner to feast upon cicadas if it&apos;s the last thing we do.<p></p>
+
+<p>We contacted Gene Rurka, chairman of the exotics committee <a href="https://web.archive.org/web/20150428142948/http://gothamist.com/2013/03/19/explorers_club.php#photo-1">of the Explorers Club</a>, and he prepped us on what we (and you, if you are also planning a cicada dinner) need to know: </p><ul><li>Cicadas can be purchased only when normal cycle occurs.  No one is raising them in large numbers. <br>
+</li><li>You can hunt them as they go through their last cycle, and they can be found on trees in the northeast. <br>
+</li><li>Cooking them dried or fresh does not make a difference,  BUT fresh gives you a wider range of recipe options and presentation styles.</li></ul>And we want <a href="https://web.archive.org/web/20150428142948/http://en.wikipedia.org/wiki/File:Cicada_molting_animated-2.gif">fresh molting cicadas</a>... so Louis N. Sorkin, Entomologist and Arachnologist at the American Museum of Natural History, pointed us to a map that will show us where &quot;emergences of Brood II are occurring,&quot; and what areas are currently in the midst of a &#x201C;thick&#x201D; emergence. So our search WILL continue...<p></p>					
+										
+									
+				

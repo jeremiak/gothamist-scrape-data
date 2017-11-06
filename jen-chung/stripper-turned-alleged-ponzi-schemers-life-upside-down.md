@@ -1,0 +1,19 @@
+---
+author: Jen Chung
+date: May 29, 2010 12:45 pm
+title: Stripper Turned Alleged Ponzi Schemer's Life "Upside Down"
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:215px; "> <img alt="2010_05_dpassage.jpg" src="https://web.archive.org/web/20150405013856im_/http://gothamist.com/attachments/jen/2010_05_dpassage.jpg" width="215" height="363"> <br> <i>Diane Passage (via <a href="https://web.archive.org/web/20150405013856/http://poleriders.blogspot.com/2010/05/new-york-dance-parade-2010.html">Poleriders</a>)</i></div> The tale of accountant-turned-<a href="https://web.archive.org/web/20150405013856/http://gothamist.com/2010/05/28/alleged_ponzi_scammer_has_celeb_cli.php">alleged Ponzi scammer Kenneth Starr</a> has plenty grist for the mill, thanks to his celebrity clients like Uma Thurman, Al Pacino and Martin Scorsese and his stripper-turned-pole dancing philanthropist third wife Diane Passage.  An &quot;insider&quot; <a href="https://web.archive.org/web/20150405013856/http://www.nydailynews.com/news/ny_crime/2010/05/29/2010-05-29_story_of_kenneth_starr.html">tells the Daily News</a>, &quot;The story of Ken Starr is simple. He was one of the world&apos;s greatest salesmen whose entire life was turned upside down by his infatuation for a stripper.&quot;<p></p>
+
+<p>Starr is accused of taking money from clients to shift to himself and other clients&#x2014;to the tune of $30 million.  The &quot;insider&quot; says that Starr&apos;s transformed from accountant with a bad haircut and glasses to a &quot;bubbly and hip&quot; guy when he started &quot;handling the money of famous old family estates, such as the Mellon family&quot; and when he met Scores stripper and single mom Passage.  </p>
+
+<p>He <a href="https://web.archive.org/web/20150405013856/http://www.nypost.com/p/news/local/scheming_sleaze_dumped_sickly_wife_4D0vnn0r3s2sqZp5ExLehJ?CMP=OTC-rss&amp;FEEDNAME=">dumped his second wife</a>, who suffers from MS (and who used to be his secretary&#x2014;yes, Starr did dump his first wife for her) and was happy to attend any event&#x2014;though mainly B-list ones&#x2014; to show off Passage. He also funded Passage&apos;s record label, donated <a href="https://web.archive.org/web/20150405013856/http://www.nydailynews.com/news/ny_crime/2010/05/29/2010-05-29_showered_pols_with_cash__including_ag_cuomo.html">tens of thousands to Democratic leaders</a>, and lately, &quot;<strong>He had even taken to kissing other men on the lips - not sexually, just in a weird rock-star type of way.</strong>&quot;</p>
+
+<p>The Post says <a href="https://web.archive.org/web/20150405013856/http://www.nypost.com/p/news/local/manhattan/an_offer_he_could_refuse_4f0KEH7ugcjmEKh3bLOMFO?CMP=OTC-rss&amp;FEEDNAME=">Pacino left Starr&apos;s firm</a> before the Ponzi scheme was revealed: &quot;Pacino told one of Starr&apos;s top account managers, &apos;I&apos;m leaving with you or without you, so if you want to retain my business, you need to leave,&apos; said the source, who is familiar with the Starr &amp; Co. firm.&quot; The account manager ended up opening his own firm with Pacino as a client.  </p>
+
+<p>The Daily News&apos; insider says, that in true Ponzi fashion, Starr &quot;always made a big thing of acting as though he was too big, too important or too busy to take your investment. But in the end, he&apos;d take anything - half a million, a million.&quot;  Yet he&apos;s &quot;never explain what the investments were... If you asked to see any paper to back up your investments, he would say things like, &apos;Oh, the Chinese don&apos;t give paper.&apos; &quot;  Starr, who was found by the authorities cowering under a pile of clothes in his Upper East Side apartment, is being held without bail. </p>					
+										
+									
+				

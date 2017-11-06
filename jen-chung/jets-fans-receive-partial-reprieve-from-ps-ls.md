@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: August 26, 2008  1:20 PM
+title: Jets Fans Receive Partial Reprieve from PSLs
+---
+
+<p><img alt="2008_08_firejets.jpg" src="https://web.archive.org/web/20110611051104im_/http://gothamist.com/attachments/jen/2008_08_firejets.jpg" width="130" height="131" class="right">Some good news for Gang Green fans:  Only some Jets&apos; season ticket holders will have to pay the personal seat licenses for the new stadium while those in <a href="https://web.archive.org/web/20110611051104/http://www.wnbc.com/sports/17300403/detail.html?dl=headlineclick">the upper decks won&apos;t have to pay PSLs</a>. Because the Jets and Giants are <a href="https://web.archive.org/web/20110611051104/http://gothamist.com/2008/07/20/making_the_call_a_necessary_evil.php">building a stadium without public subsidies</a>, the teams have resorted to asking their fans to kick in more.  The Jets&apos; PSLs, which range from $4,000 to $25,000, have been a source of controversy and some fans <a href="https://web.archive.org/web/20110611051104/http://gothamist.com/2008/08/23/local_football_fans_protest_season.php">protested the scheme</a> before last Saturday&apos;s game. The Giants are going to charge $1,000 PSLs for the upper deck seats; other seats fees <a href="https://web.archive.org/web/20110611051104/http://gothamist.com/2008/07/18/giants_drop_seat_license_price_on_t.php">cost much more</a>.  </p>

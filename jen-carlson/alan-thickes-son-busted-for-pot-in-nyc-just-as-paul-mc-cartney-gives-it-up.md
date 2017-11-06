@@ -1,0 +1,13 @@
+---
+author: Jen Carlson
+date: February 17, 2012  2:39 PM
+title: Alan Thicke's Son Busted For Pot In NYC, Just As Paul McCartney Gives It Up
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-right" style=" width:275px; "> <img alt="thickepot0212.jpeg" src="https://web.archive.org/web/20130608074957im_/http://gothamist.com/attachments/arts_jen/thickepot0212.jpeg" width="275" height="268"> <br> <i>Robin Thicke</i></div> Alan Thicke&apos;s son, singer Robin Thicke, has been arrested in Manhattan for marijuana possession. According to <a href="https://web.archive.org/web/20130608074957/http://www.nydailynews.com/news/singer-robin-thicke-busted-pot-possession-article-1.1024476#ixzz1mfQMV2sk">the Daily News</a>, &quot;Thicke was being processed Friday afternoon and is expected to received a desk appearance ticket.&quot;  Apparently he was &quot;arrested at 12:25 p.m. by patrol officers who saw him smoking a joint while sitting in a Cadillac Escalade near 3rd Ave. and E. 21st St.&quot;  A source said, &quot;He wasn&#x2019;t driving. He was sitting in the car. He was arrested and a small amount of marijuana was recovered on him.&#x201D;<p></p>
+
+<p>In the meantime, did you hear Paul McCartney has given up the green stuff?  At the age of 69, the former Beatle has given up smoking pot. And not for the ol&apos; ball and chain, former MTA boardmember <a href="https://web.archive.org/web/20130608074957/http://gothamist.com/tags/nancyshevell">Nancy Shevell</a>, but for his youngest daughter Beatrice. In a recent interview <a href="https://web.archive.org/web/20130608074957/http://www.nme.com/news/paul-mccartney/62081">he said</a>, &quot;I smoked my share. When you&apos;re bringing up a youngster, your sense of responsibility does kick in, if you&apos;re lucky, at some point. Enough&apos;s enough&#x2014;you just don&apos;t seem to think it&apos;s necessary.&quot;</p>
+
+<p>When he was arrested with his former, late wife Linda in 1984, he ignored questions about his children, and told the press, &quot;This substance cannabis, is a whole lot less harmful than rum punch, whisky, nicotine, and glue. All of which are perfectly legal. I&apos;d like to see it decriminalized.&quot;</p>
+
+<p><iframe width="640" height="480" src="https://web.archive.org/web/20130608074957if_/http://www.youtube.com/embed/6KF_lpBvteo" frameborder="0" allowfullscreen></iframe></p>

@@ -1,0 +1,17 @@
+---
+author: Jen Carlson
+date: April 13, 2011  3:33 PM
+title: Bushwick Trailer Park Artist Community Busted Up Again, Facing Arrest?
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="trailerdog0411a.jpg" src="https://web.archive.org/web/20110414183833im_/http://gothamist.com/attachments/arts_jen/trailerdog0411a.jpg" width="365" height="219" class="image-right"> </span>Last month the twenty citizens of the Bushwick Trailer Park were evicted from the space they&apos;d been inhabiting without warning. At the time we talked to one of the residents, who told us, &quot;It&apos;s been a stressful week. Imagine having an apartment for a whole year and then one day the police knock on your door and issue you summons for trespassing! It wasn&apos;t the eviction process that all New Yorkers are entitled to, it was two cops and a bulldozer. We were paying rent just like anyone else. We&apos;re now e-mailing and calling anybody and everybody who might have a lot or some land we can park these things on temporarily. If we had been given 30 days, we and all the grumpy internet commenters out there could all be having a laugh about a Greenpoint Trailer Park or maybe a Red Hook Trailer Park.&quot; </p>
+
+<p>The alternative artist community began a blog, and addressed <a href="https://web.archive.org/web/20110414183833/http://www.palacebeast.com/trailerpark/?p=78">their media coverage</a> (and that dreaded H word). But where have they gone? Nowhere, apparently. This morning we heard from another former resident of the park, who told us:</p>
+
+<blockquote>&quot;The police have informed us, the tenants of the Bushwick Trailer Park, that this morning, at 10 a.m., they and the department of buildings will convene at our warehouse space, padlock the doors, and arrest anyone on the premises. This is after we have already been illegally evicted from our abandoned lot trailer park in the backyard three weeks ago. Some of us plan to be on the premises at 10 a.m. when they arrive. We are prepared to face arrest.
+
+<p>On Monday, the FDNY and the police visited the trailer park&apos;s warehouse space [located at 304 Meserole Street in Brooklyn], and determined that the conditions of the warehouse were &apos;imminently perilous to human life,&apos; and that all tenants must immediately vacate or face arrest. We have received vacate orders in the past, but they were always related to the presence of RV&apos;s inside the warehouse. There are no longer any engine vehicles on the premises, and now the reason for the vacate order has changed. It is now regarding a woodworking shop in the basement, which is not part of our lease, and which has been there since we first moved in.&quot;</p></blockquote><p></p>
+
+<p>For the most part, the residents of the trailer park seem frustrated and confused since it&apos;s unclear what the fire department would consider &quot;safe.&quot; They have removed the trailers, and &quot;the warehouse has sprinklers, and front and rear egress.&quot; Hayden Cummings, one of the founders, says, &quot;We&apos;ve spent a lot of money bringing this space up to code. Nobody will tell us exactly what is unsafe about this space. They only say that the order is coming from above their heads.&quot;</p>
+
+<p>We&apos;ll update when we find out what happened with the FDNY today, and when we hear back from the FDNY about their comments on this space.</p>

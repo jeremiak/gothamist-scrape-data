@@ -1,0 +1,11 @@
+---
+author: Ben Yakas
+date: December 17, 2011  4:05 PM
+title: Brooklyn Teen Fatally Struck On Street Median By Alleged Drunk Driver
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:220px; "> <img alt="121711policetape.jpg" src="https://web.archive.org/web/20111223000442im_/http://gothamist.com/attachments/byakas/121711policetape.jpg" width="220" height="173"> <br> <i><a href="https://web.archive.org/web/20111223000442/http://www.shutterstock.com/cat.mhtml?lang=en&amp;search_source=search_form&amp;version=llv1&amp;anyorall=all&amp;safesearch=1&amp;searchterm=police+tape&amp;search_group=&amp;orient=&amp;search_cat=&amp;searchtermx=&amp;photographer_name=&amp;people_gender=&amp;people_age=&amp;people_ethnicity=&amp;people_number=&amp;commercial_ok=&amp;color=&amp;show_color_wheel=1#id=8128183&amp;src=1df2e8404e4ce6f86f5f94e8145e5031-1-24">Shutterstock/JustASC</a></i></div> A Brooklyn teen standing on a street divider <a href="https://web.archive.org/web/20111223000442/http://www.nydailynews.com/new-york/brooklyn-teenager-dies-van-jumps-curb-smashes-brooklyn-street-article-1.993050?localLinksEnabled=false">was struck and killed</a> by an alleged drunk driver last night. Terence Tsao, 17, was standing on a Cropsey Ave. traffic island at Bay 37th St. in Gravesend when a 2000 Dodge minivan jumped the curb and hit him around 9:40 p.m. Tsao was taken to Lutheran Medical Center, where he died.<p></p>
+
+<p>Driver Vitali Korzavin, 46, smashed the van into a light pole after hitting Tsao. He was arrested at the scene, and <a href="https://web.archive.org/web/20111223000442/http://www.nypost.com/p/news/local/brooklyn/drunk_driver_mows_down_teen_in_brooklyn_qW5RCFZGN6F7yXCdRg7NTN?CMP=OTC-rss&amp;FEEDNAME=">was later charged with</a> vehicular manslaughter and DWI, police said. </p>
+
+<p>In a separate incident last night, a 12-year-old boy <a href="https://web.archive.org/web/20111223000442/http://newyork.cbslocal.com/2011/12/17/12-year-old-killed-in-hit-and-run-in-ocean-county/">was killed after</a> a hit-and-run in Ocean County around 10:30 p.m. Police don&apos;t have a description of the vehicle, and haven&apos;t released the name of the victim yet.</p>

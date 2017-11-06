@@ -1,0 +1,15 @@
+---
+author: Jen Carlson
+date: Jul 10, 2009 1:02 pm
+title: Willoughby Windows Rejuvenate Empty Storefronts
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:350px; "> <img alt="phpY1WeTQPM.jpg" src="https://web.archive.org/web/20160520115825im_/http://gothamist.com/attachments/arts_jen/phpY1WeTQPM.jpg" width="350" height="226"> <br> <i><span class="photo_caption">Photo by Martha Cooper/Ad Hoc</span></i></div> The empty storefronts along Willoughby Street in Brooklyn have become canvases for local artists during the strip&apos;s ghost town era. <a href="https://web.archive.org/web/20160520115825/http://www.nydailynews.com/ny_local/brooklyn/2009/07/09/2009-07-09_artwork_helps_brighten_gloomy_brooklyn_street_as_construction_stalls.html">The Daily News</a> notes that the Willoughby Windows art show set up in prime retail space masks the eyesore of an abandoned retail corridor &quot;created when 30 merchants along Willoughby, Duffield and Bridge Sts. were booted by a developer to make room for a glitzy new, $208 million commercial and residential complex.&quot; Guess how that plan went? The recession sure is ugly, and artists were sent in to dress up the stalled area.<p></p>
+
+<p>But not everyone is a fan. 57-year-old Jeff Garguilo had to abandon the Bagel Guys shop last year, and now &quot;a wood-carved print cash register with keys that read &apos;pink slip&apos; and &apos;outta luck&apos;&#x2014;part of the exhibit&#x2014;has replaced a real register that Garguilo used to fill with cash.&quot; Color him unimpressed, he told the paper, &quot;To me this is not an art show. It&apos;s painted windows.&quot; A passerby declared the project to be &quot;warming,&quot; but also stated <strong>&quot;It&apos;s like putting a Band-Aid on the wound.&quot;</strong></p>
+
+<p>Today through 7 p.m. <a href="https://web.archive.org/web/20160520115825/http://www.adhocart.org/">Ad Hoc Art</a> and MetroTech BID are celebrating the windows, like &apos;em or not. They invite you to &quot;feast your retinae on an afternoon of creative spectaculars.  Not only will there be outstanding installations by some of the world&apos;s finest artists, there will also be two amazing sets of deep-crate spinning dj&apos;s, the St Joseph Step Team, and Lady Circus&apos; stilt walkers and hoopers, with perhaps other special twists if the crowd motivated.&quot; That&apos;s sure to brighten up the neighborhood, right naysayers? Check out a few windows <a href="https://web.archive.org/web/20160520115825/http://www.flickr.com/photos/rfullerrd/sets/72157620659603434/">here</a>&#x2014;and could <a href="https://web.archive.org/web/20160520115825/http://gothamist.com/2009/07/06/nondo_waterfront_brooklyn_construct.php">Williamsburg</a> be next?</p>					
+										
+									
+				

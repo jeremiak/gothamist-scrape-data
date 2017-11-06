@@ -1,0 +1,19 @@
+---
+author: Jen Carlson
+date: Jun 11, 2011 12:31 pm
+title: Before The Black Eyed Peas And Taylor Swift, Diana Ross Was Rained Out Of Central Park
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="dianarosscp0611.jpg" src="https://web.archive.org/web/20141110234504im_/http://gothamist.com/attachments/arts_jen/dianarosscp0611.jpg" width="640" height="406" class="image-none"> </span></p>
+
+<p>&quot;Yo, Taylor. Imma let you finish but Diana Ross had one of the best rained out shows in Central Park of all time.&quot; On Thursday night, tens of <a href="https://web.archive.org/web/20141110234504/http://gothamist.com/2011/06/09/black_eyed_peas_concert_canceled_fa.php">thousands of fans</a> were devastated after weather ruined their chance to see Taylor Swift along with <a href="https://web.archive.org/web/20141110234504/http://gothamist.com/2011/06/10/black_eyed_peas.php#photo-1">the Black Eyed Peas</a> in concert at the historic spot, but back in 1983 Diana Ross also had a free concert there, and it <em>also</em> took place on a dark and stormy night. <a href="https://web.archive.org/web/20141110234504/http://thestarryeye.typepad.com/history/2010/07/diana-ross-concert-disrupted-by-love-shower-july-21-1983.html">One man recalls</a>: </p><blockquote>&quot;A 10-day heat wave was about to come to an end on the evening Diana Ross was to give a much publicized free concert in New York&apos;s Central Park (the mercury hit 95 that afternoon).  However, severe thunderstorms were bearing down on the city and would begin rolling through not long after the concert began. Amidst these turbulent conditions Miss Ross valiantly continued with the show despite being pelted by rain &amp; buffeted by strong winds.  At one point she referred to the torrential downpour as a &apos;love shower&apos; before the concert was stopped because of lightning.  And that&apos;s when things got even uglier.  As the soaked crowd of 800,000 began streaming out of the park some concertgoers were set upon by marauding gangs.  The press referred to it as &quot;wilding&apos;, the first time I&apos;d ever heard the term.  (It was a crazy, raucous time in New York back in those days.)  Happily, the concert was rescheduled for the next day, a Friday, and the weather couldn&apos;t have been more beautiful.&quot;</blockquote><p></p>
+
+<p><iframe width="640" height="510" src="https://web.archive.org/web/20141110234504if_/http://www.youtube.com/embed/dI03UJEbwqg" frameborder="0" allowfullscreen></iframe></p>
+
+<p>And Andy Warhol <a href="https://web.archive.org/web/20141110234504/http://batteriesandflashlights.blogspot.com/2008/09/diana-ross-is-boss.html">wrote of the concert</a>:</p><blockquote>I could never really describe the Diana Ross concert in Central Park. The sky darkened and the rain came and it was the most incredible thing i&apos;ve ever seen. Just the event of the century-her hair blowing and soaking wet...it was like a dream, like a hallucination, watching this spectacle. It was like the greatest scene from a movie ever. When they do her life story in the movies you can just see this huge event and then later she&apos;s crying and saying, &quot;Why did this happen to me?&quot; and then drinking and slitting her wrists. But oh, the thunder and lightning looked so great. So beautiful.</blockquote><p></p>
+
+<p>Check out some more gorgeous (yet unembeddable!) video <a href="https://web.archive.org/web/20141110234504/http://www.youtube.com/watch?v=rXWDwVY-270&amp;feature=related">here</a> and <a href="https://web.archive.org/web/20141110234504/http://www.youtube.com/watch?v=nceff0ntMfs&amp;feature=related">here</a>, from before the plug was pulled.</p>					
+										
+									
+				

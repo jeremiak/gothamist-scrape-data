@@ -1,0 +1,19 @@
+---
+author: Nell Casey
+date: May 26, 2016 3:55 pm
+title: Sodium Label Enforcement Begins Next Month In NYC
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="123012salt.jpg" src="https://web.archive.org/web/20161006132459im_/http://gothamist.com/attachments/nyc_chrisrobbins/123012salt.jpg" width="640" height="427"> <br> <i> Is case you forgot what salt is (<a href="https://web.archive.org/web/20161006132459/http://www.shutterstock.com/">Shutterstock</a> / <a href="https://web.archive.org/web/20161006132459/http://www.shutterstock.com/gallery-467524p1.html">Levent Konuk</a>)</i></div> <p></p>
+
+<p>A state appeals court has <a href="https://web.archive.org/web/20161006132459/http://www.nytimes.com/2016/03/01/nyregion/judge-grants-delay-of-sodium-warnings-for-new-york-city-restaurants.html">lifted the injunction</a> from February regarding enforcement of the Board of Health&apos;s <a href="https://web.archive.org/web/20161006132459/http://gothamist.com/2015/09/09/high_sodium_warning_labels.php">sodium label measure</a>. The injunction came via the National Restaurant Association, who issued a request to the State Supreme Court to prohibit enforcement of the new labeling law. Now, enforcement will begin Monday, June 6th.</p>
+
+<p>Any chain restaurant in New York City that operates 15 or more locations in the United States is subject to the law, which requires them to mark dishes that exceed the Board&apos;s recommendation for daily sodium intake with an icon of a salt shaker inside a triangular warning sign. &quot;New Yorkers deserve to know a whole day&#x2019;s worth of sodium could be in one menu item, and too much sodium could lead to detrimental health problems, like high blood pressure, heart disease and stroke,&quot; Mayor de Blasio said in a statement. </p>
+
+<p>The CDC recommends a limit of 2,300 milligrams (about one teaspoon) of salt per day, a figure far exceeded by <a href="https://web.archive.org/web/20161006132459/http://gothamist.com/2012/02/08/bread_pizza_everything_else_you_eat.php">many commercial food items</a>. According to some studies, the average American eats about 3,300 mg of sodium a day, which the CDC says can contribute to heart disease, stroke and other vascular diseases.</p>
+
+<p>Coincidentally, a new study was <a href="https://web.archive.org/web/20161006132459/http://www.thelancet.com/journals/lancet/article/PIIS0140-6736(16)30467-6/abstract?version=meter+at+0&amp;module=meter-Links&amp;pgtype=Blogs&amp;contentId=&amp;mediaId=%25%25ADID%25%25&amp;referrer=https%3A%2F%2Ft.co%2FaSt90eHTj0&amp;priority=true&amp;action=click&amp;contentCollection=meter-links-click">published last week</a> that cautions against diets too low in sodium, saying that may be <a href="https://web.archive.org/web/20161006132459/http://well.blogs.nytimes.com/2016/05/25/a-low-salt-diet-may-be-bad-for-the-heart/?smid=tw-nytimes&amp;smtyp=cur">equally as bad for your heart</a>. <a href="https://web.archive.org/web/20161006132459/http://gothamist.com/2012/02/08/bread_pizza_everything_else_you_eat.php">Conflicting</a> <a href="https://web.archive.org/web/20161006132459/http://gothamist.com/2011/07/06/no_need_to_cut_back_on_salt_says_sc.php">reports</a> aside, whether anyone <a href="https://web.archive.org/web/20161006132459/http://gothamist.com/2015/11/04/numbers_are_theoretical_anyway.php">gives a hoot</a> about the labels is anyone&apos;s guess. If you&apos;re already at TGI Friday&apos;s, haven&apos;t you already given up on health?</p>					
+										
+									
+				

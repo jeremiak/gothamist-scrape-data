@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: September 19, 2008  9:22 AM
+title: Bay Ridge Rapist Asked Victim for Forgiveness
+---
+
+<p><img src="https://web.archive.org/web/20111117113930im_/http://gothamist.com/attachments/jen/2008_09_byrs.jpg" class="right">Some creepy details about the <a href="https://web.archive.org/web/20111117113930/http://gothamist.com/2008/09/18/woman_sexually_assaulted_in_bay_rid.php">Wednesday attack and rape of a Bay Ridge resident</a>: The <a href="https://web.archive.org/web/20111117113930/http://www.nypost.com/seven/09192008/news/regionalnews/rapists_plea_to_forgive_129813.htm">Post reports</a> the 39-year-old victim spoke to neighbors about the incident.  The rapist, who grabbed the woman as she was leaving her apartment for work and dragged her to the basement where he assaulted her, apparently said, &quot;<strong>I&apos;m sorry. I&apos;m going through some hard times. I didn&apos;t mean to do this. Will you please forgive me?</strong>&quot;  And he allegedly made the sign of the cross.  The <a href="https://web.archive.org/web/20111117113930/http://www.nydailynews.com/news/ny_crime/2008/09/17/2008-09-17_police_hunt_for_sicko_in_bay_ridge_brook-1.html">Daily News reports</a> that neighbors saw the suspect hanging around the building, &quot;saying hello to residents while he waited for his victim.&quot;  Police are looking for a white man, between 5&apos;8&quot; and 6&apos; with brown hair in a crew cut.</p>

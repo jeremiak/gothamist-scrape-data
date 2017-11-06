@@ -1,0 +1,43 @@
+---
+author: Jen Carlson
+date: Jun 13, 2012 1:40 pm
+title: Who Should Be Cast In The Fifty Shades Of Grey Movie?
+---
+
+	
+										<p>Recently Bret Easton Ellis <a href="https://web.archive.org/web/20150422215904/http://laist.com/2012/06/09/50_shades_of_patrick_bateman_bret_e.php">threw his hat in the ring</a> as a potential director for the upcoming big screen adaptation of E.L. James&apos;s novel <em>Fifty Shades Of Grey</em>&#x2014;and we&apos;re totally on board with that idea. He&apos;s been <a href="https://web.archive.org/web/20150422215904/https://twitter.com/#!/BretEastonEllis">Tweeting</a> his casting ideas for his version of the erotica hit, but let&apos;s cover all of our bases here&#x2014;what if the movie was directed by Woody Allen, or Wes Anderson, or Judd Apatow? Here are our casting picks for <em>Fifty Shades</em>, from mumblecore to bromance.</p>					
+					<div class="galleryEase" id="gallery-524280">
+<!-- gallery js -->
+<script type="text/javascript" src="https://web.archive.org/web/20150422215904js_/http://assets.gothamistllc.com/v5/js/gallery.js"></script>
+<!-- end gallery js -->
+
+<style type="text/css">
+#imgContainer {
+min-height: 300px;
+min-width: 300px;
+background: url('https://web.archive.org/web/20150422215904im_/http://assets.gothamistllc.com/v5/images/progress.gif') center center no-repeat;
+}
+</style>
+
+<!--start of gallery code-->
+<a name="gallery"></a>
+<div class="galleryEaseDisplayed">
+<div id="imgContainer">
+    <img id="galleryImg">
+</div>
+<div class="galleyEaseInfo"></div>
+<div class="galleryEaseNext"></div>
+<div class="galleryEasePrev"></div>
+</div>
+<div class="galleryEaseThumbs">
+		<img src="https://web.archive.org/web/20150422215904im_/http://gothamist.com/assets_c/2012/06/bretcast06-thumb-60x60-720843.jpeg" title="" id="photo_1" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":1, "image": "https://web.archive.org/web/20150422215904/http://gothamist.com/attachments/arts_jen/bretcast06.jpeg", "caption": "Let\'s start with \<strong\>Bret Easton Ellis\<\/strong\>\'s casting. He suggested Ian Somerhalder, noting: \"I know how kinky he can be and yes, he\'s probably Christian Grey in \<em\>Fifty Shades of Grey\<\/em\>, and he will go all-out for it.\" For the leading lady, he suggested \<a href=\"http://www.imdb.com/name/nm0002536/\"\>Emmy Rossum\<\/a\>.\r\n\<\/p\>\<p\>\r\nSoundtrack: Genesis\r\n\<\/p\>\<p\>\r\n\<iframe width=\"640\" height=\"480\" src=\"http://www.youtube.com/embed/pN60DR5GQpg\" frameborder=\"0\" allowfullscreen\>\<\/iframe\>", "credit":""};galleryObj['photo_1'] = photo;</script>
+		<img src="https://web.archive.org/web/20150422215904im_/http://gothamist.com/assets_c/2012/06/wagrey0612-thumb-60x60-720837.jpeg" title="" id="photo_2" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":2, "image": "https://web.archive.org/web/20150422215904/http://gothamist.com/upload/2012/06/wagrey0612.jpeg", "caption": "For \<strong\>Woody Allen\<\/strong\>\'s version, we\'re going with Ed Norton and Scarlett Johansson... though we would absolutely not be opposed to Mr. Grey being portrayed by Javier Bardem or Hugh Jackman.\r\n\<\/p\>\<p\>\r\nSoundtrack: Louis Armstrong\r\n\<\/p\>\<p\>\r\n\<iframe width=\"640\" height=\"480\" src=\"http://www.youtube.com/embed/8IJzYAda1wA\" frameborder=\"0\" allowfullscreen\>\<\/iframe\>", "credit":""};galleryObj['photo_2'] = photo;</script>
+		<img src="https://web.archive.org/web/20150422215904im_/http://gothamist.com/assets_c/2012/06/minkafranco06-thumb-60x60-720834.jpeg" title="" id="photo_3" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":3, "image": "https://web.archive.org/web/20150422215904/http://gothamist.com/upload/2012/06/minkafranco06.jpeg", "caption": "While we\'re tempted to make \<strong\>Judd Apatow\<\/strong\>\'s version a full-on bromance, casting James Franco and Paul Rudd as Christian and Ana, respectively, let\'s think of a leading lady for Franco\'s Christian... Minka Kelly, perhaps? Her adorable looks and lack of acting skills would pair up nicely with this overrated harlequin romance novel.\r\n\<\/p\>\<p\>\r\nSoundtrack: Gotye\r\n\<\/p\>\<p\>\r\n\<object width=\"640\" height=\"397\"\>\<param name=\"movie\" value=\"http://cdn1.whosaystatic.com/app/025.8851/flash/VideoPlayer.swf?videoId=185181&vanityUrlRoot=jamesfranco&width=640&height=357&adSupport=false&embed=true\"\>\<\/param\>\<param name=\"allowfullscreen\" value=\"true\"\>\<\/param\>\<param name=\"allows\criptaccess\" value=\"always\"\>\<\/param\>\<param name=\"wmode\" value=\"transparent\"\>\<\/param\>\<embed src=\"http://cdn1.whosaystatic.com/app/025.8851/flash/VideoPlayer.swf?videoId=185181&vanityUrlRoot=jamesfranco&width=640&height=357&adSupport=false&embed=true\" type=\"application/x-shockwave-flash\" allows\criptaccess=\"always\" allowfullscreen=\"true\" wmode=\"transparent\" width=\"640\" height=\"397\"\>\<\/embed\>\<\/object\>", "credit":""};galleryObj['photo_3'] = photo;</script>
+		<img src="https://web.archive.org/web/20150422215904im_/http://gothamist.com/assets_c/2012/06/mumbleshades056-thumb-60x60-720835.jpeg" title="" id="photo_4" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":4, "image": "https://web.archive.org/web/20150422215904/http://gothamist.com/upload/2012/06/mumbleshades056.jpeg", "caption": "For the \<strong\>Noah Baumbach\<\/strong\> version, we\'d just go with the leads in \<em\>Greenberg\<\/em\>: Ben Stiller and Greta Gerwig. Who \<em\>doesn\'t\<\/em\> want to see a mumblecore version of this novel?\r\n\<\/p\>\<p\>\r\nSoundtrack: Martha Wainwright\r\n\<\/p\>\<p\>\r\n\<iframe width=\"640\" height=\"480\" src=\"http://www.youtube.com/embed/Cjy71RPGnkA\" frameborder=\"0\" allowfullscreen\>\<\/iframe\>", "credit":""};galleryObj['photo_4'] = photo;</script>
+		<img src="https://web.archive.org/web/20150422215904im_/http://gothamist.com/assets_c/2012/06/500shades06-thumb-60x60-720833.jpeg" title="goslingdakota06.jpeg" id="photo_5" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":5, "image": "https://web.archive.org/web/20150422215904/http://gothamist.com/upload/2012/06/500shades06.jpeg", "caption": "In \<strong\>Wes Anderson\<\/strong\>\'s world we\'d have to replace the Wilson brothers for a younger modelâhow about Joseph Gordon Levitt? And for his Ana: Zooey Deschanelâis this too twee? \<a href=\"http://www.imdb.com/title/tt1022603/\"\>\<em\>500 Shades Of Summer\<\/em\>\<\/a\>, y\'all!\r\n\<\/p\>\<p\>\r\nSoundtrack: Postal Service\r\n\<\/p\>\<p\>\r\n\<iframe width=\"640\" height=\"480\" src=\"http://www.youtube.com/embed/12-mkUWLadU\" frameborder=\"0\" allowfullscreen\>\<\/iframe\>", "credit":""};galleryObj['photo_5'] = photo;</script>
+		<img src="https://web.archive.org/web/20150422215904im_/http://gothamist.com/assets_c/2012/06/goslingdakota06-thumb-60x60-720842.jpeg" title="" id="photo_6" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":6, "image": "https://web.archive.org/web/20150422215904/http://gothamist.com/attachments/arts_jen/goslingdakota06.jpeg", "caption": "In \<strong\>Sofia Coppola\<\/strong\>\'s adaptation, we\'re thinking Dakota Fanning and Ryan Gosling may work. In fact, Ryan Gosling would work in any adaptation. Someone please make this happen.\r\n\<\/p\>\<p\>\r\nSoundtrack: Wolf Parade\r\n\<\/p\>\<p\>\r\n\<iframe width=\"640\" height=\"480\" src=\"http://www.youtube.com/embed/6tTgqxkocf8\" frameborder=\"0\" allowfullscreen\>\<\/iframe\>", "credit":""};galleryObj['photo_6'] = photo;</script>
+		<img src="https://web.archive.org/web/20150422215904im_/http://gothamist.com/assets_c/2012/06/scoreseshades06-thumb-60x60-720836.jpeg" title="" id="photo_7" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":7, "image": "https://web.archive.org/web/20150422215904/http://gothamist.com/upload/2012/06/scoreseshades06.jpeg", "caption": "And finally, let\'s get a little darkâwho would be in \<strong\>Martin Scorsese\<\/strong\>\'s adaptation? We\'re going with Leonardo DiCaprio (naturally) and Brian Williams\'s daughter, Allison.\r\n\<\/p\>\<p\>\r\nSoundtrack: Rolling Stones\r\n\<\/p\>\<p\>\r\n\<iframe width=\"640\" height=\"480\" src=\"http://www.youtube.com/embed/WJDnJ0vXUgw\" frameborder=\"0\" allowfullscreen\>\<\/iframe\>", "credit":""};galleryObj['photo_7'] = photo;</script>
+<br>									
+</div></div>					
+									
+				

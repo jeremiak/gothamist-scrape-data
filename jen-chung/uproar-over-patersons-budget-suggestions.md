@@ -1,0 +1,19 @@
+---
+author: Jen Chung
+date: Dec 17, 2008 3:31 pm
+title: Uproar Over Paterson's Budget Suggestions
+---
+
+	
+										<p><img alt="2008_12_taxcov.jpg" src="https://web.archive.org/web/20160305144514im_/http://gothamist.com/attachments/jen/2008_12_taxcov.jpg" width="640" height="462"></p>
+
+<p>Governor David Paterson&apos;s <a href="https://web.archive.org/web/20160305144514/http://gothamist.com/2008/12/16/patersons_new_budget_reflects_new_f.php">budget proposal</a> that includes a big cut to education funding and a variety of taxes and fees gets worked over.  The Daily News, which called it a &quot;slash-and-burn budget,&quot; <a href="https://web.archive.org/web/20160305144514/http://www.nydailynews.com/ny_local/2008/12/16/2008-12-16_gov_david_paterson_unveils_dire_new_york.html">points out</a>, &quot;The proposal, which needs legislative approval, did not include broad-based income tax increases, but relied on smaller ones&quot;&#x2014;specifically 137&#x2014;&quot;to raise $4.1 billion from cash-strapped New Yorkers.&quot;  The head of the State Conservative Party, Michael Long, said of things like <a href="https://web.archive.org/web/20160305144514/http://gothamist.com/2008/12/16/patersons_new_budget_reflects_new_f.php">reinstating the sales tax on clothing under $110</a> and taxing spirits, wine and regular soda, &quot;<strong>You&apos;re sending notice to the people of New York that we really don&apos;t want you here.</strong> The governor proposed flat spending, but why not actually cut the budget before raising taxes and fees?&quot;</p>
+
+<p>The Empire Center for New York State Policy&apos;s E.J. McMahon <a href="https://web.archive.org/web/20160305144514/http://www.politickerny.com/1099/paterson-creates-fight-everyone">tells Politicker NY</a>, &quot;Nothing gets the couch potatoes off the couch like taxing their TV. he thing about those tax increases is, the irony of nuisance tax stuff that, is that economically they&apos;re utterly insignificant.<strong> Politically, obviously there&apos;s nothing worse. There are people who wouldn&apos;t blink at a massive confiscatory tax on business, but eighteen cents on a bottle of soda and they go nuts.</strong>&quot; And the Post&apos;s Albany bureau chief Frederic Dicker <a href="https://web.archive.org/web/20160305144514/http://www.nypost.com/seven/12172008/news/columnists/paterson_dishes_up_the_same_old_me_144556.htm">was unimpressed</a> with the &quot;lack of creativity in Paterson&apos;s proposal - no significant work-force downsizing, no real lifting of regulatory burdens&quot; and with Paterson&apos;s delivery:</p><blockquote>Whereas Cuomo, a national-class orator, inspired the state to tighten its belt and fork over more taxes as it faced a calamitous economic down turn in the early 1990s, Paterson delivered a flat and sometimes awkward budget presentation.<p></p>
+
+<p>&quot;So I want us to be optimistic,&quot; Paterson declared at one point. &quot;I think we can come back to Albany, we can take responsibility, we can take control of this budget, we can take over &apos;Saturday Night Live.&apos; &quot;</p>
+
+<p>Take over &quot;Saturday Night Live&quot;? Paterson appeared with that odd observation to be more focused on the <a href="https://web.archive.org/web/20160305144514/http://gothamist.com/2008/12/15/gov_paterson_annoyed_by_snl_skit.php">nasty and embarrassing portrayal of him on NBC</a> than he was on the state&apos;s dire financial straits.</p></blockquote>And Mayor Bloomberg said that <a href="https://web.archive.org/web/20160305144514/http://www.nytimes.com/2008/12/17/nyregion/17budget.html?ref=nyregion">more city layoffs might be on the way</a>, since NYC could lose up to $1 billion in the governor&apos;s proposal.  <p></p>					
+										
+									
+				

@@ -1,0 +1,7 @@
+---
+author: Jen Carlson
+date: September  3, 2010  2:00 PM
+title: FDNY Brings Cat Back To Life
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="catfdny.jpg" src="https://web.archive.org/web/20110611051019im_/http://gothamist.com/attachments/arts_jen/catfdny.jpg" width="140" height="128" class="image-right"> </span>Yesterday word got out that New York&apos;s firefighters were unable to rescue a stray cat from a tree <a href="https://web.archive.org/web/20110611051019/http://gothamist.com/2010/09/02/fort_greene_drama_cat_in_a_tree.php">in Fort Greene</a>, but now they may have redeemed themselves. According to <a href="https://web.archive.org/web/20110611051019/http://www.nypost.com/p/news/local/brooklyn/fdny_miracle_cat_Wa5UtEIaWIcRn5mdMtRVIN?CMP=OTC-rss&amp;FEEDNAME=">the NY Post</a>, the FDNY raised the bar yesterday by <em>bringing a cat back to life</em>. They report that the &quot;apparently dead Brooklyn cat&quot; was pulled from 925 Dumont Avenue during a four-alarm fire, but firefighter Pat Foresta felt some life in it (they do have 9 lives, after all) and rushed it to vet to get it some oxygen. Maybe the FDNY needs to invest in <a href="https://web.archive.org/web/20110611051019/http://blogs.catster.com/the-cats-meow-a-cat-and-kitten-blog/five-cat-resuscitated-with-pet-oxygen-masks/2010/06/29/">those pet oxygen masks</a>!</p>

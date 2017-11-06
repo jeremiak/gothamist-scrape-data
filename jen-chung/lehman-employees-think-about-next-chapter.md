@@ -1,0 +1,16 @@
+---
+author: Jen Chung
+date: September 16, 2008  3:35 PM
+title: Lehman Employees Think About Next Chapter
+---
+
+<p><img alt="2008_09_lehmanbr.jpg" src="https://web.archive.org/web/20111117121751im_/http://gothamist.com/attachments/jen/2008_09_lehmanbr.jpg" width="610" height="407"><br>
+<span class="photo_caption">Photograph by <a href="https://web.archive.org/web/20111117121751/http://flickr.com/photos/candicehoeflinger/2861319516/">labatata on Flickr</a></span></p>
+
+<p>The fallout from Lehman Brothers&apos; self-destruction meant employees spent the weekend and yesterday <a href="https://web.archive.org/web/20111117121751/http://gothamist.com/2008/09/15/panic_on_wall_street_lehman_files_f.php">packing up their things</a> and working on their resumes. The <a href="https://web.archive.org/web/20111117121751/http://www.nytimes.com/2008/09/16/business/16lehman.html?scp=2&amp;sq=lehman%20brothers&amp;st=cse">NY Times reported</a> that the trading floor was a third empty and the &quot;bankers&#x2019; dress code was mostly out: while a few holdouts kept their ties knotted firmly, most of the traders moved around in jeans, casual shirts, even sneakers. One young employee showed up in a green Lehman T-shirt.&quot;</p>
+
+<p>Now employees will be competing with <a href="https://web.archive.org/web/20111117121751/http://wcbstv.com/local/lehman.brothers.layoffs.2.818233.html">each other for new jobs</a>. One employee said, &quot;<strong>It&apos;s going to be rough. You&apos;ve got 10,000 employees here at the headquarters laid off. You&apos;re going to be competing amongst your co-workers for a job. That&apos;s going to be real hard.</strong>&quot;  But there&apos;s always eBay: One employee <a href="https://web.archive.org/web/20111117121751/http://www.nydailynews.com/money/2008/09/16/2008-09-16_lehman_employees_put_company_memorabilia-4.html">put Lehman items on sale</a>, writing, &quot;The only importantish docs I have now are my Lehman stock certificates, which I plan on using to warm my apartment this winter when I can&apos;t afford the heating bill.&quot;</p>
+
+<p>And one shareholder, David Shorr, now a wealth adviser at Morgan Stanley but a former Lehman employees, <a href="https://web.archive.org/web/20111117121751/http://www.nypost.com/seven/09162008/news/regionalnews/i_lost_6m_overnight_129319.htm">told the Post how</a> he had 1 million shares of Lehman Brothers, which means he lost $6 million, &quot;I&apos;m wiped out.&quot;  Shorr raged at Lehman CEO Richard Fuld, as did other employees, since Fuld apparently had a chance to sell the company in August.  </p>
+
+<p>There&apos;s little love for Treasury Secretary Henry Paulson too--Dealbreaker reports that there&apos;s a <a href="https://web.archive.org/web/20111117121751/http://dealbreaker.com/2008/09/a-shrine-is-built-at-lehman-br.php">shrine for Paulson and Fuld on one floor</a>: &quot;It consists of pictures of Hank Paulson and Dick Fuld, both pierced by push pins. <strong>Hank has had his eyes gouged out, and his brain run through. Dick has one eye gouged and a pin through his heart.</strong>&quot;</p>

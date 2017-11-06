@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: October  6, 2008  5:05 PM
+title: FBI Still Searches for Remains on Long Island
+---
+
+<p><img alt="2008_10_shovel.jpg" src="https://web.archive.org/web/20110611051209im_/http://gothamist.com/attachments/jen/2008_10_shovel.jpg" width="120" height="120" class="right">Since the <a href="https://web.archive.org/web/20110611051209/http://gothamist.com/2008/10/02/feds_dig_up_li_grounds_for_mob_hit.php">middle of last week</a>, the FBI has been digging at an East Farmindale industrial complex, reportedly looking for the remains of three victims of mob hits, including <a href="https://web.archive.org/web/20110611051209/http://www.silive.com/news/index.ssf/2008/10/search_for_remains_of_staten_i.html">Colombo crime family underboss</a> (and Staten Island resident) William &quot;Wild Bill&quot; Cutolo.  But so far, the only bones they&apos;ve found <a href="https://web.archive.org/web/20110611051209/http://www.newsday.com/news/local/suffolk/ny-lidig065872087oct06,0,6869860.story">are non-human bones</a>.  Newsday reports that the NYC ME&apos;s office determined that the bones were canine, and the FBI is continuing its digs around the site.  The two other victims suspected to be buried there are Pace University student, Charles Gargano Jr. (cousin of a Luchese crime family member) and Richard Greaves, suspected of becoming an informant.</p>

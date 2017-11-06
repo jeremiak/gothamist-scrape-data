@@ -1,0 +1,13 @@
+---
+author: Jen Chung
+date: June 30, 2010 10:05 AM
+title: City Council Approves $63.1 Billion Budget
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:250px; "> <img alt="2010_06_bloomquinn.jpg" src="https://web.archive.org/web/20120602125250im_/http://gothamist.com/attachments/jen/2010_06_bloomquinn.jpg" width="250" height="175"> <br> <i>Mayor Bloomberg and Speaker Quinn announcing the city budget deal last week (NYC Mayor&apos;s Office)</i></div> Yesterday, the City Council approved, 48-1, the $63.1 billion city budget, <a href="https://web.archive.org/web/20120602125250/http://gothamist.com/2010/06/25/city_budget_deal_firehouses_stay_op.php">which was hammered out by Mayor Bloomberg and Council Speaker Christine Quinn last week. The budget features at least 1,000 layoffs, reducing library hours from six days to five, and other program cuts.  </a><a href="https://web.archive.org/web/20120602125250/http://www.nytimes.com/2010/06/30/nyregion/30council.html">Speaker Quinn said</a>, &quot;It&#x2019;s neither good nor bad. It is the reality of the best the Council and the mayor could do in the times that we are in.&quot; <p></p>
+
+<p><a href="https://web.archive.org/web/20120602125250/http://www.wnyc.org/news/articles/156680">She added</a>, &quot;This is a responsible, recession based budget. We had a couple of goals. We wanted to pass a budget that didn&#x2019;t raise taxes, that didn&apos;t expand borrowing, that protected core services.&quot; And some services aren&apos;t getting hit as hard as previously thought: Gotham Gazette reports, &quot;Instead of shuttering 50 senior centers, council officials say their plan will likely keep half open. At least seven of 16 daycare centers slated for closure under the Administration for Children&apos;s Services will remain open all year. The public advocate&apos;s office -- shredded by multiple rounds of budget cuts in previous years -- will get another $600,000.&quot;</p>
+
+<p>One big question is how much state aid the city will get&#x2014;a mystery because the state is having a hard time passing a budget (it&apos;s three months overdue).  Councilman Vincent Ignizio (R-SI) referred to the city&apos;s on-time budget <a href="https://web.archive.org/web/20120602125250/http://www.silive.com/news/index.ssf/2010/06/city_council_passes_631b_budge.html">and said</a>, &quot;I hope that my colleagues in Albany are listening. I hope they see what we do, and hope they appreciate the timeliness and compassion with which we conduct our business.&quot; </p>
+
+<p>The lone vote against the budget was from Charles Barron (D-Brooklyn).</p>

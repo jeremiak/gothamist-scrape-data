@@ -1,0 +1,19 @@
+---
+author: Jen Chung
+date: Mar 12, 2010 9:28 am
+title: Woman Killed By 6 Train Was Retrieving Dropped Bag
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:215px; "> <img alt="2010_03_sub6.jpg" src="https://web.archive.org/web/20150424005539im_/http://gothamist.com/attachments/jen/2010_03_sub6.jpg" width="215" height="278"> <br> <i>Photograph by <a href="https://web.archive.org/web/20150424005539/http://www.flickr.com/photos/jim-in-times-square/4425942727/in/pool-gothamist">Jim in Times Square</a></i></div> Yesterday afternoon, a woman was <a href="https://web.archive.org/web/20150424005539/http://gothamist.com/2010/03/11/girl_fatally_struck_by_6_train.php">fatally struck by a northbound 6 train</a> at the 77th Street and Lexington Avenue station in Manhattan.  Police now say that 48-year-old Rose Mary Mankos had jumped into the tracks to pick up her fallen bag.  Witnesses were yelling at her to lie on on the track bed, but, the <a href="https://web.archive.org/web/20150424005539/http://www.nytimes.com/2010/03/12/nyregion/12subway.html?ref=nyregion">NY Times reports</a>, &quot;Panicked, the woman scrambled toward the platform and struggled to climb up, but was crushed as the train came charging into the station.&quot;<p></p>
+
+<p>One witness <a href="https://web.archive.org/web/20150424005539/http://www.nydailynews.com/ny_local/2010/03/11/2010-03-11_girl_hit_killed_by_no_6_subway_train_at_upper_east_side_subway_station_.html">told the Daily News</a>, &quot;She tried to climb underneath the platform and then she tried to climb up. I was yelling, &apos;Get down on the tracks, get down on the tracks!&apos; but she just stood there.&quot;  Another witness <a href="https://web.archive.org/web/20150424005539/http://www.nytimes.com/2010/03/12/nyregion/12subway.html?ref=nyregion">thought</a> Mankos seemed &quot;too scared&quot; to climb up.  According to the Daily News, &quot;At the last instant, Mankos tried to press herself against the platform wall so the train would pass by her - but instead it crushed her between the first car and the wall.&quot;</p>
+
+<p>The train&apos;s motorman had <a href="https://web.archive.org/web/20150424005539/http://www.nypost.com/p/news/local/person_struck_doa_train_on_th_lex_rkHV5cxK3qFeXjFshRvGEJ">sounded his horn repeatedly</a>&#x2014;and also engaged the emergency brake. A passenger aboard the train, Glena Farr, said to the Times, &quot;We felt a horrible thud. It was horrible. I&#x2019;ve never felt anything like it, that terrible boom.&quot; The Post says, &quot;It was chaos on the platform as straphangers shrieked with horror upon seeing the shredded parts of her body.&quot;</p>
+
+<p>The police are investigating but do not suspect any criminality&#x2014;they believe Mankos was simply trying to get her bag, which, the News reports, &quot;contained toiletries and gym wear, but nothing of significant value.&quot; Further, NYC Transit spokesman Paul Fleuranges has this reminder: &quot;The message to our customers is clear: If you drop something on the tracks, do not attempt to retrieve it. Alert a transit employee or a police officer who will notify the Control Center, who in turn will send a crew to retrieve it.&quot;</p>
+
+<p>Last December, a man was <a href="https://web.archive.org/web/20150424005539/http://gothamist.com/2009/12/15/man_killed_by_subway_train_while_tr.php">killed by a subway car</a> while trying to pick up his MP3 player from the subway tracks at the Central Park West and 110th Street station and, in 2004, a woman wa<a href="https://web.archive.org/web/20150424005539/http://gothamist.com/2004/02/11/woman_killed_by_subway.php">s fatally struck by a train</a> while trying to pick up her cellphone at the Grand Avenue station.</p>					
+										
+									
+				

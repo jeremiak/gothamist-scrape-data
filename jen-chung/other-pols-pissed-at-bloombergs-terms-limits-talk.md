@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: September  2, 2008  3:17 PM
+title: Other Pols Pissed at Bloomberg's Terms Limits Talk
+---
+
+<p><img alt="2008_08_bloomt.jpg" src="https://web.archive.org/web/20130330071513im_/http://gothamist.com/attachments/jen/2008_08_bloomt.jpg" width="125" height="133" class="right">The Mayor and City Council have been talking about maybe attempting to extend term limits, but both sides seem to be <a href="https://web.archive.org/web/20130330071513/http://gothamist.com/2008/08/30/bloomberg_and_council_play_chicken.php">waiting for the other to make the first move</a>. And that is <a href="https://web.archive.org/web/20130330071513/http://www.nytimes.com/2008/09/02/nyregion/02limits.html?ref=nyregion">frustrating other politicians who are running for office</a>.  City Comptroller William Thompson Jr., who is running for mayor next year, said, &quot;It is time that the mayor clearly state his position and not continue this charade.&quot;  And City Councilman John Liu said, &#x201C;At some point, people just get tired of the is-he-or-isn&#x2019;t-he game the mayor likes to play.<strong> It happened with regard to his presidential ambitions, with running for governor and, now, a campaign for his own re-election.</strong>&#x201D;  As for Bloomberg, he said of Thompson, &quot;I think it&#x2019;s absolutely a great example of what America is all about. The comptroller has the right to state his opinion anytime he wants.&#x201D;</p>

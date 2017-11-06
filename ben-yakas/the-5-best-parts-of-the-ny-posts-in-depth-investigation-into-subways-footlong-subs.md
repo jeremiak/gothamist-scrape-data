@@ -5,9 +5,9 @@ title: The 5 Best Parts Of The NY Post's In-Depth Investigation Into Subway's Fo
 ---
 
 	
-										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="11713footlong.jpeg" src="https://web.archive.org/web/20150710070136im_/http://gothamist.com/attachments/byakas/11713footlong.jpeg" width="640" height="449" class="image-none"> </span></p>
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="11713footlong.jpeg" src="https://web.archive.org/web/20150314023257im_/http://gothamist.com/attachments/byakas/11713footlong.jpeg" width="640" height="449" class="image-none"> </span></p>
 
-<p>This week, an Australian man demanded answers from Subway after he posted a photo of a Footlong sub <a href="https://web.archive.org/web/20150710070136/https://www.facebook.com/photo.php?fbid=513327888712577&amp;set=o.224383614973&amp;type=1&amp;comment_id=1605511&amp;offset=200&amp;total_comments=576">on Facebook</a> that showed it was <em>only 11 inches long</em>. Matt Corby&apos;s daring questions sparked a revolution, as people began inundating Subway&apos;s Facebook page with <a href="https://web.archive.org/web/20150710070136/https://www.facebook.com/media/set/?set=o.224383614973&amp;type=1">photos of pathetically meager sandwiches</a>. And thus, the NY Post launched <a href="https://web.archive.org/web/20150710070136/http://www.nypost.com/p/news/local/this_hero_is_coming_up_short_RzxQNoGFTSdY0AeooGxBiP">the most important investigation of our time</a>...probably after seeing the story <a href="https://web.archive.org/web/20150710070136/http://gothamist.com/2013/01/16/early_addition_1185.php">in Early Addition yesterday.</a> Below, we picked out our five favorite moments from their front-page tale of deceit, greed, and grease.</p>
+<p>This week, an Australian man demanded answers from Subway after he posted a photo of a Footlong sub <a href="https://web.archive.org/web/20150314023257/https://www.facebook.com/photo.php?fbid=513327888712577&amp;set=o.224383614973&amp;type=1&amp;comment_id=1605511&amp;offset=200&amp;total_comments=576">on Facebook</a> that showed it was <em>only 11 inches long</em>. Matt Corby&apos;s daring questions sparked a revolution, as people began inundating Subway&apos;s Facebook page with <a href="https://web.archive.org/web/20150314023257/https://www.facebook.com/media/set/?set=o.224383614973&amp;type=1">photos of pathetically meager sandwiches</a>. And thus, the NY Post launched <a href="https://web.archive.org/web/20150314023257/http://www.nypost.com/p/news/local/this_hero_is_coming_up_short_RzxQNoGFTSdY0AeooGxBiP">the most important investigation of our time</a>...probably after seeing the story <a href="https://web.archive.org/web/20150314023257/http://gothamist.com/2013/01/16/early_addition_1185.php">in Early Addition yesterday.</a> Below, we picked out our five favorite moments from their front-page tale of deceit, greed, and grease.</p>
 
 <p><em>They deserve a knuckle sandwich.</em> They start things off right with a classic NY Post lede&#x2014;classic in that it is both a pun AND a promise of violence. Hopefully they can find more ways to enrage their readers over this inconsequential topic. </p>
 
@@ -19,7 +19,7 @@ title: The 5 Best Parts Of The NY Post's In-Depth Investigation Into Subway's Fo
 
 <p><em>Some defended the &#x201C;shrinkage,&#x201D; saying toasted subs come out shorter &#x2014; but The Post&#x2019;s analysis didn&#x2019;t bear that out.</em> <em>Seinfeld</em> reference? Check. Questionable science on bread? Check. Calling a glorified survey an &quot;analysis&quot;? Check plus.</p>
 
-<p>We can&apos;t wait for the <a href="https://web.archive.org/web/20150710070136/http://gothamist.com/tags/andreapeyser">Andrea Peyser</a> column on this scandal.</p>					
+<p>We can&apos;t wait for the <a href="https://web.archive.org/web/20150314023257/http://gothamist.com/tags/andreapeyser">Andrea Peyser</a> column on this scandal.</p>					
 										
 									
 				

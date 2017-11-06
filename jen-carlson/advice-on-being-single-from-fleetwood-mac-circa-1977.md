@@ -1,0 +1,17 @@
+---
+author: Jen Carlson
+date: Apr 8, 2013 4:31 pm
+title: Advice On Being Single... From Fleetwood Mac, Circa 1977
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="fmaccover.jpg" src="https://web.archive.org/web/20150407144434im_/http://gothamist.com/attachments/arts_jen/fmaccover.jpg" width="282" height="350" class="image-right"> </span>Tonight <a href="https://web.archive.org/web/20150407144434/http://gothamist.com/tags/fleetwoodmac">Fleetwood Mac</a> returns to New York City with a show at Madison Square Garden, so what better time to revisit <a href="https://web.archive.org/web/20150407144434/http://www.rollingstone.com/music/news/the-true-life-confessions-of-fleetwood-mac-19770324">this 1977 <em>Rolling Stone</em> cover story</a> on the band, penned by a young Cameron Crowe and titled &quot;The True Life Confessions of Fleetwood Mac.&quot; The band, which includes some of the world&apos;s original oversharers, talk a lot about love, and love lost. Below, some dating advice from Christine McVie, Stevie Nicks, and Lindsey Buckingham...</p>
+
+<ul><li><strong>STEVIE NICKS</strong>: &quot;It&apos;s strange for me. I&apos;ve never been a dater. I don&apos;t really like parties. I&apos;m very alone now. I&apos;m not one of those women who are just willing to go out and sit at the Rainbow. In my position I could meet a lot of people just because of the band I&apos;m in. Well, I don&apos;t want to meet anybody because of the band I&apos;m in. I thought, &apos;Here I am, we just won these fantastic awards, we&apos;ve just been on TV, everybody is singing our praises and here I am driving home in my black limousine.&apos; Terribly alone. Sort of knowing how it would feel to be Marilyn Monroe or something. It was a very strange feeling and I didn&apos;t like it at all.&quot;
+</li><li><strong>LINDSEY BUCKINGHAM</strong>: &quot;It was a little lonely there for a while. The thought of being on my own really terrified me. But then I realized being alone is really a cleansing thing... as I began to feel myself becoming more myself again. I&apos;m surprised we lasted as long as we did. Being in this band really fucks up relationships with chicks. Since Stevie, I have found that to be true. I could meet someone that I really like, have maybe a few days to get it together and that&apos;s about it. The rest of the time I&apos;m too into Fleetwood Mac.&quot;
+</li><li><strong>CHRISTINE MCVIE</strong>: &quot;There&apos;s no doubt about the fact that he [John McVie] hasn&apos;t really been a very happy man since I left him. I know that. Sure, I could make him happy tomorrow and say, &apos;Yeah, John, I&apos;ll come back to you.&apos; Then I would be miserable. I&apos;m not that unselfish. But if I was the kind of girl who wandered in with a new boyfriend every week, enjoying my newfound freedom, I don&apos;t know how he could handle that. I&apos;d love to have a load of dates. I haven&apos;t done that since I was at college. But it&apos;s really out of the question. I mean I hardly meet anybody. I&apos;m so involved in the band. Seven more years until I&apos;m 40. Then I&apos;ll start all over again...&quot;</li></ul>
+
+<p><iframe width="640" height="480" src="https://web.archive.org/web/20150407144434if_/http://www.youtube.com/embed/YAWeXMl8lZs" frameborder="0" allowfullscreen></iframe></p>					
+										
+									
+				

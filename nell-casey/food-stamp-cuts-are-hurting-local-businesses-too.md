@@ -1,0 +1,19 @@
+---
+author: Nell Casey
+date: Mar 18, 2014 2:34 pm
+title: Food Stamp Cuts Are Hurting Local Businesses Too
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="051712foodstamp.jpg" src="https://web.archive.org/web/20140424132110im_/http://gothamist.com/attachments/nyc_nellcasey/051712foodstamp.jpg" width="640" height="321"> <br> <i> Flickr user <a href="https://web.archive.org/web/20140424132110/http://www.flickr.com/photos/keithbg/5288880423/">keithbgoldstein</a></i></div> <p></p>
+
+<p>The city&apos;s <a href="https://web.archive.org/web/20140424132110/http://gothamist.com/2014/03/17/nyc_hunger_crisis.php">alarming hunger crisis</a> has roots in the 2008 financial crisis as well as the <a href="https://web.archive.org/web/20140424132110/http://gothamist.com/2013/09/20/house_of_representatives_vote_to_sl.php">$4 billion in cuts</a> to the food stamp program and the end of the <a href="https://web.archive.org/web/20140424132110/http://gothamist.com/2013/10/21/food_stamp_cuts.php">American Reinvestment and Recovery Act</a>. With less money being spent at delis and grocery stores, owners of those establishments are feeling the effects in their own livelihood and ability to provide for their families. The Daily News <a href="https://web.archive.org/web/20140424132110/http://www.nydailynews.com/new-york/food-stamp-cuts-hurt-nyc-stores-customers-spend-article-1.1724929">talked with local business owners</a> and discovered that, duh, the local economy struggles in tandem with its population when federal assistance gets cut.</p>
+
+<p>Ramon Murphy, who owns the Red Apple Deli Supermarket in Hamilton Heights, says customers are spending almost half of what they did before the cuts came down last year. After just a few months, Murphy was forced to lay off two employees. &#x201C;They have less food stamps, and we do less business,&#x201D; he told the paper. &#x201C;I started doing more hours because I can&#x2019;t afford it.&#x201D; Red Apple Employee Luis Martin feels it from both sides. At work, his $8-an-hour shifts were trimmed by 10 hours per week; at home, the food stamp benefits for his family of four were reduced to $397 a month. &#x201C;We&#x2019;ve been dealing with it whatever way we can,&#x201D; he <a href="https://web.archive.org/web/20140424132110/http://www.nydailynews.com/new-york/uptown/deli-worker-paycheck-food-stamps-chopped-federal-cuts-article-1.1724988#ixzz2wL2VRORv">explained to the Daily News</a>. &#x201C;Cutting the basics. Buying less.&quot;</p>
+
+<p>It&apos;s not just corner bodegas who are seeing a decline in revenue. <a href="https://web.archive.org/web/20140424132110/http://gothamist.com/tags/johncatsimatidis">John Catsimadtidis</a>, the billionaire owner of supermarket chain Gristedes, says January sales were down about $20,000 from the same time last year. &#x201C;Anytime you cut food stamps, it naturally affects sales,&#x201D; he said. &#x201C;People spend less. They&#x2019;re tight on the dollars in their pocketbook, and it does affect when our sales go down.&#x201D;</p>
+
+<p>Workers not able to make make ends meet on reduced hours may ultimately be forced to apply for increased benefits, thereby feeding back into the vicious cycle. Dwindling business coupled with <a href="https://web.archive.org/web/20140424132110/http://gothamist.com/2014/03/18/food_prices.php">rising food costs</a> may even put some market owners out of business. The owner of Hamilton Meat Market in Harlem estimates his sales have dropped 15% since the benefit cuts. &#x201C;I&#x2019;m holding out,&#x201D; said owner Domingo Perez. &#x201C;This situation is really tough. <strong>In 30 years, I haven&#x2019;t seen things as bad as they are now</strong>.&#x201D;</p>					
+										
+									
+				

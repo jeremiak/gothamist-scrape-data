@@ -1,0 +1,19 @@
+---
+author: Jen Carlson
+date: Mar 25, 2011 6:24 pm
+title: Who Really Screwed Over LCD Soundsystem Fans?
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-right" style=" width:365px; "> <img alt="jamesmurphy0311.jpg" src="https://web.archive.org/web/20160109014657im_/http://gothamist.com/attachments/arts_jen/jamesmurphy0311.jpg" width="365" height="365"> <br> <i><span class="photo_caption">Don&apos;t make James Murphy cry.</span></i></div> The conspiracy theory continues, with Reuters&apos; Felix Salmon back on the case of how LCD Soundsystem&apos;s final show at MSG got sold out <a href="https://web.archive.org/web/20160109014657/http://gothamist.com/2011/02/11/this_is_happening_lcd_soundsystem_t.php">impossibly fast</a>. The short answer is: it didn&apos;t. The long answer <a href="https://web.archive.org/web/20160109014657/http://blogs.reuters.com/felix-salmon/2011/03/24/james-murphys-role-in-the-lcd-soundsystem-ticket-fiasco">can be found here</a>, and we&apos;ll sum it all up for you below. <p></p>
+
+<p>Last <a href="https://web.archive.org/web/20160109014657/http://gothamist.com/2011/02/21/lcd_soundsystem_ticketgeddon_now_wi.php">we checked</a> the theory was that LCD Soundsystem&#x2019;s promoter, Bowery Presents, was holding back most of the MSG tickets so that secondary-market prices would be sure to skyrocket. Demand would go up, &quot;new&quot; shows would be announced (at the much smaller, Bowery-owned Terminal 5), and everyone would be rich! Except the fans, but they&apos;d be so happy about seeing the band&apos;s final show that they wouldn&apos;t mind. (Bowery Presents has still not responded to us with comment on this.)</p>
+
+<p>Now StubHub (who Murphy angrily Tweeted about during the whole mess) speaks out. Glenn Lehrmann tells Salmon that when Murphy started Tweeting, there were a normal amount of tickets available on StubHub, most reasonably priced. The tweets, he claims, are what &#x201C;significantly raised demand,&quot; and in turn, price. When tickets went on sale to the public days later, prices had skyrocketed. Salmon says, &quot;The official James Murphy theory&#x2014;that scalpers with bots had bought up all the tickets and were flipping them with StubHub&#x2014;is simply not true,&quot; and that <strong>&quot;if Murphy wants to go around blaming people, he should first come clean on how much his own behavior caused the very problem he&#x2019;s complaining about.&quot;</strong> But isn&apos;t it possible that Murphy was just ill-informed and kept out of the loop, accidentally driving up ticket prices via his angry Tweets? What we&apos;re saying is, let&apos;s just keep Murphy out of this, because behind the curtain there is a whole big bad industry.</p>
+
+<p>Lehrmann added that it&apos;s &quot;not humanly possible to sell 9,000 tickets in one minute&quot; and at the $40 face value LCD was selling tickets at, they wouldn&apos;t even be able to rent the venue. He added, <strong>&quot;I&#x2019;m not revealing any huge industry secret when I say that the majority of tickets are held back, and are sold either to local brokers or directly resold on a secondary site.&#x201D;</strong> Salmon then states that a band sets face value of tickets so low to keep fans happy, and then jacks up the face value behind their backs, essentially. Even Taylor Swift is guilty of it! For a show last year she allegedly only sold 13% of her tickets to the general public, with 30% going to American Express, and 57% sold through a back channel at a marked up price. And just like Murphy, Swift probably wasn&apos;t diabolically plotting how to drain her fans of more cash.</p>
+
+<p>Whoever the real villain may be, maybe <a href="https://web.archive.org/web/20160109014657/http://gothamist.com/2011/02/24/video_muppets_rock_out_to_lcd_sound.php">more Muppets</a> would help make up for it.</p>					
+										
+									
+				

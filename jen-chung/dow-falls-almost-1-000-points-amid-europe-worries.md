@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: May  6, 2010  2:58 PM
+title: Dow Falls Almost 1,000 Points Amid Europe Worries
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2010_05_dow900.jpg" src="https://web.archive.org/web/20111016054347im_/http://gothamist.com/attachments/jen/2010_05_dow900.jpg" width="120" height="126" class="image-right"> </span>The Dow Jones lost nearly 1,000 points (8+%) at one point during trading this afternoon, before recovering a little (the Dow is now down 510 points).  <a href="https://web.archive.org/web/20111016054347/http://www.cnbc.com/id/36988229">CNBC reports</a>, &quot;One trader, on the condition of anonymity, said he heard fixed income desks in Europe shut down early because there was no liquidity &#x2014; basically European banks are halting lending right now. &apos;This is similar to what took place pre-Lehman Brothers,&apos; the trader said.&quot;  The <a href="https://web.archive.org/web/20111016054347/http://online.wsj.com/article/SB10001424052748704370704575227754131412596.html?mod=WSJ_hpp_LEADNewsCollection">Wall Street Journal says</a>, &quot;Investors fled everything from stocks and risky bonds and poured money into safe assets such as U.S. Treasurys... &apos;It&apos;s getting pretty ugly out there very fast,&apos; Guy Lebas, chief fixed income strategist at Janney Montgomery Scott. &apos;There are definitely some major concerns that are escalating this afternoon.&apos;&quot;</p>

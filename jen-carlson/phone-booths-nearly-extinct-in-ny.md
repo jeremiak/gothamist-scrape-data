@@ -1,0 +1,7 @@
+---
+author: Jen Carlson
+date: July  7, 2009  2:24 PM
+title: Phone Booths Nearly Extinct in NY!
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-right" style=" width:146px; "> <img alt="phpMzFIvTPM.jpg" src="https://web.archive.org/web/20130309040006im_/http://gothamist.com/attachments/arts_jen/phpMzFIvTPM.jpg" width="146" height="97"> <br> <i><span class="photo_caption">Photo via Scouting NY</span></i></div> Remember phone booths? Not pay phones, but the actual booths you got into in order to access that phone. Well, according to <a href="https://web.archive.org/web/20130309040006/http://www.scoutingny.com/?p=852">Scouting NY</a> there are only four left in all of Manhattan! Because who needs privacy anymore? Well, maybe Clark Kent. But when movies film here they often have to recreate their phone booth scenes with props. Sigh, just another little thing dropping off the landscape of the city. <a href="https://web.archive.org/web/20130309040006/http://www.payphone-project.com/gallery/New_York_City">This site</a> has a great archive of pay phones and booths around the five boroughs, and <a href="https://web.archive.org/web/20130309040006/http://www.forgotten-ny.com/STREET%20SCENES/booths/phonebooth.html">Forgotten NY</a> takes a nostalgic look back on booths of the past. If you want to see a rare booth <em>in person</em> the remaining ones are at 101st, 100th, 90th and 66th streets.<p></p>

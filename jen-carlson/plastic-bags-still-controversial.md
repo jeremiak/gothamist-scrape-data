@@ -1,0 +1,15 @@
+---
+author: Jen Carlson
+date: Nov 18, 2008 1:34 pm
+title: Plastic Bags: Still Controversial
+---
+
+	
+										<p><img alt="phpPynqSjAM.jpg" src="https://web.archive.org/web/20150422145731im_/http://gothamist.com/attachments/arts_jen/phpPynqSjAM.jpg" width="350" height="210" class="right">Will the plastic bag controversy ever end? With the <a href="https://web.archive.org/web/20150422145731/http://gothamist.com/2008/11/07/plastic_bags_1.php">recent news</a> of Bloomberg pushing a plastic bag tax, <a href="https://web.archive.org/web/20150422145731/http://www.nytimes.com/2008/11/18/nyregion/18plastic.html?ref=nyregion">The NY Times</a> is the latest to take a look into the sordid grocery packaging habits of New Yorkers. Perhaps as some believe cigarettes should be, instead of a tax, they just need to be made illegal; even reusable grocery bag users are finding they accept a plastic bag here and there.</p><blockquote>&#x201C;I&#x2019;d pick up 50 bags a week instead of 2 or 3 if I wasn&#x2019;t conscious of it,&#x201D; said Mr. Thrasher, 31, a freelance writer from Fort Greene, Brooklyn. &#x201C;You&#x2019;re always having a plastic bag put in your hand.&#x201D;</blockquote>The bags generally find a final resting spot in a &quot;balled-up pile under his kitchen sink&quot; (warning: this <a href="https://web.archive.org/web/20150422145731/http://64.233.169.132/search?q=cache:9gKtWgNDOK0J:www.fairfaxcounty.gov/hd/chs/chspdf/cockroachesenglish.pdf+%22cockroaches%22+%22plastic+bags%22&amp;hl=en&amp;ct=clnk&amp;cd=3&amp;gl=us">attracts cockroaches</a>!). Still, many do use them, and wonder how one might hide an open beer in public or clean up after their dog without the disposable bags. <p></p>
+
+<p>The paper (which could be used for one of the aforementioned tasks) reminds that &quot;plastic bags, particularly the flimsy ones that float over windy streets, are widely considered an environmental nuisance that use up petroleum, litter the landscape, clog storm drains and recycling equipment and linger for centuries in landfills.&quot; On that note, several countries have already imposed taxes (up to 33 cents per bag), so is it time for us to play catch up? Maybe <em>American Beauty</em> really set us back (<a href="https://web.archive.org/web/20150422145731/http://www.youtube.com/watch?v=UDXjnW3nIWg">video</a>!). </p>
+
+<center><script type="text/javascript" language="javascript" src="https://web.archive.org/web/20150422145731js_/http://static.polldaddy.com/p/1118211.js"></script><noscript> <a href="https://web.archive.org/web/20150422145731/http://answers.polldaddy.com/poll/1118211/">Should a plastic bag tax be imposed?</a>  <br/> <span style="font-size:9px;"> (<a href="https://web.archive.org/web/20150422145731/http://www.polldaddy.com/">  polls</a>)</span></noscript></center>					
+										
+									
+				

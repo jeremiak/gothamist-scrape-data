@@ -1,0 +1,17 @@
+---
+author: Jen Chung
+date: Jun 2, 2010 11:03 am
+title: Andrew Koppel Had "Many Substance Abuse Issues"
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:205px; "> <img alt="2010_06_akil.jpg" src="https://web.archive.org/web/20160726042127im_/http://gothamist.com/attachments/jen/2010_06_akil.jpg" width="205" height="275"> <br> <i>Andrew Koppel, his partner Ilona Lieberman and their daughter</i></div> Family and friends of Andrew Koppel are mourning the 40-year-old&apos;s death after an <a href="https://web.archive.org/web/20160726042127/http://gothamist.com/2010/06/01/ted_koppels_son_found_dead_after_da.php">apparent drinking binge</a> over the weekend.  A family friend <a href="https://web.archive.org/web/20160726042127/http://www.nypost.com/p/news/local/heartbreaking_twist_in_koppel_son_ThdJyB1AELl3HcftZIykAP">told the Post</a> that he had &quot;many substance-abuse issues,&quot; while another said, &quot;What&apos;s really puzzling the family is why he ended up where he did. It was a Sunday and holiday weekend. Why was he drinking in Hell&apos;s Kitchen and why would he end up in Washington Heights?&quot;<p></p>
+
+<p>Koppel, a former attorney for the city&apos;s Housing Authority and the son of broadcast journalist Ted Koppel, had been living in the Rockaways with his girlfriend Ilona Lieberman and their daughter at Libermans&apos; parents home (the Post also notes that Lieberman was &quot;visibly pregnant&quot; yesterday).  On Saturday, Koppel befriended another drinker, Russell Wimberly, at Smith&apos;s Bar in Midtown.  The pair ended up bar hopping all day, when, the <a href="https://web.archive.org/web/20160726042127/http://www.nydailynews.com/ny_local/2010/06/02/2010-06-02_andrew_koppel.html">Daily News reports</a> they &quot;ended up at the dingy apartment of Wimberly&apos;s friend Belinda Caban on 180th St. at Audubon Ave. Because Koppel could barely hold himself up, he was led to Caban&apos;s bed. He fell asleep quickly and snored loudly. Hours later, he was pale and silent&quot; and not breathing.  He was pronounced dead later.</p>
+
+<p>The News <a href="https://web.archive.org/web/20160726042127/http://www.nydailynews.com/ny_local/2010/06/02/2010-06-02_andrew_koppel.html">details some of his past run-ins</a>, ranging from DUI and assault of a senatorial aide.  One man who saw Koppel drinking at a bar in the Rockaways last year told the Post, &quot;He was out of his mind. He was drunk... He was drunk to the point where the owner and the bartender had to tell him, &apos;You&apos;re done. Leave the bike here,&apos; but he wouldn&apos;t listen&quot; and drunkenly drove off.&quot;  And Caban believes that Koppel was on something else, &quot;I think he did take [drugs] because he was too out of it... Tell his father I am very sorry. I apologize that this happened to him. I was just a person who was trying to help.&quot;</p>
+
+<p>Koppel&apos;s parents issued a statement, &quot;Our son, Andrew, was a brilliant, caring man, whose loss we will mourn for the rest of our lives,&quot; and are planning to bury him near their home in Maryland. </p>					
+										
+									
+				

@@ -1,0 +1,11 @@
+---
+author: Jen Carlson
+date: May 21, 2009 2:03 pm
+title: Dylan Poem Actually Canadian Country Song Lyrics
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="0509dylanbob.jpg" src="https://web.archive.org/web/20140828035413im_/http://gothamist.com/attachments/arts_jen/0509dylanbob.jpg" width="150" height="125" class="image-right"> </span>Before you lay down some hard earned cash on <a href="https://web.archive.org/web/20140828035413/http://gothamist.com/2009/05/20/early_bob_dylan_poem_on_auction_blo.php">that Bob Dylan poem</a>, you should probably know a little bit more about it. Like, for instance, that those are actually the words of Canadian country singer Hank Snow. <a href="https://web.archive.org/web/20140828035413/http://www.reuters.com/article/oddlyEnoughNews/idUSTRE54J64I20090520">Reuters</a> reports that earlier this week Christie&apos;s announced the sale of a Bob Dylan poem believed to have been written in 1957 when he was away at Jewish camp, but they &quot;failed to detect that the words, with a few minor variations, matched those of a song previously recorded by Snow.&quot; A reader alerted Reuters of the fact, who then informed <a href="https://web.archive.org/web/20140828035413/http://www.christies.com/LotFinder/lot_details.aspx?from=searchresults&amp;intObjectID=5215427&amp;sid=985ccb30-b3fd-40b2-807c-8d604c2fe8f9">the auction house</a>, who announced, &quot;Additional information has come to our attention about the handwritten poem submitted by Bob Dylan to his camp newspaper, written when he was 16, entitled &apos;Little Buddy.&apos; The words are in fact a revised version of lyrics of a Hank Snow song. This still remains among the earliest known handwritten lyrics of Bob Dylan.&quot; The big question here is: did Dylan cop to copying the lyrics back in &apos;57? It certainly wouldn&apos;t be the fist time <a href="https://web.archive.org/web/20140828035413/http://www.rollingstone.com/rockdaily/index.php/2006/09/15/bob-dylans-greatest-thefts/">he&apos;s lifted some lines</a>.</p>					
+										
+									
+				

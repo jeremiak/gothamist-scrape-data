@@ -1,0 +1,15 @@
+---
+author: Jen Chung
+date: May 20, 2010 3:09 pm
+title: Shahzad Asked Investigators Why His Bomb Failed
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <a href="https://web.archive.org/web/20170926085945/http://gothamist.com/attachments/jen/2010_05_faishahzad.jpg"> <img alt="2010_05_faishahzad.jpg" src="https://web.archive.org/web/20170926085945im_/http://gothamist.com/assets_c/2010/05/2010_05_faishahzad-thumb-200x250-508758.jpg" width="180" height="225" class="image-left"> </a> </span><a href="https://web.archive.org/web/20170926085945/http://gothamist.com/tags/faisalshahzad">Faisal Shahzad</a>, the man who allegedly left his Nissan Pathfinder with a homemade bomb inside, reportedly asked investigators <a href="https://web.archive.org/web/20170926085945/http://www.nypost.com/p/news/local/one_thing_bothering_faisal_SblxnJA7jm9JjRj6cqp4nM?CMP=OTC-rss&amp;FEEDNAME=">why it didn&apos;t go off</a>.  The Post reports that Shahzad, who has &quot;spent the last two weeks under guard at a Brooklyn hotel,&quot; &quot;begged them to explain where he went wrong... The source did not say whether he was given the courtesy.&quot;  At any rate, Shahzad said the bomb&apos;s failure <a href="https://web.archive.org/web/20170926085945/http://www.myfoxny.com/dpp/news/international/source-faisal-shahzad-calls-bomb-failure-gods-will-20100519">was &quot;God&apos;s will.&quot;</a> </p>
+
+<p>MyFoxNY has some more details from a chatty source: Investigators are trying to figure out who Shahzad may have called, and it&apos;s not easy because &quot;Shahzad bought and used numerous pre-paid cell phones while he was allegedly plotting the bombing attack.&quot;  Shahzad was also &quot;a little concerned about his own safety if he were to be released by authorities, fearing he could be in slight danger from people he had given up to investigators&quot; and he basically denounced his wife: &quot;Shahzad said his wife is not a good Muslim woman, that she is too modernized, and that he basically doesn&apos;t want anything to do with her.&quot;  (Shahzad has two children with Huma Mian; they married in 2004, but in 2009, their marriage <a href="https://web.archive.org/web/20170926085945/http://www.nytimes.com/2010/05/16/nyregion/16suspect.html?pagewanted=5">appeared &quot;strained.&quot;</a>)</p>
+
+<p>A former terrorism prosecutor <a href="https://web.archive.org/web/20170926085945/mailto:http://www.nytimes.com/2010/05/20/nyregion/20strategy.html?src=mv">tells the NY Times</a> that Shahzad won&apos;t get any special breaks for cooperating with the feds, &quot;I think he is doomed. He has confessed to an extraordinarily serious offense that carries with it essentially life in prison.&quot;  And by the way, the the Global War on Terror (GWOT) is <a href="https://web.archive.org/web/20170926085945/http://www.theatlantic.com/politics/archive/2010/05/the-new-term-for-the-war-on-terror/56969/">now CVE, Countering Violent Extremism</a>. Please make a note of it. </p>					
+										
+									
+				

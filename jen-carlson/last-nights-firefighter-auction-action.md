@@ -1,0 +1,54 @@
+---
+author: Jen Carlson
+date: Feb 19, 2010 2:27 pm
+title: Last Night's Firefighter Auction Action!
+---
+
+	
+					<div class="galleryEase" id="gallery-395573">
+<!-- gallery js -->
+<script type="text/javascript" src="https://web.archive.org/web/20150507233428js_/http://assets.gothamistllc.com/v5/js/gallery.js"></script>
+<!-- end gallery js -->
+
+<style type="text/css">
+#imgContainer {
+min-height: 300px;
+min-width: 300px;
+background: url('https://web.archive.org/web/20150507233428im_/http://assets.gothamistllc.com/v5/images/progress.gif') center center no-repeat;
+}
+</style>
+
+<!--start of gallery code-->
+<a name="gallery"></a>
+<div class="galleryEaseDisplayed">
+<div id="imgContainer">
+    <img id="galleryImg">
+</div>
+<div class="galleyEaseInfo"></div>
+<div class="galleryEaseNext"></div>
+<div class="galleryEasePrev"></div>
+</div>
+<div class="galleryEaseThumbs">
+		<img src="https://web.archive.org/web/20150507233428im_/http://gothamist.com/assets_c/2010/02/5firefighterauction-thumb-60x60-482309.jpg" title="" id="photo_1" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":1, "image": "https://web.archive.org/web/20150507233428/http://gothamist.com/attachments/arts_jen/5firefighterauction.jpg", "caption": "", "credit":"Photo by \<a href=\"http://colormekatie.blogspot.com/\"\>Katie Sokoler\<\/a\>/Gothamist"};galleryObj['photo_1'] = photo;</script>
+		<img src="https://web.archive.org/web/20150507233428im_/http://gothamist.com/assets_c/2010/02/4firefighterauction-thumb-60x60-482308.jpg" title="" id="photo_2" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":2, "image": "https://web.archive.org/web/20150507233428/http://gothamist.com/attachments/arts_jen/4firefighterauction.jpg", "caption": "", "credit":"Photo by \<a href=\"http://colormekatie.blogspot.com/\"\>Katie Sokoler\<\/a\>/Gothamist"};galleryObj['photo_2'] = photo;</script>
+		<img src="https://web.archive.org/web/20150507233428im_/http://gothamist.com/assets_c/2010/02/3firefighterauction-thumb-60x60-482307.jpg" title="" id="photo_3" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":3, "image": "https://web.archive.org/web/20150507233428/http://gothamist.com/attachments/arts_jen/3firefighterauction.jpg", "caption": "", "credit":"Photo by \<a href=\"http://colormekatie.blogspot.com/\"\>Katie Sokoler\<\/a\>/Gothamist"};galleryObj['photo_3'] = photo;</script>
+		<img src="https://web.archive.org/web/20150507233428im_/http://gothamist.com/assets_c/2010/02/2firefighterauction-thumb-60x60-482306.jpg" title="" id="photo_4" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":4, "image": "https://web.archive.org/web/20150507233428/http://gothamist.com/attachments/arts_jen/2firefighterauction.jpg", "caption": "", "credit":"Photo by \<a href=\"http://colormekatie.blogspot.com/\"\>Katie Sokoler\<\/a\>/Gothamist"};galleryObj['photo_4'] = photo;</script>
+		<img src="https://web.archive.org/web/20150507233428im_/http://gothamist.com/assets_c/2010/02/6firefighterauction-thumb-60x60-482311.jpg" title="" id="photo_5" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":5, "image": "https://web.archive.org/web/20150507233428/http://gothamist.com/attachments/arts_jen/6firefighterauction.jpg", "caption": "", "credit":"Photo by \<a href=\"http://colormekatie.blogspot.com/\"\>Katie Sokoler\<\/a\>/Gothamist"};galleryObj['photo_5'] = photo;</script>
+		<img src="https://web.archive.org/web/20150507233428im_/http://gothamist.com/assets_c/2010/02/7firefighterauction-thumb-60x60-482312.jpg" title="" id="photo_6" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":6, "image": "https://web.archive.org/web/20150507233428/http://gothamist.com/attachments/arts_jen/7firefighterauction.jpg", "caption": "", "credit":"Photo by \<a href=\"http://colormekatie.blogspot.com/\"\>Katie Sokoler\<\/a\>/Gothamist"};galleryObj['photo_6'] = photo;</script>
+		<img src="https://web.archive.org/web/20150507233428im_/http://gothamist.com/assets_c/2010/02/8firefighterauction-thumb-60x60-482313.jpg" title="" id="photo_7" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":7, "image": "https://web.archive.org/web/20150507233428/http://gothamist.com/attachments/arts_jen/8firefighterauction.jpg", "caption": "", "credit":"Photo by \<a href=\"http://colormekatie.blogspot.com/\"\>Katie Sokoler\<\/a\>/Gothamist"};galleryObj['photo_7'] = photo;</script>
+<br>		<img src="https://web.archive.org/web/20150507233428im_/http://gothamist.com/assets_c/2010/02/9firefighterauction-thumb-60x60-482314.jpg" title="" id="photo_8" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":8, "image": "https://web.archive.org/web/20150507233428/http://gothamist.com/attachments/arts_jen/9firefighterauction.jpg", "caption": "", "credit":"Photo by \<a href=\"http://colormekatie.blogspot.com/\"\>Katie Sokoler\<\/a\>/Gothamist"};galleryObj['photo_8'] = photo;</script>
+		<img src="https://web.archive.org/web/20150507233428im_/http://gothamist.com/assets_c/2010/02/10firefighterauction-thumb-60x60-482315.jpg" title="" id="photo_9" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":9, "image": "https://web.archive.org/web/20150507233428/http://gothamist.com/attachments/arts_jen/10firefighterauction.jpg", "caption": "", "credit":"Photo by \<a href=\"http://colormekatie.blogspot.com/\"\>Katie Sokoler\<\/a\>/Gothamist"};galleryObj['photo_9'] = photo;</script>
+		<img src="https://web.archive.org/web/20150507233428im_/http://gothamist.com/assets_c/2010/02/11firefighterauction-thumb-60x60-482316.jpg" title="" id="photo_10" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":10, "image": "https://web.archive.org/web/20150507233428/http://gothamist.com/attachments/arts_jen/11firefighterauction.jpg", "caption": "", "credit":"Photo by \<a href=\"http://colormekatie.blogspot.com/\"\>Katie Sokoler\<\/a\>/Gothamist"};galleryObj['photo_10'] = photo;</script>
+		<img src="https://web.archive.org/web/20150507233428im_/http://gothamist.com/assets_c/2010/02/12firefighterauction-thumb-60x60-482317.jpg" title="" id="photo_11" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":11, "image": "https://web.archive.org/web/20150507233428/http://gothamist.com/attachments/arts_jen/12firefighterauction.jpg", "caption": "", "credit":"Photo by \<a href=\"http://colormekatie.blogspot.com/\"\>Katie Sokoler\<\/a\>/Gothamist"};galleryObj['photo_11'] = photo;</script>
+		<img src="https://web.archive.org/web/20150507233428im_/http://gothamist.com/assets_c/2010/02/14firefighterauction-thumb-60x60-482319.jpg" title="" id="photo_12" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":12, "image": "https://web.archive.org/web/20150507233428/http://gothamist.com/attachments/arts_jen/14firefighterauction.jpg", "caption": "", "credit":"Photo by \<a href=\"http://colormekatie.blogspot.com/\"\>Katie Sokoler\<\/a\>/Gothamist"};galleryObj['photo_12'] = photo;</script>
+		<img src="https://web.archive.org/web/20150507233428im_/http://gothamist.com/assets_c/2010/02/firefighterauction-thumb-60x60-482320.jpg" title="" id="photo_13" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":13, "image": "https://web.archive.org/web/20150507233428/http://gothamist.com/attachments/arts_jen/firefighterauction.jpg", "caption": "", "credit":"Photo by \<a href=\"http://colormekatie.blogspot.com/\"\>Katie Sokoler\<\/a\>/Gothamist"};galleryObj['photo_13'] = photo;</script>
+		<img src="https://web.archive.org/web/20150507233428im_/http://gothamist.com/assets_c/2010/02/actionauction-thumb-60x60-482326.jpg" title="" id="photo_14" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":14, "image": "https://web.archive.org/web/20150507233428/http://gothamist.com/attachments/arts_jen/actionauction.jpg", "caption": "The girl on the left bid, and won a date with, the girl on the right.", "credit":"Photo by \<a href=\"http://colormekatie.blogspot.com/\"\>Katie Sokoler\<\/a\>/Gothamist"};galleryObj['photo_14'] = photo;</script>
+									
+</div></div>					<p>Last night the City Reliquary pretty much brought the FDNY Calendar to life with a <a href="https://web.archive.org/web/20150507233428/http://www.cityreliquary.org/fire-sale-playing-cards/">Fire Sale</a>! Firefighters took to the Knitting Factory stage to sell... themselves, all to benefit the Reliquary (which is trying to <a href="https://web.archive.org/web/20150507233428/http://www.cityreliquary.org/city-reliquary-museum-civic-organization-2010-fundraising-campaign/">stay afloat</a>). Bids started at $50 and went over 300 bucks; winners were promised &quot;a real life opportunity to take one of New York&#x2019;s Bravest out on the town for a night of romance and adventure.&quot; </p>
+
+<p>We sent <a href="https://web.archive.org/web/20150507233428/http://colormekatie.blogspot.com/">Katie Sokoler</a> to digitally capture the steamy action, and she tells us this gentleman in the video below got the highest bid (he <em>did</em> bring the booty bump, after all). He went for $305! She also tells us that the hostess you see on stage was so flirty that all of the men wanted to bid on her&#x2014;but bidding only got up to $165, when word got out she&apos;s married. And it seems as though not all of the ladies were there to meet the fireman of their dreams, the winning bid for the hostess was actually from a girl.</p>
+
+<p><object width="640" height="360"><param name="allowfullscreen" value="true"><param name="allowscriptaccess" value="always"><param name="movie" value="http://vimeo.com/moogaloop.swf?clip_id=9581471&amp;server=vimeo.com&amp;show_title=1&amp;show_byline=1&amp;show_portrait=0&amp;color=aeb3b5&amp;fullscreen=1"><embed src="https://web.archive.org/web/20150507233428oe_/http://vimeo.com/moogaloop.swf?clip_id=9581471&amp;server=vimeo.com&amp;show_title=1&amp;show_byline=1&amp;show_portrait=0&amp;color=aeb3b5&amp;fullscreen=1" type="application/x-shockwave-flash" allowfullscreen="true" allowscriptaccess="always" width="640" height="360"></object></p>					
+										
+									
+				

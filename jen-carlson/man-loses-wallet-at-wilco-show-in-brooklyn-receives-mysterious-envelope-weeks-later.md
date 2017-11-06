@@ -1,0 +1,24 @@
+---
+author: Jen Carlson
+date: Feb 17, 2016 9:32 am
+title: Man Loses Wallet At Wilco Show In Brooklyn, Receives Mysterious Envelope Weeks Later
+---
+
+	
+										<p>Lower East Side resident Reilly Flaherty lost his wallet at a Wilco show in Brooklyn on February 5th, but he has now received his 15 minutes of fame in return. </p>
+
+<p>The person who found his wallet sent him a letter that he <a href="https://web.archive.org/web/20160813001941/https://www.instagram.com/p/BB1EVOOlH9h/">posted on Instagram</a>, and it immediately went viral&#x2014;it read: &quot;Dear Reilly Flaherty, I found your wallet and your drivers license had your address so here&apos;s your credit cards and other important stuff. I kept the cash because I needed weed, the MetroCard because well the fare&apos;s $2.75 now, and the wallet cause it&apos;s kinda cool. Enjoy the rest of your day. Toodles, Anonymous.&quot; Do you see a glass half full of restored faith in humanity or a glass half empty of restored faith in humanity?</p>
+
+<p>Flaherty won&apos;t say how much cash was taken, but he added that on top of that there was also a $10 Barnes &amp; Noble gift certificate and a Mr. Shiny&#x2019;s shoeshine loyalty card&#x2014;both of which were not returned. As for the credit cards, he had already cancelled them by the time the mysterious envelope arrived two weeks later.</p>
+
+<blockquote class="instagram-media" data-instgrm-captioned="" data-instgrm-version="6" style=" background:#FFF; border:0; border-radius:3px; box-shadow:0 0 1px 0 rgba(0,0,0,0.5),0 1px 10px 0 rgba(0,0,0,0.15); margin: 1px; max-width:658px; padding:0; width:99.375%; width:-webkit-calc(100% - 2px); width:calc(100% - 2px);"><div style="padding:8px;"> <div style=" background:#F8F8F8; line-height:0; margin-top:40px; padding:40.1388888889% 0; text-align:center; width:100%;"> <div style=" background:url(data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAACwAAAAsCAMAAAApWqozAAAAGFBMVEUiIiI9PT0eHh4gIB4hIBkcHBwcHBwcHBydr+JQAAAACHRSTlMABA4YHyQsM5jtaMwAAADfSURBVDjL7ZVBEgMhCAQBAf//42xcNbpAqakcM0ftUmFAAIBE81IqBJdS3lS6zs3bIpB9WED3YYXFPmHRfT8sgyrCP1x8uEUxLMzNWElFOYCV6mHWWwMzdPEKHlhLw7NWJqkHc4uIZphavDzA2JPzUDsBZziNae2S6owH8xPmX8G7zzgKEOPUoYHvGz1TBCxMkd3kwNVbU0gKHkx+iZILf77IofhrY1nYFnB/lQPb79drWOyJVa/DAvg9B/rLB4cC+Nqgdz/TvBbBnr6GBReqn/nRmDgaQEej7WhonozjF+Y2I/fZou/qAAAAAElFTkSuQmCC); display:block; height:44px; margin:0 auto -44px; position:relative; top:-22px; width:44px;"></div></div> <p style=" margin:8px 0 0 0; padding:0 4px;"> <a href="https://web.archive.org/web/20160813001941/https://www.instagram.com/p/BB1EVOOlH9h/" style=" color:#000; font-family:Arial,sans-serif; font-size:14px; font-style:normal; font-weight:normal; line-height:17px; text-decoration:none; word-wrap:break-word;" target="_blank">thanks.. I think?</a></p> <p style=" color:#c9c8cd; font-family:Arial,sans-serif; font-size:14px; line-height:17px; margin-bottom:0; margin-top:8px; overflow:hidden; padding:8px 0 7px; text-align:center; text-overflow:ellipsis; white-space:nowrap;">A photo posted by reilly flaherty (@reillyflaherty) on <time style=" font-family:Arial,sans-serif; font-size:14px; line-height:17px;" datetime="2016-02-16T01:45:14+00:00">Feb 15, 2016 at 5:45pm PST</time></p></div></blockquote>
+<script async defer src="//web.archive.org/web/20160813001941js_/http://platform.instagram.com/en_US/embeds.js"></script>
+
+<p>He told <a href="https://web.archive.org/web/20160813001941/http://nypost.com/2016/02/16/i-needed-weed-man-who-found-wallet-returns-license-not-cash/?utm_campaign=SocialFlow&amp;utm_source=NYPTwitter&amp;utm_medium=SocialFlow">the NY Post</a>, &quot;I quickly went from being hysterical to like, this guy is selfish. It speaks to the New York mentality: I&#x2019;m going to be nice but there&#x2019;s going to be an asterisk.&quot;</p>
+
+<p>In other comments he&apos;s called the thief a &quot;<a href="https://web.archive.org/web/20160813001941/http://www.nydailynews.com/news/national/man-receives-new-york-note-loses-wallet-article-1.2534140">modern day Robin Hood</a>,&quot; and &quot;<a href="https://web.archive.org/web/20160813001941/http://mashable.com/2016/02/16/lost-wallet-note/#2smGPNBnLuq0">the Walter White of wallet returning</a>.&quot; But if Howard Pyle or <em>Breaking Bad</em> isn&apos;t your thing, Flaherty also included a <em>Good Will Hunting</em> reference: &quot;If I could say one thing to this altruistic stranger, I would tell them, &apos;It&apos;s not your fault. It is not your fault.&apos;&quot;</p>
+
+<p>Perhaps the MTA and the good people at Mr. Shiny can team up to track this person down through MetroCard use and shoe shines.</p>					
+										
+									
+				

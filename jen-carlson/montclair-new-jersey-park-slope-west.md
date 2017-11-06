@@ -1,0 +1,17 @@
+---
+author: Jen Carlson
+date: Dec 9, 2007 2:30 pm
+title: Montclair, New Jersey = Park Slope West?
+---
+
+	
+										<p><img alt="200712montclair.jpg" src="https://web.archive.org/web/20150429111109im_/http://gothamist.com/attachments/arts_jen/200712montclair.jpg" width="240" height="190" class="right">A couple of <a href="https://web.archive.org/web/20150429111109/http://www.rhodesvannote.com/">real estate agents</a> are seriously deluded and declaring Montclair, NJ as &quot;Park Slope West&quot; (something <a href="https://web.archive.org/web/20150429111109/http://www.nytimes.com/2005/05/15/nyregion/thecity/15feat.html?pagewanted=print">The NY Times</a> covered <a href="https://web.archive.org/web/20150429111109/http://www.baristanet.com/2005/05/park_slope_west.php">two years ago</a>). They stand by their claim and the town&apos;s &quot;urban-suburban setting&quot; which boasts a theater, a museum, shops and even a &quot;great commute&quot;. <strike>Suckers</strike> Prospective buyers are brought to the suburbs in a limo, and are wined and dined at the &#x201C;Park Slope-style&#x201D; restaurant, Raymond&#x2019;s. Recently a curious Brooklynite and a <a href="https://web.archive.org/web/20150429111109/http://www.brooklynpaper.com/stories/30/48/30_48jerseybrokers.html">Brooklyn Paper</a> reporter took the tour de Jerz...only to be picked up in a minivan (reportedly the limo was out of service that day).</p><blockquote>Their [the agents] objective: to prove that, yes, you can own a home in a diverse community with the implausible combination of great public schools, restaurants and a walkable downtown, while still being able to see the Manhattan skyline, albeit through that odd brown cloud over Union City.<p></p>
+
+<p>Keeping in tune with Brooklyn lingo, the tour cruised up &#x201C;restaurant row&#x201D; on Bloomfield Avenue, with a wide range of cuisines, and through Brookdale Park, which was designed by the sons of Frederick Olmsted, Prospect Park&#x2019;s co-builder (so Montclair&#x2019;s park is a sequel?).</p></blockquote>So how much does an average three-bedroom home go for in these parts? Much less than any of the new condos popping up around Brooklyn. While one East Village family left the city and now resides happily in a &quot;huge Victorian House&quot; there, many don&apos;t want to leave the New York -- which is why the agents set up this limo tour. Be warned, not all who have made the move are are so smitten with the suburbs.<blockquote>&#x201C;I would move back to Park Slope in a heartbeat for me, myself and I, but this was about a decision driven by an expanding family,&#x201D; said Camilla Seth, a mother of two.<p></p>
+
+<p>Seth and her husband resettled for &#x201C;totally stereotypical reasons,&#x201D; namely, for a bigger home and excellent public schools (that cost about $12,000&#x2013;$17,000 a year in taxes, by the way), but she feels like a fish out of water. Her neighbors &#x201C;have urban sensibilities, but day-to-day life is suburban. People are driving. People are in their single-family homes. The way they interact is different.</p></blockquote>Perhaps the minivan is more fitting for this tour, the perfect vehicle to give a glimpse into a family-style future. Interested in leaving your high-rent hectic life? The next tour is in January.<p></p>
+
+<p><em>Photo of Montclair via <a href="https://web.archive.org/web/20150429111109/http://www.flickr.com/photos/70626467@N00/367495176">smaginnis11565&apos;s flickr</a>.</em></p>					
+										
+									
+				

@@ -1,0 +1,15 @@
+---
+author: Jen Carlson
+date: Apr 2, 2009 1:35 pm
+title: Coney Island Gets More Freaks, Money for Boardwalk
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:350px; "> <img alt="phpDdYqIwPM.jpg" src="https://web.archive.org/web/20160521072847im_/http://gothamist.com/attachments/arts_jen/phpDdYqIwPM.jpg" width="350" height="248"> <br> <i><span class="photo_caption">Photo via <a href="https://web.archive.org/web/20160521072847/http://www.flickr.com/photos/suzun/3041263574/">sssuzun&apos;s flickr</a></span></i></div> It&apos;s on! John Strong&apos;s freak show is officially headed East to set up shop on Coney Island this summer, <a href="https://web.archive.org/web/20160521072847/http://gothamist.com/2009/03/12/post_126.php">just blocks from</a> Dick Zigun&apos;s Coney Island Circus Sideshow. A press release announces that this summer visitors to the area will be greeted by more than 25 fun-filled rides and dozens of circus freaks, courtesy of John Strong&#x2019;s Shows, allegedly the largest collection of oddities and freaks in all of America. Did we mention his entourage includes a 17-inch horse named Tiny? <p></p>
+
+<p>President of Thor Equities, Joe Sitt, declared, &#x201C;Amusements and circus freaks form the backbone of Coney Island&#x2019;s unique and wonderful history, and this summer, the people&#x2019;s playground will be chock full of the rides, oddities and games that make Coney Island what it is. But beyond the fun and games, Thor&#x2019;s summer plans will also put hundreds of people to work and give New Yorkers a low-priced option for family fun.&quot; One of those being put to work is Anthony Raffaele, a 30-year veteran of Coney Island, who will operate the new rides (like the Himalaya and Flying Bobsled) under his company, Dreamland Park Amusements. But while Joe Sitt is patting himself on the back about the jobs being created, he seems to blissfully ignore all of the jobs lost when <a href="https://web.archive.org/web/20160521072847/http://gothamist.com/2008/08/30/short_ride_to_a_bad_time_with_astro.php">he killed Astroland</a>.</p>
+
+<p>Sitt also neglected to mention the <em>other</em> backbone of Coney Island, <a href="https://web.archive.org/web/20160521072847/http://gothamist.com/2009/03/13/under_the_boardwalk.php">the boardwalk</a>&#x2014;which <a href="https://web.archive.org/web/20160521072847/http://gothamist.com/2009/02/24/marowitz_wants_stimulus_money_to_re.php">Marty Markowitz</a> was trying to save by lobbying for some stimulus money. <a href="https://web.archive.org/web/20160521072847/http://www.nydailynews.com/ny_local/2009/04/01/2009-04-01_chunk_of_stimulus_will_only_fix_15_of_42.html">The Daily News</a> is now reporting that dreams <em>do</em> come true, &quot;Mayor Bloomberg has come up with $15 million to help rebuild parts of the crumbling Boardwalk of Shame, thanks to an infusion of federal stimulus money to the city.&quot; However, that sort of money will only fix 15 of the 42 blocks.</p>					
+										
+									
+				

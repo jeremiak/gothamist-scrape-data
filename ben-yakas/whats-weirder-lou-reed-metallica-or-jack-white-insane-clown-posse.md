@@ -1,0 +1,20 @@
+---
+author: Ben Yakas
+date: August 31, 2011  4:20 PM
+title: What's Weirder: Lou Reed + Metallica, Or Jack White + Insane Clown Posse?
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="83111reedicp.jpg" src="https://web.archive.org/web/20120119081119im_/http://gothamist.com/attachments/byakas/83111reedicp.jpg" width="640" height="384"> <br> <i>via <a href="https://web.archive.org/web/20120119081119/http://www.loureedmetallica.com/">Loureedmetallica.com</a>, <a href="https://web.archive.org/web/20120119081119/http://thirdmanrecords.com/news.html">ThirdManRecords</a></i></div> <p></p>
+
+<p>We are still getting our brains wrapped around the the <a href="https://web.archive.org/web/20120119081119/http://gothamist.com/2011/08/17/lou_reed_metallica.php">Lou Reed/Metallica</a> collaborative album <em>Lulu</em>, which is due out November 1st. The album is Reed&apos;s musical adaptation of German playwright Frank Wedekind&apos;s 1913 play about the life of an abused dancer, and is sure to be the crankiest metal album about a German dancer ever released. But just as we&apos;ve started to <a href="https://web.archive.org/web/20120119081119/http://gothamist.com/2011/08/17/lou_reed_metallica.php">come to grips</a> with the fact that the writer of &quot;Sister Ray&quot; calls <em>Lulu</em> <strong>&quot;the best thing I ever did,&quot;</strong> we now learn that Jack White <a href="https://web.archive.org/web/20120119081119/http://thedailywh.at/2011/08/31/thoroughly-confusing-collaboration-of-the-day/">has produced a single for</a> the Insane Clown Posse called &#x201C;Leck mich im Arsch&#x201D; (&#x201C;Lick me in the arse&#x201D;)! </p>
+
+<p>The single, which uses a Mozart sample that &quot;has figuratively been swept under the rug,&quot; is <a href="https://web.archive.org/web/20120119081119/http://thirdmanrecords.com/news.html">set for release</a> September 13th on White&#x2019;s Third Man Records&#x2014;but you can listen to the single below. Have White &amp; Co. upstaged Reed and Metallica&apos;s bizarre union? </p>
+
+<center><object height="81" width="100%"> <param name="movie" value="http://player.soundcloud.com/player.swf?url=http%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F22246523&amp;show_comments=true&amp;auto_play=false&amp;color=f4f0ed"> <param name="allowscriptaccess" value="always"> <embed allowscriptaccess="always" height="81" src="https://web.archive.org/web/20120119081119oe_/http://player.soundcloud.com/player.swf?url=http%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F22246523&amp;show_comments=true&amp;auto_play=false&amp;color=f4f0ed" type="application/x-shockwave-flash" width="100%"> </object></center>
+
+<p>Reed certainly did his best to make their project sound as bonkers <a href="https://web.archive.org/web/20120119081119/http://www.nme.com/news/metallica/58923">as you&apos;d imagine</a>: &quot;We had to bring Lulu to life in a sophisticated way, using rock and the hardest power rock you could come up with...And I did it with the best group I could possibly find. By definition, everybody involved was honest. This has come into the world pure. <strong>We pushed as far as we possibly could within the realms of reality</strong>.&quot; Reed also <a href="https://web.archive.org/web/20120119081119/http://www.nme.com/news/lou-reed/58856">made Metallica cry</a>, it seems.</p>
+
+<p>So which is weirder: Lou Reed/Metallica or Jack White/Insane Clown Posse? Or are neither in the same universe as the 2009 Snoop Dogg/Buzz Aldrin joint single, <a href="https://web.archive.org/web/20120119081119/http://www.youtube.com/watch?v=HcUeGRpPzgw">&quot;Rocket Experience,&quot;</a> which includes the immortal line, <strong>&quot;I walked on your face&quot;</strong>?</p>
+
+<p><script type="text/javascript" charset="utf-8" src="https://web.archive.org/web/20120119081119js_/http://static.polldaddy.com/p/5467312.js"></script><br>
+<noscript><a href="https://web.archive.org/web/20120119081119/http://polldaddy.com/poll/5467312/">Which Is The Weirdest Collaboration?</a></noscript></p>

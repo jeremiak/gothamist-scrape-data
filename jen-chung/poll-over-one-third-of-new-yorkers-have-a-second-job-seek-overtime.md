@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: September 10, 2008  4:29 PM
+title: Poll: Over One Third of New Yorkers Have a Second Job, Seek Overtime
+---
+
+<p><img alt="2008_09_2ndjob.jpg" src="https://web.archive.org/web/20120602104517im_/http://gothamist.com/attachments/jen/2008_09_2ndjob.jpg" width="120" height="125" class="right">Empire State residents are feeling the pinch of the slowing economy as a <a href="https://web.archive.org/web/20120602104517/http://www.siena.edu/level2col.aspx?menu_id=562&amp;id=19206">Siena Research Institute poll finds</a> 34% of respondents have either taken a second job or seek overtime.  Two thirds are worrying more about money and 74% say rising food prices are affecting their budgets (&quot;67% of shoppers are buying less expensive items, 60% have cut back on treats like cookies or candy in favor of needed items, and 60% are choosing store brands or generic items over name brands&quot;).  Researchers <a href="https://web.archive.org/web/20120602104517/http://www.crainsnewyork.com/apps/pbcs.dll/article?AID=/20080910/FREE/809109959">believe many are trying to save money</a> for winter heating bills, as 80% are worried about the winter weather.  SRI Director Dr. Don Levy said, &quot;Even though more New Yorkers expect the economy to decline than to improve over the next twelve months, by a margin of 49% to 32%, residents think their personal situation will improve.&#x201D;  [Image via <a href="https://web.archive.org/web/20120602104517/http://www.worth1000.com/emailthis.asp?entry=184779">Worth1000</a>]</p>

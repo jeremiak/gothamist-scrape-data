@@ -1,0 +1,11 @@
+---
+author: Jen Chung
+date: Sep 16, 2009 10:13 am
+title: Bloomberg Unsure About MTA Head's Pricey Pay
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2009_09_jaywald.jpg" src="https://web.archive.org/web/20150310070015im_/http://gothamist.com/attachments/jen/2009_09_jaywald.jpg" width="135" height="130" class="image-right"> </span>While Jay Walder was <a href="https://web.archive.org/web/20150310070015/http://gothamist.com/2009/09/11/new_mta_czar_gets_confirmed_after_h.php">confirmed as the MTA&apos;s new CEO and chairman</a> last week, his big-time pay&#x2014;$350,000/year, not to mention up to $850,000 in severance <em>and</em> housing and retirement&#x2014; is an issue with Mayor Bloomberg.  His pay package needs to approved by the MTA board and the <a href="https://web.archive.org/web/20150310070015/http://www.nytimes.com/2009/09/16/nyregion/16mta.html?partner=rss&amp;emc=rss">NY Times reports</a>, &quot;At the urging of City Hall, Mayor Michael R. Bloomberg&#x2019;s representatives at the Metropolitan Transportation Authority are set to abstain from supporting a generous compensation package for&quot; Walder.&quot;  Even though Bloomberg likes Walder, apparently the mayor &quot;<strong>considered the package to be outsize for a state employee, particularly given the current financial climate</strong>, two people familiar with his view said. They said the mayor also believed that if Gov. David A. Paterson was not re-elected, the severance award would limit the ability of a new governor to install a director.&quot;  Paterson&apos;s office has positioned the generous pay as &quot;in line with that of his predecessor and those who lead large transit systems across the country and around the world.&quot;  Walder, who worked with the MTA in the 1980s, recently <a href="https://web.archive.org/web/20150310070015/http://gothamist.com/2009/07/14/paterson_set_to_nominate_jay_walder.php">ran London&apos;s transit system</a> before leaving for Kinsey.  </p>					
+										
+									
+				

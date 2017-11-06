@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: December 21, 2009  8:39 AM
+title: Firefighters Battle Four-Alarm Fire In The Bronx
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <a href="https://web.archive.org/web/20110611055222/http://gothamist.com/attachments/jen/2009_12_bx204fire.jpg"> <img alt="2009_12_bx204fire.jpg" src="https://web.archive.org/web/20110611055222im_/http://gothamist.com/assets_c/2009/12/2009_12_bx204fire-thumb-241x209-467873.jpg" width="93" height="80" class="image-right"> </a> </span>Around 4:30 a.m., <a href="https://web.archive.org/web/20110611055222/http://abclocal.go.com/wabc/story?section=news/local&amp;id=7181431">huge fire started</a> in a store at East 204th Street near Bainbridge Avenue in the Bronx&#x2014;and it spread to neighboring stores.  According to WABC 7, &quot;Heavy flames shot through the roof of several of the businesses. The Foodtown supermarket, American Diner, and Bainbridge Dental Associates were all damaged by the flames.&quot; And <a href="https://web.archive.org/web/20110611055222/http://wcbstv.com/cbs2crew/four.alarm.bronx.2.1382930.html">WCBS 2 reports</a> that there were no injuries but &quot;The early morning wind may have complicated rescue efforts against the blaze.&quot;  In October, a <a href="https://web.archive.org/web/20110611055222/http://gothamist.com/2009/10/31/5-alarm_fire_rips_through_bronx_bui.php">five-alarm fire damaged</a> businesses on Bainbridge Avenue near East 204th Street for the 2nd time this year.</p>

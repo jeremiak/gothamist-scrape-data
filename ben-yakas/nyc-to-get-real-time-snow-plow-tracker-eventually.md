@@ -1,0 +1,17 @@
+---
+author: Ben Yakas
+date: Jan 4, 2012 1:37 pm
+title: NYC To Get Real-Time Snow Plow Tracker... Eventually
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="1411bloomplow.jpg" src="https://web.archive.org/web/20160112231631im_/http://gothamist.com/attachments/byakas/1411bloomplow.jpg" width="640" height="460"> <br> <i>A plow <a href="https://web.archive.org/web/20160112231631/http://gothamist.com/2010/12/27/bloomberg_city_is_doing_fine_if_you.php">stuck in Greenpoint</a> last year</i></div> <p></p>
+
+<p>Last year on this date, we were still wading through the mess that was the <a href="https://web.archive.org/web/20160112231631/http://gothamist.com/tags/blizzard2010">Boxing Day Blizzard of 2010</a>&#x2014;aka Blizzageddon. The city was feeding us excuses for their failure to clean up the snow, due to things like <a href="https://web.archive.org/web/20160112231631/http://gothamist.com/2011/01/04/thats_right_equipment_malfunction_m.php">&quot;equipment glitches&quot;</a> and a possible <a href="https://web.archive.org/web/20160112231631/http://gothamist.com/tags/slowdown">&quot;sanitation slowdown&quot;</a> and <a href="https://web.archive.org/web/20160112231631/http://gothamist.com/2011/01/05/just_who_was_in_charge_during_the_s.php">&quot;Bloomberg is incompetent.&quot;</a> But the city has vowed to not let things get out of hand during the next snowstorm&#x2014;and to that end, <a href="https://web.archive.org/web/20160112231631/http://www.nydailynews.com/news/yorkers-check-online-snowplows-hit-streets-article-1.1000614?localLinksEnabled=false">Bloomberg told reporters the administration is planning</a> to launch a website that lets people track plows in real-time via GPS. &#x201C;We have a whole plan. We will get to it quickly,&#x201D; Bloomberg said. Wait a minute...<a href="https://web.archive.org/web/20160112231631/http://www.youtube.com/watch?v=GyC0A98k-1s">that&apos;s exactly what the Cylons said</a>!</p>
+
+<p>The system would be similar to one <a href="https://web.archive.org/web/20160112231631/http://chicagoist.com/2012/01/03/new_website_tracks_snow_plows_in_re.php">just launched in Chicago</a>, ChicagoShovels.org, which allows the public &quot;to track the progress of City snow plows and make snow removal efforts more transparent.&#x201D; The Chicago site took months of preparation to build&#x2014;and there&apos;s no indication when the NYC one might be online, let alone how much the project will cost. </p>
+
+<p><a href="https://web.archive.org/web/20160112231631/http://transportationnation.org/2012/01/03/chicago-new-york-to-make-snow-plow-locations-live-during-storms/">Bloomberg also cautioned that</a> the website won&apos;t actually help make snow removal any more efficient: &quot;I don&#x2019;t know that it necessarily improves our ability to plow,&#x201D; the mayor said. &#x201C;We have the routes, and we are going to do it. But it does let you see where plows went and when they went there.&#x201D; But enough questioning and criticizing Bloomberg, people&#x2014;can&apos;t you see <em>his plan</em> is ALREADY working? &quot;Our best thing so far is my strategy so far. Look outside&#x2014;streets are clean, no snow,&#x201D; he said. That&apos;s right: Bloomberg is basically <a href="https://web.archive.org/web/20160112231631/http://en.wikipedia.org/wiki/Weather_Wizard">Weather Wizard</a> now.</p>					
+										
+									
+				

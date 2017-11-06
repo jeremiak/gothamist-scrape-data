@@ -1,0 +1,11 @@
+---
+author: Jen Carlson
+date: October 18, 2010  3:48 PM
+title: Post-Beatles Bread Baking With John Lennon
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:300px; "> <img alt="lennonkitchen1010.jpg" src="https://web.archive.org/web/20110412161620im_/http://gothamist.com/attachments/arts_jen/lennonkitchen1010.jpg" width="300" height="227"> <br> <i><span class="photo_caption">John and Sean Lennon,in the kitchen at the Dakota, 1978</span></i></div> As pointed out by <a href="https://web.archive.org/web/20110412161620/http://latimesblogs.latimes.com/dailydish/2010/10/john-lennon-baker.html">the LA Times</a>, a recent broadcast on NPR aired tape recordings from an interview between David Sheff and <a href="https://web.archive.org/web/20110412161620/http://gothamist.com/tags/johnlennon">John Lennon</a> that took place over a three-week period in 1980, here in New York City. The tapes have allegedly never been broadcast before, though the transcripts <a href="https://web.archive.org/web/20110412161620/http://www.amazon.com/All-We-Are-Saying-Interview/dp/0312254644?tag=gothamist03-20">were published</a>.) The interview came out in <em>Playboy</em>, in an issue that hit newsstands on October 6th of that year.<p></p>
+
+<p>What was Lennon&apos;s life like just before he was murdered? He was apparently playing the role of stay-at-home dad and got <em>way</em> into baking bread! He says, &#x201C;I took a Polaroid photo of my first loaf. I was overjoyed, you know. I was that excited by it. I couldn&#x2019;t believe it, it was like an album coming out of the oven on the instant. And every day I was cooking lunch for the staff-drivers, office boys, anybody who was working. Come on up! I love it!&#x201D; He also described his bread to <a href="https://web.archive.org/web/20110412161620/http://entertainment.howstuffworks.com/john-lennon47.htm">BBC</a> at the time, saying, &quot;It looked great, you know, and it tasted good&#x2014;that was pretty damned good.&quot;</p>
+
+<p>Listen to the full broadcast <a href="https://web.archive.org/web/20110412161620/http://www.npr.org/templates/story/story.php?storyId=130429818">here</a>.</p>

@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: September 16, 2008  5:27 PM
+title: Cat Killer Continues to Use Victim Defense
+---
+
+<p><img alt="2008_09_norman.jpg" src="https://web.archive.org/web/20111117120054im_/http://gothamist.com/attachments/jen/2008_09_norman.jpg" width="130" height="129" class="right">Last year, 205-pound Joseph Petcka was <a href="https://web.archive.org/web/20111117120054/http://www.gothamist.com/2007/04/13/worst_person_in.php">accused of killing his girlfriend&apos;s cat in a jealous rage</a>.  He faces charges of aggravated cruelty to animals and harassment (of his then girlfriend).  Petcka left her apartment, allegedly yelling, &quot;You love that cat more than you love me,&quot; but returned to confront 7-pound domestic cat Norman. The cat&apos;s body was later discovered with &quot;a broken leg, three broken ribs, broken teeth, and a lacerated tongue. &quot; It was <a href="https://web.archive.org/web/20111117120054/http://gothamist.com/2007/05/11/grand_jury_indi.php">later revealed</a> that Petcka told the ASPCA that Norman bit him so he swiped the cat away.  Today, <a href="https://web.archive.org/web/20111117120054/http://www.nypost.com/seven/09162008/news/regionalnews/cat_killer__im_the_victim_129314.htm">his trial began</a>, and Petcka&apos;s lawyer told the Post, &quot;<strong>My client reacted to the attack of a cat, which under the law is allowable.</strong>&quot;</p>

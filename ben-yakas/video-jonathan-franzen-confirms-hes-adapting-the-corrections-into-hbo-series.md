@@ -1,0 +1,17 @@
+---
+author: Ben Yakas
+date: October  2, 2011 10:10 AM
+title: Video: Jonathan Franzen Confirms He's Adapting The Corrections Into HBO Series
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="10211franzen.jpg" src="https://web.archive.org/web/20120118134702im_/http://gothamist.com/attachments/byakas/10211franzen.jpg" width="640" height="432" class="image-none"> </span></p>
+
+<p><a href="https://web.archive.org/web/20120118134702/http://gothamist.com/2011/04/21/jonathan_franzens_nyc_weed_stash_re.php">Great American Stoner Novelist</a> Jonathan Franzen <a href="https://web.archive.org/web/20120118134702/http://www.thenation.com/blog/163745/jonathan-franzen-occupy-wall-street-obama-nixon-hbo-corrections-series-and-yes-oprah">confirmed yesterday that</a> he is indeed adapting his 2001 National Book Award-winner <em>The Corrections</em> into an HBO series. He told a packed session at the New Yorker Festival that the story of the complicated lives of the Lambert family would be a full four-year television series. He also confirmed that indie filmmaker Noah Baumbach is involved with the project, <a href="https://web.archive.org/web/20120118134702/http://gothamist.com/2011/09/02/is_noah_baumbach_adapating_the_corr.php">ostensibly as director</a>. Watch Franzen discuss the show with New Yorker editor David Remnick below:</p>
+
+<div style="text-align: center;"><object classid="clsid:d27cdb6e-ae6d-11cf-96b8-444553540000" codebase="https://web.archive.org/web/20120118134702oe_/http://download.macromedia.com/pub/shockwave/cabs/flash/swflash.cab#version=9,0,0,0" width="400" height="264"><param name="flashvars" value="webhost=fora.tv&amp;clipid=12107&amp;cliptype=highlight"><param name="allowScriptAccess" value="always"><param name="allowFullScreen" value="true"><param name="movie" value="http://fora.tv/embedded_player"><embed flashvars="webhost=fora.tv&amp;clipid=12107&amp;cliptype=highlight" src="https://web.archive.org/web/20120118134702oe_/http://fora.tv/embedded_player" width="400" height="264" allowscriptaccess="always" allowfullscreen="true" type="application/x-shockwave-flash" pluginspage="http://www.macromedia.com/go/getflashplayer"></object></div>
+
+<p>Franzen also commented on everything from the Occupy Wall Street protest to his best pal, Oprah. Regarding the protesters, Franzen said he was in favor of is just about any action that &#x201C;revives a conversation about economic disparities, and how utterly shafted the middle class is.&#x201D; He said that, &#x201C;What Republicans call class warfare,&quot; is actually a vital and neglected effort to address economic inequality&#x2014;a conversation which has no outlet with the major political parties.</p>
+
+<p>Franzen added that although <a href="https://web.archive.org/web/20120118134702/http://gothamist.com/2010/08/24/obama_mocks_plebs_with_advanced_cop.php">he still loves</a> President Obama, he feels he&apos;s stuck between the economic turmoil American people are experiencing, and the support of his elite financial backers. He also mentioned that when he met Obama last year, Franzen couldn&apos;t stop talking about Richard Nixon: &#x201C;He was our last liberal president.&#x201D;</p>
+
+<p>But of course, no conversation with Franzen could go without a passing mention of Oprah. He &quot;started graciously,&quot; but couldn&apos;t help but make a joke about having to sit through &#x201C;four segments on Michael Jackson&#x2019;s secret family&#x201D; before Oprah interviewed him about <em>Freedom</em>.</p>

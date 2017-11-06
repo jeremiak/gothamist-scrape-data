@@ -1,0 +1,17 @@
+---
+author: Jen Carlson
+date: May  8, 2012  6:53 PM
+title: Extra, Extra: Best Bike Rack EVER
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="HANDSKYXX0412.jpeg" src="https://web.archive.org/web/20120509235334im_/http://gothamist.com/attachments/arts_jen/HANDSKYXX0412.jpeg" width="640" height="468" class="image-none"> </span><span class="photo_caption">Hanksy&apos;s new homage to Back to the Future, on Mulberry and Kenmare (photo via <a href="https://web.archive.org/web/20120509235334/http://www.flickr.com/photos/amolho4/7160378634/">amolho4&apos;s flickr</a>)</span></p>
+
+<ul><li>Follow Gothamist <a href="https://web.archive.org/web/20120509235334/http://twitter.com/#!/gothamist">on Twitter</a> and <a href="https://web.archive.org/web/20120509235334/http://www.facebook.com/pages/Gothamist/13927915491">like us on Facebook</a>.  You can also get the top stories mailed to you&#x2014;<a href="https://web.archive.org/web/20120509235334/http://eepurl.com/Mu4T">sign up here</a>.
+</li><li>NOAA has released depressing <a href="https://web.archive.org/web/20120509235334/http://www.nydailynews.com/news/national/devastated-marine-life-shown-greenpeace-bp-oil-spill-photos-article-1.1074073">new photos</a> of devastated marine life from the BP oil spill&#x2014;but <a href="https://web.archive.org/web/20120509235334/http://www.climatesciencewatch.org/2012/05/07/white-house-sat-on-bp-gulf-disaster-photos/">why did they wait</a>?
+</li><li>Dig up a woman&apos;s dead chinchilla and you may need a <a href="https://web.archive.org/web/20120509235334/http://www.dailyfreeman.com/articles/2012/05/07/blotter/doc4fa7a81377846257097343.txt">psych exam</a>.
+</li><li>Hasan Minhaj has released this great response to The Great PopChip Debacle of 2012&#x2014;you know, the one where <a href="https://web.archive.org/web/20120509235334/http://gothamist.com/2012/05/02/is_this_ashton_kutcher_for_pop_chip.php">Ashton Kutcher went full brownface</a> to sell a snack chip? You can <a href="https://web.archive.org/web/20120509235334/http://www.youtube.com/watch?v=0I3KGj5dwSw&amp;feature=youtu.be">watch it here</a>.
+</li><li>OMG, will Pippa Middleton <a href="https://web.archive.org/web/20120509235334/http://nymag.com/daily/fashion/2012/05/pippa-middleton-moving-to-new-york.html">move to New York to &quot;write&quot; a book</a>?
+</li><li>The Beach Boys played a new song <a href="https://web.archive.org/web/20120509235334/http://www.rollingstone.com/music/videos/beach-boys-perform-new-song-on-fallon-20120508">on Jimmy Fallon last night</a>.
+</li><li>A Fifth Avenue co-op board <a href="https://web.archive.org/web/20120509235334/http://www.nypost.com/p/news/local/manhattan/giving_him_the_sheik_fWz1caj7823ER9rSxhvgXL?utm_medium=rss&amp;utm_content=Manhattan">refused a sheikh&apos;s attempt to buy a $31.5 million apartment </a>allegedly because of his 15 kids, two wives and huge staff.  But it sounds like a great premise for a sitcom!
+</li><li>Would anyone dare steal your bike from <a href="https://web.archive.org/web/20120509235334/http://laughingsquid.com/giant-squid-bicycle-rack/">this giant squid bicycle rack</a>?
+</li><li><a href="https://web.archive.org/web/20120509235334/http://oldloves.tumblr.com/post/22626930024/john-cale-betsey-johnsons-wedding-day-1968">Check out photos</a> from designer Betsey Johnson and the Velvet Underground John Cale&apos;s wedding day in 1968.</li></ul>

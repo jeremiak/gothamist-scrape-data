@@ -1,0 +1,13 @@
+---
+author: Jen Chung
+date: December 28, 2008 10:24 AM
+title: 15-Year-Old Arrested in Bronx Man's Death
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-right"> <img alt="2008_12_butlerdrago.jpg" src="https://web.archive.org/web/20110811142155im_/http://gothamist.com/attachments/jen/2008_12_butlerdrago.jpg" width="268" height="165"> <br> <i>Suspect Butler (left); murder victim John Hopkins Drago</i></div> A 15-year-old girl has been <a href="https://web.archive.org/web/20110811142155/http://www.nydailynews.com/news/ny_crime/2008/12/27/2008-12-27_15yearold_girl_arrested_in_brutal_bronx_.html">arrested for the fatal stabbing </a>of a 22-year-old man, whose body <a href="https://web.archive.org/web/20110811142155/http://gothamist.com/2008/12/23/mans_body_found_in_bag_in_the_bronx.php">was found in a plastic bag</a>, behind a Bronx building, last week.  The Daily News reports, &quot;Baby-faced Sharell Butler, known by pals as &quot;Lady Red,&quot; was charged with murder, manslaughter and assault in the death of John Hopkins Drago, the adopted Russian son of a Bronx family.&quot;<p></p>
+
+<p>The ME&apos;s office said Hopkins Drago had stab wounds on his head and body; the police say he was stabbed 40-50 times.  Police suspect that Butler and Robert Pastore, 19, who is in custody, may have killed Hopkins Drago because they believed he told the cops about a robbery Pastore commited.  A police source told the News, &quot;We&apos;re going on the theory that he was killed because they thought he was a snitch.&quot;</p>
+
+<p>Butler was also charged with second-degree murder, &quot;in connection with the shooting death of a 24-year-old man during a home invasion this month in the Bronx,&quot; <a href="https://web.archive.org/web/20110811142155/http://www.nytimes.com/2008/12/28/nyregion/28dead.html">according to the NY Times</a>, which added, &quot;It was unclear whether there was any connection between the two killings.&quot;  Butler allegedly was with another suspect when they tried to <a href="https://web.archive.org/web/20110811142155/http://www.nypost.com/seven/12282008/news/regionalnews/bronx/teen_gal_in_slay_bust_146222.htm">steal marijuana and cash</a> from Christopher Umpierrie; the other suspect fatally shot Umpierrie.  </p>
+
+<p>Butler will be charged as an adult; the News reports Butler was &quot;picked out of a lineup by witnesses in one of the crimes and identified by another witness from a photo array for the other murder.&quot;  Butler&apos;s lawyer said, &quot;<strong>She&apos;s just a 15-year-old girl and she&apos;s scared. She just wants to be with her mother right now</strong>.&quot;</p>

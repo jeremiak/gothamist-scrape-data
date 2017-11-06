@@ -1,0 +1,16 @@
+---
+author: Jen Carlson
+date: Jul 28, 2008 4:20 pm
+title: Clayton Patterson Arrested for Taking Photos
+---
+
+	
+										<p><img alt="0807claytonp.jpg" src="https://web.archive.org/web/20150306101135im_/http://gothamist.com/attachments/arts_jen/0807claytonp.jpg" width="640" height="480"><br>
+<span class="photo_caption">Photo via <a href="https://web.archive.org/web/20150306101135/http://www.flickr.com/photos/gerryvisco/2687827910">Gerry Visco</a>, by Elsaa Rensaa.</span></p>
+
+<p>The film <a href="https://web.archive.org/web/20150306101135/http://razorapple.com/2008/02/25/clayton-patterson-in-captured/"><em>Captured</em></a> documents the documentarian <a href="https://web.archive.org/web/20150306101135/http://gothamist.com/2005/08/26/clayton_patterson_captured_a_filmvideo_history_of_the_lower_east_side.php">Clayton Patterson</a> (watch the trailer after the jump), and will <a href="https://web.archive.org/web/20150306101135/http://www.capturedmovie.com/">screen in New York</a> on the 20th anniversary of the Tompkins Square Park police riots, which Patterson famously filmed (&quot;little brother is watching big brother,&quot; he&apos;s noted in the past). Recently, the artist, writer, community activist, and photographer who for the past 25 years has documented the Lower East Side...from drag queens to heroin addicts to rabbis...was arrested for taking photos. In an email, he stated:</p><blockquote>&quot;On Ludlow &#x2013; between Stanton and Rivington &#x2013; was arrested for taking photographs. The problem has more to do with police procedure on the street. On this day the street was not a frozen zone. People were allowed to walk through. Kids were hanging out. There was not a police-line. There was not even a fire, just a little smoke.&quot;</blockquote>Now <a href="https://web.archive.org/web/20150306101135/http://thevillager.com/villager_273/documentarianisdetanied.html">the Villager</a> has a few more details, notably that he was taking photos of &quot;firefighters responding to an alarm on Ludlow Street,&quot; and got the cuffs after he &quot;refused orders to keep his distance&quot; after being unable to produce a press pass. <p></p>
+
+<p>Patterson is no stranger to being arrested, and it&apos;s likely police are <a href="https://web.archive.org/web/20150306101135/http://www.brooklynrail.org/2008/06/local/rebel-with-a-lens-neighborhood-preservation-in-the-darkness-of-clayton-patterson">well aware of who he is</a> (having exposed the NYPD for police brutality all those years ago) -- he told the paper, &#x201C;For a few years after the riots, it was quite common to get arrested. That tape got a lot of cops criminally indicted and fired. Here it is 20 years later, and I&#x2019;m doing the same thing I&#x2019;ve been doing &#x2014; and I get thrown in jail for it. You have a right to be out there photographing and taping what&#x2019;s going on in your community.&#x201D; There have been many <a href="https://web.archive.org/web/20150306101135/http://gothamist.com/2008/06/11/coney_island_photog.php">incidents</a> <a href="https://web.archive.org/web/20150306101135/http://gothamist.com/2007/12/10/columbia_grad_s.php">of photographers</a> being taken down by the long arm of the law lately.</p>					
+										
+									
+				

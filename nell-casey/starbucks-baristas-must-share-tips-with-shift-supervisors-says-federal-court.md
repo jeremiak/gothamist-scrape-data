@@ -1,0 +1,17 @@
+---
+author: Nell Casey
+date: Nov 22, 2013 10:26 am
+title: Starbucks Baristas Must Share Tips With 'Shift Supervisors,' Says Federal Court
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="062613bucks.jpg" src="https://web.archive.org/web/20150501161401im_/http://gothamist.com/attachments/nyc_arts_john/062613bucks.jpg" width="640" height="435"> <br> <i> In this file photo, a Starbucks customer agonizes over what percentage of his tip will be siphoned off to the &quot;shift supervisor.&quot; (<a href="https://web.archive.org/web/20150501161401/http://www.flickr.com/photos/manzari/106995080/sizes/z/in/photolist-asnUL-9XU8Wq-apm1TE-e2iTF9-6raQKB-5LjcTs-7FefDQ-8BCiLW-6zK1pB-csnaEd-3L8biQ-7A624Y-bwv31E-CbjU3-bfaJwa-doTYCa-6avhrb-ztBXC-AkFdB-7KKci-agNxpe-xAYks-zvHAR-5XAMHX-zvvr9-3eEJNe-4rB4Cn-9eNyXm-9bEWFm-8d34hh-5cmYn4-7Mxzrq-eiKBGZ-aELecr-8C1pfJ-7uTnGd-7MtAwk-7Mxz15-7MxzCq-bdj8z2-33Xbbr-Cd1fc-4mN8wM-9dn5Zb-9CQxtv-6ZuNUG-7GHHRE-4YqS5L-291gHn-8E2rQp-7SazA/">Manziri&apos;s Flickr</a>)</i></div> <p></p>
+
+<p>Starbucks baristas must share their tips with shift supervisors, a federal appeals court ruled yesterday. The three-judge panel of the 2nd U.S. Circuit Court of Appeals concluded that because Starbucks&apos; shift supervisors perform essentially the same functions as baristas&#x2014;serving customers food and beverages&#x2014;they were <a href="https://web.archive.org/web/20150501161401/http://abcnews.go.com/US/wireStory/appeals-court-ny-sides-starbucks-tips-20964268">entitled to a portion of the shared tips</a>. Baristas in Queens <a href="https://web.archive.org/web/20150501161401/http://gothamist.com/2008/04/04/new_york_state_1.php">brought a lawsuit</a> against the Seattle-based company in 2008, alleging that sharing tips with the supervisors violated a state law that prohibits management from sharing in employee tips. </p>
+
+<p>Though technically given more responsibility than baristas, shift supervisors don&apos;t have authority that would allow them to fire an employee. &quot;Thus, while shift supervisors may be able to coach baristas, they cannot formally discipline them,&quot; the panel said. &quot;On this record, no fact finder could conclude that shift supervisors have such a &apos;substantial&apos; degree of &apos;managerial responsibility&apos; that they are no longer akin to &apos;general wait staff.&apos;&quot; This new ruling comes to the same conclusions as the New York Court of Appeals, which ruled <a href="https://web.archive.org/web/20150501161401/http://gothamist.com/2013/06/26/starbucks_shift_supervisors_can_sha.php">in favor of tip sharing</a> earlier this year.</p>
+
+<p>New York City baristas <a href="https://web.archive.org/web/20150501161401/http://www.nytimes.com/2008/04/04/nyregion/04starbucks.html?_r=2&amp;ref=nyregion&amp;oref=slogin&amp;">revealed to the <em>Times</em></a> that $1.20 to $1.80 an hour was the amount each barista earned in tips during an average shift. Average salaries hover around $10 after three years for both baristas and shift supervisors, meaning that with tips employees at the coffee giant <a href="https://web.archive.org/web/20150501161401/http://gothamist.com/tags/livingwage">earn a living wage</a>; but just barely. </p>					
+										
+									
+				

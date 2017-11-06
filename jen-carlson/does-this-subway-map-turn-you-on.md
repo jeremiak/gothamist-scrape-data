@@ -1,0 +1,7 @@
+---
+author: Jen Carlson
+date: April 20, 2009  5:21 PM
+title: Does This Subway Map Turn You On?
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="phpwKjCC4PM.jpg" src="https://web.archive.org/web/20130619013509im_/http://gothamist.com/attachments/arts_jen/phpwKjCC4PM.jpg" width="115" height="145" class="image-right"> </span>Though it came out in 2000 for a CAE Gallery show, this NYC subway map interpretation is spreading its seed all over the internet today, giving the tip of Manhattan a whole new meaning. Get the larger (NSFW?) version <a href="https://web.archive.org/web/20130619013509/http://3.bp.blogspot.com/_zMsg9U8UoyM/SeG6DnXNzNI/AAAAAAAADWc/G8qHizOMZ0I/s1600-h/map.jpg">here</a>&#x2014;it&apos;s good for puns, or just general observations. And sorry to break it to you New Jersey, but it looks like Manhattan&apos;s just not that into you (also doesn&apos;t look like Manhattan is very well endowed). Wonder what <a href="https://web.archive.org/web/20130619013509/http://gothamist.com/2007/08/03/michael_hertz_d.php">Michael Hertz</a>, designer of the original map, would think of all this. [via <a href="https://web.archive.org/web/20130619013509/http://www.kottke.org/09/04/suck-my-manhattan">Kottke</a>]</p>

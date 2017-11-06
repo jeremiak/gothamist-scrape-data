@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: March 26, 2010 11:00 AM
+title: House Passes Health Care Bill "Fixes"
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2010_03_pelosi.jpg" src="https://web.archive.org/web/20110811121523im_/http://gothamist.com/attachments/jen/2010_03_pelosi.jpg" width="110" height="102" class="image-right"> </span>Last night, the House of Representatives <a href="https://web.archive.org/web/20110811121523/http://www.cnn.com/2010/POLITICS/03/25/health.care.main/index.html?hpt=T2">passed the changes</a> to some <a href="https://web.archive.org/web/20110811121523/http://gothamist.com/2010/03/25/gop_sends_health_care_reform_fixes.php">language in the health care reform reconciliation package</a> in a 220-207 vote.  President Obama is expected to sign it into law next week.  Lawmakers now have a two week recess and the <a href="https://web.archive.org/web/20110811121523/http://www.washingtonpost.com/wp-dyn/content/article/2010/03/25/AR2010032500006.html?hpid=topnews">Washington Post reports</a>, &quot;Lawmakers are leaving Washington on a rancorous note. Members of both parties seethed over the political response to threats of violence against a number of House Democrats, and senators belittled one another during amendment votes that lasted nearly 21 straight hours.&quot;  Yay, democracy!</p>

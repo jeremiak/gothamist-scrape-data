@@ -1,0 +1,11 @@
+---
+author: Jen Carlson
+date: Nov 26, 2008 2:14 pm
+title: Crane Accident and Ledger Get L&O; Treatment
+---
+
+	
+										<p><img alt="2008_11_crane.jpg" src="https://web.archive.org/web/20150426150619im_/http://gothamist.com/attachments/jen/2008_11_crane.jpg" width="135" height="131" class="right">Get ready for some high-profile headlines to be ripped  from the papers for Law &amp; Order, starting with tonight&apos;s episode about <a href="https://web.archive.org/web/20150426150619/http://gothamist.com/2008/05/30/breaking_manhat.php">a crane accident</a>. <a href="https://web.archive.org/web/20150426150619/http://www.nypost.com/seven/11262008/tv/craning_for_l_o_connection_140898.htm">According to the Post</a>, L&amp;O; doesn&apos;t really deal with &quot;this city&apos;s crooked contractors and their shoddy half-built nightmares, sleazy inspectors and falling cranes,&quot; it just begins with a crane accident and then the investigation goes in another direction. Meanwhile, over on <a href="https://web.archive.org/web/20150426150619/http://www.nypost.com/seven/11262008/gossip/pagesix/law__ledger_140897.htm">Page Six</a> there&apos;s talk of (sigh) a <a href="https://web.archive.org/web/20150426150619/http://gothamist.com/2008/01/22/heath_ledger_fo.php">Heath Ledger</a>-esque Law &amp; Order. They report that the plot &quot;is &apos;supposed to be about Heath Ledger&apos; and features a male supermodel, played by <a href="https://web.archive.org/web/20150426150619/http://www.imdb.com/name/nm0516796/">Ryan Locke</a>, who &apos;has a great career and gets all the ladies.&apos; Perhaps the eeriest comparison is to Ledger&apos;s actual death by overdose when the character &apos;leaves a club with a girl. They have sex and do drugs, and the next morning, his friend finds him dead.&apos;&quot; Next up: <a href="https://web.archive.org/web/20150426150619/http://gothamist.com/2008/11/26/teen_model_in_teacher_sex_scandal_b.php">Joshua Walter and Gina Salamino</a>?</p>					
+										
+									
+				

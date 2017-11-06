@@ -1,0 +1,9 @@
+---
+author: Jen Carlson
+date: March 10, 2010  5:45 PM
+title: HBO Transforms Greenpoint Into Ninth Ward
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="phpQX4mRHPM.jpg" src="https://web.archive.org/web/20110624102739im_/http://gothamist.com/attachments/arts_jen/phpQX4mRHPM.jpg" width="130" height="92" class="image-right"> </span><a href="https://web.archive.org/web/20110624102739/http://www.newyorkshitty.com/?p=34348">Miss Heather</a> asks, &quot;Have you ever asked yourself what is the difference between Greenpoint and the Ninth Ward of New Orleans other than, say, the latter was pulverized by a cataclysmic force of nature?&quot; Turns out HBO doesn&apos;t see much of a difference at all! They&apos;ll be turning parts of Meserole Avenue, Jewel and Moultrie Streets into Nola&apos;s Ninth this weekend, when they&apos;ll film scenes for <a href="https://web.archive.org/web/20110624102739/http://www.hbo.com/treme/index.html"><em>Treme</em></a>, a story of Ninth Ward residents &quot;attempting to rebuild their lives after the devastation of Hurricane Katrina.&quot; According to the sign the filming will take place Friday to Saturday, from 7 p.m. to 8 a.m., and will involve characters walking and talking on the streets. If you stumble upon the set, <a href="https://web.archive.org/web/20110624102739/mailto:photos@gothamist.com">send us photos</a>! <strong>UPDATE:</strong> Oh well, an HBO rep tells us, &quot;While the series is set in New Orleans, the particular scene(s) being filmed this weekend are actually set in New York. So, to clear it up, it&#x2019;s not New York being made out to look like New Orleans in any capacity.&quot;</p>
+
+<p> </p>

@@ -1,0 +1,36 @@
+---
+author: Jen Carlson
+date: Mar 15, 2013 11:25 am
+title: Zosia Mamet Talks Theater, Girls, And Why She's Not A Dentist
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="zosia0313.jpg" src="https://web.archive.org/web/20150427165007im_/http://gothamist.com/attachments/arts_jen/zosia0313.jpg" width="640" height="493" class="image-none"> </span><br>
+<span class="photo_caption">(Getty Images)</span></p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-right"> <img alt="leighreallyreally.jpg" src="https://web.archive.org/web/20150427165007im_/http://gothamist.com/attachments/arts_jen/leighreallyreally.jpg" width="300" height="349"> <br> <i style=" width:300px; ;display:block"> Zosia as Leigh in Really Really (Getty Images)</i></div> <em>Currently Zosia Mamet is on break from HBO&apos;s <em>Girls</em> and has headed back to a place she considers home: the theater. The 25-year-old hasn&apos;t had very much experience on stage, but she did grow up in the theater world because of her father, playwright David Mamet. Currently she&apos;s starring in her first lead role in <a href="https://web.archive.org/web/20150427165007/http://www.mcctheater.org/shows/12-13_season/reallyreally/index.html">MCC&apos;s production of Really, Really</a> (which she co-stars in with <a href="https://web.archive.org/web/20150427165007/http://gothamist.com/2013/03/11/matt_lauria.php">Matt Lauria</a>). The role could not be more different from her upbeat, if not a bit neurotic, Shoshanna on <em>Girls</em>&#x2014;and this week we talked with her about her darker stage character, her generation, and fans coming up to her on the street. (N.B.: we did ask about Mad Men, but it seems Matthew Weiner has put a gag order on anyone involved with the show.)</em><p></p>
+
+<p><strong>So this is your stage debut, correct?</strong> Yes, I&apos;ve never done a full length play. </p>
+
+<p><strong>What drew you to this role in particular?</strong> I really wanted to do something super different than anything I had done, particularly [I was] sort of searching for something dark, if I could find it&#x2014;and I really wanted to do a play. I really wanted to do something I thought was going to really challenge me as an actor. Sort of push me to my edges, and I felt like this would definitely do that.</p>
+
+<p><strong>Has it? Is it emotionally draining to be this character so many times a week?</strong> Oh my god absolutely exhausting [laughs]... It&apos;s crazy. </p>
+
+<p><strong>Leaving the theater I felt a bit drained, just from being in the audience. Has your dad seen the play, did he have any thoughts on it?</strong> He has, he came on opening night. And he loved it. </p>
+
+<p><strong>Are there any plays that you would want to do that he has written? Some people in the office were talking about how they want to see you do Oleanna...</strong> Yeah, I mean I think my father is a brilliant writer. Maybe I&apos;m biased because he&apos;s my dad and I love him, but... sure, who knows, life is long. I think me doing one of his plays would come with a lot of baggage that doesn&apos;t have to do with the actual play. We&apos;ll see, but I mean... I actually... when I read this I thought it was very reminiscent of Oleanna. </p>
+
+<p><strong>There are similar themes. Have you been enjoying it, do you enjoy this more than TV or is it just a totally different beast?</strong> Oh it&apos;s <em>a totally different beast</em>, but I love it so much. I mean, I grew up in the theater, with my parents backstage and crawling around and... my dad at the opening, to anyone who would listen, he was saying, &quot;She used to crawl around on these floors!&quot; In a weird way, even though I&apos;ve never done a play it felt like going home, which was nice. But it works totally different muscles&#x2014;I love it, I love that feeling of exhaustion that you get when doing a play. </p>
+
+<p><strong>How did you get involved with <em>Girls</em>, did you know Lena or was that something that just came across your table?</strong> It totally just happened by accident. I didn&apos;t know Lena. It came to me like any other audition, and I was shooting a movie upstate, and I was really sick, I had pneumonia, and I made a tape in a barn, which was the production office for the movie, and I never ever thought I&apos;d get the job. But I did. And I was initially supposed to be a guest star, and they changed my character to a series regular&#x2014;which was awesome. </p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="zosiaquote.jpg" src="https://web.archive.org/web/20150427165007im_/http://gothamist.com/attachments/arts_jen/zosiaquote.jpg" width="250" height="250" class="image-left"> </span><strong>The second season of <em>Girls</em> seems a lot darker...</strong> I love it all. I&apos;m still pretty upbeat. Shoshanna doesn&apos;t really reach the depths of despair. But I think Lena&apos;s sort of following the natural trajectory of people in their twenties, it&apos;s sort of a slow decline into darkness.</p>
+
+<p><strong>I think in <a href="https://web.archive.org/web/20150427165007/http://www.nytimes.com/2013/01/06/magazine/zosia-mamet-is-still-getting-used-to-being-your-new-best-friend.html?pagewanted=all&amp;_r=0">the NY Times profile</a> you mentioned this idea of being saddened by people hating their jobs and not just doing what they love instead, and I think <em>Girls</em> sort of embraces and mocks that philosophy. Do you think that&apos;s a realistic philosophy?</strong> I do, I think we talk about... Lena makes it a little bit ridiculous. I think there is something to be said for... what the play taks about, this idea that my generation was brought up to think, &quot;You can do whatever you want no matter what!&quot; and that&apos;s just not necessarily true. Just given the economy we live in now. </p>
+
+<p>You have to make a living, but at the same time I do think that people... there&apos;s this idea [that] finding true love, or having a job that you&apos;re excited to get up for every day... is like a fairy tale. That I disagree with. I think sometimes maybe it&apos;s a little bit harder, like, you know I probably could have made more money, faster and not have to work as hard if I, like, became a dentist. But I wouldn&apos;t be happy, so you know, it&apos;s definitely... I&apos;m not saying it&apos;s easy per se, but I do think it&apos;s absolutely attainable. </p>
+
+<p><em><strong>[I asked Zosia about paparazzi for a separate piece that will run here, but she also discussed <em>Girls</em> fans during her answer]</strong></em> Fans on the street sometimes... I was actually talking about this yesterday when it happened, we were talking about how interesting it is when people feel entitled to barge in on your life. And this girl literally grabbed me and turned me around and said, &quot;Take a picture with me!&quot; She didn&apos;t even ask. What if I was telling someone my mom died in that moment. It&apos;s interesting.</p>					
+										
+									
+				

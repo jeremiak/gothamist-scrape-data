@@ -1,0 +1,11 @@
+---
+author: Jen Carlson
+date: July 27, 2010 11:58 AM
+title: Paterson Finally Breaks Silence Over Jersey Shore
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="patersonshore.jpg" src="https://web.archive.org/web/20110623151918im_/http://gothamist.com/attachments/arts_jen/patersonshore.jpg" width="237" height="325" class="image-left"> </span>It&apos;s silly enough when <em>civilians</em> spend valuable time talking about <em>Jersey Shore</em>, but when politicians do it, it&apos;s just, well, <em>sigh</em>-worthy. In a <a href="https://web.archive.org/web/20110623151918/http://gothamist.com/2010/07/26/ny_times_compares_snooki_to_elizabe.php">recent interview</a> NJ Governor Chris Christie said the show was negative for his state, explaining, &quot;what it does is takes a bunch of New Yorkers&#x2014;most of the people on Jersey Shore are New Yorkers ... [and] drops them at the Jersey Shore, and tries to make Americans feel like this is New Jersey.&quot;</p>
+
+<p>Now in response to the comment, Governor Paterson&#x2014;after pondering how Christie has time to watch MTV&apos;s reality programing&#x2014;<a href="https://web.archive.org/web/20110623151918/http://www.nj.com/entertainment/celebrities/index.ssf/2010/07/jersey_shore_rumble_new_york_g.html">said of the cast</a>, &quot;Well maybe they are better when they&apos;re in New York than they&apos;re in New Jersey.&quot; </p>
+
+<p>Not really&#x2014;but we&apos;ll give the Gov a pass since he hasn&apos;t seen the show (allegedly!). What Christie failed to recognize is that these cast members perfectly represent parts of the Jersey Shore, because while some of them may be New Yorkers, they are the kind of people who are attracted to the Jersey Shore scene&#x2014;the whole thing is a <em>state of mind</em>, you see. And of course, what Christie should really be worried about (aside from <em>governing his state</em>) is how the cast members of <em>Jerseylicious</em>, <em>Jersey Couture</em> and (<a href="https://web.archive.org/web/20110623151918/http://gothamist.com/2010/07/14/new_jersey_housewife_sues_over_pull.php">especially</a>) <em>Real Housewives of New Jersey</em> are repping the dirty Jerz.</p>

@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: August 26, 2008 10:54 AM
+title: Giants Reportedly Talking to Strahan
+---
+
+<p><img src="https://web.archive.org/web/20110611053510im_/http://gothamist.com/attachments/jen/2008_08_strahan2.jpg" class="right">A source <a href="https://web.archive.org/web/20110611053510/http://www.nydailynews.com/sports/football/giants/2008/08/25/2008-08-25_source_talks_underway_between_giants_and.html">tells the Daily News</a> that the Giants have &quot;reached out to Strahan Monday to see if there was any way they could lure him back for a 16th NFL season&quot; now that defensive end Osi Umenyiora is out for the season.  Most people think Strahan&apos;s return is unlikely--even Giants coach <a href="https://web.archive.org/web/20110611053510/http://www.nydailynews.com/sports/football/giants/2008/08/25/2008-08-25_tom_coughlin_says_michael_strahans_mind_.html">Tom Coughlin said</a>, &quot;His mentality was different last year. The last time I talked with Michael (two weeks ago in Albany) he had accepted his new challenge and was very happy about that.&quot;  But new Jets quarterback Brett Favre <a href="https://web.archive.org/web/20110611053510/http://www.newsday.com/sports/football/ny-spgiants265816881aug26,0,852098.story">thinks Strahan is the way to go</a>, &quot;If I were a Giant, <strong>I&apos;d do whatever I could to get him out and have him back on my team</strong>.&quot;</p>

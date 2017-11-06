@@ -1,0 +1,13 @@
+---
+author: Jen Chung
+date: October 27, 2008 10:40 AM
+title: Crazy is the New Normal on Wall Street
+---
+
+<p><img alt="2008_10_traders27.jpg" src="https://web.archive.org/web/20110628185045im_/http://gothamist.com/attachments/jen/2008_10_traders27.jpg" width="250" height="246" class="left">Stocks were expected to fall this morning, as Asian markets were <a href="https://web.archive.org/web/20110628185045/http://www.clusterstock.com/2008/10/nikkei-hits-26-year-low">significantly down</a> (Nikkei -6%, Hong Kong -13%, Shanghai -6%) as are the European markets, but U.S. new home sales rose unexpectedly in September by 2.7%, so stocks <a href="https://web.archive.org/web/20110628185045/http://www.cnbc.com/id/27400520">declined less severely</a> than thought for this morning.  <a href="https://web.archive.org/web/20110628185045/http://www.bloomberg.com/apps/news?pid=20601087&amp;sid=aCnoEGB5FdDo&amp;refer=home">Bloomberg News said</a> that sales were &quot;propelled by a drop in prices ahead of the latest turmoil in financial markets.&quot;</p>
+
+<p>Stocks are down about 1% now. The director of floor operations at UBS, Art Cashin, <a href="https://web.archive.org/web/20110628185045/http://www.cnbc.com/id/27400520">told CNBC</a>, &#x201C;<strong>It&#x2019;s a little crazy again today. I wish we could see a little more signs of panic. </strong>It&#x2019;s the last Monday in October, it&#x2019;s a perfect day for it if we could really get &#x2018;em to throw &#x2018;em out the window, this could be important today.&#x201D;  </p>
+
+<p>The Dow&apos;s downward spiral has spawned a race to forecast the economy--one former Yale professor who studied economic forecasting <a href="https://web.archive.org/web/20110628185045/http://www.nytimes.com/2008/10/27/business/27markets.html?ref=business">tells the NY Times</a>, &quot;To make a crazy forecast today is not crazy.  <strong>It&apos;s not crazy to predict the Dow is going to 2,000.  That&apos;s in the realm of possibiity.</strong>&quot;</p>
+
+<p>In Treasury Department news, the new game in D.C. to <a href="https://web.archive.org/web/20110628185045/http://ap.google.com/article/ALeqM5gc1STE42MPHpfSFuLUeG-0rDLODgD941MK401">lobbying for bailout money</a>.  Also, 14 more banks have <a href="https://web.archive.org/web/20110628185045/http://www.nytimes.com/2008/10/28/business/economy/28assist.html?ref=business">signed up for bailout money</a>, including PNC, Capital One, and State Street.</p>

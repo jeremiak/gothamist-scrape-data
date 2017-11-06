@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: October 15, 2009 12:24 PM
+title: Is The Lighthouse Project Dead?
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2009_10_lighthouse.jpg" src="https://web.archive.org/web/20130725030837im_/http://gothamist.com/attachments/jen/2009_10_lighthouse.jpg" width="90" height="83" class="image-right"> </span>According to the <a href="https://web.archive.org/web/20130725030837/http://www.longislandpress.com/2009/10/14/press-exclusive-plugged-is-pulled-on-lighthouse/">LI Press</a>, Islanders owner Charles Wang has &quot;abandoned&quot; his billion-dollar plans for a <a href="https://web.archive.org/web/20130725030837/http://gothamist.com/2009/01/18/making_the_call_lets_keep_the_islan.php">new hockey arena</a> in Hempstead called the Lighthouse.  Last week, Brooklyn Borough President Marty Markowitz said the hockey team <a href="https://web.archive.org/web/20130725030837/http://www.nypost.com/p/news/local/brooklyn/islanders_are_brooklyn_goal_mWWOPFjEMa4i3weGU1zRFO">would be welcome in Brooklyn</a>, but the Atlantic Yards&apos; Barclays Center isn&apos;t big enough to house a hockey rink... Now, word&#x2014;<a href="https://web.archive.org/web/20130725030837/http://savetheisles.com/2009/10/14/isles-reach-out-to-queens/">via ESPN Radio</a>&#x2014; has it that the Isles have reached out to Queens to see if something can happen in Flushing!  </p>

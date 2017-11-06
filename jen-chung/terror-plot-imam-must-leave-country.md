@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: April 15, 2010  5:08 PM
+title: "Terror Plot" Imam Must Leave Country
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2010_04_imam.jpg" src="https://web.archive.org/web/20110629183557im_/http://gothamist.com/attachments/jen/2010_04_imam.jpg" width="110" height="97" class="image-right"> </span>The Queens imam who tipped off subway terror plotter <a href="https://web.archive.org/web/20110629183557/http://gothamist.com/tags/najibullahzazi">Najibullah Zazi</a> about investigators monitoring him was <a href="https://web.archive.org/web/20110629183557/http://www.ny1.com/1-all-boroughs-news-content/top_stories/116979/queens-imam-to-serve-no-additional-jail-time">sentenced to time served</a> but must leave the country within 90 days.  Imam Ahmad Afzali, who had been working with the government, doesn&apos;t know where he&apos;ll go. When he <a href="https://web.archive.org/web/20110629183557/http://gothamist.com/2010/03/05/terror_plot_imam_pleads_guilty_sign.php">pleaded guilty</a> last month, he said, &quot;I&apos;ve just signed my death sentence. I grew up here. I barely speak my own language. I&apos;m between a rock and a wall. Helping the government and here is what I get.&quot;</p>

@@ -1,0 +1,24 @@
+---
+author: Nell Casey
+date: Jan 3, 2016 2:55 pm
+title: Hoverboards Can't Stop, Won't Stop Catching Fire & Injuring People
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="010316hoverboard.jpg" src="https://web.archive.org/web/20160504080219im_/http://gothamist.com/attachments/nyc_nellcasey/010316hoverboard.jpg" width="640" height="427"> <br> <i> (<a href="https://web.archive.org/web/20160504080219/https://twitter.com/FDNY/status/682241534100652032?ref_src=twsrc%5Etfw">FDNY</a>)</i></div> <p></p>
+
+<p>The hottest gift this holiday season was also the one most likely to <a href="https://web.archive.org/web/20160504080219/http://gothamist.com/2015/12/28/hoverboard_boom.php">send you to the hospital</a> or <a href="https://web.archive.org/web/20160504080219/http://gothamist.com/2015/12/15/hoverboard_explosion.php">burn down your home</a>. The hip <a href="https://web.archive.org/web/20160504080219/http://gothamist.com/tags/hoverboards">&quot;hoverboards&quot;</a>, beloved by <a href="https://web.archive.org/web/20160504080219/https://twitter.com/markdsparks/status/681140609210396672?ref_src=twsrc%5Etfw">suburban dads</a> and <a href="https://web.archive.org/web/20160504080219/http://deadspin.com/mike-tyson-falls-off-a-hoverboard-like-an-asshole-1750148485">facial tattoo enthusiasts</a>, likely ruined dozens&#x2014;if not hundreds&#x2014;of Christmases this year, with one NJ hospital receiving over a dozen patients for injuries relating to the motorized boards on Christmas Day alone. And don&apos;t get <a href="https://web.archive.org/web/20160504080219/http://gothamist.com/2015/12/29/russell_croweverboard_mad.php">Russell Crowe started</a>, or he&apos;ll <a href="https://web.archive.org/web/20160504080219/https://twitter.com/russellcrowe/status/682608720031842305">never</a> <a href="https://web.archive.org/web/20160504080219/https://twitter.com/russellcrowe/status/682609214963859456">stop</a> <a href="https://web.archive.org/web/20160504080219/https://twitter.com/russellcrowe/status/682609907275706368">talking</a> <a href="https://web.archive.org/web/20160504080219/https://twitter.com/russellcrowe/status/682618087586140160">about it</a>.</p>
+
+<p>Valley Hospital in Ridgewood, NJ treated 14 patients in its emergency room on December 25th for injuries related to the whiz-bang gadget. <a href="https://web.archive.org/web/20160504080219/http://newyork.cbslocal.com/2016/01/02/new-jersey-motorized-board-injuries/">According to CBS</a>, most injuries occurred when people fell off the boards, a phenomenon captured in stunning variety by the <a href="https://web.archive.org/web/20160504080219/https://twitter.com/search?q=%23hoverboardfails&amp;src=typd">#hoverboardfails hashtag</a>. Two fires associated with the boards were also reported in the state. </p>
+
+<p>Back in Brooklyn, the FDNY has been dealing with its own version of Firestarter 2: The Hovering:</p>
+
+<center><blockquote class="twitter-tweet" lang="en"><p lang="en" dir="ltr"><a href="https://web.archive.org/web/20160504080219/https://twitter.com/hashtag/FDNY?src=hash">#FDNY</a> extinguished <a href="https://web.archive.org/web/20160504080219/https://twitter.com/hashtag/hoverboardfire?src=hash">#hoverboardfire</a> yesterday in <a href="https://web.archive.org/web/20160504080219/https://twitter.com/hashtag/Brooklyn?src=hash">#Brooklyn</a> apartment, preventing injuries <a href="https://web.archive.org/web/20160504080219/https://t.co/0RZdm5JtUx">pic.twitter.com/0RZdm5JtUx</a></p>&#x2014; FDNY (@FDNY) <a href="https://web.archive.org/web/20160504080219/https://twitter.com/FDNY/status/682241534100652032">December 30, 2015</a></blockquote>
+<script async src="//web.archive.org/web/20160504080219js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<p>A Crown Heights family had plugged in their brand-new board to charge when the device exploded and caught on fire. &quot;It was sitting on the floor, plugged in, and it went BOOM,&quot; Loretta Johnson <a href="https://web.archive.org/web/20160504080219/http://nypost.com/2015/12/30/hoverboard-bursts-into-flames-inside-a-brooklyn-apartment/">recalled to the Post</a>. &quot;There were flames and sparks everywhere...the thing was still blowing up and popping pieces all over the place. We were very, very scared.&quot;</p>
+
+<p>The <a href="https://web.archive.org/web/20160504080219/http://gothamist.com/2015/12/30/hoverboards_bratton_nope.php">future</a> is looking <strike>bright</strike> burn-y.</p>					
+										
+									
+				

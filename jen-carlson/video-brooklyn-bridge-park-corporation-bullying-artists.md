@@ -1,0 +1,28 @@
+---
+author: Jen Carlson
+date: Oct 1, 2010 2:36 pm
+title: Video: Brooklyn Bridge Park Corporation Bullying Artists
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="parksbkbridgeartists.jpg" src="https://web.archive.org/web/20150125085950im_/http://gothamist.com/attachments/arts_jen/parksbkbridgeartists.jpg" width="640" height="168" class="image-none"> </span><br>
+<span class="photo_caption">L-R: Jeffrey Sandgrund, Regina Myer, artist E.K. Buckley</span> </p>
+
+<p><strong>[UPDATE BELOW]</strong> As the DUMBO Arts Festival took over the neighborhood this past weekend, three artists (a husband and wife, and their friend) headed to Brooklyn Bridge Park to sell their own artwork. Chris Johnson (one of the artists) contacted us today pointing out <a href="https://web.archive.org/web/20150125085950/http://www.lawoffallingbodies.com/blog/2010/09/brooklyn-bridge-park-corporation-insists-their-private-laws-rule-in-public-land.html">his blog post</a> about what happened next. He writes:</p><blockquote>We got to the new Brooklyn Bridge Park at 11:20 am September 25th and began to set up the display. Within minutes, we were confronted by Regina Myer, the president of the Brooklyn Bridge Park Development Corporation, and Jeffrey Sandgrund, the Director of Park Operations. They told us that we were not allowed to set up in their park, and that we would not be allowed to sell artwork.</blockquote>These days artists are used to <a href="https://web.archive.org/web/20150125085950/http://gothamist.com/2010/04/18/vendors_1.php">being bullied</a> out of parks, so they promptly presented their certificate of authority to collect sales tax, and explained their rights. Myer and Sandgrund had their <em>own</em> interpretation of their rights, however, and attempted to bully them off the grounds. This was all caught on video by Johnson, where you&apos;ll hear, amongst other things, Sandgrund claiming that the law enforcement officers working at the park do not know the law.<p></p>
+
+<p><object width="640" height="385"><param name="movie" value="http://www.youtube.com/v/NU6Z95HFFBc?fs=1&amp;hl=en_US"><param name="allowFullScreen" value="true"><param name="allowscriptaccess" value="always"><embed src="https://web.archive.org/web/20150125085950oe_/http://www.youtube.com/v/NU6Z95HFFBc?fs=1&amp;hl=en_US" type="application/x-shockwave-flash" allowscriptaccess="always" allowfullscreen="true" width="640" height="385"></object></p>
+
+<p>The park does have <a href="https://web.archive.org/web/20150125085950/http://www.brooklynbridgeparknyc.org/visit/rules">private rules posted</a> (there&apos;s a whole 17-page PDF), but Johnson questions how they could override the Supreme Court of New York. We&apos;ve contacted the BBP Corporation for comment, and will update when we hear back.</p>
+
+<p><strong>UPDATE:</strong> Ellen P Ryan, the VP of Strategic Partnerships at Brooklyn Bridge Park, has sent us the below statement regarding art vending in the park.</p>
+
+<blockquote>Brooklyn Bridge Park operates under a set of rules and regulations that were recently adopted by its board of directors on September 22nd.  These rules are adapted from NYC Department of Parks &amp; Recreation and also include provisions in place at the Hudson River Park, specifically those that concern waterfront use.  Brooklyn Bridge Park rules include all NYC Department of Parks and Recreation Rules.</blockquote>
+
+<p>Ryan specifically cites 7B. Unlawful Vending: It is illegal for any person to sell, offer for sale, hire, lease or let anything whatsoever within the park, except under and within the terms of a Permit for such activity issued by BBPC. She then goes on to address the specific incident on September 25th documented above, saying:</p>
+
+<blockquote>On Saturday, September 25, two artists set up a table and display to sell artwork at Pier 1.  Citing Brooklyn Bridge Park rules, the artists were asked to dismantle their display.  Further consultation with Parks Enforcement Patrol clarified the overriding rules on the sale of expressive matter, which is protected by the Constitution&#x2019;s First Amendment.  In accordance with new NYC Department of Parks &amp; Recreation rules (see below), the artists were then asked to relocate their display away from the main entryway of Pier 1 and the adjacent park furnishings to ensure reasonable entry and enjoyment by all park visitors. The vendors complied and made work available for sale for the remaining part of the day.
+
+<p>As of July 19, 2010 new rules were issued by the NYC Department of Parks &amp; Recreation concerning the sale of &#x201C;expressive matter,&#x201D; including art, photography, reading material and sculpture in City parks.  Brooklyn Bridge Park will comply with these new rules.  It is the intent of Brooklyn Bridge Park to create and maintain a democratic public space in which the fully protected rights of expression of the individual are balanced with the park&#x2019;s mission to provide a welcome respite for all park visitors.</p></blockquote>When asked, Ryan pointed us to the Brooklyn Bridge Park permit application <a href="https://web.archive.org/web/20150125085950/http://www.brooklynbridgeparknyc.org/events/permits">on their website</a>, and told us &quot;we have not had any applications to date from artists that I&#x2019;m aware of.&quot;<p></p>					
+										
+									
+				

@@ -1,0 +1,11 @@
+---
+author: Jen Carlson
+date: January 11, 2011  4:29 PM
+title: Brooklyn Teased With Talk of Atlantic Yards Apple Store
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="APPLEAY011111.jpg" src="https://web.archive.org/web/20110811102139im_/http://gothamist.com/attachments/arts_jen/APPLEAY011111.jpg" width="200" height="178" class="image-left"> </span>Marty Markowitz, and most of Brooklyn, has been hoping Apple would soon notice the borough&apos;s enticing calls, and set up shop in in one of its many tech-friendly neighborhoods. There have been rumors of the company <a href="https://web.archive.org/web/20110811102139/http://gothamist.com/2007/10/11/wburg_apple.php">moving to</a> <a href="https://web.archive.org/web/20110811102139/http://gothamist.com/2008/09/26/apple_buys_bedford_ave_salvation_ar.php">Williamsburg</a> in the past, but with no follow through Marty&apos;s been <a href="https://web.archive.org/web/20110811102139/http://gothamist.com/2010/04/08/marty_markowitz_uses_ipad_to_beg_fo.php">reduced to begging</a> (it <em>is</em> rather embarrassing that Staten Island got one first). Now <a href="https://web.archive.org/web/20110811102139/http://www.observer.com/2011/commercial-observer/iratner-apple-eyes-atlantic-yards-first-brooklyn-store?utm_medium=partial-text&amp;utm_campaign=home">the Observer</a> reports that the white whining may have worked, a source tells them the company has set their sights on a location near the proposed Atlantic Yards arena in Brooklyn.</p>
+
+<p>The source told them, &quot;They&apos;re focusing on the arena area right now, but there&apos;s no space. But it&apos;s the only place in Brooklyn that&apos;s super visible, close to trains and about as close as you can get to a 24-hour community in the borough.&quot;</p>
+
+<p>Back <a href="https://web.archive.org/web/20110811102139/http://gothamist.com/2007/09/17/an_apple_store.php">in 2007</a> a source told us that Apple was looking to open on Atlantic near Clinton&#x2014;so this isn&apos;t the first time they&apos;ve eyed the area.</p>

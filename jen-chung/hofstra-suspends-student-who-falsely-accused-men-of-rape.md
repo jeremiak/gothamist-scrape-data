@@ -1,0 +1,22 @@
+---
+author: Jen Chung
+date: Sep 17, 2009 3:30 PM
+title: Hofstra Suspends Student Who Falsely Accused Men Of Rape
+---
+
+
+                            
+                            
+                            
+                            <p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="2009_09_hofra.jpg" src="https://web.archive.org/web/20131019174104im_/http://gothamist.com/attachments/jen/2009_09_hofra.jpg" width="640" height="438"> <br> <i>Photograph of Kevin Tavares, second from left, Stalin Felipe, center, and Rondell Bedward, right, talking to a reporter, by Frank Eltman/AP</i></div> <p></p>
+
+<p>Hofstra University has <a href="https://web.archive.org/web/20131019174104/http://wcbstv.com/cbs2crew/hofstra.university.gang.2.1189619.html">suspended the 18-year-old freshman student</a> who <a href="https://web.archive.org/web/20131019174104/http://gothamist.com/2009/09/17/hofstra_student_made_up_horrible_ra.php">falsely accused five men</a>&#x2014;four of whom <a href="https://web.archive.org/web/20131019174104/http://gothamist.com/2009/09/16/hofstra_rape_suspects_lured_victim.php">were arrested and jailed</a>&#x2014;of gang raping her in a Hofstra dorm after an on-campus party Sunday morning. Now the student, identified by the Post and <a href="https://web.archive.org/web/20131019174104/http://wcbstv.com/cbs2crew/hofstra.university.gang.2.1189619.html">WCBS 2</a> as Danmell Ndonye, may face criminal charges as Nassau County DA Kathleen Rice  said, &quot;I have launched an immediate criminal investigation into the statements and reports given by the woman in connection with this incident.&quot;  </p>
+
+<p>In a press conference today, Rice (who did not identify the woman) said the <a href="https://web.archive.org/web/20131019174104/http://www.newsday.com/long-island/nassau/da-hofstra-rape-claim-came-after-talk-with-boyfriend-1.1456015">student recanted after a long interview</a> with prosecutors and a detective.  Newsday also reports that the student made the false claim after returning to her dorm room and speaking with her boyfriend on Sunday. Rice said, &quot;The story of the accuser slowly but steadily began to unravel. The turning point was when she was confronted with the fact that there may be a video&quot; of the bathroom encounter (more on that below). Rice added, &quot;<strong>Her actions and demeanor suggest a very troubled young woman in need of some help</strong>.&quot;</p>
+
+<p>Last night, the four men,  Bronx residents Rondell Bedward, 21, Stalin Felipe, 19, and Jesus L. Ortiz, 19, and Brentwood resident Kevin R. Taveras, were released.  Bedward, who attends Hofstra, also  <a href="https://web.archive.org/web/20131019174104/http://www.nypost.com/p/news/local/hofstra_student_who_recanted_rape_h5t0waaqEStcxyRbSzBk0J">had his suspension</a> lifted.  While they were relieved, they (understandably) upset by the fake allegations.  Taveras <a href="https://web.archive.org/web/20131019174104/http://www.nydailynews.com/news/ny_crime/2009/09/17/2009-09-17_suspect_falsely_accused_of_gangraping_a_hofstra_student_i_was_afraid_of_jail_att.html">told the Daily News</a>, &quot;<strong>In life and in jail, rapers and molesters are seen as the scum of the earth, the lowest of the low. We were scared.</strong>&quot;  He <a href="https://web.archive.org/web/20131019174104/http://www.newsday.com/long-island/nassau/falsely-accused-man-rape-probe-was-rushed-1.1456345">also said to Newsday</a>, &quot;I think they should have gathered more evidence.. looked at camera footage and tried to match up times and things like that before throwing us in and letting the wolves get us... You have to change your mentality because you&apos;re inside, knowing you&apos;re innocent and everyone is saying you&apos;re guilty. It was said so many times that &apos;You&apos;re guilty,&apos; I myself thought I was guilty... It was like a nightmare.</p>
+
+<p>Video was apparently taken by the fifth man of the encounter in the dorm bathroom. Taveras&apos; lawyer said, &quot;<strong>It showed just the opposite of what the allegations were. There was no tying up, there was no bruising, there was no screaming</strong>,&quot; adding it was more like a &quot;porn movie.&quot;</p>
+                            
+                            
+                            

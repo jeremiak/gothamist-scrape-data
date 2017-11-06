@@ -1,0 +1,11 @@
+---
+author: Jen Carlson
+date: Jul 27, 2008 4:59 pm
+title: Subway Sweethearts Split, Speak Up
+---
+
+	
+										<p><img alt="2008_07_moberg2.jpg" src="https://web.archive.org/web/20170712051636im_/http://gothamist.com/attachments/jen/2008_07_moberg2.jpg" width="126" height="149" class="right"><a href="https://web.archive.org/web/20170712051636/http://gothamist.com/tags/Patrick%20Moberg">Patrick Moberg</a> is back in the press, with news of a break-up with his subway sweetheart Camille Hayton. Last November the two connected after <a href="https://web.archive.org/web/20170712051636/http://gothamist.com/2007/11/05/awww.php">a missed connection</a>, and within weeks appeared on <a href="https://web.archive.org/web/20170712051636/http://gothamist.com/2007/11/09/best_of_luck_to.php">Good Morning America</a>, got the <a href="https://web.archive.org/web/20170712051636/http://gothamist.com/2007/11/10/subway_sweethea.php">Nicole Kidman</a> stamp of approval, and shopped their story <a href="https://web.archive.org/web/20170712051636/http://gothamist.com/2007/11/19/moberg_goes_hol.php">around Hollywood</a>. Now <a href="https://web.archive.org/web/20170712051636/http://www.reuters.com/article/lifestyleMolt/idUSS2722851220080727?pageNumber=1&amp;virtualBrandChannel=0">Reuters reports</a> via the <a href="https://web.archive.org/web/20170712051636/http://www.news.com.au/dailytelegraph/story/0,22049,24082605-5001021,00.html">Sunday Telegraph</a> that the couple only lasted for just two months, placing their break-up sometime in January -- even though it was reported the two hit the end of the line <a href="https://web.archive.org/web/20170712051636/http://gawker.com/news/authenticity/-334143.php">in December</a>. While Moberg has stuck to his &quot;no more press&quot; rule, Hayton (currently taking acting classes and working three jobs) broke her silence and explained: &quot;<strong>I think the situation was so intense that it bonded us in a way that you could mistake, I guess, for being more romantic than it was.</strong> I don&apos;t know. But I wanted to give it a go so I didn&apos;t wonder what if, what if?&quot; Maybe their Hollywood rom-com will have a happier ending.</p>					
+										
+									
+				

@@ -1,0 +1,11 @@
+---
+author: Jen Chung
+date: May 15, 2008  3:01 PM
+title: Hudson Yards, Rail Yards of Dreams
+---
+
+<p><img alt="2008_05_hudsonyard2.JPG" src="https://web.archive.org/web/20110623140518im_/http://gothamist.com/attachments/jen/2008_05_hudsonyard2.JPG" width="300" height="196" class="left">Since the MTA is working on finder another developer to transform its 26 acres of Midtown Manhattan rail yards after its talks with Tishman Speyer collapse, it&apos;s only natural officials are trying to put on a happy face.  <a href="https://web.archive.org/web/20110623140518/http://www.ny1.com/ny1/content/index.jsp?stid=3&amp;aid=81618">NY1 notes</a> that MTA executive director Lee Sander&apos;s positive spin is, &quot;<strong>We&apos;re hopeful that we can put the deal back together.</strong> You never know till it&apos;s done, as we found out with Tishman. But we are optimistic.&quot;  </p>
+
+<p>The mayor said, &quot;I disappointed that Tishman Speyer chose not to go ahead. They have their own reasons.  But you&apos;re going to see other people rushing in to do that. That&apos;s a great piece of land.&quot;  Mayor Bloomberg&apos;s long-held ambition to get West Side rail yards development moving prompted this NY Sun headline--&quot;<a href="https://web.archive.org/web/20110623140518/http://nysun.com/news/new-york/will-west-side-failure-prompt-bloomberg-run">WIll West Side Failure Prompt Bloomberg Run?</a>.&quot;  Since the state oversees the MTA, Bloomberg might need to spend some time in Albany!</p>
+
+<p>City Journal editor Nicole Gelinas, though, <a href="https://web.archive.org/web/20110623140518/http://www.nypost.com/seven/05152008/postopinion/opedcolumnists/the_mtas_construction_crisis_110963.htm">recounts the sorry state of MTA finances</a> in the Post, worrying about all the delayed projects.  And she offers this scary comparison: &quot;Over its next capital-plan period, the MTA will spend less on transit assets than the city will spend on Medicaid. Some of that cash will go for vital medical services, sure, but lots of it really just appeases Albany&apos;s all-powerful health-and-hospitals lobby.&quot;</p>

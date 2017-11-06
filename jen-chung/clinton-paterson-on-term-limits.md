@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: October  7, 2008  3:44 PM
+title: Clinton, Paterson on Term Limits
+---
+
+<p><img alt="2008_10_clinpat.jpg" src="https://web.archive.org/web/20110611062501im_/http://gothamist.com/attachments/jen/2008_10_clinpat.jpg" width="130" height="118" class="right">While Governor David Paterson and Senator Hillary Clinton were on hand to <a href="https://web.archive.org/web/20110611062501/http://www.ny.gov/governor/press/press_1007081.html">honor ten fallen firefighters from across the state</a> (including four from NYC) at a ceremony in Albany, naturally the two lawmakers were asked about term limits.  According to <a href="https://web.archive.org/web/20110611062501/http://blogs.timesunion.com/capitol/archives/8918">the Times Union&apos;s Capitol Confidential</a>, Paterson said, &quot;I don&apos;t really have an opinion on term limits,&quot;  (aside from <a href="https://web.archive.org/web/20110611062501/http://cityroom.blogs.nytimes.com/2008/08/22/paterson-on-bloombergs-third-term-a-great-idea/">loving the idea of a third Bloomberg term</a>) but added, &quot;What we&apos;ve got to be in government is consistent.&quot;  And Clinton &quot;said she agrees with her governor by that she&apos;s never been a fan of term limits,&quot; &quot;In a democracy, I think elections determine term limits.  I have no opinion as to how this is going to be worked out in the city.&quot;</p>

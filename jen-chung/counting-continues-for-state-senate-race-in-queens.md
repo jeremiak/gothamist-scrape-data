@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: November 21, 2008 12:26 PM
+title: Counting Continues for State Senate Race in Queens
+---
+
+<p><img alt="2008_11_lizardpeople.jpg" src="https://web.archive.org/web/20111116194021im_/http://gothamist.com/attachments/jen/2008_11_lizardpeople.jpg" width="140" height="138" class="right">We have our own protracted election drama in the city: The Board of Elections is still <a href="https://web.archive.org/web/20111116194021/http://www.nytimes.com/2008/11/21/nyregion/21padavan.html?ref=nyregion">counting ballots</a> in the State Senate race between incumbent Frank Padavan (R) and City Councilman James Gennaro (D).  Padavan leads by over 500 votes now, but now over 8,000 absentee and emergency paper ballots are being tallied amid charges from the Democratic Party like how the Republicans are only challenging votes of minority voters. (A judge will eventually decided what happens with the ballot.)  Well, at least our BOE doesn&apos;t have to deal with the Senate recount in Minnesota--they use Scantron-style voting forms and some voters were messy--  or wrote in &quot;Lizard People&quot; while still filling in a circle for Al Franken.  See the <a href="https://web.archive.org/web/20111116194021/http://minnesota.publicradio.org/features/2008/11/19_challenged_ballots/">zany ballots here</a>.</p>

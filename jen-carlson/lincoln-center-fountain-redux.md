@@ -1,0 +1,11 @@
+---
+author: Jen Carlson
+date: Aug 26, 2009 6:26 pm
+title: Lincoln Center Fountain Redux
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="phpt4vIfFPM.jpg" src="https://web.archive.org/web/20150508161021im_/http://gothamist.com/attachments/arts_jen/phpt4vIfFPM.jpg" width="140" height="93" class="image-right"> </span>As <a href="https://web.archive.org/web/20150508161021/http://www.lincolncenter.org/load_screen.asp?screen=transforming">Lincoln Center</a> approaches the <a href="https://web.archive.org/web/20150508161021/http://gothamist.com/2009/02/20/alice_tully_hall_renovations_raptur.php">final stages</a> of it&apos;s revamp, <a href="https://web.archive.org/web/20150508161021/http://www.nytimes.com/2009/08/26/arts/design/26fountain.html?pagewanted=1&amp;_r=1">the NY Times</a> <em>gets real</em> with some fountain talk. They report that there will be a new one with choreographed water effects put in place by the firm responsible the Bellagio Hotel outdoor aquatic explosion. Because nothing says Lincoln Center like Las Vegas. One designer at the firm told the paper, &quot;New York is probably extremely nervous about the fountain. They may be expecting something gimmicky.&quot; The final &quot;look&quot; will be unveiled on September 30th, and at least one critic has already spoken out, Andrew S. Dolkart, the director of Columbia University&apos; historic preservation program, &quot;said he did not understand why Lincoln Center decided to replace the fountain, designed by Philip Johnson and completed in 1964. &apos;It&apos; the thing that upsets me most of all about what&apos;s happened at Lincoln Center.&apos;&quot; Indeed, replacing an iconic fountain that&apos;s been the backdrop in many a film, not to mention weddings and other events that have shaped people&apos;s memories, is a little bit mind-boggling. Dolkart adds: &quot;<strong>You wouldn&apos;t want to tear down Grand Central Terminal because Frank Gehry is going to design a masterpiece in its place</strong>.&quot; <a href="https://web.archive.org/web/20150508161021/http://gothamist.com/2009/08/25/flashback_madison_square_garden.php"><em>Oh wouldn&apos;t we?</em></a></p>					
+										
+									
+				

@@ -1,0 +1,15 @@
+---
+author: Jen Carlson
+date: Aug 3, 2009 1:08 pm
+title: High Line's High Maintenance Cost May Tax Local Businesses
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="moneyhighline.jpg" src="https://web.archive.org/web/20160326184428im_/http://gothamist.com/attachments/arts_jen/moneyhighline.jpg" width="325" height="217" class="image-left"> </span><a href="https://web.archive.org/web/20160326184428/http://gothamist.com/tags/highline">The High Line</a> is now the most expensive oasis in the city. <a href="https://web.archive.org/web/20160326184428/http://www.nypost.com/seven/08032009/news/regionalnews/sky_high_costs_182768.htm">The NY Post</a> reports that the park is expected to get $522,388 to $671,641 per acre for yearly maintenance and operations. Bryant Park used to be the priciest piece of land, spending around $479,166 per acre&#x2014;and on average, city parks get $9,555 an acre. But even after getting $1 million of city (taxpayer) funds annually, the big news here is that the operators are definitely pushing through a &quot;controversial new tax on neighborhood property owners so the managers can spend even more.&quot;</p>
+
+<p>Last week, the <a href="https://web.archive.org/web/20160326184428/http://www.nypost.com/seven/07292009/news/regionalnews/high_line_eyes_tax_on_its_neighbors_181864.htm">Post mentioned</a> that the Friends of the High Line was looking into founding a business improvement district <em>and</em> a tax for the new park&apos;s upkeep, which may total $3.5-4.5 million. Now, it seems the Bloomberg administration endorsed the plan, which would effect both local merchants and residents. The Friends of the High Line&apos;s cofounder Robert Hammond says that the huge number of visitors&#x2014;half a million in the first two months&#x2014;&quot;combined with the challenges of operating an intensely planted public space on an elevated structure with limited access&quot; (whereas other parks are more traditionally situated) have caused high costs for maintenance and staff.</p>
+
+<p>The paper points out that the group&apos;s &quot;daily operations are run by <a href="https://web.archive.org/web/20160326184428/http://gothamist.com/2009/07/09/how_valuable_is_it_to_be_friends_of.php">politically connected officials</a> padding their pockets with six-figure salaries.&quot; Maybe <a href="https://web.archive.org/web/20160326184428/http://gothamist.com/2009/05/26/high_line_4.php">Kevin Bacon</a> can buy <a href="https://web.archive.org/web/20160326184428/http://gothamist.com/2009/06/01/naming.php">naming rights</a>... Bacon Park is a much more fitting name for the Meatpacking District. Failing that, they should start planting those money trees we&apos;ve heard so much about.  </p>					
+										
+									
+				

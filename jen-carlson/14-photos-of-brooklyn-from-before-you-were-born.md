@@ -1,0 +1,50 @@
+---
+author: Jen Carlson
+date: Mar 2, 2012 2:00 pm
+title: 14 Photos Of Brooklyn From Before You Were Born
+---
+
+	
+					<div class="galleryEase" id="gallery-511547">
+<!-- gallery js -->
+<script type="text/javascript" src="https://web.archive.org/web/20150522061000js_/http://assets.gothamistllc.com/v5/js/gallery.js"></script>
+<!-- end gallery js -->
+
+<style type="text/css">
+#imgContainer {
+min-height: 300px;
+min-width: 300px;
+background: url('https://web.archive.org/web/20150522061000im_/http://assets.gothamistllc.com/v5/images/progress.gif') center center no-repeat;
+}
+</style>
+
+<!--start of gallery code-->
+<a name="gallery"></a>
+<div class="galleryEaseDisplayed">
+<div id="imgContainer">
+    <img id="galleryImg">
+</div>
+<div class="galleyEaseInfo"></div>
+<div class="galleryEaseNext"></div>
+<div class="galleryEasePrev"></div>
+</div>
+<div class="galleryEaseThumbs">
+		<img src="https://web.archive.org/web/20150522061000im_/http://gothamist.com/assets_c/2012/03/bknavy0212yard-thumb-60x60-697699.jpeg" title="" id="photo_1" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":1, "image": "https://web.archive.org/web/20150522061000/http://gothamist.com/upload/2012/03/bknavy0212yard.jpeg", "caption": "Entrance to Navy Yard, Brooklyn. ca. 1870 - 1910", "credit":"via \<a href=\"http://collections.mcny.org/MCNY/C.aspx?VP3=CMS3&VF=MNYO28_7_VForm&AERID=24UPN47B97\"\>MCNY\<\/a\>"};galleryObj['photo_1'] = photo;</script>
+		<img src="https://web.archive.org/web/20150522061000im_/http://gothamist.com/assets_c/2012/03/prpspectpark0212old-thumb-60x60-697704.jpeg" title="" id="photo_2" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":2, "image": "https://web.archive.org/web/20150522061000/http://gothamist.com/upload/2012/03/prpspectpark0212old.jpeg", "caption": "Prospect Park West and 9th Street. 1915.", "credit":"via \<a href=\"http://collections.mcny.org/MCNY/C.aspx?VP3=CMS3&VF=MNYO28_7_VForm&AERID=24UPN47B97\"\>MCNY\<\/a\>"};galleryObj['photo_2'] = photo;</script>
+		<img src="https://web.archive.org/web/20150522061000im_/http://gothamist.com/assets_c/2012/03/sheepbk0212-thumb-60x60-697705.jpeg" title="" id="photo_3" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":3, "image": "https://web.archive.org/web/20150522061000/http://gothamist.com/upload/2012/03/sheepbk0212.jpeg", "caption": "Sheep in Prospect Parkca. ca. 1870 - 1910.", "credit":"via \<a href=\"http://collections.mcny.org/MCNY/C.aspx?VP3=CMS3&VF=MNYO28_7_VForm&AERID=24UPN47B97\"\>MCNY\<\/a\>"};galleryObj['photo_3'] = photo;</script>
+		<img src="https://web.archive.org/web/20150522061000im_/http://gothamist.com/assets_c/2012/03/shittycommute0212-thumb-60x60-697719.jpeg" title="" id="photo_4" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":4, "image": "https://web.archive.org/web/20150522061000/http://gothamist.com/upload/2012/03/shittycommute0212.jpeg", "caption": "\"Snow-covered train tracks, rooftops and arches of the Brooklyn Bridge seen from the rear of a train during the Blizzard of 1888.\" March 14, 1888.", "credit":"via LIFE"};galleryObj['photo_4'] = photo;</script>
+		<img src="https://web.archive.org/web/20150522061000im_/http://gothamist.com/assets_c/2012/03/bkconstruction0212-thumb-60x60-697698.jpeg" title="bkview0212.jpeg" id="photo_5" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":5, "image": "https://web.archive.org/web/20150522061000/http://gothamist.com/upload/2012/03/bkconstruction0212.jpeg", "caption": "\"Men working on contruction of an apt. house on the SW corner of Brooklyn Ave. and Pacific St.\" September 19, 1921.", "credit":"via LIFE"};galleryObj['photo_5'] = photo;</script>
+		<img src="https://web.archive.org/web/20150522061000im_/http://gothamist.com/assets_c/2012/03/bkview0212-thumb-60x60-697723.jpeg" title="" id="photo_6" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":6, "image": "https://web.archive.org/web/20150522061000/http://gothamist.com/attachments/arts_jen/bkview0212.jpeg", "caption": "\"All-encompassing view of the borough of Brooklyn, taken from a high spot in the Ft. Greene section, w. Brooklyn Bridge visible in the distance.\" October 30, 1887.", "credit":"via LIFE"};galleryObj['photo_6'] = photo;</script>
+		<img src="https://web.archive.org/web/20150522061000im_/http://gothamist.com/assets_c/2012/03/evilcatman0212-thumb-60x60-697702.jpeg" title="" id="photo_7" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":7, "image": "https://web.archive.org/web/20150522061000/http://gothamist.com/upload/2012/03/evilcatman0212.jpeg", "caption": "Scientists conducting psychology testing on cats at Brooklyn College. 1941", "credit":"via LIFE"};galleryObj['photo_7'] = photo;</script>
+<br>		<img src="https://web.archive.org/web/20150522061000im_/http://gothamist.com/assets_c/2012/03/fultonbk0212-thumb-60x60-697703.jpeg" title="" id="photo_8" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":8, "image": "https://web.archive.org/web/20150522061000/http://gothamist.com/upload/2012/03/fultonbk0212.jpeg", "caption": "People out on Fulton St., a horse-drawn ice truck; building of elevated RR going on in background. October 29, 1887.", "credit":"via \<a href=\"http://nypl.org\"\>NYPL\<\/a\>"};galleryObj['photo_8'] = photo;</script>
+		<img src="https://web.archive.org/web/20150522061000im_/http://gothamist.com/assets_c/2012/03/bknypd0212-thumb-60x60-697720.jpeg" title="" id="photo_9" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":9, "image": "https://web.archive.org/web/20150522061000/http://gothamist.com/upload/2012/03/bknypd0212.jpeg", "caption": "Brooklyn Police on car strike duty. 1910-1915.", "credit":"via \<a href=\"http://nypl.org\"\>NYPL\<\/a\>"};galleryObj['photo_9'] = photo;</script>
+		<img src="https://web.archive.org/web/20150522061000im_/http://gothamist.com/assets_c/2012/03/schrafts0212-thumb-60x60-697715.jpeg" title="" id="photo_10" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":10, "image": "https://web.archive.org/web/20150522061000/http://gothamist.com/upload/2012/03/schrafts0212.jpeg", "caption": "Schrafft\'s, at 912 Flatbush Ave. Interior, Candy Counter and Fountain from Front. 1930.", "credit":"via \<a href=\"http://collections.mcny.org/MCNY/C.aspx?VP3=CMS3&VF=MNYO28_7_VForm&AERID=24UPN47B97\"\>MCNY\<\/a\>"};galleryObj['photo_10'] = photo;</script>
+		<img src="https://web.archive.org/web/20150522061000im_/http://gothamist.com/assets_c/2012/03/willowst0212-thumb-60x60-697716.jpeg" title="" id="photo_11" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":11, "image": "https://web.archive.org/web/20150522061000/http://gothamist.com/upload/2012/03/willowst0212.jpeg", "caption": "Willow Place, nos. 43-49. May 14, 1936. (This building is \<a href=\"http://maps.google.com/maps?hl=en&bav=on.2,or.r_gc.r_pw.r_cp.r_qf.,cf.osb&biw=1816&bih=812&q=43+willow+place+brooklyn&um=1&ie=UTF-8&hq=&hnear=0x89c25a44326d005d:0x40747b08aa91144e,43+Willow+Pl,+Brooklyn,+NY+11201&gl=us&ei=kwhRT5_3F6jv0gGjpMn0DQ&sa=X&oi=geocode_result&ct=image&resnum=1&ved=0CCAQ8gEwAA\"\>still there\<\/a\>!)", "credit":"Berenice Abbott via \<a href=\"http://nypl.org\"\>NYPL\<\/a\>"};galleryObj['photo_11'] = photo;</script>
+		<img src="https://web.archive.org/web/20150522061000im_/http://gothamist.com/assets_c/2012/03/bayridge0212-thumb-60x60-697713.jpeg" title="" id="photo_12" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":12, "image": "https://web.archive.org/web/20150522061000/http://gothamist.com/upload/2012/03/bayridge0212.jpeg", "caption": "3rd Avenue and 72nd Street. Bay Ridge Theatre, exterior. 1915.", "credit":"via \<a href=\"http://collections.mcny.org/MCNY/C.aspx?VP3=CMS3&VF=MNYO28_7_VForm&AERID=24UPN47B97\"\>MCNY\<\/a\>"};galleryObj['photo_12'] = photo;</script>
+		<img src="https://web.archive.org/web/20150522061000im_/http://gothamist.com/assets_c/2012/03/bkbridge0212oldnew-thumb-60x60-697714.jpeg" title="" id="photo_13" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":13, "image": "https://web.archive.org/web/20150522061000/http://gothamist.com/upload/2012/03/bkbridge0212oldnew.jpeg", "caption": "Brooklyn Tower When Completed to the Roadway. September, 1872.", "credit":"via \<a href=\"http://collections.mcny.org/MCNY/C.aspx?VP3=CMS3&VF=MNYO28_7_VForm&AERID=24UPN47B97\"\>MCNY\<\/a\>"};galleryObj['photo_13'] = photo;</script>
+		<img src="https://web.archive.org/web/20150522061000im_/http://gothamist.com/assets_c/2012/03/dodgers0212-thumb-60x60-697701.jpeg" title="" id="photo_14" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":14, "image": "https://web.archive.org/web/20150522061000/http://gothamist.com/upload/2012/03/dodgers0212.jpeg", "caption": "Brooklyn Dodgers!", "credit":"via LIFE"};galleryObj['photo_14'] = photo;</script>
+									
+</div></div>					<p>Have you ever seen sheep grazing in Prospect Park? You haven&apos;t! Because it happened before you were born. Click through for a look at Brooklyn like you&apos;ve never seen it before, because unless you&apos;re a time traveler, you likely weren&apos;t around yet&#x2014;from Fort Greene in 1887 to a snowy commute over the Brooklyn Bridge in 1888 to the NYPD patrolling in the early 1900s. Okay fine, you may have been alive that time the evil scientist used Brooklyn cats for psychology studies, and when the Brooklyn Dodgers got naked for the LIFE cameras, but at least that latter moment in time is worth revisiting.</p>					
+										
+									
+				

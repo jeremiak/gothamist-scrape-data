@@ -1,0 +1,11 @@
+---
+author: Jen Carlson
+date: May  5, 2011  1:43 PM
+title: Marty's Summer Concerts May Move To New Coney Island Spot
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="marty0511coney.jpg" src="https://web.archive.org/web/20120124052242im_/http://gothamist.com/attachments/arts_jen/marty0511coney.jpg" width="240" height="328" class="image-left"> </span>Last summer, Brooklyn Borough President Marty Markowitz was catching a lot of flack for his Seaside Summer Concert Series at Asser Levy Park. Locals said he was <a href="https://web.archive.org/web/20120124052242/http://gothamist.com/2010/07/26/are_asser_levy_park_concerts_still.php">breaking noise codes</a>, and then they complained that he was <a href="https://web.archive.org/web/20120124052242/http://gothamist.com/2010/08/17/rikers_inmates_sentenced_to_summer.php">using Rikers inmates</a> for cheap labor at the concerts. The obvious solution would be to move these concert events <em>to</em> Rikers Island (surrounded by water! More $1/hour labor!)... but Markowitz has gone in a different direction: The space where the Ringling Bros. circus had been performing.</p>
+
+<p>With Siren Festival <a href="https://web.archive.org/web/20120124052242/http://gothamist.com/2011/04/15/siren_fest_cancelled_new_village_vo.php">moving out</a>, the area could use some music, and <a href="https://web.archive.org/web/20120124052242/http://www.brooklynpaper.com/stories/34/19/bn_martyconcerts_2011_5_13_bk.html">the Brooklyn Paper</a> reports the series may settle into the West 21st Street parking lot that <a href="https://web.archive.org/web/20120124052242/http://gothamist.com/2011/02/26/ringling_bros_banished_from_coney_i.php">Ringling Bros</a>. has used in the past. The only problem may be the bill. Markowitz had been paying just $25 per event at Asser Levy; the parking lot property owner wouldn&apos;t comment on how much he&apos;ll be charging the Borough Pres, however.</p>
+
+<p>As for the neighbors at Asser Levy Park, they plan to turn the former concert site back into <a href="https://web.archive.org/web/20120124052242/http://brooklyn.ny1.com/content/top_stories/138485/neighbors-to-turn-former-coney-island-concert-site-into-quiet-park">a &quot;quiet&quot; space</a>&#x2014;serenity now!</p>

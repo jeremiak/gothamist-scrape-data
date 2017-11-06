@@ -1,0 +1,19 @@
+---
+author: Jen Chung
+date: May 11, 2010 6:15 pm
+title: Latest NYPD Crime Stats: Murder, Rape Rates Up Vs. Last Year
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="2010_05_crimestats.jpg" src="https://web.archive.org/web/20161220232251im_/http://gothamist.com/attachments/jen/2010_05_crimestats.jpg" width="640" height="273"> <br> <i>The most recent CompStat numbers (<a href="https://web.archive.org/web/20161220232251/http://www.nyc.gov/html/nypd/downloads/pdf/crime_statistics/cscity.pdf">PDF</a>)</i></div> <p></p>
+
+<p>A reader wrote on Gothamist Contribute, &quot;Crime rate down again (almost 9%) last week compared to last year. How come Gothamist doesn&apos;t report this but breathlessly writes about a fictional return to the &apos;bad old days&apos;?&quot;  Well, for starters, the crime rate wasn&apos;t actually down 9% compared to last year&#x2014;the -9% number appears to be the murder rate comparing year-to-date 2010 to year-to-date 2009&#x2014;and the murder rate is actually up 11.2% over last year and the rate for rape complaints is up 15.8% over last year.</p>
+
+<p>Yes, the overall crime rate is down 1.2% over last year and all crime rates are down by huge numbers compared to 2001 and 1993.  So maybe the &quot;<a href="https://web.archive.org/web/20161220232251/http://gothamist.com/tags/badolddays">bad old days</a>&quot; aren&apos;t knocking at our door, but there&apos;s enough concern to<a href="https://web.archive.org/web/20161220232251/http://gothamist.com/2010/05/02/nypd_command_shifts_after_crime_spi.php"> make command shifts</a> and for the Mayor to decide <a href="https://web.archive.org/web/20161220232251/http://gothamist.com/2010/05/06/mayor_to_spare_892_nypd_layoffs_wil.php">not to layoff 892 police officers</a>, with the dual concerns of crime spikes and terror. Plus there&apos;s some basis to question the numbers&#x2014;a police officer <a href="https://web.archive.org/web/20161220232251/http://gothamist.com/2010/02/02/cops_comes_forward_says_crime_stati.php">accused the NYPD of underreporting crimes</a> in order to keep the crime stats down (the <a href="https://web.archive.org/web/20161220232251/http://gothamist.com/2010/05/05/brooklyn_cops_secret_recordings_rel.php">Village Voice published his accounts and tapes</a>). </p>
+
+<p>And because the victim of an attempted rape decided to speak out, the <a href="https://web.archive.org/web/20161220232251/http://blogs.villagevoice.com/runninscared/archives/2010/05/nypd_forced_to.php">Voice reports</a> that the 34th precinct commander apologized to the woman at a community meeting. Why? Because his cops omitted information in their report, claimed that she reported no sexual assault, and tried to get her to downgrade the complaint to a misdemeanor. The Manhattan DA&apos;s office says her description of the incident&#x2014;the man told her she wanted to have sex, pinned her arms and legs down, and masturbated&#x2014;was a felony.  </p>
+
+<p>The director of Beth Israel Hospital Rape Crisis/Domestic Violence <a href="https://web.archive.org/web/20161220232251/http://blogs.villagevoice.com/runninscared/archives/2010/05/more_questions_1.php">confirmed to the Voice</a> that there&apos;s been a change in how the NYPD approaches victims lately, &quot;The police will come to the ER and rather than taking basic information, they ask questions that are in a way disbelieving, or almost trying to prove that it didn&apos;t happen. &quot;It&apos;s a more acute problem now. It used to be more of an exception.&quot;</p>					
+										
+									
+				

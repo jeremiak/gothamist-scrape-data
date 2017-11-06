@@ -1,0 +1,13 @@
+---
+author: Jen Chung
+date: May 22, 2008  8:23 AM
+title: McGreevey: Boyfriend Lends Him Money to Pay Exes
+---
+
+<p><img alt="2008_05_mcgree.jpg" src="https://web.archive.org/web/20120330064119im_/http://gothamist.com/attachments/jen/2008_05_mcgree.jpg" width="300" height="245" class="left">Former NJ governor James McGreevey was on the witness stand during his drawn-out divorce trial and said he <a href="https://web.archive.org/web/20120330064119/http://www.nj.com/starledger/stories/index.ssf?/base/news-10/1211431152318780.xml&amp;coll=1">relies on his boyfriend, a wealthy financier, to help him pay alimony</a> to his first ex-wife as well as his currently estranged wife, Dina Matos McGreevey.  </p>
+
+<p>Matos McGreevey&apos;s lawyer is trying to prove McGreevey can pay alimony, but he has been claiming his stunning fall from the NJ Governor&apos;s Mansion--<a href="https://web.archive.org/web/20120330064119/http://gothamist.com/2004/08/13/mcgreevey_steps_down_citing_extramarital_affair.php">by way of admitting a gay affair and his homosexuality</a>--has left him broke and unemployable.  That&apos;s why he owes boyfriend Mark O&apos;Donnell $250,000 in &quot;rent, taxes and legal bills,&quot; according to the Star-Ledger.  </p>
+
+<p>McGreevey said, &quot;Without Mark&apos;s... without these loans, I could not afford legal fees. They are crushing.  I want to pay my child support. I want to fulfill my obligations.<strong> It&apos;s incredibly frustrating.</strong>&quot;  His only sources of income are an adjunct professorship and some consulting; he&apos;s also a seminary student. </p>
+
+<p>While McGreevey says it will take him &quot;decades&quot; to pay back his debts, he and O&apos;Donnell live in a Plainfield, NJ mansion designed by Frederick Law Olmstead of Central Park and Prospect Park fame.  McGreevey has been crying poor ever since last year, when he asked Matos McGreevey, who made $82,000 as a hospital administrator, <a href="https://web.archive.org/web/20120330064119/http://gothamist.com/2007/03/13/gay_american_mc.php">for alimony</a> (she&apos;ll be out of a job soon, as her hospital is being closed).  The couple has already agreed upon custody of their daughter Jacqueline; after the alimony is worked out, then the <a href="https://web.archive.org/web/20120330064119/http://www.nj.com/starledger/stories/index.ssf?/base/news-10/1209875832185770.xml&amp;coll=1">divorce trial will focus on McGreevey&apos;s homosexuality</a>.  </p>

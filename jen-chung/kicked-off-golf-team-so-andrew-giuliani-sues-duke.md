@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: July 24, 2008  2:11 PM
+title: Kicked Off Golf Team, So Andrew Giuliani Sues Duke
+---
+
+<p><img alt="2008_07_giuliania.jpg" src="https://web.archive.org/web/20110811072708im_/http://gothamist.com/attachments/jen/2008_07_giuliania.jpg" width="115" height="86" class="right">Andrew Giuliani, son of former mayor Rudy Giuliani, filed a federal lawsuit against Duke University, <a href="https://web.archive.org/web/20110811072708/http://www.nydailynews.com/news/2008/07/24/2008-07-24_andrew_giuliani_sues_duke_university_coa.html">claiming he was unfairly dismissed from the golf team</a>.  Per the Daily News, the lawsuit contends coach O.D. Vincent suspension over trivial incidents like &quot;driving too fast out of a parking lot, breaking a driver, getting into an confrontation with a teammate&quot; was ill-advised.  Also claimed: Vincent <a href="https://web.archive.org/web/20110811072708/http://www.newsday.com/news/columnists/ny-nyheni0724,0,4058653.column">made Giuliani&apos;s teammates turn against him</a>,&quot; comparing his tactics to The Lord of the Flies.  When talking to reporters, Andrew Giuliani pointedly thanked his mom and stepdad, but not his dad (who <a href="https://web.archive.org/web/20110811072708/http://gothamist.com/2007/03/04/no_love_lost_be.php">he&apos;s not that close to</a>), saying, &quot;I love my father very much. <strong>I just decided not to ask him to get involved in the situation</strong>.&quot; Yeah, 9/11 probably isn&apos;t a strong argument for this matter.</p>

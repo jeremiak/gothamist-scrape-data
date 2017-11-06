@@ -1,0 +1,11 @@
+---
+author: Jen Chung
+date: Jun 8, 2009 7:33 am
+title: N. Korea Sentences U.S. Journalists To 12 Years In Labor Camp
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2009_06_jorunl.jpg" src="https://web.archive.org/web/20150506161705im_/http://gothamist.com/attachments/jen/2009_06_jorunl.jpg" width="140" height="92" class="image-right"> </span>Two American journalists, who were arrested by North Korea while covering North Korean refugees in China three months ago, were <a href="https://web.archive.org/web/20150506161705/http://www.cnn.com/2009/WORLD/asiapcf/06/08/nkorea.journalists/index.html">sentenced to 12 years of hard labor</a> by the Central Court of North Korea.  Korea&apos;s official news agency KCNA reported that the court accused Euna Lee and Laura Ling of &quot;<strong>committing hostilities against the Korean nation and illegal entry</strong>.&quot;  The U.S. State Department <a href="https://web.archive.org/web/20150506161705/http://www.nytimes.com/2009/06/09/world/asia/09north.html?_r=1&amp;hp">released a statement</a>, &quot;We are deeply concerned by the reported sentencing of the two American citizen journalists by North Korean authorities, and we are engaged through all possible channels to secure their release. We once again urge North Korea to grant the immediate release of the two American citizen journalists on humanitarian grounds.&quot; Lee and Ling work for San Francisco-based Current TV, which was co-founded by Al Gore.  The <a href="https://web.archive.org/web/20150506161705/http://www.sfgate.com/cgi-bin/article.cgi?f=/n/a/2009/06/05/international/i000251D33.DTL&amp;tsp=1">AP adds</a>, &quot;There are fears Pyongyang is using the women as bargaining chips as the U.N. debates a new resolution to punish the country for its defiant May 25 atomic test and as North Korea seeks to draw Washington into direct negotiations,&quot; but one law professor in Seoul said, &quot;The sentence doesn&apos;t mean much because the issue will be resolved diplomatically in the end.&quot;</p>					
+										
+									
+				

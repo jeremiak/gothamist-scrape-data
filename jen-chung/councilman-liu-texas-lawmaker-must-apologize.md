@@ -1,0 +1,11 @@
+---
+author: Jen Chung
+date: Apr 10, 2009 3:36 pm
+title: Councilman Liu: Texas Lawmaker Must Apologize
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2009_04_jliu.jpg" src="https://web.archive.org/web/20150829002721im_/http://gothamist.com/attachments/jen/2009_04_jliu.jpg" width="110" height="122" class="image-right"> </span>City Councilman John Liu wants an apology from Texas State Rep. Betty Brown for her comments earlier this week.<a href="https://web.archive.org/web/20150829002721/http://austinist.com/2009/04/09/rep_betty_browns_like_your_adorably.php">  Austinist, with video, explains</a> that an advocate was explaining different Asian Americans might have problem voting under a proposed policy partly due to &quot;confusion over differences between their transliterated names... and their &apos;common&apos; English name,&quot; Brown cut in, &quot;<strong>Rather than everyone here having to learn Chinese &#x2014; I understand it&#x2019;s a rather difficult language &#x2014; do you think that it would behoove you and your citizens to adopt a name that we could deal with more readily here?</strong>&quot; Liu posted <a href="https://web.archive.org/web/20150829002721/http://www.liunewyork.com/content/judge-us-not-our-names-content-our-character-and-civic-participation">his letter to Brown</a> on his campaign (for City Comptroller) website: &quot;It&apos;s outrageous and insulting for you to suggest it would &apos;behoove&apos; us to adopt another name, to give up our birthright and a part of our own identity, in order to exercise our right to vote&quot; and suggest she resign if she doesn&apos;t apologize. <a href="https://web.archive.org/web/20150829002721/http://www.timesunion.com/AspStories/story.asp?storyID=788905">Brown said </a>she doesn&apos;t think Chinese Americans should Americanize her names&#x2014;she &quot;didn&apos;t choose my words very well&quot;&#x2014; and that she apologized to the advocate.</p>					
+										
+									
+				

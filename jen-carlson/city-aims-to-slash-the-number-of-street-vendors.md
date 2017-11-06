@@ -1,0 +1,17 @@
+---
+author: Jen Carlson
+date: Apr 18, 2010 5:45 pm
+title: City Aims To Slash The Number Of Street Vendors
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:350px; "> <img alt="phpzXoPtwPM.jpg" src="https://web.archive.org/web/20150427214957im_/http://gothamist.com/attachments/arts_jen/phpzXoPtwPM.jpg" width="350" height="262"> <br> <i><span class="photo_caption">Union Square Green Market also blocks sidewalks</span></i></div> Under new rules proposed by the Bloomberg administration, many street vendors will be banished from their usual perches. On Friday the Parks Department held a hearing on the proposal, which would cut the number of vendors in city parks by 75 percent. The rules would affect vendors wishing to peddle their goods in parts of Central Park, Union Square Park, Battery Park and the High Line&#x2014;where there were some issues with artists <a href="https://web.archive.org/web/20150427214957/http://gothamist.com/2009/12/07/high_line_arrest.php">late last year</a>. While currently there is no limit, under the new regulations Central Park would be allowed 49 artist slots, Battery Park would allow 9, Union Square would allow 18, and the High Line just 5.<p></p>
+
+<p>According to <a href="https://web.archive.org/web/20150427214957/http://www.nytimes.com/2010/04/17/nyregion/17artists.html?partner=rss&amp;emc=rss">the NY Times</a>, the new rules are expected to pass approval, and will go into effect next month. Parks commish Adrian Benepe declared, &quot;everybody will adjust. This is not the end of art. It is just a very slight and strategic moving of where people can sell art.&#x201D; He claims the change needs to happen because under the current conditions vendors are blocking sidewalks and creating safety hazards; he also added that they turn the parks into &#x201C;year-round flea markets.&quot; In an editorial today, <a href="https://web.archive.org/web/20150427214957/http://www.nydailynews.com/opinions/2010/04/18/2010-04-18_figures_of_speech.html">the Daily News</a> applauds the city, saying &quot;second-rate peddlers&quot; have been &quot;wrapping themselves in the First Amendment. In a few key park spots where New Yorkers and tourists tend to gather, a suffocating stream of vendors has descended like flies on a horse.&quot;</p>
+
+<p>Robert Lederman, who has long stood up against such rules, says, &#x201C;New York City is not a hospital operating room, yet Mike Bloomberg is continuing the sterilization campaign that Rudy Giuliani started in Times Square. And the parks commissioner, Adrian Benepe, sees himself as a real estate agent who&#x2019;s trying to get the maximum price per square foot for all of our public parks.&#x201D;</p>
+
+<p>Vendors would also be limited to designated areas within the parks, and have to follow new dimension guidelines for their stands. Joel Kaye, an artist at Union Square, tells us, &quot;the most significant change is that First Amendment protected street artists will now be severely limited,&quot; and that the new way will pit artist against artist (who will have to work on a first come, first served basis). Kaye also sent along the above photo and points out that four days a week the Union Square Green Market &quot;takes up much more space then artists. If these new rules go into effect why will artists be restricted to be in the very same spots that the Green Market sets up on non Green Market days?&quot;</p>					
+										
+									
+				

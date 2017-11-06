@@ -1,0 +1,15 @@
+---
+author: Jen Carlson
+date: Aug 21, 2009 2:34 pm
+title: Locals Want Spike Lee to Beat It, Bring MJ Party Elsewhere
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="ftgreenemj0809.jpg" src="https://web.archive.org/web/20150408102005im_/http://gothamist.com/attachments/arts_jen/ftgreenemj0809.jpg" width="275" height="393" class="image-left"> </span>Did anyone actually think a <a href="https://web.archive.org/web/20150408102005/http://gothamist.com/2009/08/18/spike_lee_plans_king_of_pop_block_p.php">Michael Jackson birthday celebration</a> hosted by Spike Lee wasn&apos;t going to be publicized? The free event was set to be held on August 29th in Brooklyn, but <a href="https://web.archive.org/web/20150408102005/http://fort-greene.blogs.nytimes.com/2009/08/21/city-seeks-to-relocate-mj-party/">The Local</a> reports they&apos;re looking to move it after &#x201C;The mayor&#x2019;s office has conceded that now that this has been publicized, <a href="https://web.archive.org/web/20150408102005/http://www.fortgreenepark.org/">Fort Greene Park</a> is just not big enough to accommodate the kind of crowds that are foreseeable.&quot; The date may also be changed, and incidentally, Jackson&apos;s funeral date was also pushed back (originally the 29th and now the 31st).</p>
+
+<p>The blog also posted <a href="https://web.archive.org/web/20150408102005/http://fort-greene.blogs.nytimes.com/2009/08/20/mj-party-not-in-my-backyard-please/">the official NIMBY response</a> from Abby Weissman, Web master of the Fort Greene Park Conservancy Web site (he totally likes Michael Jackson, by the way. And Kurt Cobain, in case you were wondering). He says that &quot;Over 1.2 million people requested tickets to the Jackson Memorial at Staples Center in L.A. last month. Fort Greene Park has no real connection to the man or his music, and may be too small for such a large talent like the King of Pop.&quot; Granted, this event wouldn&apos;t be as star-studded as the Staples Center event, and people have probably grieved the performer&apos;s death by now (there have been so many other deaths since then!) and don&apos;t feel the need to be connected via group gatherings.</p>
+
+<p>He goes on to discuss crowd control, clean-up, taxes, police presence, MJ having no Brooklyn ties, yawn yawn rant... but wait! He finishes up with a zinger, saying that Spike Lee and Marty Markowitz&#x2014;who don&#x2019;t live near the park&#x2014;are using this event for their own publicity. A shocking accusation! Where is the sarcasm font! He declares, &quot;This whole thing is really Spike and Marty&#x2019;s big ego trip. Spike and Marty should move their Mike ego trip to a larger, more appropriate site&#x2014;and split the bill. And, coincidentally, Spike Lee has a new movie coming out this week.&quot;</p>					
+										
+									
+				

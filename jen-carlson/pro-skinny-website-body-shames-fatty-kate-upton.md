@@ -1,0 +1,21 @@
+---
+author: Jen Carlson
+date: Jul 9, 2012 12:57 pm
+title: "Pro-Skinny" Website Body-Shames "Fatty" Kate Upton
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="kateupton0612a.jpeg" src="https://web.archive.org/web/20150704001920im_/http://gothamist.com/attachments/arts_jen/kateupton0612a.jpeg" width="640" height="511" class="image-none"> </span></p>
+
+<p>A self-declared &quot;pro skinny&quot; site called Skinny Gossip is <a href="https://web.archive.org/web/20150704001920/http://www.nydailynews.com/entertainment/gossip/pro-anorexia-website-blasts-kate-upton-big-fat-floppy-boobs-article-1.1110023#ixzz208jsNWbR">body-shaming Kate Upton</a>&#x2014;the absolutely <a href="https://web.archive.org/web/20150704001920/http://gothamist.com/tags/kateupton">gorgeous model</a> who graced the cover of the Sports Illustrated swimsuit issue this year&#x2014;for having what they call &#x201C;huge thighs, NO waist, big fat floppy boobs.&#x201D; The tags <a href="https://web.archive.org/web/20150704001920/http://www.skinnygossip.com/kate-upton-is-well-marbled/">in their post</a> include &quot;thunder thighs&quot; and &quot;fatty,&quot; and their post is equally disgusting, filled with schoolyard insults and bullying, calling her both a cow and &quot;piggie.&quot;</p><blockquote>&quot;She looks like a squishy brick. Is this what American women are &apos;striving&apos; for now? The lazy, lardy look? Have we really gotten so fat in this country that Kate is the best we can aim for? Sorry, but: eww! Fashion is supposed to be aspirational&#x2014;and the kind of people who aspire to look like this shop for clothes at Wal-Mart. She looks like she would work in the back of a motorcycle shop in Nashville and give (bad) blow jobs for $25.&quot;</blockquote>The woman who runs the site <a href="https://web.archive.org/web/20150704001920/http://www.skinnygossip.com/faq/">remains anonymous</a>, but maybe 4Chan can pull the curtain back on these terrible, pro-anorexic people?<p></p>
+
+<p><strong>UPDATE:</strong> Skinny Girl <a href="https://web.archive.org/web/20150704001920/http://www.skinnygossip.com/some-changes/">responded</a> with a too little too late statement, in which she says, &quot;As a thin person, I was annoyed by our double-standards around weight. For example, people think nothing of telling a thin woman&#x2014;to their face, in front of an entire group of people&#x2014;how skinny they are and even to suggest what they should eat.&quot; This, coming from the same person who &quot;contributes&quot; to society by bullying people who she deems overweight&#x2014;with nasty, immature name-calling and body shaming.</p>
+
+<p><strong>UPDATE II:</strong> Skinny Gossip&apos;s &quot;Skinny Girl&quot; claims that she is not pro-anorexia, however, she has been posting a &quot;Starving Tip Of The Day&quot; for years. She has now taken them down, but they survive <a href="https://web.archive.org/web/20150704001920/http://webcache.googleusercontent.com/search?q=cache:F7ABc5gYBs0J:www.skinnygossip.com/starving-tip-of-the-day/+&amp;cd=1&amp;hl=en&amp;ct=clnk&amp;gl=us">in cache</a>. The tips read like a how-to guide for anorectics&#x2014;a sampling:</p><ul><li>&quot;Compete!! Compare your body to your friends&#x2019; and coworkers&#x2019; bodies. Are you the thinnest? If not, why not?&quot;<br>
+</li><li>&quot;Compete with yourself; test your willpower by making a delicious meal for your boyfriend. Serve it to him and everything&#x2014;see if you can eat none of it.&quot;<br>
+</li><li>&quot;When eating with others, cut your food up into really tiny pieces and move it around the plate. It makes it look like you ate a lot more than you really did.&quot;<br>
+</li><li>&quot;Food JUST SITS THERE.  Whenever you feel like reaching for some food, take another look at it and you&#x2019;ll come to realize that it just sits there. All you have to do is NOT reach for it and you&#x2019;re safe.&quot;<br>
+</li><li>&quot;Live by the scale and the measuring tape.&quot;</li></ul><p></p>					
+										
+									
+				

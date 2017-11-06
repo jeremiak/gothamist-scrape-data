@@ -1,0 +1,15 @@
+---
+author: Jen Carlson
+date: Apr 7, 2009 2:38 pm
+title: Celebrate Brooklyn! (and Summer Concert Season)
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="0409cbk.jpg" src="https://web.archive.org/web/20150502135929im_/http://gothamist.com/attachments/arts_jen/0409cbk.jpg" width="350" height="200" class="image-left"> </span>While the Woodstock crew tries to work out the logistics of having their 40th anniversary concert <a href="https://web.archive.org/web/20150502135929/http://gothamist.com/2009/04/06/woodstock_in_brooklyn.php">in Prospect Park</a>, the folks at <a href="https://web.archive.org/web/20150502135929/http://www.briconline.org/celebrate/gala2009.asp">Celebrate Brooklyn!</a> have announced <em>some</em> of their summer show lineups, including an Opening Night Green Gala &amp; Concert to kick it all off.  On June 8th you can attend the eco-friendly Gala for anywhere from $325 to $10,000, which includes a reserved seat to the concert (<a href="https://web.archive.org/web/20150502135929/http://gothamist.com/2008/03/14/david_byrne_mus.php">Mr. David Bryne</a>), cocktails, dinner, and a dance party, and they ask that you wear summer cocktail attire (that sounds so Gatsby!). Those pinching their pennies can pay $0 to $3 (suggested donation) for non-reserved seats to the concert portion of the evening. Not a bad deal!</p>
+
+<p>Many of the shows they put on at the Bandshell are free (again, there&apos;s a $3 suggested donation), and in order to keep it that way a number of &quot;benefit shows&quot; are thrown. This year those include MGMT, Animal Collective, Jackson Browne, Bonnie Rait and Taj Mahal (tickets to most of these are <a href="https://web.archive.org/web/20150502135929/http://www.ticketmaster.com/search?tm_link=tm_homeA_header_search&amp;q=celebrate+brooklyn&amp;search.x=0&amp;search.y=0">currently on sale</a>). More will be announced when Celebrate Brooklyn! releases the full summer lineup in the next few weeks. </p>
+
+<p>Stay tuned for a full guide to all of the outdoor shows when they&apos;re fully announced&#x2014;we&apos;re keeping our eye on the always fantastic <a href="https://web.archive.org/web/20150502135929/http://seaportmusicfestival.com/">Seaport Music Festival</a>, and <a href="https://web.archive.org/web/20150502135929/http://www.brooklynvegan.com/archives/2009/03/m_ward_others_p.html">Brooklyn Vegan</a> has a partial list of Central Park&apos;s Summerstage. On top of that, passes to the <a href="https://web.archive.org/web/20150502135929/http://gothamist.com/2009/03/18/northside_festival_announced.php">Northside Festival</a> in June <a href="https://web.archive.org/web/20150502135929/http://www.northsidefestival.com/2009/04/bands-announced-badges-on-sale/">just went on sale</a> (they&apos;ll be blocking off part of Bedford Avenue for it). Rejoice! Summer concert season is upon us!</p>					
+										
+									
+				

@@ -1,0 +1,25 @@
+---
+author: Nell Casey
+date: Apr 21, 2017 11:00 am
+title: Duck Waffle Sandwiches & Barbadian Fishballs On The Menu This Weekend
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="042117anthony.jpg" src="https://web.archive.org/web/20171015105931im_/http://gothamist.com/attachments/nyc_nellcasey/042117anthony.jpg" width="640" height="427"> <br> <i> (courtesy The Anthony)</i></div> <p></p>
+
+<p>Village clubstaurant <a href="https://web.archive.org/web/20171015105931/http://www.theanthonynyc.com/">The Anthony</a> launches a <strong>decadent-sounding brunch</strong> this weekend. Indulge in Lobster Benedict ($22) on a cheddar biscuit, French Onion Fondue ($14) with vegetable crudite, Breakfast Mac &amp; Cheese ($13) with chicharrones and a fried egg, and the Duck Waffle Sandwich ($22, pictured above), to which you can add an egg for $2. <br>
+ <br>
+On Friday and Saturday evening, East Williamsburg&apos;s <a href="https://web.archive.org/web/20171015105931/http://www.thewellbrooklyn.com/">The Well</a> will be transformed into <strong><a href="https://web.archive.org/web/20171015105931/http://brooklynbrewerymash.com/brooklyn">Beer Mansion</a></strong>, a beer playground organized by Brooklyn Brewery where each room of the venue is themed to different categories of beer. Explore the &quot;Tart of the Tropics&quot; (Sour ales, crisp pilsners and citrus-forward IPAs) or spend some time in &quot;The Darkness&quot; (Porters, stouts and Oktoberfests), just two of the five themed rooms. Beer samples are unlimited, but there will also be food on offer for purchase from Roberta&apos;s, Bunker and Frankel&apos;s. <a href="https://web.archive.org/web/20171015105931/https://www.eventbrite.com/e/beer-mansion-brooklyn-tickets-32608943227">Tickets $65</a>.</p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="042117qnsmarket.jpg" src="https://web.archive.org/web/20171015105931im_/http://gothamist.com/attachments/nyc_nellcasey/042117qnsmarket.jpg" width="640" height="427"> <br> <i> (<a href="https://web.archive.org/web/20171015105931/http://claywilliams.photoshelter.com/">Clay Williams</a>/Gothamist)</i></div> <p></p>
+
+<p>It&apos;s opening weekend of the <strong><a href="https://web.archive.org/web/20171015105931/http://queensnightmarket.com/">Queens Night Market</a></strong> on Saturday, where you should head if cravings for Valencian paella and Barbadian fishballs strike. They&apos;re <a href="https://web.archive.org/web/20171015105931/http://gothamist.com/2017/03/15/queens_night_market_2017.php">employing a new ticketing system</a> for the first two opening weekends to <a href="https://web.archive.org/web/20171015105931/http://gothamist.com/2016/04/25/queens_international_night_market_s.php#photo-1">alleviate overcrowding</a>, so <a href="https://web.archive.org/web/20171015105931/https://queensnightmarket.ticketleap.com/sneak-preview-1/dates/Apr-22-2017_at_0600PM">grab $5 tickets</a> before hopping on the 7. </p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="042117poutine.jpg" src="https://web.archive.org/web/20171015105931im_/http://gothamist.com/attachments/nyc_nellcasey/042117poutine.jpg" width="640" height="480"> <br> <i> (courtesy Patacon Pisao)</i></div> <p></p>
+
+<p>Everything&apos;s <a href="https://web.archive.org/web/20171015105931/http://gothamist.com/2017/04/18/the_gentry_poutine_greenpoint.php#photo-1">coming up poutine</a> of late, including a new &quot;secret&quot; poutine on offer at <a href="https://web.archive.org/web/20171015105931/http://pataconpisaonyc.com/">Patacon Pisao&apos;s</a> three locations in Elmhurst, LES and Washington Heights. For its <strong>Venezuelan Poutine</strong>, the restaurant&apos;s using fried yucca as a base, adding stewed black beans, stewed shredded beef, nata cream sauce, chimichurri and fried queso blanco. </p>
+
+<p>Seamus Mullen opens up the kitchens of his West Village restaurant <a href="https://web.archive.org/web/20171015105931/http://tertulianyc.com/">Tertulia</a> to chefs Laurent Gras, Alex Leonard and Tim Dornon for a <strong><a href="https://web.archive.org/web/20171015105931/http://tertulianyc.com/wp-content/uploads/2017/04/Farm-to-Fire-2-11.jpg">Farm To Fire</a></strong> dinner Sunday evening. The trio will be cooking up a six-course meal celebrating spring vegetables like white asparagus and ramps. Dishes include smoked white radish, beetroot galcage, crispy olive; hollow carrot filled with red pepper paste, melted lardo, coffee note; and sunchoke in various textures, sherry wine vinaigrette, cured foie gras. Seats are $65 per person; called (646) 559-9909 or email events@tertulianyc.com for reservations.</p>					
+										
+									
+				

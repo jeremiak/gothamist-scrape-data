@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: August 26, 2008 10:22 AM
+title: McCain Pokes Fun at His Age Again
+---
+
+<p><img alt="2008_08_mccainleno.jpg" src="https://web.archive.org/web/20110611053928im_/http://gothamist.com/attachments/jen/2008_08_mccainleno.jpg" width="124" height="114" class="right">Presumptive Republican presidential nominee Senator John McCain visited The Tonight Show last night and <a href="https://web.archive.org/web/20110611053928/http://voices.washingtonpost.com/the-trail/2008/08/25/mccain_and_jay_leno_joke_about.html">chortled over his age</a> with Jay Leno.  McCain, who turns 72 on Friday, had  jokes like, &quot;My social security number is eight&quot; and &quot;You forgot to mention that I warned the people about the British coming.&quot; When Leno asked, &quot;For $1 million, how <a href="https://web.archive.org/web/20110611053928/http://gothamist.com/2008/08/21/obama_unleashes_attack_ad_mccain_un.php">many houses do you have</a>?&quot; McCain brought up his five years as a POW in Vietnam, &quot;<strong>I didn&apos;t have a house. I didn&apos;t have a kitchen table. I didn&apos;t have a table</strong>,&quot; and said of his wealthy wife, &quot;I&#x2019;m very proud of Cindy&#x2019;s father. ... He made the American dream.&quot; </p>

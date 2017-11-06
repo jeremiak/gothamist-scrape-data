@@ -1,0 +1,15 @@
+---
+author: Ben Yakas
+date: September  7, 2011 12:30 PM
+title: Weed Enthusiast Can't Change Name To "NJWeedman.com"
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="9711weedman.jpg" src="https://web.archive.org/web/20120119080353im_/http://gothamist.com/attachments/byakas/9711weedman.jpg" width="640" height="478" class="image-none"> </span></p>
+
+<p>NJ-born Robert Edward Forchion is a staunch and dedicated <a href="https://web.archive.org/web/20120119080353/http://gothamist.com/tags/marijuana">marijuana</a> activist who has participated in just about <a href="https://web.archive.org/web/20120119080353/http://home.njweedman.com/node/2">every weed-related activity</a> there is: he&apos;s a practicing Rastafarian who has opened up his own temple, he&apos;s been a &quot;marijuana smuggler,&quot; he&apos;s operated a medical marijuana dispensary, and he&apos;s run for political office several times unsuccessfully with pot platforms. More recently, <a href="https://web.archive.org/web/20120119080353/http://gawker.com/5837763/man-cannot-change-his-name-to-njweedmancom">he&apos;s been fighting</a> to legally change his name to NJWeedman.com. But The Man won&apos;t let him! </p>
+
+<p>Forchion, who lives in California now, filed a petition to have his name changed legally to &quot;NJWeedman.com&quot; <a href="https://web.archive.org/web/20120119080353/http://home.njweedman.com/">after his website</a>. You can read <a href="https://web.archive.org/web/20120119080353/http://blog.ericgoldman.org/archives/2011/09/california_appe_1.htm">all about the case here</a>, but ultimately, the courts decided against him <a href="https://web.archive.org/web/20120119080353/ttp://blog.internetcases.com/2011/09/01/court-wont-let-marijuana-activist-change-his-legal-name-to-njweedman-com/">for three reasons</a>: domain names aren&apos;t forever, and people would be confused if he ever lost the domain; Forchion&apos;s legal name would be forever associated with a website that advocates a currently illegal activity; and NJ already rejected Forchion&apos;s requests to change his name. But wouldn&apos;t a <a href="https://web.archive.org/web/20120119080353/http://www.marijuanastrains.com/">Ganja Dwarf strain</a> by any other name still smell as sweet?</p>
+
+<p>Below, watch a segment on the NJWeedman from a 2006 episode of the Glenn Beck Variety Hour, in which Beck tries to fathom how an avid pot user could possibly be able to functionally talk politics (unlike, say, a <a href="https://web.archive.org/web/20120119080353/http://www.thedailybeast.com/articles/2010/01/22/the-making-of-glenn-beck.html">former drug addict-turned-conservative nutjob</a> host). Also amusing and now outdated: NJWeedman&apos;s utopian vision of George Bush and Osama bin Laden smoking the peace pipe.</p>
+
+<p><iframe width="640" height="510" src="https://web.archive.org/web/20120119080353if_/http://www.youtube.com/embed/pAkMYNfERNc" frameborder="0" allowfullscreen></iframe></p>

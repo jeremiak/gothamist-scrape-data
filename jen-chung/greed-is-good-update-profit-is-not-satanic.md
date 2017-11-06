@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: November  4, 2009  4:05 PM
+title: Greed Is Good Update: "Profit Is Not Satanic"
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2009_11_greedgood.jpg" src="https://web.archive.org/web/20110623144925im_/http://gothamist.com/attachments/jen/2009_11_greedgood.jpg" width="80" height="80" class="image-right"> </span>Barclays CEO John Varley made <a href="https://web.archive.org/web/20110623144925/http://www.bloomberg.com/apps/news?pid=20601109&amp;sid=aySZ9TS.aODA&amp;pos=11">his case for high executive pay</a>, saying at London&apos;s St Martins-in-the-Field church that &quot;profit is not satanic...Talent is highly mobile. If we fail to pay or are constrained from paying competitive rates then that talent will move to another employer,&quot; and later said in an interview, &quot;Is Christianity and banking compatible? Yes. And is Christianity and fair reward compatible? Yes.&quot; Other bank executives have also been at other London churches to make their pitches&#x2014;Goldman&apos;s Brian Griffiths said, &quot;The injunction of Jesus to love others as ourselves is an endorsement of self-interest. We have to tolerate the inequality as a way to achieving greater prosperity and opportunity for all.&quot;  We can&apos;t wait until American execs try that here! [Via <a href="https://web.archive.org/web/20110623144925/http://nymag.com/daily/intel/2009/11/jesus_wants_everyone_to_get_a.html">Daily Intel</a>]</p>

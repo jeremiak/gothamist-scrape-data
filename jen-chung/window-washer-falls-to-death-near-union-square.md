@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: August 27, 2008  9:16 AM
+title: Window Washer Falls to Death Near Union Square
+---
+
+<p><img alt="2008_08_wwua.jpg" src="https://web.archive.org/web/20110611054709im_/http://gothamist.com/attachments/jen/2008_08_wwua.jpg" width="130" height="108" class="right">Yesterday afternoon, a window washer <a href="https://web.archive.org/web/20110611054709/http://www.wnbc.com/news/17306915/detail.html?dl=headlineclick">fell 12 stories to his death</a> from a Greenwich Village building. The incident occurred at 40 Fifth Avenue, a 17-story apartment building near 11th Street.  A <a href="https://web.archive.org/web/20110611054709/http://www.ny1.com/content/top_stories/85171/window-washer-falls-to-death-near-union-square/Default.aspx">witness said</a>, &quot;Around 4:30 p.m., I hear the people screaming, screaming and screaming call the police.&quot; The <a href="https://web.archive.org/web/20110611054709/http://www.nytimes.com/2008/08/27/nyregion/27fall.html?ref=nyregion">NY Times reports</a> that the victim was a &quot;well-liked,&quot; &quot;self-employed contractor who had been washing windows and doing other work at the building for 20 years.&quot;  While the incident is being investigated, the man was wearing a harness.  Earlier in the day, <a href="https://web.archive.org/web/20110611054709/http://www.nysun.com/new-york/two-window-washers-rescued-in-times-square/84713/">two window washers were rescued</a> after their scaffolding basket stalled around the 30th floor of a Times Square skyscraper.</p>

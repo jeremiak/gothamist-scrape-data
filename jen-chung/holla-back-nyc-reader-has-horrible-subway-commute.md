@@ -1,0 +1,11 @@
+---
+author: Jen Chung
+date: May 14, 2009 3:58 pm
+title: HollaBack NYC Reader Has Horrible Subway Commute
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2009_05_hollabacksub.jpg" src="https://web.archive.org/web/20160529011333im_/http://gothamist.com/attachments/jen/2009_05_hollabacksub.jpg" width="130" height="128" class="image-right"> </span>Though undercover cops recently <a href="https://web.archive.org/web/20160529011333/http://gothamist.com/2009/05/12/cops_arrest_repeat_sex_offender_on.php">arrested one pervert</a>, there never seems to be a shortage! Take this <em>terrible</em> <a href="https://web.archive.org/web/20160529011333/http://hollabacknyc.blogspot.com/2009/05/d-train-sick-o-masturbates-on-top-of.html">story recounted on HollaBack</a>.  A reader said that on a D train this morning, between Atlantic-Pacific and Grand, &quot;I was napping with my iPod on, and I woke up because I felt something repeatedly hitting and rubbing up to my arm. When I looked down, I saw an uncircumcised penis being masturbated right on top of my arm. Luckily, he hadn&apos;t finished yet. (<strong>Though the police mentioned that it would have been better to have DNA evidence. Ew.</strong>) I immediately screamed something like &apos;OH MY GOD, GET OFF OF ME YOU SICK MOTHERFUCKER!&apos; At that point, the man mumbled something like &apos;sorry&apos; and walked quickly through the crowd to the other side of the train. I was stunned that no one tried to stop him, and even shifted to let him through. <strong>I screamed again &apos;DID ANYONE SEE THAT? THAT ASSHOLE WAS MASTURBATING ON ME</strong>!&apos;&quot; (Read the <a href="https://web.archive.org/web/20160529011333/http://hollabacknyc.blogspot.com/2009/05/d-train-sick-o-masturbates-on-top-of.html">full story here</a>.)The HollaBack reader took the man&apos;s photograph while he pretended to be asleep and reported him to the cops, but because he&apos;s still at large, a happy, um, ending remains elusive.</p>					
+										
+									
+				

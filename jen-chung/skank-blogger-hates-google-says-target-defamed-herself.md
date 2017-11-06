@@ -1,0 +1,15 @@
+---
+author: Jen Chung
+date: Aug 23, 2009 4:20 pm
+title: Skank Blogger Hates Google, Says Target "Defamed Herself"
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:300px; "> <img alt="2009_08_skbl.jpg" src="https://web.archive.org/web/20151114210824im_/http://gothamist.com/attachments/nyc_arts_john/2009_08_skbl.jpg" width="300" height="196"> <br> <i>At left, accused Skanks in NYC blogger <a href="https://web.archive.org/web/20151114210824/http://www.facebook.com/people/Rosemary-Port/681815561">Rosemary Port&apos;s Facebook photo</a>; at right, Liskula Cohen.</i></div> One day, you&apos;re <a href="https://web.archive.org/web/20151114210824/http://gothamist.com/2009/01/06/vogue_model_sues_google_over_blogs.php">anonymously trashing a woman</a> who badmouthed you to your boyfriend. Months later, because the woman is upset about being called a &quot;psychotic, lying, whoring..skank,&quot; your <a href="https://web.archive.org/web/20151114210824/http://gothamist.com/2009/08/21/skank_blogger_fully_revealed.php">identity has given up by Google</a>! Unmasked Skanks in NYC blogger Rosemary Port <a href="https://web.archive.org/web/20151114210824/http://www.nydailynews.com/gossip/2009/08/23/2009-08-23_outted_blogger_rosemary_port_blames_model_liskula_cohen_for_skank_stink.html">tells the Daily News</a> about her planned $15 million suit against Google (her website was on Google-owned Blogger), &quot;When I was being defended by attorneys for Google, I thought my right to privacy was being protected.  But that right fell through the cracks. Without any warning, I was put on a silver platter for the press to attack me.<strong> I would think that a multi-billion dollar conglomerate would protect the rights of all its users.</strong>&quot;<p></p>
+
+<p>Port&apos;s target, model Liskula Cohen, <a href="https://web.archive.org/web/20151114210824/http://gothamist.com/2009/08/19/allegedly_skanky_model_calls_accuse.php">had said of Port on Good Morning, America</a>, &quot;Thank God it was her&#x2026; she&apos;s an irrelevant person in my life. She&apos;s just somebody that, whenever I would go out to a restaurant, to a party in New York City&#x2026; She was just that girl that was always there.&quot;  Cohen also added she would sue Port for defamation, because the skankusations affected her business.  Port now says, &quot;<strong>By going to the press, she defamed herself. Before her suit, there were probably two hits on my Web site: One from me looking at it, and one from her looking at it. That was before it became a spectacle.</strong>&quot;</p>
+
+<p>Cohen&apos;s lawyer now says she won&apos;t sue Port, &quot;My client is walking away from it,&quot; the lawyer said. &quot;She&apos;s said, &apos;It adds nothing to my life to hurt hers.&apos; Liskula has offered her forgiveness. But even after she has been forgiven, [Port] has no interest in redeeming her soul.&quot;  </p>					
+										
+									
+				

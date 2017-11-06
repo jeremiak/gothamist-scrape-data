@@ -1,0 +1,49 @@
+---
+author: Jen Carlson
+date: May 20, 2011 11:49 am
+title: NYC As Seen On TV: Meg Ryan Hits Real Estate Gold, Every Time
+---
+
+	
+										<p><em>We&apos;ve been <a href="https://web.archive.org/web/20160510142203/http://gothamist.com/tags/nycasseenontv">looking at</a> how Hollywood has recreated our city for movie and television productions throughout the years. Last time we looked at <a href="https://web.archive.org/web/20160510142203/http://gothamist.com/2011/05/10/nyc_as_seen_on_tv_top_5_worst.php">apartments in television shows</a> throughout the years, and today we start our detailed look at New York apartments as presented in film. If you&apos;ve ever seen a Meg Ryan movie, you know her characters almost always live in picturesque places&#x2014;click through for a look at some of her finest fictional New York real estate.</em></p>					
+					<div class="galleryEase" id="gallery-470175">
+<!-- gallery js -->
+<script type="text/javascript" src="https://web.archive.org/web/20160510142203js_/http://assets.gothamistllc.com/v5/js/gallery.js"></script>
+<!-- end gallery js -->
+
+<style type="text/css">
+#imgContainer {
+min-height: 300px;
+min-width: 300px;
+background: url('https://web.archive.org/web/20160510142203im_/http://assets.gothamistllc.com/v5/images/progress.gif') center center no-repeat;
+}
+</style>
+
+<!--start of gallery code-->
+<a name="gallery"></a>
+<div class="galleryEaseDisplayed">
+<div id="imgContainer">
+    <img id="galleryImg">
+</div>
+<div class="galleyEaseInfo"></div>
+<div class="galleryEaseNext"></div>
+<div class="galleryEasePrev"></div>
+</div>
+<div class="galleryEaseThumbs">
+		<img src="https://web.archive.org/web/20160510142203im_/http://gothamist.com/assets_c/2011/05/megryanapts0511-thumb-60x60-626307.jpg" title="" id="photo_1" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":1, "image": "https://web.archive.org/web/20160510142203/http://gothamist.com/attachments/arts_jen/megryanapts0511.jpg", "caption": "", "credit":""};galleryObj['photo_1'] = photo;</script>
+		<img src="https://web.archive.org/web/20160510142203im_/http://gothamist.com/assets_c/2011/05/youvegotmail0511-thumb-60x60-626214.jpg" title="" id="photo_2" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":2, "image": "https://web.archive.org/web/20160510142203/http://gothamist.com/upload/2011/05/youvegotmail0511.jpg", "caption": "In 1998\'s \<em\>You\'ve Got Mail\<\/em\> Meg Ryan\'s character Kathleen Kelly is \"known for her taste.\" Her apartment is in a brownstone that writer and director Nora Ephron says she believes was on West 89th Street, âBut I could be wrong. Who remembers?â (Check out more photos \<a href=\"http://hookedonhouses.net/2009/06/28/meg-ryans-brownstone-in-youve-got-mail/\"\>here\<\/a\>.) Could a woman struggling to keep a small (and inherited) bookstore open really afford this place?\r\n\<p\>\r\n\<iframe width=\"640\" height=\"510\" src=\"http://www.youtube.com/embed/96gRJxIGa5A\" frameborder=\"0\" allowfullscreen\>\<\/iframe\>", "credit":""};galleryObj['photo_2'] = photo;</script>
+		<img src="https://web.archive.org/web/20160510142203im_/http://gothamist.com/assets_c/2011/05/4youvegotmail0511-thumb-60x60-626211.jpg" title="" id="photo_3" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":3, "image": "https://web.archive.org/web/20160510142203/http://gothamist.com/upload/2011/05/4youvegotmail0511.jpg", "caption": "(\<em\>You\'ve Got Mail\<\/em\>)", "credit":""};galleryObj['photo_3'] = photo;</script>
+		<img src="https://web.archive.org/web/20160510142203im_/http://gothamist.com/assets_c/2011/05/3youvegotmail0511-thumb-60x60-626208.jpg" title="" id="photo_4" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":4, "image": "https://web.archive.org/web/20160510142203/http://gothamist.com/upload/2011/05/3youvegotmail0511.jpg", "caption": "(\<em\>You\'ve Got Mail\<\/em\>)", "credit":""};galleryObj['photo_4'] = photo;</script>
+		<img src="https://web.archive.org/web/20160510142203im_/http://gothamist.com/assets_c/2011/05/2youvegotmail0511-thumb-60x60-626205.jpg" title="" id="photo_5" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":5, "image": "https://web.archive.org/web/20160510142203/http://gothamist.com/upload/2011/05/2youvegotmail0511.jpg", "caption": "(\<em\>You\'ve Got Mail\<\/em\>)", "credit":""};galleryObj['photo_5'] = photo;</script>
+		<img src="https://web.archive.org/web/20160510142203im_/http://gothamist.com/assets_c/2011/05/2addictedtolove0511-thumb-60x60-626203.jpg" title="" id="photo_6" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":6, "image": "https://web.archive.org/web/20160510142203/http://gothamist.com/upload/2011/05/2addictedtolove0511.jpg", "caption": "\<em\>Addicted To Love\<\/em\> was released in 1997 and most of the movie was filmed where it took place, in Greenwich Village. The plot? \"Sam is devastated when the love of his life, Linda, leaves him for a suave Frenchman named Anton. He therefore does what every other normal dumpee would do: he goes to New York and sets up house in the abandoned building opposite his ex-girlfriend\'s apartment, intent on winning her back and waiting until she decides to leave her current lover.\" Meg Ryan\'s character quickly joins him and rom com hilarity ensues (or not). Even when Meg Ryan isn\'t playing a rich lady she scores an amazing loft! Albeit, a fixer-upper.\r\n\<p\>\r\n\<iframe width=\"640\" height=\"390\" src=\"http://www.youtube.com/embed/rxrkoapzNU8\" frameborder=\"0\" allowfullscreen\>\<\/iframe\>", "credit":""};galleryObj['photo_6'] = photo;</script>
+		<img src="https://web.archive.org/web/20160510142203im_/http://gothamist.com/assets_c/2011/05/3addictedtolove0511-thumb-60x60-626207.jpg" title="" id="photo_7" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":7, "image": "https://web.archive.org/web/20160510142203/http://gothamist.com/upload/2011/05/3addictedtolove0511.jpg", "caption": "It even had a nice projection wall! (\<em\>Addicted To Love\<\/em\>)", "credit":""};galleryObj['photo_7'] = photo;</script>
+<br>		<img src="https://web.archive.org/web/20160510142203im_/http://gothamist.com/assets_c/2011/05/addictedtolove0511-thumb-60x60-626212.jpg" title="" id="photo_8" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":8, "image": "https://web.archive.org/web/20160510142203/http://gothamist.com/upload/2011/05/addictedtolove0511.jpg", "caption": "Is this what squatting is like? Sign us up. (\<em\>Addicted To Love\<\/em\>)", "credit":""};galleryObj['photo_8'] = photo;</script>
+		<img src="https://web.archive.org/web/20160510142203im_/http://gothamist.com/assets_c/2011/05/4addictedtolove0511-thumb-60x60-626209.jpg" title="" id="photo_9" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":9, "image": "https://web.archive.org/web/20160510142203/http://gothamist.com/upload/2011/05/4addictedtolove0511.jpg", "caption": "The apartment they were spying on across the street. (\<em\>Addicted To Love\<\/em\>)", "credit":""};galleryObj['photo_9'] = photo;</script>
+		<img src="https://web.archive.org/web/20160510142203im_/http://gothamist.com/assets_c/2011/05/4kateleopold0511-thumb-60x60-626210.jpg" title="" id="photo_10" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":10, "image": "https://web.archive.org/web/20160510142203/http://gothamist.com/upload/2011/05/4kateleopold0511.jpg", "caption": "The 2001 romantic comedy \<em\>Kate & Leopold\<\/em\> featured a ton of great Manhattan real estate (time-traveling Leopold goes back to visit his boyhood home, filmed at \<a href=\"http://en.wikipedia.org/wiki/1_Hanover_Square\"\>1 Hanover Square\<\/a\>). Ryan\'s apartment in the film was actually built on a soundstage, with exteriors featuring authentic looking fire escapes.\r\n\<p\>\r\n\<iframe width=\"640\" height=\"390\" src=\"http://www.youtube.com/embed/zpSlJaP2sHw\" frameborder=\"0\" allowfullscreen\>\<\/iframe\>", "credit":""};galleryObj['photo_10'] = photo;</script>
+		<img src="https://web.archive.org/web/20160510142203im_/http://gothamist.com/assets_c/2011/05/3kateleopold0511-thumb-60x60-626206.jpg" title="" id="photo_11" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":11, "image": "https://web.archive.org/web/20160510142203/http://gothamist.com/upload/2011/05/3kateleopold0511.jpg", "caption": "(\<em\>Kate & Leopold\<\/em\>)", "credit":""};galleryObj['photo_11'] = photo;</script>
+		<img src="https://web.archive.org/web/20160510142203im_/http://gothamist.com/assets_c/2011/05/2kateleopold0511-thumb-60x60-626204.jpg" title="" id="photo_12" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":12, "image": "https://web.archive.org/web/20160510142203/http://gothamist.com/upload/2011/05/2kateleopold0511.jpg", "caption": "(\<em\>Kate & Leopold\<\/em\>)", "credit":""};galleryObj['photo_12'] = photo;</script>
+		<img src="https://web.archive.org/web/20160510142203im_/http://gothamist.com/assets_c/2011/05/kateleopold0511-thumb-60x60-626213.jpg" title="" id="photo_13" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":13, "image": "https://web.archive.org/web/20160510142203/http://gothamist.com/upload/2011/05/kateleopold0511.jpg", "caption": "Not a bad roof. (\<em\>Kate & Leopold\<\/em\>)", "credit":""};galleryObj['photo_13'] = photo;</script>
+									
+</div></div>					
+									
+				

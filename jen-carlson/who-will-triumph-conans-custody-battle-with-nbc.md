@@ -1,0 +1,13 @@
+---
+author: Jen Carlson
+date: January 18, 2010  4:31 PM
+title: Who Will Triumph? Conan's Custody Battle With NBC
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="conantriumph0110.jpg" src="https://web.archive.org/web/20130424021637im_/http://gothamist.com/attachments/arts_jen/conantriumph0110.jpg" width="350" height="193" class="image-left"> </span>As <a href="https://web.archive.org/web/20130424021637/http://gothamist.com/tags/conanobrien">Conan O&apos;Brien</a>&apos;s last week as host of <em>The Tonight Show</em> is upon us (he&apos;ll film his final show on Friday), word is that his departure deal may be agreed upon today. While it&apos;s already been reported that the host will likely be able to go live on another network as early as September, and will receive a hefty financial payout &#x2014; the stall seems to be surrounding the characters Conan has created while on the network. </p>
+
+<p><a href="https://web.archive.org/web/20130424021637/http://www.tmz.com/2010/01/18/conan-obrien-nbc-triumph-insult-comic-dog-tonight-show/">TMZ</a> just reported that the remaining negotiations seem to involve a custody battle over characters like Triumph the Insult Comic Dog, the Pimpbot 5000 and the Masturbating Bear. While they are all legally the property of NBC, Triumph may actually go to Conan, whose rights are tricky because he was originally created by Conan&apos;s friend Robert Smigel. Allegedly the network is willing to hand over <em>all</em> of the characters, if Conan will just do one little thing for them. They want him to concede to a non-disparagement clause in the deal, which would stop him from trashing NBC.</p>
+
+<p>Meanwhile, last night at the Golden Globes, Tina Fey, Tom Hanks <em>and</em> Julia Roberts all trashed NBC. <a href="https://web.archive.org/web/20130424021637/http://www.huffingtonpost.com/2010/01/17/tina-fey-golden-globes-ra_n_426644.html">Fey declared</a>, &quot;It&apos;s not rain, it&apos;s just god crying for NBC.&quot;</p>
+
+<p>In New York, Conan fans took to the streets today <a href="https://web.archive.org/web/20130424021637/http://marquee.blogs.cnn.com/2010/01/18/conan-obrien-fans-protest-outside-nbc-studios-in-new-york/">and protested</a> outside of 30 Rock, chanting things like: &#x201C;Hey, hey, ho, ho, Jay Leno has to go,&#x201D; and, &quot;We want Coco the chin has got to go go.&#x201D; There were also protests <a href="https://web.archive.org/web/20130424021637/http://laist.com/2010/01/18/photos_rally_for_conan_draws_hundre.php">in LA</a> and Chicago.</p>

@@ -1,0 +1,23 @@
+---
+author: Ben Yakas
+date: Oct 28, 2011 11:18 am
+title: Hundreds Of Cops Taunt Prosecutors Outside Court At Ticket-Fixing Indictment
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="102811nypd.jpg" src="https://web.archive.org/web/20141229143708im_/http://gothamist.com/attachments/byakas/102811nypd.jpg" width="640" height="246"> <br> <i>NYPD members facing charges include: Top row, from left: Joseph Anthony, Virgilio Bencosme, Jason Cenizal, Jennara Cobb, Michael Hernandez, Marc Manara, Christopher Manzi, Brian McGuckin. Bottom row, from left: Eugene P. O&apos;Reilly, Jaime Payan, Ruben Peralta, Jose R. Ramos, Jeffrey L. Regan, Luis R. Rodriguez, Christopher Scott, Jacob G. Solorzano.</i></div> <p></p>
+
+<p>Hundreds of cops showed up at the steps of the Bronx courthouse to show solidarity with the 16 NYPD officers <a href="https://web.archive.org/web/20141229143708/http://www.nytimes.com/2011/10/29/nyregion/in-ticket-fixing-scandal-16-officers-to-be-charged.html?_r=1&amp;smid=tw-nytimes&amp;seid=auto">who will be arraigned today</a> as part of the massive ongoing <a href="https://web.archive.org/web/20141229143708/http://gothamist.com/tags/ticketfixing">ticket-fixing scandal</a>. According <a href="https://web.archive.org/web/20141229143708/http://www.nydailynews.com/news/ny_crime/2011/10/28/2011-10-28_nypd_officers_gather_at_bronx_courthouse_in_support_of_indicted_cops_in_ticketfi.html">to the Daily News</a>, many officers&#x2014;some uniformed, some plain clothed&#x2014;angrily snarled at Bronx prosecutors as they walked in, calling them &quot;cowards&quot; and &quot;pieces of shit.&quot; One officer told them, &quot;This whole thing is a bunch of bullshit. They&apos;re crucifying us over nothing.&quot;</p>
+
+<p>Sixteen officers <a href="https://web.archive.org/web/20141229143708/http://www.nypost.com/p/news/local/cops_in_ticket_fixing_scandal_await_tJFG3r06yzlWwVSCCgpn3M">are facing possible charges</a> including obstruction, official misconduct, perjury and bribery from the ticket-fixing investigation, which has rocked the NYPD. At least one officer, Jose Ramos, <a href="https://web.archive.org/web/20141229143708/http://www.nypost.com/p/news/local/cops_in_ticket_fixing_scandal_await_tJFG3r06yzlWwVSCCgpn3M">was arrested last night</a> along with his wife, although charges against them aren&apos;t clear yet.</p>
+
+<p>The 980-page indictment includes about 1,500 criminal charges stemming from 300 ticket-fixing cases&#x2014;at least one cop may also may face charges of <a href="https://web.archive.org/web/20141229143708/http://gothamist.com/2011/09/16/cops_facing_drug-profit_charges_as.php">profiting from drug sales</a> as well as <a href="https://web.archive.org/web/20141229143708/http://gothamist.com/2011/10/19/cop_allegedly_took_flatscreen_tv_in.php">taking electronics</a> in exchange for fixing traffic and parking tickets.</p>
+
+<p>Many officers have been quick to defend the practice of ticket-fixing: <a href="https://web.archive.org/web/20141229143708/http://gothamist.com/2011/09/16/cops_facing_drug-profit_charges_as.php">one policeman and former union delegate said</a>, &quot;Nothing was done corruption-wise. I never asked for money to fix summons, I never asked for a favor to fix a summons. It is a courtesy. You might as well indict this whole department. It is a widespread epidemic.&quot; Earlier this year, the president of the Sergeants Benevolent Association, the union for the NYPD&apos;s 12,000 front-line supervisors, <a href="https://web.archive.org/web/20141229143708/http://gothamist.com/2011/04/20/oh_duh_ticket-fixing_has_always_exi.php">vigorously defended</a> &quot;the culture of extending courtesies to members and their families within the NYPD.&quot;</p>
+
+<p>Mayor Bloomberg defended the NYPD while castigating the officers ensnared in the scandal as a corrupt minority: &quot;We have 35,000 uniformed people in the department. It&apos;s a disgrace if the allegations are true - the guys with the guns, the ticket-fixing. But it&apos;s a tiny percentage of the people.&quot;</p>
+
+<p>Pat Lynch, president of the Police Benevolent Association, was at the courthouse for today&apos;s show of support, and said that eventually the officers will be exonerated: &quot;Right now, this has been laid on the shoulders of police officers. When the dust settles, and we have our day in court, it will be clear that this is part of the NYPD at all levels.&quot;</p>					
+										
+									
+				

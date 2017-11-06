@@ -1,0 +1,37 @@
+---
+author: Emma Whitford
+date: Apr 12, 2016 12:55 pm
+title: Mayor Announces Plan To Simplify The "Alphabet Soup" Of Homeless Services In NYC
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="160223StevenBanksDeBlasio copy.jpg" src="https://web.archive.org/web/20161110083712im_/http://gothamist.com/attachments/nyc_ewhitford/160223StevenBanksDeBlasio%20copy.jpg" width="640" height="427"> <br> <i>Mayor de Blasio, center, and homelessness and welfare Commissioner Steven Banks, right (Mayor&apos;s Office/Flickr)</i></div> <p></p>
+
+<p>Mayor de Blasio on Monday unveiled plans to <a href="https://web.archive.org/web/20161110083712/http://www1.nyc.gov/office-of-the-mayor/news/344-16/mayor-de-blasio-comprehensive-homeless-services-plan-increases-focus-prevention-rehousing#/0">overhaul</a> how New York City administers homeless services, by combining the <a href="https://web.archive.org/web/20161110083712/http://www1.nyc.gov/site/dhs/index.page">Department of Homeless Services</a> and the <a href="https://web.archive.org/web/20161110083712/http://www1.nyc.gov/site/hra/about/contact.page">Human Resources Administration</a>&#x2014;which provides food and rental assistance and homelessness prevention services to low-income New Yorkers&#x2014;into a single agency.</p>
+
+<p>&quot;First and foremost, [the goal is] preventing homelessness,&quot; de Blasio told reporters. &quot;This is what I advocated for the most&#x2014;stopping people from becoming homeless while we can. That is the smartest strategy and we&#x2019;re going to do a lot more on that front.&quot; </p>
+
+<p>There are currently nearly 58,000 individuals in the city&apos;s shelters, 23,432 of whom are children, thanks in no small part to the slashing of rental assistance and the proliferation of <a href="https://web.archive.org/web/20161110083712/http://gothamist.com/2016/01/04/homeless_cluster_site.php">privately-owned shelters</a> <a href="https://web.archive.org/web/20161110083712/http://gothamist.com/2015/07/13/homeless_pawns_murdoch_agenda.php">during the Bloomberg Administration</a>. </p>
+
+<p>According to the Mayor&apos;s office, administrative reshuffling will save the city $38 million in combined administrative services. Homelessness prevention and rehousing services will also be combined, like DHS&apos;s <a href="https://web.archive.org/web/20161110083712/http://www1.nyc.gov/site/dhs/prevention/homebase.page">Homebase</a> and HRA&#x2019;s <a href="https://web.archive.org/web/20161110083712/http://www1.nyc.gov/site/hra/help/homelessness-prevention.page">Homelessness Prevention Administration</a>. Rental assistance programs will be consolidated, so New Yorkers won&apos;t have to navigate the granular differences between, say, <a href="https://web.archive.org/web/20161110083712/http://www1.nyc.gov/site/dhs/permanency/linc-program.page">LINC</a> and <a href="https://web.archive.org/web/20161110083712/http://www1.nyc.gov/site/dhs/permanency/seps.page">SEPS</a>. </p>
+
+<p>As of this week, DHS and HRA will report to a single Commissioner of Social Services, Steven Banks. The appointment is not surprising, since Banks stepped in as interim head of both agencies <a href="https://web.archive.org/web/20161110083712/http://gothamist.com/2016/01/04/homeless_cluster_site.php">last December</a> with the departure of then-DHS Commissioner Gilbert Taylor. Banks, formerly the chief of the Legal Aid Society, is a long-time affordable housing advocate. Yesterday&apos;s announcement marks the conclusion of Banks&apos;s 90-day review [<a href="https://web.archive.org/web/20161110083712/http://www1.nyc.gov/assets/home/downloads/pdf/reports/2016/90-day-homeless-services-review.pdf">PDF</a>] of the shelter system as a whole, launched to identify inefficiencies. </p>
+
+<p>&quot;We found that for many years it was... an alphabet soup of services,&quot; Banks told reporters on Monday. &quot;If we streamline all of these functions we can save money.&quot; </p>
+
+<p>The streamlining plan also includes the <a href="https://web.archive.org/web/20161110083712/http://gothamist.com/2015/12/18/de_blasio_home_stat.php">recently-implemented HOME-STAT program</a>, which aims to maintain an accurate daily count of the number of street-homeless New Yorkers in an effort to better administer services. The plan mandates street canvasing and a larger NYPD homeless outreach unit, which some advocates fear will have the adverse effect of criminalizing homelessness. </p>
+
+<p>Finally, it reiterates efforts to <a href="https://web.archive.org/web/20161110083712/http://gothamist.com/2016/03/16/homeless_shelter_security.php">increase security in shelters</a>, and pours additional resources into improving <a href="https://web.archive.org/web/20161110083712/http://gothamist.com/2016/02/02/homeless_shelter_review_nyc.php">persistently unsafe living conditions</a> therein. </p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="041216_Homeless.jpeg" src="https://web.archive.org/web/20161110083712im_/http://gothamist.com/attachments/nyc_ewhitford/041216_Homeless.jpeg" width="640" height="427"> <br> <i> (Mayor&apos;s Flickr). </i></div> <p></p>
+
+<p>In an <a href="https://web.archive.org/web/20161110083712/http://www.nytimes.com/2016/04/12/opinion/the-mayor-offers-hope-for-the-homeless.html?_r=0">op-ed published Tuesday</a>, the NY Times&apos; Editorial Board argued that the consolidation effort, while logical, is too little, too late. The Board also argued that Governor Andrew Cuomo could do a better job of pulling his weight. Cuomo&apos;s <a href="https://web.archive.org/web/20161110083712/http://gothamist.com/2016/01/13/state_of_the_state_cuomo.php">2016 State of the State</a> promised a $20 billion 5-year plan to go towards 100,000 units of affordable housing, 6,000 beds of supportive housing, and 1,000 emergency shelter beds. Three months later, there&apos;s no funding source or timeline to speak of. (&quot;We&apos;re also going to continue to urge everyone in Albany to institute reforms we need,&quot; de Blasio said.) </p>
+
+<p>O. Rogers, a formerly homeless man from the Bronx and a member of the advocacy group <a href="https://web.archive.org/web/20161110083712/http://picturethehomeless.org/">Picture the Homeless</a>, praised the Mayor for working closely with Banks to untangle some of the logistics of the shelter system, but argued that any plan to improve circumstances for the city&apos;s homeless population is deeply handicapped by de Blasio&apos;s <a href="https://web.archive.org/web/20161110083712/http://gothamist.com/2016/03/22/pioneering_brooklyn_east_ny.php">controversial affordable housing plan</a>. </p>
+
+<p>&quot;He&#x2019;s letting realtors and bureaucrats set his administration&#x2019;s housing agenda, resulting in policies that will increase displacement and create more homelessness,&quot; Rogers said. </p>
+
+<p>&quot;Meanwhile, as in the past, City Hall is not ready to go up against the real estate interests who profit from converting housing for poor and middle class families to $2,500-a-month apartments... as recent headlines have shown, he&apos;s currently under <a href="https://web.archive.org/web/20161110083712/http://gothamist.com/2016/04/09/de_blasio_fund-raising_corruption.php">federal investigation</a> in connection with a real estate developer who contributed to his campaign.&quot; </p>					
+										
+									
+				

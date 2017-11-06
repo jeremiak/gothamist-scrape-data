@@ -1,0 +1,11 @@
+---
+author: Jen Carlson
+date: December  5, 2006  4:42 PM
+title: Going, Going, Gone...
+---
+
+<p>There was a lot up on the auction block this week at Christie&apos;s. Yesterday was their <a href="https://web.archive.org/web/20110521095039/http://www.christies.com/promos/dec06/1730/overview.asp">Rock &amp; Pop Memorabilia</a> auction. Beatles lyrics penned by Paul McCartney (that&apos;s <em>Sir</em> Paul McCartney, to you) went for $197,000. The song? An early version of Maxwell&apos;s Silver Hammer from 1968. Jimi Hendrix&apos;s 1968 Fender Stratocaster (modified to accommodate his left-handed use) sold for $168,000.</p>
+
+<p><img alt="2006_12_arts_hepburn.jpg" src="https://web.archive.org/web/20110521095039im_/http://www.gothamist.com/attachments/arts_jen/2006_12_arts_hepburn.jpg" width="206" height="139" class="right">Meanwhile, a page of Britney Spears&apos;s homework went for $240 (less than an iPod!). <a href="https://web.archive.org/web/20110521095039/http://www.flickr.com/photos/irisheyes/310534330/">View the page here</a>. More on what rock n&apos; roll items sold, <a href="https://web.archive.org/web/20110521095039/http://news.bbc.co.uk/1/hi/entertainment/6208886.stm">here</a>.</p>
+
+<p>The big sale happened today though, at another Christie&apos;s auction. The iconic Givenchy black dress that Audrey Hepburn wore in &quot;Breakfast at Tiffany&apos;s&quot; <a href="https://web.archive.org/web/20110521095039/http://www.cnn.com/2006/SHOWBIZ/Movies/12/05/people.hepburn.dress.ap/">sold for $807,000</a>. Just last month Natalie Portman wore the dress in her <a href="https://web.archive.org/web/20110521095039/http://publications.mediapost.com/index.cfm?fuseaction=Articles.showArticleHomePage&amp;art_aid=50925">Harper&apos;s Bazaar photoshoot</a>. The dress is reportedly a size 1, and it looks more like a costume <a href="https://web.archive.org/web/20110521095039/http://today.reuters.co.uk/news/newsPhotoPresentation.aspx?type=entertainmentNews&amp;imageID=2006-12-05T155519Z_01_L05652357_RTRUKOP_0_PICTURE0.xml">on this Christie&apos;s employee</a>. </p>

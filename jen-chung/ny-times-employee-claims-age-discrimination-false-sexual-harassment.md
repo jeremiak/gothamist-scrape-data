@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: August 11, 2008 10:48 AM
+title: NY Times Employee Claims Age Discrimination, False Sexual Harassment
+---
+
+<p><img alt="2008_08_cubes.jpg" src="https://web.archive.org/web/20130304024441im_/http://gothamist.com/attachments/jen/2008_08_cubes.jpg" width="120" height="115" class="right">A longtime NY Times employee <a href="https://web.archive.org/web/20130304024441/http://www.nydailynews.com/news/2008/08/10/2008-08-10_worst_of_times_unveiled_in_lawsuit.html">is suing the Gray Lady</a> for not promoting him.  Charles Cretella, who is, per the Post, &quot;a part-time copy editor who&apos;s been with the Gray Lady since 1968,&quot; claims the company discriminated against him due to his age and sexual harassment allegations.  Cretella was suspended for &quot;inappropriate behavior towards a new hire,&quot; but Cretella says the hire was the inappropriate one.  Cretella&apos;s lawsuit says, <a href="https://web.archive.org/web/20130304024441/http://www.nydailynews.com/news/2008/08/10/2008-08-10_worst_of_times_unveiled_in_lawsuit.html">according to the Daily News</a>, that the younger man would whisper to him, &quot;<strong>Do you miss me?</strong>&quot; when walking by or once &quot;<strong>rubbed himself through his pants for 20 minutes in his cubicle</strong>.&quot;  Cretella admits to giving his colleague a hand-me-down jacket and letting him take candy, but says, &quot;I am having to defend myself in a $3 billion company for giving away some gummy bears and candy corn?&quot;</p>

@@ -1,0 +1,11 @@
+---
+author: Jen Carlson
+date: January 11, 2011  6:25 PM
+title: Poodle Drowns In Prospect Park Lake
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:275px; "> <img alt="prosparklake011111.jpg" src="https://web.archive.org/web/20120605212625im_/http://gothamist.com/attachments/arts_jen/prosparklake011111.jpg" width="275" height="253"> <br> <i><span class="photo_caption">Photo via <a href="https://web.archive.org/web/20120605212625/http://www.flickr.com/photos/flysi/5297937759/">FlySi&apos;s flickr</a></span></i></div> The owner of a poodle who drowned after chasing a bird onto Prospect Park&#x2019;s iced over <a href="https://web.archive.org/web/20120605212625/http://gothamist.com/tags/prospectparklake">lake</a>, <a href="https://web.archive.org/web/20120605212625/http://prospectheights.patch.com/articles/owner-of-drowned-poodle-what-if-it-had-been-a-child">is asking city officials</a> what would have happened if her poodle had been <em>a human child</em>. On January 2nd, Viviane Arzoumanian&#x2019;s 5-year-old poodle drowned after running on to the ice, <em>off leash</em> (which is not allowed at the park unless it&apos;s during the designated off-leash hours, and never allowed at the lake). Following the tragedy, Arzoumanian&#x2014;admitting she was breaking park rules&#x2014;has some ideas for the park that she believes could result in more effective animal rescues.<p></p>
+
+<p>She says the rescue team that arrived didn&apos;t have the proper equipment to go safely out onto the icy lake; while there were ladders, she says there were &quot;no ropes, no life preserves, no floatation devices. If there were some sort of inflatable raft, anybody could go out there safely.&quot; So now she&apos;s asking the Parks Department to put boxes around the lake that contain self-inflating rafts and more suitable rescue equipment. (Perhaps they should also include a <a href="https://web.archive.org/web/20120605212625/http://gothamist.com/2010/08/31/prospect_park_not_fining_unlawful_f.php">complaint box</a>!)</p>
+
+<p>We&apos;ve contacted the Prospect Park folk to see if this is something they&apos;d consider, and will update if we hear back.</p>

@@ -1,0 +1,11 @@
+---
+author: Jen Carlson
+date: March 25, 2009  2:06 PM
+title: Prime Rat Island Real Estate
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="phpYctVZyPM.jpg" src="https://web.archive.org/web/20120118130455im_/http://gothamist.com/attachments/arts_jen/phpYctVZyPM.jpg" width="640" height="376" class="image-none"> </span></p>
+
+<p>How much would you pay for 21/2-acres of land in the Bronx? What if it were an island of your very own <a href="https://web.archive.org/web/20120118130455/http://maps.google.com/maps?hl=en&amp;q=rat+island,+ny&amp;ie=UTF8&amp;split=0&amp;gl=us&amp;ei=mlnKSb-8CpK0MZO6oOYD&amp;ll=40.855371,-73.779716&amp;spn=0.008277,0.017617&amp;t=h&amp;z=16">located</a> swimming distance from the creepy, off-limits <a href="https://web.archive.org/web/20120118130455/http://gothamist.com/2008/09/02/going_to_the_heart_of_hart_island.php">Hart Island</a>? One man, Red Brennen, is asking $300K for ownership of the unfortunately named Rat Island, which he used mostly to store marine construction equipment throughout the years. </p>
+
+<p>Though small in size, it&apos;s got a long history (albeit sometimes details are hard to come by). Allegedly it housed a typhoid quarantine hospital in the 1800s, and the remains of cobblestone walls and foundations are still there. <a href="https://web.archive.org/web/20120118130455/http://www.nydailynews.com/ny_local/bronx/2009/03/24/2009-03-24_for_enough_cheese_rat_island_is_yours_fa-2.html">The Daily News</a> reports that it got the name from &quot;when prisoners, nicknamed &apos;rats,&apos; escaped from Hart Island, they paused on the island to catch their breath before swimming on toward City Island.&quot; No <em>real</em> rats have been spotted there <a href="https://web.archive.org/web/20120118130455/http://enc.slider.com/Enc/Rat_Island_(New_York)">in over 50 years</a>, they likely bailed out for the same reason it became abandoned: storm floods. According to <a href="https://web.archive.org/web/20120118130455/http://en.wikipedia.org/wiki/Rat_Island,_New_York">Wikipedia</a> the highest point on the island is underwater during high tide storms.</p>

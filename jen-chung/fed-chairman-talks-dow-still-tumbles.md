@@ -1,0 +1,11 @@
+---
+author: Jen Chung
+date: October  7, 2008  4:17 PM
+title: Fed Chairman Talks, Dow Still Tumbles
+---
+
+<p><img alt="2008_10_bernaws.jpg" src="https://web.archive.org/web/20110611063320im_/http://gothamist.com/attachments/jen/2008_10_bernaws.jpg" width="240" height="276" class="left">Federal Reserve Chairman discussed the current economic and financial condition (<a href="https://web.archive.org/web/20110611063320/http://www.federalreserve.gov/newsevents/speech/bernanke20081007a.htm">speech transcript</a>), outlining what happened with Fannie Mae, Freddie Mac, Lehman Brothers and AIG--and what the Fed is doing--and said, &quot;<strong>Overall, the combination of the incoming data and recent financial developments suggests that the outlook for economic growth has worsened and that the downside risks to growth have increased.</strong>&quot;  </p>
+
+<p>Eep! The Dow <a href="https://web.archive.org/web/20110611063320/http://www.cnbc.com/id/27071886">ended the day down 5%</a>--down 508 points to end at 9,447--while the Nasdaq was down 5.8% and S&amp;P; 500 loves 5.74%.   But Bernanke did end with, &quot;I believe that the bold actions taken by the Congress, the Treasury, the Federal Reserve, and other agencies, together with the natural recuperative powers of the financial markets, will lay the groundwork for financial and economic recovery,&quot; so it&apos;s all better, right?</p>
+
+<p>It&apos;s believed the Fed <a href="https://web.archive.org/web/20110611063320/http://www.nytimes.com/2008/10/08/business/economy/08bernanke.html?hp">may lower the interest rate</a> at its meeting in three weeks.  However, <a href="https://web.archive.org/web/20110611063320/http://www.cnbc.com/id/27070225">CNBC reports</a> &quot;Many Fed officials had argued that lowering rates further would do little to spur economic activity while credit is jammed, and they have warned that with inflation already at worrisome levels, easier borrowing terms could set the stage for problems when the economy picks up.&quot;</p>

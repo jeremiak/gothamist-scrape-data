@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: September 24, 2008  8:07 AM
+title: Toys for Tots Drug Smuggling 
+---
+
+<p><img alt="2008_09_duplo.jpg" src="https://web.archive.org/web/20110811102902im_/http://gothamist.com/attachments/jen/2008_09_duplo.jpg" width="130" height="108" class="right">Nine people were <a href="https://web.archive.org/web/20110811102902/http://www.ny1.com/content/top_stories/86185/nine-accused-of-using-toys-to-smuggle-drugs-into-city/Default.aspx">arrested for allegedly smuggling cocaine</a> inside children&apos;s toy packaging.  NY1 reports  that &quot;four kilograms of cocaine, four handguns, and more than $86,000&quot; during the investigation. The suspects pleaded not guilty to charges including drug possession and money laundering; a prosecutor said, &quot;We&apos;re investigating whether they were paid in cocaine.&quot;  One employee worked in a check-cashing facility, and it&apos;s believed he laundered hundreds of thousands of dollars there, and the ringleader allegedly wired the money back to Puerto Rico.  As for the smuggling, the DEA says kilos of coke were &quot;concealed inside children&#x2019;s toy tool boxes and large building toy container boxes&quot; and then &quot;the organization used United States Postal Service Express Mail to make deliveries to drop off addresses in Manhattan and the Bronx.&quot;</p>

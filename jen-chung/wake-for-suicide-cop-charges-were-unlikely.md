@@ -1,0 +1,17 @@
+---
+author: Jen Chung
+date: Oct 4, 2008 4:33 pm
+title: Wake for Suicide Cop; Charges Were Unlikely
+---
+
+	
+										<p><img src="https://web.archive.org/web/20140606142451im_/http://gothamist.com/attachments/jen/2008_10_tasertrag.jpg" class="left">The wake for NYPD Lieutenant Michael Pigott, who <a href="https://web.archive.org/web/20140606142451/http://gothamist.com/2008/10/03/esu_cop_worried_he_disgraced_his_fa.php">killed himself on Thursday</a>, is being <a href="https://web.archive.org/web/20140606142451/http://www.newsday.com/news/local/suffolk/ny-licop1004,0,6983636.story">held in Islip, Long Island</a> today and tomorrow, with funeral service on Monday.  Pigott shot himself in the head at Emergency Service Unit headquarters, apparently racked with guilt and worry after his command led to the <a href="https://web.archive.org/web/20140606142451/http://gothamist.com/2008/09/25/after_cop_tasers_him_naked_man_fall.php">fatal Tasering of emotionally disturbed man</a>, Iman Morales, in Brooklyn on September 24.  </p>
+
+<p>However, the Brooklyn DA&apos;s office said they <a href="https://web.archive.org/web/20140606142451/http://www.newsday.com/news/local/ny-litase0412028873oct04,0,2212005.story">weren&apos;t thinking about charging him with a crime</a>.  DA Charles Hynes said, &quot;We never thought this was anything other than the conclusion reached by the NYPD that the action taken failed to follow departmental guidelines leading to a tragic mistake.&quot;  A <a href="https://web.archive.org/web/20140606142451/http://www.nypost.com/seven/10042008/news/regionalnews/suicide_cop_was_facing_no_rap__d_a__132074.htm">colleague thinks</a> the Pigott believed Morales, who was standing naked on a storefront ledge, waving an 8-foot fluorescent light bulb at ESU officers, would buckle forward, not fall on his head.</p>
+
+<p>The <a href="https://web.archive.org/web/20140606142451/http://www.nydailynews.com/news/2008/10/03/2008-10-03_suicidecops_kin_shun_police_commissioner-2.html">Daily News reports</a> the Pigott &quot;family blames Kelly and Assistant Chief Charles Kammerdener for scapegoating the oft-decorated officer despite 21 exceptional years of service, sources said.&quot;  Sources also say the NYPD hasn&apos;t been helping with funeral arrangements &quot;to allow maximum turnout,&quot; as they do for other police officer deaths.  And a detective <a href="https://web.archive.org/web/20140606142451/http://www.nytimes.com/2008/10/04/nyregion/04taser.html?ref=nyregion">told the NY Times</a> that Pigott was hurt when he was reassigned to the Queens Central Repair Shop and his badge and gun were stripped during the investigation, &#x201C;He had his heart in the job. <strong>When they pulled the carpet out from under him, it destroyed his whole world.</strong>&#x201D;</p>
+
+<p>As for Morales&apos;s family, they expressed their sorrow for the Pigott family.  Morales&apos;s mother Olga Negron said, &quot;I can&apos;t imagine how his wife is feeling, and what his three children are going through. We all make mistakes,&quot; and his younger brother said, &quot;We feel for [Pigott&apos;s] family. I lost a brother, and his children lost a father. It&apos;s a double tragedy.&quot;</p>					
+										
+									
+				

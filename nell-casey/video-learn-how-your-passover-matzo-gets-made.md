@@ -1,0 +1,19 @@
+---
+author: Nell Casey
+date: Mar 21, 2013 4:16 pm
+title: Video: Learn How Your Passover Matzo Gets Made
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="032113matzo.jpg" src="https://web.archive.org/web/20150404230659im_/http://gothamist.com/attachments/nyc_nellcasey/032113matzo.jpg" width="640" height="480"> <br> <i> <span class="photo_caption">(<a href="https://web.archive.org/web/20150404230659/http://www.flickr.com/photos/nyer82/4439723558/">nyer82</a>/Flickr)</span></i></div> <p></p>
+
+<p>With Passover beginning just a weekend away, lots of attention is being given to matzo, the ubiquitous unleavened bread eaten during Passover Seder meal and throughout the holiday to replace traditional breads. Jewish or not, we&apos;ve likely all eaten matzo in one form or another, either in some delicious soup from our <a href="https://web.archive.org/web/20150404230659/http://gothamist.com/2013/02/27/the_best_diners_in_new_york_city.php">favorite diner</a> or perhaps a version of matzo pizza in a college dining hall. Regardless, the ingredients in the bread are deceptively simple&#x2014;water and flour&#x2014;but the strict guidelines under which the bread is made and the religious implications involved are anything but.</p>
+
+<p>A Crown Heights matzo maker Shmurah Matzah Bakery, <a href="https://web.archive.org/web/20150404230659/http://www.dnainfo.com/new-york/20130321/crown-heights/retro-crown-heights-matzo-makers-take-handmade-extreme-for-passover">profiled by DNAinfo</a> today, uses a technique virtually unchanged for centuries. Under the watchful gaze of a rabbi, bakers form a human assembly line to mix the ingredients, mold the dough and bake the bread. Some pour water and flour into a silver bowl so that Pinny, an Israeli baker, can pound the dough into a ball; others shape and cut the dough; while still more roll out and puncture the dough rounds with dowels. Finally the dough is baked in a brick oven in a rapid one minute. The entire process&#x2014;from when the water first hits the flour to the time to matzo is retrieved from the oven&#x2014;can take no more than 18 minutes, otherwise the matzo is rendered <em>chametz</em>, or not kosher for Passover.</p>
+
+<p>At the other end of the spectrum, giant Jewish food purveyor <a href="https://web.archive.org/web/20150404230659/http://www.manischewitz.com/">Manischewitz</a> uses an <a href="https://web.archive.org/web/20150404230659/http://video.forward.com/video/How-to-Make-31000-Boxes-of-Mani">elaborate machine</a> to crank out their square-shaped matzo. To make 31,000 boxes of matzo, Manischewitz uses 25 tons of flour and 2,000 gallons of water, plus 23 workers to keep the assembly moving and five rabbis to monitor the process. And while both methods follow strict rules for kosher for Passover&#x2014;including overseeing by rabbis and the strict 18 minute time limit&#x2014;Manischewitz certainly takes the cracker when it comes to sheer volume. Check out the entire process, filmed by The Jewish Daily Forward, below:</p>
+
+<p><iframe src="https://web.archive.org/web/20150404230659if_/http://player.vimeo.com/video/62282000?title=0&amp;byline=0&amp;portrait=0" width="640" height="360" frameborder="0" webkitallowfullscreen="" mozallowfullscreen="" allowfullscreen></iframe> </p><p><a href="https://web.archive.org/web/20150404230659/http://vimeo.com/62282000">How to Make 31,000 Boxes of Manischewitz Matzo</a> from <a href="https://web.archive.org/web/20150404230659/http://vimeo.com/forward">Jewish Daily Forward</a> on <a href="https://web.archive.org/web/20150404230659/http://vimeo.com/">Vimeo</a>.</p><p></p>					
+										
+									
+				

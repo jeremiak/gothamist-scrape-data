@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: October  7, 2008 11:57 AM
+title: WTC Memorial Open for 9/11/11, Then Close for More Work
+---
+
+<p><img alt="2008_10_wtcm.jpg" src="https://web.archive.org/web/20110611053317im_/http://gothamist.com/attachments/jen/2008_10_wtcm.jpg" width="137" height="107" class="right">Sure, the Port Authority has promised that the World Trade Center Memorial <a href="https://web.archive.org/web/20110611053317/http://gothamist.com/2008/09/26/911_memorial_can_be_done_by_2011_of.php">will be open for 10th anniversary events</a>, but it will <a href="https://web.archive.org/web/20110611053317/http://www.nypost.com/seven/10072008/news/regionalnews/further_delay_on_wtc_shrine_132529.htm">close for another year</a> of construction right after.  Port Authority Executive Director Chris Ward, who just last week <a href="https://web.archive.org/web/20110611053317/http://gothamist.com/2008/10/02/port_authoritys_new.php">released &quot;probabilistic&quot; timelines</a> for various Ground Zero projects, testified in front of the City Council and revealed that the memorial&apos;s plaza wouldn&apos;t open <a href="https://web.archive.org/web/20110611053317/http://www.nydailynews.com/news/2008/10/06/2008-10-06_port_authority_says_911_memorial_at_grou.html">until late 2012</a>.  And when City Councilman Alan Gerson asked, &quot;Will any part of the site be generally open to the public to simply walk into without prescheduling?&quot; Ward replied it would be &quot;unlikely.&quot;  Maybe by the 15th anniversary, then?</p>

@@ -1,0 +1,13 @@
+---
+author: Jen Chung
+date: May  6, 2010  5:01 PM
+title: Did Trader's Mistake Cause Wall Street's Big Drop?
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:290px; "> <img alt="2010_05_wallstreetdrop.jpg" src="https://web.archive.org/web/20111016053633im_/http://gothamist.com/attachments/jen/2010_05_wallstreetdrop.jpg" width="290" height="208"> <br> <i>Photograph of traders on the floor of the NYSE from the AP</i></div> So, that <a href="https://web.archive.org/web/20111016053633/http://gothamist.com/2010/05/06/dow_falls_900_points_amid_europe_wo.php">nearly 1,000 point drop in the Dow</a> earlier today?  Sure, there are worries about the debt situation in Europe, but the flashback to 2008 could have been due to a trader&apos;s error.  The <a href="https://web.archive.org/web/20111016053633/http://online.wsj.com/article/SB10001424052748704370704575227754131412596.html?mod=WSJ_hpp_LEADNewsCollection">Wall Street Journal reports</a>, &quot;Several market watchers said they heard a major firm may have accidentally released an errant program, where a trader accidentally placed an order to <strong>sell $16 billion, instead of $16 million</strong>, worth of e-minis, the futures contracts tied to equity indexes.&quot;  <p></p>
+
+<p>And <a href="https://web.archive.org/web/20111016053633/http://www.cnbc.com/id/36999483">CNBC says</a>, &quot;According to multiple sources, a trader entered a &apos;b&apos; for billion instead of an &apos;m&apos; for million in a trade possibly involving Procter &amp; Gamble, a component in the Dow.&quot; Speculation is that a trader from Citigroup made the mistake, but &quot;The bank said it has no evidence of a bad trade but is investigating the situation.&quot;  Dealbreaker is <a href="https://web.archive.org/web/20111016053633/http://dealbreaker.com/2010/05/live-blogging-the-citi-conference-call/">liveblogging a Citi conference call</a>&#x2014;&quot;We have not found any info that would lead us to believe we were involved in a technical error.&quot;</p>
+
+<p>P&amp;G; was trading at around $60 and suddenly fell to $39.37; the WSJ explains, &quot;The New York Stock Exchange said each stock has its own circuit breaker level. When these stocks fall below their levels, then they can be traded on any other exchange or platform at any price. When P&amp;G; fell below its circuit breaker, a bid came in for the stock at $39.37 from the Nasdaq, the NYSE said.&quot;</p>
+
+<p>The Dow <a href="https://web.archive.org/web/20111016053633/http://www.nytimes.com/2010/05/07/business/07markets.html?ref=business">closed down 347 points</a> to 10,520.32.</p>

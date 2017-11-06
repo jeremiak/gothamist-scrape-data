@@ -1,0 +1,31 @@
+---
+author: Jen Carlson
+date: Mar 14, 2017 12:40 pm
+title: Meanwhile, Upstate NY Homes Are Beautifully Coated In Ice
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="php4yesxeAM.jpg" src="https://web.archive.org/web/20170318160009im_/http://gothamist.com/attachments/arts_jen/php4yesxeAM.jpg" width="640" height="426" class="image-none"> </span><br>
+<span class="photo_caption">(Photo by <a href="https://web.archive.org/web/20170318160009/https://www.facebook.com/JohnKuckoDigital/">John Kucko</a>)</span></p>
+
+<p>The blizzard <a href="https://web.archive.org/web/20170318160009/http://gothamist.com/2017/03/14/march_blizzard_falls_short.php">may be cancelled</a> in NYC, which has been left with a cruel wintry mix soundtracked by <a href="https://web.archive.org/web/20170318160009/http://gothamist.com/2017/03/14/thundersnow_pr0n.php">thundersnow</a>, but other regions of the state are transforming into winter wonderlands. And <em>other</em> areas are literally frozen. Take Webster, NY, for example, where the effects of heavy wind just off Lake Ontario this week left homes encased in ice. </p>
+
+<blockquote class="twitter-video" data-lang="en"><p lang="en" dir="ltr">Deep Freeze: It has been an epic last few days in <a href="https://web.archive.org/web/20170318160009/https://twitter.com/hashtag/WNY?src=hash">#WNY</a> and on Lake Ontario <a href="https://web.archive.org/web/20170318160009/https://twitter.com/hashtag/IceHouse?src=hash">#IceHouse</a> <a href="https://web.archive.org/web/20170318160009/https://twitter.com/spann">@spann</a> <a href="https://web.archive.org/web/20170318160009/https://twitter.com/JimCantore">@JimCantore</a> <a href="https://web.archive.org/web/20170318160009/https://twitter.com/StormHour">@StormHour</a> <a href="https://web.archive.org/web/20170318160009/https://twitter.com/WizardWeather">@WizardWeather</a> <a href="https://web.archive.org/web/20170318160009/https://twitter.com/I_LOVE_NY">@I_LOVE_NY</a> <a href="https://web.archive.org/web/20170318160009/https://t.co/isSRWZYir2">pic.twitter.com/isSRWZYir2</a></p>&#x2014; John Kucko (@john_kucko) <a href="https://web.archive.org/web/20170318160009/https://twitter.com/john_kucko/status/841003338925776898">March 12, 2017</a></blockquote>
+<script async src="//web.archive.org/web/20170318160009js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
+<p>These photos were taken by WROC news anchor John Kucko at 9:10 a.m. on Monday morning, and of course quickly went viral. Typically you only see something like this when there&apos;s <a href="https://web.archive.org/web/20170318160009/http://chicagoist.com/2013/01/23/in_pictures_dramatic_photos_of_chic.php#photo-1">a fire during a snowstorm</a>. </p>
+
+<p>The iced-up row of homes <a href="https://web.archive.org/web/20170318160009/http://www.democratandchronicle.com/story/news/2017/03/13/webster-homes-made-into-ice-palaces/99114332/">reportedly</a> &quot;had back doors untouched by the ice, although windows and other entrances were sealed shut.&quot; The ice formations appeared after last week&apos;s windstorm, which was extreme even by local standards. &quot;We don&apos;t usually get this kind of intensity,&quot; <a href="https://web.archive.org/web/20170318160009/http://buffalonews.com/2017/03/13/rochesters-ice-house-trump-buffalos-ice-car/">Kucko said</a> of the conditions.</p>
+
+<p>Currently, the area is being covered in snow, and could end up with 22 inches by tomorrow. Kucko&#x2014;who <a href="https://web.archive.org/web/20170318160009/http://www.cnn.com/2017/03/13/weather/house-frozen-trnd/">told CNN</a> the home he captured is a remote beach house around 25-feet from Lake Ontario&#x2014;told us he will likely return to document the homes again after the snowfall.</p>
+
+<p>Move over, <a href="https://web.archive.org/web/20170318160009/http://gothamist.com/2011/01/23/paging_audi_owner_your_car_is_cover.php">ice car</a>... and <a href="https://web.archive.org/web/20170318160009/http://galleries.buffalonews.com/default.aspx?id=5491#/0">other ice car</a>.</p>
+
+<center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">And the house right next door to the <a href="https://web.archive.org/web/20170318160009/https://twitter.com/hashtag/IceHouse?src=hash">#IceHouse</a>?  Well, you get the idea.  Brutal cold on Lake Ontario in <a href="https://web.archive.org/web/20170318160009/https://twitter.com/hashtag/WNY?src=hash">#WNY</a> <a href="https://web.archive.org/web/20170318160009/https://twitter.com/spann">@spann</a> <a href="https://web.archive.org/web/20170318160009/https://twitter.com/JimCantore">@JimCantore</a> <a href="https://web.archive.org/web/20170318160009/https://twitter.com/StormHour">@StormHour</a> <a href="https://web.archive.org/web/20170318160009/https://t.co/2fSVn2WGTh">pic.twitter.com/2fSVn2WGTh</a></p>&#x2014; John Kucko (@john_kucko) <a href="https://web.archive.org/web/20170318160009/https://twitter.com/john_kucko/status/841308340349210624">March 13, 2017</a></blockquote>
+<script async src="//web.archive.org/web/20170318160009js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">Wow, didn&apos;t expect THIS reaction!  <a href="https://web.archive.org/web/20170318160009/https://twitter.com/hashtag/IceHouse?src=hash">#IceHouse</a> has no retaining wall on Lake Ontario (just rocks), neighbors do <a href="https://web.archive.org/web/20170318160009/https://twitter.com/spann">@spann</a> <a href="https://web.archive.org/web/20170318160009/https://twitter.com/JimCantore">@JimCantore</a> <a href="https://web.archive.org/web/20170318160009/https://twitter.com/StormHour">@StormHour</a> <a href="https://web.archive.org/web/20170318160009/https://t.co/4izLsN4TWh">pic.twitter.com/4izLsN4TWh</a></p>&#x2014; John Kucko (@john_kucko) <a href="https://web.archive.org/web/20170318160009/https://twitter.com/john_kucko/status/841233514133622784">March 13, 2017</a></blockquote>
+<script async src="//web.archive.org/web/20170318160009js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>					
+										
+									
+				

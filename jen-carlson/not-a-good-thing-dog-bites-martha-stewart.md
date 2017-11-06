@@ -1,0 +1,9 @@
+---
+author: Jen Carlson
+date: January 14, 2011  3:13 PM
+title: Not A Good Thing: Dog Bites Martha Stewart
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="marthastitches011311.jpg" src="https://web.archive.org/web/20110412174910im_/http://gothamist.com/attachments/arts_jen/marthastitches011311.jpg" width="195" height="170" class="image-left"> </span>While preparing to leave her New York home earlier this week, Martha Stewart leaned down to whisper a goodbye into her dog Francesca&apos;s ear&#x2014;and <a href="https://web.archive.org/web/20110412174910/http://www.tmz.com/2011/01/13/martha-stewart-bloody-mouth-after-dog-heabutt-pictures-photos-stitches/">TMZ</a> reports it&apos;s a move that landed her in the hospital! The domestic goddess startled her French bulldog, who was sleeping at the time, and says &quot;She bolted upright with such force that she hit me in the face like a boxing glove hitting an opponent&#x2019;s face. I was entirely startled and my neck snapped back. I felt a bit of whiplash as blood gushed forth from my split lip.&#x201D; Stewart had her driver bring her to the hospital, where she received nine stitches. Nothing <a href="https://web.archive.org/web/20110412174910/http://gothamist.com/2010/09/16/video_martha_stewarts_visits_willia.php">a few cocktails</a> won&apos;t cure!</p>
+
+<p>In case you were wondering how Martha would document an emergency room experience... she would document it with no less, and no more, than <a href="https://web.archive.org/web/20110412174910/http://www.themarthablog.com/2011/01/my-emergency-room-experience.html">34 photographs</a>, and 308 words. But what we really want to know is her secret to such amazing skin: this is the face of a 69-year-old woman!</p>

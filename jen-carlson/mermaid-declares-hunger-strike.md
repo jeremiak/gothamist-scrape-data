@@ -1,0 +1,15 @@
+---
+author: Jen Carlson
+date: Jun 19, 2008 2:56 pm
+title: Mermaid Declares Hunger Strike!
+---
+
+	
+										<p><img alt="0806splash.jpg" src="https://web.archive.org/web/20160312154926im_/http://gothamist.com/attachments/arts_jen/0806splash.jpg" width="300" height="208" class="right"><a href="https://web.archive.org/web/20160312154926/http://gothamist.com/2007/10/16/reverend_billy_1.php">Reverend Billy</a> and Savitri D have been named King Neptune and Queen Mermaid of the <a href="https://web.archive.org/web/20160312154926/http://www.coneyisland.com/mermaid.shtml">2008 Coney Island Mermaid Parade</a>, taking place this Saturday, and they&apos;re using their power to save Coney &quot;from the gentrifying apocalypse of RETAIL ENTERTAINMENT HELL!&quot; But as they say, No pain, No Gain -- and in order to help their cause, the Queen Mermaid has <a href="https://web.archive.org/web/20160312154926/http://www.coneyisland.com/cgi-bin/yabb/YaBB.cgi?num=1213880179">declared a hunger strike</a>.</p><blockquote>The Queen Mermaid will refuse to go back in the ocean! She will initiate a hunger strike during the parade, and will live in a window on Surf Ave and West 12th from <a href="https://web.archive.org/web/20160312154926/http://www.mermaidparadeball.com/">the Mermaid Ball</a> until the critical scoping meeting on June 24th at 6 pm. She is fasting to draw attention to a destructive scheme to reduce 60 acres of amusements to 9. She is fasting so YOU will come to this meeting, where the fate of Coney Island may be determined.</blockquote>The meeting is next Tuesday at 6 p.m. at Lincoln High School [2800 Ocean Parkway]. You can visit the mermaid in person or keep an eye on her online <a href="https://web.archive.org/web/20160312154926/http://revbilly.com/mermaid">here</a>, starting 10 a.m. this Sunday.<p></p>
+
+<p>The <a href="https://web.archive.org/web/20160312154926/http://gothamist.com/2008/06/09/mayor_of_coney.php">former &quot;Mayor&quot; of Coney Island</a>, Dick Zigun, has a piece <a href="https://web.archive.org/web/20160312154926/http://www.nydailynews.com/opinions/2008/06/19/2008-06-19_coney_island_surf_should_remain_working_.html">in the Daily News</a> today regarding the threatening grasp the city has on area. He states, in part, that the city &quot;presented a new plan with no hearings, no public input and not even an opportunity for directors of the CIDC to discuss it. The <a href="https://web.archive.org/web/20160312154926/http://www.nytimes.com/imagepages/2008/04/17/nyregion/17coneygraphic.ready.html">new plan</a> would allow four hotel towers south of Surf Ave. in the amusement area, including one that would block the view of the landmarked Wonder Wheel from the subway.&quot; The plan is the focus of the hearing next week.</p>
+
+<p><span class="photo_caption">Pictured: Daryl Hannah in Splash.</span></p>					
+										
+									
+				

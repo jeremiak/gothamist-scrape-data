@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: April 15, 2010  3:33 PM
+title: Judge: Man Can't Rent Vacation Home Near Ex-Wife
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2010_04_pocnoso.jpg" src="https://web.archive.org/web/20120501224105im_/http://gothamist.com/attachments/jen/2010_04_pocnoso.jpg" width="110" height="80" class="image-right"> </span><a href="https://web.archive.org/web/20120501224105/http://www.nypost.com/p/news/local/manhattan/judge_hubby_can_rent_near_ex_wife_7ZNxBqbIHJDbGJ2RSvJdzI?CMP=OTC-rss&amp;FEEDNAME=">According to the Post</a>, a Manhattan divorce judge issued a &quot;whopping 20-year order of protection&quot; against Jay Weiner for renting a Poconos vacation home &quot;on the edge of his ex-wife&apos;s [vacation home] back lawn.&quot; Justice Matthew Cooper wrote, &quot;A short walk through the woods would bring him to the edge of her back lawn, where he could stand and stare into her home -- under cover of darkness or hidden by the trees -- seeing what she is doing, what she is wearing, who she is with.&quot; Weiner, who allegedly mentally abused ex-wife Edie, pointed out they both live blocks away from each other in Kips Bay &quot;If I&apos;m an eighth of a mile away from her everyday in the city, why can&apos;t I be a half-mile away from her in the country?&quot;  He also explained he rented the vacation home because he came to love the area when they both vacationed there together.</p>

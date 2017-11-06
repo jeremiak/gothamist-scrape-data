@@ -1,0 +1,10 @@
+---
+author: Jen Carlson
+date: December 26, 2007  5:01 PM
+title: Watch Out West Village, Courtney Love is Coming to Town
+---
+
+<p><img alt="2007_12_lovefb.jpg" src="https://web.archive.org/web/20110611063338im_/http://gothamist.com/attachments/jen/2007_12_lovefb.jpg" width="220" height="295" class="right">Courtney Love wished us all a belated Merry Christmas today via <a href="https://web.archive.org/web/20110611063338/http://blog.myspace.com/index.cfm?fuseaction=blog.view&amp;friendID=165705423&amp;blogID=341449146">her MySpace blog</a> (which we don&apos;t normally check in on, but thankfully <a href="https://web.archive.org/web/20110611063338/http://curbed.com/archives/2007/12/26/west_villagers_run_for_your_lives.php">Curbed</a> was on the ball). What did Santa bring her? An apartment in the West Village! So really, it&apos;s like a present for us all. She stated, in perfectly readable English:</p><blockquote>i think/hope we foundteh PERFECT plaCE, its a w village 4 floor house 2 floors are being rented by the owners, itllcost ...alot...to returjn it to a house biut fbc doesnt need to have all that space til she moves here at 18 and its a great invesment. </blockquote>Translation: C.Lo, or just her daughter Frances Bean...or both(!), are moving to the city. <p></p>
+
+<p>Expect the <a href="https://web.archive.org/web/20110611063338/http://gothamist.com/2004/03/19/for_the_love_of_paparazzi.php">paparazzi</a> to stake out the joint sometime by Bean&apos;s 18th birthday, which is just a few years away. Plenty of time to kick out the current tenants and &quot;returjn it to a house.&quot; Don&apos;t feel bad for those tenants though, there was a 99% chance they would have been <a href="https://web.archive.org/web/20110611063338/http://gothamist.com/2004/07/10/courtney_love_finally_goes_to_bellevue.php">hit by bottles</a> if they were able to stay.<br>
+</p>

@@ -1,0 +1,13 @@
+---
+author: Jen Chung
+date: September 18, 2008  1:36 PM
+title: Maybe the Most Amazing Mayoral Campaign Ad EVER!
+---
+
+<center><object width="425" height="344"><param name="movie" value="http://www.youtube.com/v/XrydIP-StAQ&amp;color1=0xb1b1b1&amp;color2=0xcfcfcf&amp;hl=en&amp;fs=1"><param name="allowFullScreen" value="true"><embed src="https://web.archive.org/web/20111117124306oe_/http://www.youtube.com/v/XrydIP-StAQ&amp;color1=0xb1b1b1&amp;color2=0xcfcfcf&amp;hl=en&amp;fs=1" type="application/x-shockwave-flash" allowfullscreen="true" width="425" height="344"></object></center>
+
+<p><a href="https://web.archive.org/web/20111117124306/http://www.panynj.gov/abouttheportauthority/governance/BoardofCommissioners/">Port Authority commissioner</a> Bruce Blakeman wants to be mayor in 2009.  We know this because we&apos;ve <a href="https://web.archive.org/web/20111117124306/http://www.newsday.com/services/newspaper/printedition/monday/longisland/ny-pojani155844355sep15,0,4276795.story">read the news stories</a> and we know this because his talking dog tells us.  </p>
+
+<p>Seriously--check out his new video (above) that&apos;s on air, <a href="https://web.archive.org/web/20111117124306/http://www.observer.com/2008/politics/bruce-blakeman-and-his-talking-dog">according to the Observer&apos;s Azi Paybarah</a>.  He writes, &quot;It&apos;s been causing a stir among political operatives who have already seen it on the air. Blakeman&apos;s campaign was kind enough to send me a copy of it upon first request.&quot;  It&apos;s like a <a href="https://web.archive.org/web/20111117124306/http://www.youtube.com/watch?v=cMD_5_dEO9E">reverse UBU</a>!</p>
+
+<p>Blakeman, a <a href="https://web.archive.org/web/20111117124306/http://www.abramslaw.com/bio/BruceBlakeman.asp">lawyer</a> who is also known these days as the separated husband of <a href="https://web.archive.org/web/20111117124306/http://gothamist.com/2008/08/11/mccartney_and_shevell_getting_their.php">Nancy Shevell who is dating Paul McCartney</a>, is <a href="https://web.archive.org/web/20111117124306/http://www.nydailynews.com/blogs/dailypolitics/2008/09/rudy-mikebruce.html">running for the Republican spot</a> on the ballot.  And that would pit him against John Catsimatidis, of the Gristede&apos;s fortune.  All we can really say is watch your ass, <a href="https://web.archive.org/web/20111117124306/http://disney.go.com/disneypictures/beverlyhillschihuahua/">Beverly Hills Chihuahua</a>!  </p>

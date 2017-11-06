@@ -1,0 +1,26 @@
+---
+author: Nell Casey
+date: Feb 26, 2016 1:40 pm
+title: This Pizzeria Sells Slices Topped With Cold Cheese
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="022516vincent1.jpg" src="https://web.archive.org/web/20171031150339im_/http://gothamist.com/attachments/nyc_nellcasey/022516vincent1.jpg" width="640" height="480"> <br> <i> (via <a href="https://web.archive.org/web/20171031150339/https://foursquare.com/v/little-vincents-pizza/4a961a7df964a520072620e3/photos">Foursquare</a>)</i></div> <p></p>
+
+<p>A trip out to Long Island may not have been on everyone&apos;s agenda this weekend, but it might be time, since it&apos;s where you&apos;ll be able to eat a piece of pizza innovation beyond our wildest dreams: the Cold Cheese Slice. Little Vincent&#x2019;s Pizza in Huntington, LI plucks a regular cheese slice from the oven and then tops it with a handful of cold, shredded mozzarella. It&apos;s so simple, it&apos;s so beautiful, it&apos;s so what I want to shove in my mouth hole right now.</p>
+
+<p>The Cold Cheese Slice isn&apos;t a newfangled idea the pizzeria came up with to court Instagram fame. Little Vincent&apos;s has been slinging the slices since the late &apos;80s, inspired by an upstate pizzeria that was doing the same. It&apos;s an inspired creation for several reasons <a href="https://web.archive.org/web/20171031150339/http://www.thedailymeal.com/little-vincents-cold-cheese-slice">outlined by the Daily Meal</a> during a visit in 2010:</p>
+
+<blockquote>First, more is better. Second, oil usually removed by holding your slice tip-down, disappears&#x2014; absorbed by cold cheese. Third, the introduction of cold cheese to the residual heat of a piping hot slice creates taste and texture nuances not usually experienced. There isn&#x2019;t enough heat in even the freshest slice to melt all the extra cheese. But it does introduce three cheese stages to the eating experience: melted, beginning to melt, and cold cheese.</blockquote>
+
+<p>Sold.</p>
+
+<p>It&apos;s a well-known special among the pizza cognoscenti, including Adam Kuban, the pizza expert and maker of <a href="https://web.archive.org/web/20171031150339/http://gothamist.com/2014/08/21/bar_pies_adam_kuban.php">excellent bar pies</a> with <a href="https://web.archive.org/web/20171031150339/http://margotspizza.com/">Margot&apos;s Pizza</a>. It looks like Kuban&apos;s even doing a pizza inspired by the Cold Cheese Slice at his <a href="https://web.archive.org/web/20171031150339/http://margotspizza.com/#schedule">occasional pop-ups</a> at Emily Pizza in Clinton Hill. </p>
+
+<blockquote class="instagram-media" data-instgrm-captioned="" data-instgrm-version="6" style=" background:#FFF; border:0; border-radius:3px; box-shadow:0 0 1px 0 rgba(0,0,0,0.5),0 1px 10px 0 rgba(0,0,0,0.15); margin: 1px; max-width:658px; padding:0; width:99.375%; width:-webkit-calc(100% - 2px); width:calc(100% - 2px);"><div style="padding:8px;"> <div style=" background:#F8F8F8; line-height:0; margin-top:40px; padding:50.0% 0; text-align:center; width:100%;"> <div style=" background:url(data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAACwAAAAsCAMAAAApWqozAAAAGFBMVEUiIiI9PT0eHh4gIB4hIBkcHBwcHBwcHBydr+JQAAAACHRSTlMABA4YHyQsM5jtaMwAAADfSURBVDjL7ZVBEgMhCAQBAf//42xcNbpAqakcM0ftUmFAAIBE81IqBJdS3lS6zs3bIpB9WED3YYXFPmHRfT8sgyrCP1x8uEUxLMzNWElFOYCV6mHWWwMzdPEKHlhLw7NWJqkHc4uIZphavDzA2JPzUDsBZziNae2S6owH8xPmX8G7zzgKEOPUoYHvGz1TBCxMkd3kwNVbU0gKHkx+iZILf77IofhrY1nYFnB/lQPb79drWOyJVa/DAvg9B/rLB4cC+Nqgdz/TvBbBnr6GBReqn/nRmDgaQEej7WhonozjF+Y2I/fZou/qAAAAAElFTkSuQmCC); display:block; height:44px; margin:0 auto -44px; position:relative; top:-22px; width:44px;"></div></div> <p style=" margin:8px 0 0 0; padding:0 4px;"> <a href="https://web.archive.org/web/20171031150339/https://www.instagram.com/p/BCDnE3hmpmK/" style=" color:#000; font-family:Arial,sans-serif; font-size:14px; font-style:normal; font-weight:normal; line-height:17px; text-decoration:none; word-wrap:break-word;" target="_blank">Post-oven sottocenere truffled cheese is a nod to Little Vincent&apos;s &quot;cold cheese&quot; slice. Don&apos;t know cold cheese slice? Google it</a></p> <p style=" color:#c9c8cd; font-family:Arial,sans-serif; font-size:14px; line-height:17px; margin-bottom:0; margin-top:8px; overflow:hidden; padding:8px 0 7px; text-align:center; text-overflow:ellipsis; white-space:nowrap;">A photo posted by Margot&apos;s Pizza (@margotspizza) on <time style=" font-family:Arial,sans-serif; font-size:14px; line-height:17px;" datetime="2016-02-21T17:18:12+00:00">Feb 21, 2016 at 9:18am PST</time></p></div></blockquote>
+<script async defer src="//web.archive.org/web/20171031150339js_/http://platform.instagram.com/en_US/embeds.js"></script>
+<br><br>
+So are you sold on the Cold Cheese Slice? Will the siren&apos;s call of dairy dreams lure you out to Strong Island? If you go, please <a href="https://web.archive.org/web/20171031150339/http://gothamist.com/2016/02/26/cocaine_hoohah.php">smuggle some back for me</a>.					
+										
+									
+				

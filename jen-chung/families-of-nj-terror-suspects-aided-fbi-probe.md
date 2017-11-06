@@ -1,0 +1,17 @@
+---
+author: Jen Chung
+date: Jun 7, 2010 10:30 am
+title: Families Of NJ Terror Suspects Aided FBI Probe
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="2010_06_almontehouse.jpg" src="https://web.archive.org/web/20150408141707im_/http://gothamist.com/attachments/jen/2010_06_almontehouse.jpg" width="640" height="425"> <br> <i>Photographs of Almonte&apos;s house, above, and Alessa&apos;s house, below, by Joe Epstein/AP</i></div> <p></p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2010_06_alessahouse.jpg" src="https://web.archive.org/web/20150408141707im_/http://gothamist.com/attachments/jen/2010_06_alessahouse.jpg" width="280" height="225" class="image-left"> </span>The two NJ men who were <a href="https://web.archive.org/web/20150408141707/http://gothamist.com/2010/06/06/two_men_with_alleged_terror_ties_ar.php">arrested at JFK Airport and accused of terrorism</a> will be arraigned today in a Newark federal court.  Mohamed Hamoud Alessa, 20, and Carlos Almonte, 24, were about to board separate flights to Egypt and then travel to Somalia to join a violent extremist group and ultimately kill American troops.  The men allegedly <a href="https://web.archive.org/web/20150408141707/http://www.nydailynews.com/ny_local/2010/06/06/2010-06-06_alleged_plotters_words_i_wanna_like_be_the_worlds_known_terrorist.html/index.html">spoke to an undercover NYPD officer</a> about their plans: Almonte said, &quot;I was born here, you know, raised here. I just want the [American] troops to come home safely and cozily... in caskets,&quot; while Alessa added, &quot;Sliced up in 1,000 pieces, cozy in the grave, in hell.&quot;</p>
+
+<p>In another conversation, <a href="https://web.archive.org/web/20150408141707/http://www.nypost.com/p/news/local/feds_nypd_two_would_undercover_new_nZdEEeTE4a6IGnw2x5hwoK">Alessa allegedly said</a>, &quot;[American troops] only fear you when you have a gun and when you ... when you start killing them, and when you ... when you take their head, and you go like this, and you behead it on camera. We&#x2019;ll start killing here, if I can&#x2019;t do it over there,&quot; and the next day he said, &quot;I leave this time, God willing. I never come back. I&#x2019;ll never see this crap hole. Only way I would come back here is if I was in the land of jihad and the leader ordered me to come back here and do something here. Ah, I love that.&quot;</p>
+
+<p>The <a href="https://web.archive.org/web/20150408141707/http://www.nj.com/news/index.ssf/2010/06/families_of_nj_men_accused_in.html">Star-Ledger reports</a> that the men&apos;s families tipped off the authorities about Almonte&apos;s and Alessa&apos;s growing extremism, noting how Almonte&apos;s father hugged agents and Alessa&apos;s father shook one&apos;s hand when their homes were raided. Alessa, whose family is Palestinian and lived in a North Bergen duplex for years, &quot;used to be really nice, really social,&quot; according to a friend, but had recently become withdrawn.  Almonte, who was born in the U.S., &quot;gravitated to Islam [in recent years] and neighbors recalled him holding prayer meetings in the garage. His father, Pedro Almonte, was upset by his son&#x2019;s religious conversion, neighbors said.&quot; </p>					
+										
+									
+				

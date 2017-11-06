@@ -1,0 +1,11 @@
+---
+author: Jen Carlson
+date: Jan 5, 2009 4:19 pm
+title: UCB Opens Outpost in EV?
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="twobootsucb.jpg" src="https://web.archive.org/web/20150424154209im_/http://gothamist.com/attachments/arts_jen/twobootsucb.jpg" width="130" height="105" class="image-right"> </span>Word on the <a href="https://web.archive.org/web/20150424154209/http://nymag.com/daily/food/2009/01/upright_citizens_brigade_theat.html">Grub Street</a> is that the Upright Citizens Brigade Theatre is eyeing the <a href="https://web.archive.org/web/20150424154209/http://gothamist.com/2008/11/10/rip_two_boots_pioneer_theater_east.php">now-abandoned</a> Two Boots Pioneer Theater space at 155 East 3rd Street. Alex Sidtis, directing manager of <a href="https://web.archive.org/web/20150424154209/http://newyork.ucbtheatre.com/">UCB-Chelsea</a>, &quot;revealed that the troupe is hoping to open an East Village outpost,&quot; and because most comedy is exponentially more funny when you add alcohol, it&apos;s all &quot;depending on whether it can secure a tavern wine license (the theater will plead its case at a January 12 meeting of Community Board 3&#x2019;s licensing committee).&quot; Sidtis points out the pluses of the space, mainly &quot;that <a href="https://web.archive.org/web/20150424154209/http://flickr.com/photos/11273693@N00/2855140364/">the 99-seat theater</a> has a lobby, and the layout, &#x201C;It&#x2019;s a little different [than that of the Chelsea location]. The shows will be more presentational and less theatrical in nature.&#x201D;.&quot; Two Boots owner Phil Hartman told the site, &#x201C;I love the theater and I&#x2019;m pleased to think that it would stay alive as a theater and not get gutted and turned into something else.&#x201D; The neighborhood got significantly less funny when <a href="https://web.archive.org/web/20150424154209/http://gothamist.com/2007/09/27/mos_to_close.php">Mo Pitkins closed</a> over a year ago. <span class="photo_caption">Photo via <a href="https://web.archive.org/web/20150424154209/http://flickr.com/photos/newyorkdailyhoto/2604783074/">NYDailyPhoto</a>.</span></p>					
+										
+									
+				

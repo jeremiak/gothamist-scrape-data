@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: September 17, 2008  4:43 PM
+title: Glass Falls Off Bank of America Building.  Again.
+---
+
+<p><img alt="2008_09_fallingglas.jpg" src="https://web.archive.org/web/20111117114008im_/http://gothamist.com/attachments/jen/2008_09_fallingglas.jpg" width="130" height="130" class="right">The <a href="https://web.archive.org/web/20111117114008/http://gothamist.com/labs/map">Gothamist Newsmap</a> indicated there was &quot;falling debris&quot; at West 43rd Street and 6th Avenue in Midtown and now it turns out it&apos;s not ordinary debris: It&apos;s Bank of America window glass debris!  <a href="https://web.archive.org/web/20111117114008/http://cityroom.blogs.nytimes.com/2008/09/17/glass-pane-falls-from-bank-of-america-tower/">CityRoom reports</a> that a &quot;pane of glass fell from around the 16th floor of the skyscraper.&quot; Apparently no one was hurt and the police closed sidewalks around the under-construction building.  We&apos;ll repeat what a reader told us <a href="https://web.archive.org/web/20111117114008/http://gothamist.com/2008/08/12/glass_just_does_not_like_staying_on.php">last time around</a>: &quot;<strong>Stuff falls from that building <a href="https://web.archive.org/web/20111117114008/http://gothamist.com/2007/10/18/falling_debris.php">all the time</a>, it&apos;s insane. I am never walking under it again.</strong>&quot;</p>

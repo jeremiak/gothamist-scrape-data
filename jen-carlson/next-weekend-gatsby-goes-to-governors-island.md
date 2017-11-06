@@ -1,0 +1,52 @@
+---
+author: Jen Carlson
+date: Aug 20, 2010 1:49 pm
+title: Next Weekend: Gatsby Goes To Governors Island
+---
+
+	
+					<div class="galleryEase" id="gallery-425270">
+<!-- gallery js -->
+<script type="text/javascript" src="https://web.archive.org/web/20160320013202js_/http://assets.gothamistllc.com/v5/js/gallery.js"></script>
+<!-- end gallery js -->
+
+<style type="text/css">
+#imgContainer {
+min-height: 300px;
+min-width: 300px;
+background: url('https://web.archive.org/web/20160320013202im_/http://assets.gothamistllc.com/v5/images/progress.gif') center center no-repeat;
+}
+</style>
+
+<!--start of gallery code-->
+<a name="gallery"></a>
+<div class="galleryEaseDisplayed">
+<div id="imgContainer">
+    <img id="galleryImg">
+</div>
+<div class="galleyEaseInfo"></div>
+<div class="galleryEaseNext"></div>
+<div class="galleryEasePrev"></div>
+</div>
+<div class="galleryEaseThumbs">
+		<img src="https://web.archive.org/web/20160320013202im_/http://gothamist.com/assets_c/2010/08/11govislandjazz0810-thumb-60x60-540312.jpg" title="" id="photo_1" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":1, "image": "https://web.archive.org/web/20160320013202/http://gothamist.com/upload/2010/08/11govislandjazz0810.jpg", "caption": "", "credit":"Photo via \<a href=\"http://www.flickr.com/photos/lensjockey/tags/governorsislandhotjazzlawnparty\"\>lensjockey&#8217;s flickr\<\/a\>"};galleryObj['photo_1'] = photo;</script>
+		<img src="https://web.archive.org/web/20160320013202im_/http://gothamist.com/assets_c/2010/08/2govislandjazz0810-thumb-60x60-540302.jpg" title="" id="photo_2" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":2, "image": "https://web.archive.org/web/20160320013202/http://gothamist.com/upload/2010/08/2govislandjazz0810.jpg", "caption": "", "credit":"Photo via \<a href=\"http://www.flickr.com/photos/lensjockey/tags/governorsislandhotjazzlawnparty\"\>lensjockey&#8217;s flickr\<\/a\>"};galleryObj['photo_2'] = photo;</script>
+		<img src="https://web.archive.org/web/20160320013202im_/http://gothamist.com/assets_c/2010/08/govislandjazz0810-thumb-60x60-540303.jpg" title="" id="photo_3" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":3, "image": "https://web.archive.org/web/20160320013202/http://gothamist.com/upload/2010/08/govislandjazz0810.jpg", "caption": "", "credit":"Photo via \<a href=\"http://www.flickr.com/photos/lensjockey/tags/governorsislandhotjazzlawnparty\"\>lensjockey&#8217;s flickr\<\/a\>"};galleryObj['photo_3'] = photo;</script>
+		<img src="https://web.archive.org/web/20160320013202im_/http://gothamist.com/assets_c/2010/08/3govislandjazz0810-thumb-60x60-540304.jpg" title="" id="photo_4" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":4, "image": "https://web.archive.org/web/20160320013202/http://gothamist.com/upload/2010/08/3govislandjazz0810.jpg", "caption": "", "credit":"Photo via \<a href=\"http://www.flickr.com/photos/lensjockey/tags/governorsislandhotjazzlawnparty\"\>lensjockey&#8217;s flickr\<\/a\>"};galleryObj['photo_4'] = photo;</script>
+		<img src="https://web.archive.org/web/20160320013202im_/http://gothamist.com/assets_c/2010/08/4govislandjazz0810-thumb-60x60-540305.jpg" title="" id="photo_5" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":5, "image": "https://web.archive.org/web/20160320013202/http://gothamist.com/upload/2010/08/4govislandjazz0810.jpg", "caption": "", "credit":"Photo via \<a href=\"http://www.flickr.com/photos/lensjockey/tags/governorsislandhotjazzlawnparty\"\>lensjockey&#8217;s flickr\<\/a\>"};galleryObj['photo_5'] = photo;</script>
+		<img src="https://web.archive.org/web/20160320013202im_/http://gothamist.com/assets_c/2010/08/5govislandjazz0810-thumb-60x60-540306.jpg" title="" id="photo_6" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":6, "image": "https://web.archive.org/web/20160320013202/http://gothamist.com/upload/2010/08/5govislandjazz0810.jpg", "caption": "", "credit":"Photo via \<a href=\"http://www.flickr.com/photos/lensjockey/tags/governorsislandhotjazzlawnparty\"\>lensjockey&#8217;s flickr\<\/a\>"};galleryObj['photo_6'] = photo;</script>
+		<img src="https://web.archive.org/web/20160320013202im_/http://gothamist.com/assets_c/2010/08/6govislandjazz0810-thumb-60x60-540307.jpg" title="" id="photo_7" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":7, "image": "https://web.archive.org/web/20160320013202/http://gothamist.com/upload/2010/08/6govislandjazz0810.jpg", "caption": "", "credit":"Photo via \<a href=\"http://www.flickr.com/photos/lensjockey/tags/governorsislandhotjazzlawnparty\"\>lensjockey&#8217;s flickr\<\/a\>"};galleryObj['photo_7'] = photo;</script>
+<br>		<img src="https://web.archive.org/web/20160320013202im_/http://gothamist.com/assets_c/2010/08/7govislandjazz0810-thumb-60x60-540308.jpg" title="" id="photo_8" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":8, "image": "https://web.archive.org/web/20160320013202/http://gothamist.com/upload/2010/08/7govislandjazz0810.jpg", "caption": "", "credit":"Photo via \<a href=\"http://www.flickr.com/photos/lensjockey/tags/governorsislandhotjazzlawnparty\"\>lensjockey&#8217;s flickr\<\/a\>"};galleryObj['photo_8'] = photo;</script>
+		<img src="https://web.archive.org/web/20160320013202im_/http://gothamist.com/assets_c/2010/08/8govislandjazz0810-thumb-60x60-540309.jpg" title="" id="photo_9" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":9, "image": "https://web.archive.org/web/20160320013202/http://gothamist.com/upload/2010/08/8govislandjazz0810.jpg", "caption": "", "credit":"Photo via \<a href=\"http://www.flickr.com/photos/lensjockey/tags/governorsislandhotjazzlawnparty\"\>lensjockey&#8217;s flickr\<\/a\>"};galleryObj['photo_9'] = photo;</script>
+		<img src="https://web.archive.org/web/20160320013202im_/http://gothamist.com/assets_c/2010/08/10govislandjazz0810-thumb-60x60-540311.jpg" title="" id="photo_10" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":10, "image": "https://web.archive.org/web/20160320013202/http://gothamist.com/upload/2010/08/10govislandjazz0810.jpg", "caption": "", "credit":"Photo via \<a href=\"http://www.flickr.com/photos/lensjockey/tags/governorsislandhotjazzlawnparty\"\>lensjockey&#8217;s flickr\<\/a\>"};galleryObj['photo_10'] = photo;</script>
+		<img src="https://web.archive.org/web/20160320013202im_/http://gothamist.com/assets_c/2010/08/9govislandjazz0810-thumb-60x60-540310.jpg" title="" id="photo_11" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":11, "image": "https://web.archive.org/web/20160320013202/http://gothamist.com/upload/2010/08/9govislandjazz0810.jpg", "caption": "", "credit":"Photo via \<a href=\"http://www.flickr.com/photos/lensjockey/tags/governorsislandhotjazzlawnparty\"\>lensjockey&#8217;s flickr\<\/a\>"};galleryObj['photo_11'] = photo;</script>
+		<img src="https://web.archive.org/web/20160320013202im_/http://gothamist.com/assets_c/2010/08/12govislandjazz0810-thumb-60x60-540313.jpg" title="" id="photo_12" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":12, "image": "https://web.archive.org/web/20160320013202/http://gothamist.com/upload/2010/08/12govislandjazz0810.jpg", "caption": "", "credit":"Photo via \<a href=\"http://www.flickr.com/photos/lensjockey/tags/governorsislandhotjazzlawnparty\"\>lensjockey&#8217;s flickr\<\/a\>"};galleryObj['photo_12'] = photo;</script>
+		<img src="https://web.archive.org/web/20160320013202im_/http://gothamist.com/assets_c/2010/08/14govislandjazz0810-thumb-60x60-540315.jpg" title="" id="photo_13" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":13, "image": "https://web.archive.org/web/20160320013202/http://gothamist.com/upload/2010/08/14govislandjazz0810.jpg", "caption": "", "credit":"Photo via \<a href=\"http://www.flickr.com/photos/lensjockey/tags/governorsislandhotjazzlawnparty\"\>lensjockey&#8217;s flickr\<\/a\>"};galleryObj['photo_13'] = photo;</script>
+		<img src="https://web.archive.org/web/20160320013202im_/http://gothamist.com/assets_c/2010/08/13govislandjazz0810-thumb-60x60-540314.jpg" title="" id="photo_14" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":14, "image": "https://web.archive.org/web/20160320013202/http://gothamist.com/upload/2010/08/13govislandjazz0810.jpg", "caption": "", "credit":"Photo via \<a href=\"http://www.flickr.com/photos/lensjockey/tags/governorsislandhotjazzlawnparty\"\>lensjockey&#8217;s flickr\<\/a\>"};galleryObj['photo_14'] = photo;</script>
+									
+</div></div>					<p>Governors Island is <a href="https://web.archive.org/web/20160320013202/http://gothamist.com/2009/10/05/governors_island_becomes_west_egg.php">going Gatsby again</a>! <strong>Next </strong>weekend (both Saturday and Sunday, 11 a.m. to 5 p.m.), Michael Arenella and the Dreamland Orchestra bring another Jazz Age Dance Party <a href="https://web.archive.org/web/20160320013202/http://www.govisland.com/html/visit/calendar.shtml">to the island</a>, recreating the Roaring &apos;20s just a ferry ride away from Manhattan. There will be live music and dance, instruction in period dances, picnicking, and games... all you need to do is find the perfect outfit. </p>
+
+<p>As an aside: They really should transport <a href="https://web.archive.org/web/20160320013202/http://gothamist.com/2009/09/17/zelda_still_kickin_in_battery_park.php">Zelda from Battery Park</a> to Governors Island&#x2014;the turkey was named after F. Scott&apos;s wife, because during one of her nervous breakdowns she went missing and was discovered in Battery Park. Perhaps she&apos;d be happier on Governors! At least for this lawn party.</p>					
+										
+									
+				

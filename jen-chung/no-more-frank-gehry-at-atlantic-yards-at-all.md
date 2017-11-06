@@ -1,0 +1,17 @@
+---
+author: Jen Chung
+date: Jun 11, 2009 9:28 am
+title: No More Frank Gehry At Atlantic Yards At All
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="2009_06_atly.jpg" src="https://web.archive.org/web/20161108081549im_/http://gothamist.com/attachments/jen/2009_06_atly.jpg" width="640" height="426"> <br> <i>A 2008 model of the <a href="https://web.archive.org/web/20161108081549/http://gothamist.com/2008/05/05/goodbye_miss_br.ph">&quot;B1&quot; building</a> Gehry designed to replace his <a href="https://web.archive.org/web/20161108081549/http://gothamist.com/2006/09/05/ratner_to_put_m.php">Miss Brooklyn design</a></i></div> <p></p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2009_06_frankg.jpg" src="https://web.archive.org/web/20161108081549im_/http://gothamist.com/attachments/jen/2009_06_frankg.jpg" width="280" height="242" class="image-left"> </span>Just a week after announcing it was ditching plans for the Brooklyn Nets Arena from world-renowned architect Frank Gehry and instead <a href="https://web.archive.org/web/20161108081549/http://gothamist.com/2009/06/05/atlantic_yards_nets_arena_from_worl.php">taking a more pedestrian and less expensive approach</a>, developer Forest City Ratner has confirmed to the NY Times that Gehry will no longer be involved with any part of the Atlantic Yards.   Joe DePlasco, spokesman for Bruce Ratner, said, &quot;<strong>We do not anticipate that Mr. Gehry will be designing any of the individual buildings.</strong>&quot;  Why?  Because Gehry&apos;s designs, <a href="https://web.archive.org/web/20161108081549/http://gothamist.com/2005/07/05/the_new_brooklyn.php">though dazzling in 2005</a>, are <em>expensive</em> (which is exactly what Times critic Nicolai Ouroussoff was <a href="https://web.archive.org/web/20161108081549/http://www.nytimes.com/2008/03/21/arts/design/21atla.html">worried about last year</a>!).</p>
+
+<p>According to the Times, DePlasco also &quot;conceded that the announcement issued last week &apos;should&#x2019;ve been clearer.&apos; But, he added, Mr. Gehry&#x2019;s master plan for the development and his guidelines remain in place.&quot; Whatever!  In the statement released by Forest City Ranter last week about the change in Brooklyn Nets Arena design (<a href="https://web.archive.org/web/20161108081549/http://www.barclayscenter.com/pdf/6_04forestcityratnerstatement.pdf">PDF</a>), Gehry himself said, &quot;We remain extremely proud of our work on the Atlantic Yards master plan and on the original arena, which we designed in close collaboration with Forest City Ratner. While there are always regrets at designs not realized, we greatly appreciate our ongoing relationship with Bruce and his team.&quot;</p>
+
+<p>Flashback to the February 2, 2004 issue of the New Yorker, where in a <a href="https://web.archive.org/web/20161108081549/http://www.newyorker.com/archive/2004/02/02/040202ta_talk_mcgrath">Talk of the Town piece by Ben McGrath</a>, <a href="https://web.archive.org/web/20161108081549/http://FieldofSchemes.com/">FieldofSchemes.com</a>&apos;s Neil deMause predicted, &quot;<strong>I&#x2019;d guess it&#x2019;s probably fifty-fifty the arena gets built entirely...I wouldn&#x2019;t be shocked if five years from now we&#x2019;re still arguing the logistics</strong>.&quot;</p>					
+										
+									
+				

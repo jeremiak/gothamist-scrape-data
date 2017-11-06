@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: December 13, 2008  1:56 PM
+title: Probation for Pillow-Talking, Ex-Brooklyn Prosecutor
+---
+
+<p><img alt="2008_12_pitalk.jpg" src="https://web.archive.org/web/20110623151521im_/http://gothamist.com/attachments/jen/2008_12_pitalk.jpg" width="135" height="119" class="right">A former prosecutor in the Brooklyn DA&apos;s office was <a href="https://web.archive.org/web/20110623151521/http://www.nydailynews.com/ny_local/brooklyn/2008/12/12/2008-12-12_tipgiving_exprosector_tonguelashed_by_ju.html">admonished by a judge</a> for giving her defense lawyer fiance (now husband) information about prosecution witnesses.  The Daily News reports that Brooklyn Supreme Court Justice Guy Mangano said of Sandra Fernandez, &quot;This was a despicable act...<strong>Not only has she violated her oath, but the trust of the people of this county.</strong>&quot; Fernandez ran criminal history and vehicle information checks on prosecution witnesses to help her fiance, Douglas Rankin <a href="https://web.archive.org/web/20110623151521/http://gothamist.com/2007/11/28/exprosecutors_p.php">undercut their testimony</a>. Rankin&apos;s client, on trial for a shooting, was acquitted, but the Brooklyn DA&apos;s office was suspicious that Rankin <a href="https://web.archive.org/web/20110623151521/http://gothamist.com/2007/02/20/what_is_up_with.php">had such information at his disposa</a>l.  Fernandez, who once claimed prosecutors ran rap sheets to colleagues, was given probation, as well as stripped of her law license (she can reapply in seven years).</p>

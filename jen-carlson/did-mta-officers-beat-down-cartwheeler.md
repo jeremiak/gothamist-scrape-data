@@ -1,0 +1,15 @@
+---
+author: Jen Carlson
+date: Oct 7, 2009 4:05 pm
+title: Did MTA Officers Beat Down Cartwheeler?
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-right" style=" width:300px; "> <img alt="phphE4f8yPM.jpg" src="https://web.archive.org/web/20150522050808im_/http://gothamist.com/attachments/arts_jen/phphE4f8yPM.jpg" width="300" height="274"> <br> <i><span class="photo_caption">Photo of cartwheeler on the Brooklyn Bridge via <a href="https://web.archive.org/web/20150522050808/http://www.flickr.com/photos/mis3u/2653747030/">mis3u&apos;s flickr</a></span></i></div> The MTA officers <em>do not</em> like gymnastics. Consider that your warning. One man, Jesse Archer, was recently walking through a nearly empty Grand Central at 1:30 a.m., on his way home from a birthday party at the Grace Hotel, when he decided to do a cartwheel. <a href="https://web.archive.org/web/20150522050808/http://www.jesseonthebrink.com/blog.html">He reports back</a>:<p></p>
+
+<blockquote>&quot;The police called me over, and gave me a ticket for &apos;disorderly conduct.&apos; It was so unbelievable, and I let them know it. But when they were done issuing me the citation, I start walking toward my friend Stace who was waiting nearby. Facing him, not the cops, I utter an expletive about the cops, and next thing I know I&apos;m being tackled by several policemen from behind.<p>The cops wrench my wrist back, handcuff me, and one of them has my head and is pounding it into the cold hard cement. I was not resisting, I was not fighting. I didn&apos;t even see them coming. They were simply going to teach this faggot a lesson! While my brains are being dashed, all I can think (besides, this shouldn&apos;t be happening!) was that this kind of injury is exactly how <a href="https://web.archive.org/web/20150522050808/http://gothamist.com/2009/03/18/natasha_richardson_dies_at_45_at_le.php">Natasha Richardson</a> died.&quot;</p></blockquote>He goes on to say that he eventually blacked out from the beating, and woke up in his underwear in a jail cell. By 3:30 a.m. he was let go, with two summonses and a piece of paper saying he needed hospital treatment but refused. He suffered cuts on his face, bruising on both sides of his head, ears, and wrist. Allegedly he&apos;s being helped out by Christine Quinn&apos;s office, and he tells us he is attempting to get surveillance footage. We&apos;ve contacted Quinn&apos;s office and the MTA for their comment on the incident.
+
+<p><strong>UPDATE:</strong> The MTA&apos;s press secretary, Jeremy Soffin, tells us: &quot;Mr. Archer was issued two summonses for disorderly conduct early on the morning of October 3, after he was found lying on the floor of Grand Central Terminal by MTA Police. Our records and video footage show that he was held in detention for approximately 30 minutes, during which time he was fully clothed and not mistreated. We continue to investigate his claims.&quot;</p>					
+										
+									
+				

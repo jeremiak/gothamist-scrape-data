@@ -1,0 +1,15 @@
+---
+author: Ben Yakas
+date: November 19, 2011  4:50 PM
+title: Baby Hitler's Newborn Brother Taken From Parents 17 Hours After Birth
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="111911hitler.jpg" src="https://web.archive.org/web/20111119230548im_/http://gothamist.com/attachments/byakas/111911hitler.jpg" width="640" height="360"> <br> <i>Heath Campbell, Adolph Hitler Campbell, and Deborah Campbell in 2009 (AP)</i></div> <p></p>
+
+<p>The New Jersey couple who sparked a controversy after they <a href="https://web.archive.org/web/20111119230548/http://gothamist.com/tags/babyhitler">named their kids after famous Nazi leaders</a> say that NJ child welfare officials <a href="https://web.archive.org/web/20111119230548/http://www.lehighvalleylive.com/hunterdon-county/express-times/index.ssf/2011/11/heath_and_deborah_campbell_say.html">took custody of their newborn 17 hours after his birth</a>. Nazi-sympathizers Heath and Deborah Campbell say that the doctor who delivered their newborn Hons Campbell late Wednesday called the New Jersey Division of Youth and Family Services (DYFS), who then took the baby without any court order: &quot;It&apos;s basically a kidnapping, but they use different terms,&quot; said Heath Campbell.</p>
+
+<p>A spokesperson for DYFS told the Express-Times that she was legally prohibited from commenting on the case. Back in 2009, then three-year-old Adolf Hitler Campbell, as well as his siblings JoyceLynn Aryan Nation Campbell and Honszlynn Hinler Jeannie Campbell, were taken from the parents by NJ child welfare officials shortly after his parents had tried to get him a personalized birthday cake from ShopRite that read, &quot;Happy Birthday Adolf Hitler.&quot; </p>
+
+<p>Court records indicate that the three kids were removed because of tangible evidence of abuse or neglect&#x2014;both parents allegedly suffer from physical and psychological disabilities and are unemployed&#x2014;not because of their names as the parents allege. Last month, they <a href="https://web.archive.org/web/20111119230548/http://gothamist.com/2011/10/26/nj_parents_still_fighting_for_custo.php">came back into the news</a> as they continued their efforts to get their kids back full time&#x2014;as of now, they get to see their children for two hours every week. </p>
+
+<p>Heath Campbell also vowed not to change his children&apos;s names: &quot;DYFS has them in school now and nobody has a problem with my son&apos;s name, Adolf, at all. They know his full name. He plays soccer, he plays all that and nobody bothers him,&quot; <a href="https://web.archive.org/web/20111119230548/http://www.nbcphiladelphia.com/news/breaking/New-Jersey-Takes-Custody-of-Nazi-Naming-Parents-Newborn-134137723.html">he told NBC Philadelphia.</a></p>

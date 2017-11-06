@@ -1,0 +1,11 @@
+---
+author: Jen Carlson
+date: May 27, 2009 4:52 pm
+title: How a Real Housewife Got into Columbia
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="phpC5GOaLPM.jpg" src="https://web.archive.org/web/20150522031322im_/http://gothamist.com/attachments/arts_jen/phpC5GOaLPM.jpg" width="119" height="145" class="image-right"> </span>You may have known that the <em>Real Housewives of New York</em> was off the air, but <a href="https://web.archive.org/web/20150522031322/http://gothamist.com/tags/kellybensimon">Kelly Killoren Bensimon</a> is talking like the cameras are still on her. Okay, so they were, for this 35-minute-long <a href="https://web.archive.org/web/20150522031322/http://obsessedtv.com/2009/05/samantha-ettus-interviews-reality-tv-star-kelly-bensimon/">Obsessed TV</a> interview that <a href="https://web.archive.org/web/20150522031322/http://nymag.com/daily/intel/2009/05/on_planet_kelly_ms_killoren_be.html">NYMag</a> points out. Wondering how this one got into Columbia? She just asked nicely and batted her eyelashes, duh. Bensimon, who graduated from <a href="https://web.archive.org/web/20150522031322/http://www.gs.columbia.edu/home.asp">Columbia&apos;s School of General Studies</a> at age 30, explains, &quot;A friend of mine said you should really go to Columbia, they have an amazing journalism department there. And so I actually went to the school and I said to them, I said, &apos;<strong>You know, if you take me, I, you know, you just gotta give me a chance, and if you take me, then I will be the best student, I will do whatever it is, whatever you need whenever you need it. I promise you, you know, I will not be a mistake</strong>.&apos; And this man, the dean, was like, &apos;Who are you? Like, what? No, no, no. We have a process here. You have to fill out an application.&apos; And I was like, &apos;No no no, It&apos;s nice you have an application, I&apos;ve already sent that in, but I want to go here, and I really really wanted to go there.&apos; And he let me in.&quot; Totally not a mistake, <em>right, Dean</em>?</p>					
+										
+									
+				

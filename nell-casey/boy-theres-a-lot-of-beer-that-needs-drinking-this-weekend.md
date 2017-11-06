@@ -1,0 +1,27 @@
+---
+author: Nell Casey
+date: Oct 14, 2016 10:50 am
+title: Boy There's A Lot Of Beer That Needs Drinking This Weekend
+---
+
+	
+										<p> <span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="101416sixpoint.jpg" src="https://web.archive.org/web/20161017172555im_/http://gothamist.com/attachments/nyc_nellcasey/101416sixpoint.jpg" width="640" height="427"> <br> <i> (Sixpoint)</i></div> <p></p>
+
+<p>Lovers of unique beer and adorable fuzzy beasts should take note of the <a href="https://web.archive.org/web/20161017172555/http://www.beerforbeasts.com/#main"><strong>Beer For Beasts</strong></a> event coming to <a href="https://web.archive.org/web/20161017172555/http://www.thebellhouseny.com/">The Bell House</a> this Saturday. The annual event&apos;s all about specially-brewed beers, drinking said beers, and raising money for the <a href="https://web.archive.org/web/20161017172555/http://www.humanesocietyny.org/">Humane Society of New York</a>. Sixpoint Brewery has tapped over 20 collaborators for the event, including breweries, venues and food makers (like the Mexican Chocolate Stout with Ample Hills Creamery). Each has come up with a one-time-only beer created specifically for the event; once the keg&apos;s kicked, it&apos;s all over. <a href="https://web.archive.org/web/20161017172555/https://www.eventbrite.com/e/beer-for-beasts-tickets-26972875597?aff=facebook">Tickets $70</a>.</p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="101416seaport.jpg" src="https://web.archive.org/web/20161017172555im_/http://gothamist.com/attachments/nyc_nellcasey/101416seaport.jpg" width="640" height="475"> <br> <i> (<a href="https://web.archive.org/web/20161017172555/http://www.tasteoftheseaport.org/gallery.html">Taste of the Seaport</a>)</i></div> <p></p>
+
+<p>The <strong><a href="https://web.archive.org/web/20161017172555/http://www.tasteoftheseaport.org/">Taste of the Seaport</a></strong> returns for its seventh incarnation in this historic area, with <a href="https://web.archive.org/web/20161017172555/http://www.tasteoftheseaport.org/restaurants.html">over 40 restaurants</a> and beverage providers on hand. Attendees purchase &quot;tastes&quot; (<a href="https://web.archive.org/web/20161017172555/https://www.eventbrite.com/e/taste-of-the-seaport-2016-tickets-27415221666">$35 for five in advance</a> or $40 for five at the door) and can choose which dishes they&apos;d like to try from purveyors including Ambrose Beer &amp; Lobster, Financier Patisserie, Dorlan&apos;s Tavern &amp; Oyster Bar, Tandoor Palace and Toloache Taqueria. Swing by from 10 a.m. to 3 p.m. for the eats/drinks, plus live music and a kids activity zone.</p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="101416bronx.jpg" src="https://web.archive.org/web/20161017172555im_/http://gothamist.com/attachments/nyc_nellcasey/101416bronx.jpg" width="640" height="427"> <br> <i> (Bronx Brewery)</i></div> <p></p>
+
+<p>Up in the Bronx, it&apos;s the <strong><a href="https://web.archive.org/web/20161017172555/https://www.eventbrite.com/e/the-boogie-down-classic-tickets-27848271931?aff=gm">Boogie Down Classic</a></strong> party hosted by the Bronx Brewery. Starting at noon, their backyard space will host DJs, BBQ, Puerto Rican food and of course, all the brewery&apos;s delicious beers. Admission to the event is free, but a pre-sale package (<a href="https://web.archive.org/web/20161017172555/https://www.eventbrite.com/e/the-boogie-down-classic-tickets-27848271931?aff=gm">$16</a>) includes two beers, a brewery beanie and a discounted Uber ride. Proceeds benefit <a href="https://web.archive.org/web/20161017172555/https://www.nyrp.org/">NYRP</a>&apos;s Haven Project.</p>
+
+<p>Meanwhile in Queens, the LIC Flea &amp; Food hosts the <strong><a href="https://web.archive.org/web/20161017172555/https://queensbeerfestival.splashthat.com/">Queens Beer Festival</a></strong> on Saturday and Sunday with morning and afternoon sessions. Many of the major New york players will be on hand pouring sips of their suds, including every single Queens-based brewery. <a href="https://web.archive.org/web/20161017172555/https://queensbeerfestival.splashthat.com/">Tickets $29 - $68</a>)</p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="101316mewmen.jpg" src="https://web.archive.org/web/20161017172555im_/http://gothamist.com/attachments/nyc_nellcasey/101316mewmen.jpg" width="640" height="427"> <br> <i> Spicy Shoyu Ramen from Mew Men (<a href="https://web.archive.org/web/20161017172555/https://www.facebook.com/mewmennyc/photos/a.407734109421572.1073741828.387125884815728/410814059113577/?type=3&amp;theater">Facebook</a>)</i></div> <p></p>
+
+<p>On Sunday, <a href="https://web.archive.org/web/20161017172555/http://www.japanfes.com/ehome.html">the Japan Fes events series</a> offers an outlet for ramenthusiasts, beginning with a <strong>Fall Fes &amp; Ramen Competition</strong> on the Upper West Side. From 10 a.m. to 6 p.m., stop by to sample ramen from New York, NJ, PA and Japan, concluding in a vote by festival attendees for the best bowl of the day. Particularly of note are the two entries from Japan; 175 Deno from the Hokkaido Prefecture offering their signature tantanmen and Menya Jiro from Kagoshima Prefecture with a tonkotsu ramen.</p>					
+										
+									
+				

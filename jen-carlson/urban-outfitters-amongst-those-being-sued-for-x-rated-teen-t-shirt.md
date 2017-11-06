@@ -1,0 +1,11 @@
+---
+author: Jen Carlson
+date: August 19, 2011 10:30 AM
+title: Urban Outfitters Amongst Those Being Sued For X-Rated Teen T-Shirt
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="claush00811.jpg" src="https://web.archive.org/web/20110820192541im_/http://gothamist.com/attachments/arts_jen/claush00811.jpg" width="260" height="350" class="image-right"> </span>Urban Outfitters is in hot water after hawking a t-shirt that featured an X-rated print of a 15-year-old girl. The photo was originally taken by photographer Jason Lee Parry (who specializes in topless photography) last year. He is now being sued by the model&apos;s parents&#x2014;the retailer, and two other stores (including Brandy &amp; Melville in SoHo) are also part of the suit. The teen&apos;s parents filed yesterday in Manhattan Federal Court, and say while they knew about the photoshoot (which was for a magazine), and the specific photo, they never approved it for the shirts. </p>
+
+<p>In the photograph, she is &quot;revealing portions of her breasts... in a spread eagle position making her crotch area the focal point of the image may portray a child in a sexually suggestive manner and may be in violation of one or more federal and/or state laws.&quot; The suit also notes that the girl is shown in other photos from the same shoot drinking a beer, riding a motorcycle without a helmet, and showing her pubic hair. (Where were her parents <em>during the shoot?</em>) Parry allegedly agreed with her former modeling agency not to release the images, and now claims they were stolen.</p>
+
+<p><a href="https://web.archive.org/web/20110820192541/http://www.nydailynews.com/news/national/2011/08/18/2011-08-18_xrated_pics_of_underage_model_surface_at_urban_outfitters_parents_sue_photog_sto.html">The Daily News</a> say her parents, who are seeking $28 million, want to remain anonymous because the girl is a &quot;well known&quot; model... however, <a href="https://web.archive.org/web/20110820192541/http://www.nypost.com/p/news/local/manhattan/too_sexy_for_my_shorts_na8ohxKaLGt7yMEbEUJoLP#ixzz1VTqlI87q">the NY Post</a> is reporting it&apos;s Hailey Clauson (pictured), who  <a href="https://web.archive.org/web/20110820192541/http://haileyclauson.blogspot.com/2011/01/gucci.html">recently posed for  Gucci</a>.</p>

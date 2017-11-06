@@ -1,0 +1,17 @@
+---
+author: Jen Carlson
+date: Jul 14, 2009 2:02 pm
+title: Dash Snow Confirmed Dead From Heroin Overdose
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="dashsnow07092.jpg" src="https://web.archive.org/web/20141125004010im_/http://gothamist.com/attachments/arts_jen/dashsnow07092.jpg" width="275" height="350" class="image-left"> </span><strong>[UPDATE BELOW]</strong> A not totally unsurprising rumor is going around that downtown artist Dash Snow has died of a heroin overdose. Snow is the maternal grandson of Robert Thurman (and nephew of actress Uma Thurman), and his lifestyle was well-documented in <a href="https://web.archive.org/web/20141125004010/http://gothamist.com/2007/01/08/dashing_dash_sn.php">a sprawling <em>New York</em> magazine piece</a> two years ago. That lifestyle at one point included making what he called a Hamster&#x2019;s Nest with friends, where they would &quot;shred up 30 to 50 phone books, yank around all the blankets and drapes, turn on the taps, take off their clothes, and do drugs&#x2014;mushrooms, coke, ecstasy&#x2014;until they feel like hamsters.&quot;</p>
+
+<p>Snow&apos;s work was exhibited at galleries like The Royal Academy in London, the Whitney, Deitch Projects and Saatchi Gallery (here are <a href="https://web.archive.org/web/20141125004010/http://www.saatchi-gallery.co.uk/artists/dash_snow.htm">some selected works</a> from the latter).</p>
+
+<p><a href="https://web.archive.org/web/20141125004010/http://gawker.com/5314284/dash-snow-downtown-artist-said-to-be-dead-of-overdose">Gawker</a> says they heard the news of the 27-year-old&apos;s death this morning from multiple sources. One of Dash&apos;s best friends, artist Earsnot/Kunle Irak, posted on <a href="https://web.archive.org/web/20141125004010/http://twitter.com/KunleIRAK/status/2632481063">his Twitter</a> earlier: &quot;YOU HAD TO INJECT HEROIN RIGHT? YOU COULDN&apos;T JUST... :( DUDE! I FUCKING HATE YOU. YOU ARE THE WORST GUY EVER! FUCK YOU! FUCKING TURD! Dude.&quot; And another artist friend, CLAW, <a href="https://web.archive.org/web/20141125004010/http://twitter.com/CLAWmoney">has been posting</a> about the sad news as well. There has been no official comment released yet to confirm the rumor, but <a href="https://web.archive.org/web/20141125004010/http://search.twitter.com/search?q=dash+snow">it&apos;s certainly spreading</a> all over the place.</p>
+
+<p><strong>UPDATE:</strong> <a href="https://web.archive.org/web/20141125004010/http://blogue.us/2009/07/14/rest-in-peace-dash-snow/">Blogue</a> has now posted a visual tribute to the artist, confirming his death. And <a href="https://web.archive.org/web/20141125004010/http://artsbeat.blogs.nytimes.com/2009/07/14/dash-snow-new-york-artist-dies-at-27/?hp">The NY Times</a> reports that he died at the &quot;<a href="https://web.archive.org/web/20141125004010/http://www.lafayettenyc.com/">Lafayette House</a>, a hotel in Lower Manhattan. His death was confirmed by his grandmother, the art collector and philanthropist Christophe de Menil, who said that Mr. Snow had died of a drug overdose.&quot; She noted &quot;that he had been in rehabilitation in March and had been off drugs until very recently.&quot;</p>					
+										
+									
+				

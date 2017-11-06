@@ -1,0 +1,14 @@
+---
+author: Jen Carlson
+date: January 19, 2011  1:27 PM
+title: Women Seeing Red Over Tampon Shortage
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="obtampons011811.jpg" src="https://web.archive.org/web/20120313022542im_/http://gothamist.com/attachments/arts_jen/obtampons011811.jpg" width="640" height="426" class="image-none"> </span><br>
+<span class="photo_caption">o.b. tampons available in DUMBO (Photo by Jen Carlson/Gothamist)</span></p>
+
+<p>Just like Elaine <a href="https://web.archive.org/web/20120313022542/http://en.wikipedia.org/wiki/The_Sponge">and her sponge</a>, the women of New York City aren&apos;t finding what they need in the feminine hygiene section of drug stores. According to <a href="https://web.archive.org/web/20120313022542/http://www.nydailynews.com/ny_local/2011/01/19/2011-01-19_tampon_hunt_mystery_as_ob_brand_cant_be_found_at_stores_leading_to_bids_on_ebay.html">the Daily News</a>, shelves have been barren of o.b. brand tampons since the fall, and now they&apos;re showing up on eBay for nearly $9 a pack! This &quot;top rated seller&quot; is hawking <a href="https://web.archive.org/web/20120313022542/http://cgi.ebay.com/NEW-2-40-ct-O-B-ULTRA-Tampons-Purple-OB-Tampon-HTF-/160525832456?pt=LH_DefaultDomain_0&amp;hash=item256015d108">2 boxes for 100 bucks</a>. </p>
+
+<p>Well, ladies, we&apos;re here with some good news: we just stopped by <a href="https://web.archive.org/web/20120313022542/http://www.yelp.com/biz/bridge-apothecary-brooklyn">Bridge Apothecary</a> on Jay Street in DUMBO and there are three whole boxes left, each going for just under 5 bucks. As for the shortage mystery, Johnson &amp; Johnson says they experienced a &quot;temporary supply interruption&quot; that may have led to stores being out of the product&#x2014;but they wouldn&apos;t give any further details, only saying they would be back in stock &quot;soon&quot; (<a href="https://web.archive.org/web/20120313022542/http://prescriptions.blogs.nytimes.com/2010/12/22/the-case-of-the-missing-o-b-tampons/">likely story</a>). Customers have become so furious over the past few months, this week one began a boycott campaign, telling her tampon internet support group... thing: &quot;<a href="https://web.archive.org/web/20120313022542/http://writethecompany.com/sizing-up-o-b-tampons#comment-5100">TO HELL WITH O.B.</a>&quot;</p>
+
+<p>As one woman explained, o.b. is one of the only brands of nonapplicator tampons, so &quot;people who choose to use this are a little bit politicized around it. They feel very strongly about these tampons.&quot; For environmental reasons, of course... also they fit nicely in your purse and make it so easy to be discreet!</p>

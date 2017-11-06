@@ -1,0 +1,11 @@
+---
+author: Jen Carlson
+date: May 25, 2010  3:04 PM
+title: Urban Outfitters May Be Getting Inspired At The Flea
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:280px; "> <img alt="necklaces0510.jpg" src="https://web.archive.org/web/20130623233842im_/http://gothamist.com/attachments/arts_jen/necklaces0510.jpg" width="280" height="180"> <br> <i><span class="photo_caption">L: Crowe&apos;s necklace, R: Urban Outfitters necklace</span></i></div> Well this is simply shocking: Urban Outfitters is allegedly taking original designs, mass producing them, and reselling them for a low, low price at their store. Crazy, <em>right?</em> What next, novelty t-shirts and coffee table books?! <p></p>
+
+<p>At least two Brooklyn Flea vendors are claiming the company&apos;s new <a href="https://web.archive.org/web/20130623233842/http://search.urbanoutfitters.com/?q=waylaid">Waylaid jewelry line</a> looks an awful lot like their own creations, according to <a href="https://web.archive.org/web/20130623233842/http://www.brooklynpaper.com/stories/33/22/all_urbancounterfeit_2010_05_28_bk.html">the Brooklyn Paper</a>. 27-year-old designer Lillian Crowe debuted her line of jewelry featuring rib cages and bull skulls in March 2009, which the paper believes was at least 7 months earlier than it debuted at the store (though they&apos;re just going by online comments). </p>
+
+<p>Crowe also noticed other pieces she says rip off fellow designers, like a shark jaw necklace; she told the paper she thinks &quot;maybe someone [at Urban Outfitters] took an inspirational day at the Flea.&#x201D; The store has been known to use indie designers as their &quot;muse,&quot; but one source told the paper they&apos;ve been trying to dispel that as of late. Anyway, not to be all down on the starving artists, but... are jaws and skulls <em>really</em> that original in the first place? Maybe it&apos;s time to dig a little deeper into the creative well... think: <a href="https://web.archive.org/web/20130623233842/http://gothamist.com/2010/05/25/breaking_trend_alert_some_parts_of.php">owls</a>.</p>

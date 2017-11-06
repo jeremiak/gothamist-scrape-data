@@ -1,0 +1,11 @@
+---
+author: Jen Chung
+date: Sep 12, 2009 1:32 pm
+title: The Deal With Mayor Bloomberg's Pink Sweater
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2009_09_pinbloo.jpg" src="https://web.archive.org/web/20150427144934im_/http://gothamist.com/attachments/jen/2009_09_pinbloo.jpg" width="140" height="157" class="image-right"> </span>At the West Indian American Day Parade, it&apos;s no surprise to see <a href="https://web.archive.org/web/20150427144934/http://gothamist.com/2009/09/08/culture_spirit_on_display_during_we.php">colorful costumes</a>&#x2014;and Mayor Bloomberg (sort of) fit right in, <a href="https://web.archive.org/web/20150427144934/http://gothamist.com/2009/09/08/bloomberg_marches_with_gen_powell_t.php">wearing a pink sweater under his blue &quot;Mayor&quot; sash</a>.  The <a href="https://web.archive.org/web/20150427144934/http://www.nytimes.com/2009/09/12/nyregion/12trailer.html?ref=nyregion">NY Times explains</a> why Bloomberg took Kay Thompson&apos;s advice to <a href="https://web.archive.org/web/20150427144934/http://www.youtube.com/watch?v=jmaffpKAYcw">&quot;Think Pink&quot;</a>: &quot;When he is in a parade, the mayor typically chooses clothing that reflects a color in the flag of the group that is marching. (One Sunday, he led the annual Salute to Israel parade up Fifth Avenue wearing blue, jumped into his S.U.V. to travel 50 blocks back downtown, and emerged in a yellow sweater to march on Madison Avenue in the Philippine Independence Day Parade.)  <strong>But because immigrants from some 18 nations wave their homeland colors at the West Indian Day Parade, the mayor wanted to avoid playing favorites, and wore the only color that does not appear in any of their flags.</strong>&quot;  The Times adds, &quot;Last Sunday, during services at a storefront church in the Bronx, he wore an eye-catching purple dress shirt and matching lavender socks.&quot; Hey, isn&apos;t purple for Lent? Well, at least he wasn&apos;t <a href="https://web.archive.org/web/20150427144934/http://gothamist.com/2007/07/14/mayor_mike_phon.php">wearing his shorts</a> to church.</p>					
+										
+									
+				

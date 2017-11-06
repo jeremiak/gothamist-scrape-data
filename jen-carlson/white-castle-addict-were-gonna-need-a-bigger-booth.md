@@ -1,0 +1,11 @@
+---
+author: Jen Carlson
+date: September 11, 2011  3:35 PM
+title: White Castle Addict: We're Gonna Need A Bigger Booth
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:340px; "> <img alt="wcchair911.jpg" src="https://web.archive.org/web/20111224160853im_/http://gothamist.com/attachments/arts_jen/wcchair911.jpg" width="340" height="294"> <br> <i><span class="photo_caption">Perhaps this <a href="https://web.archive.org/web/20111224160853/http://site.inmod.com/blog/2009/03/10/whered-they-get-that-white-castle/">White Castle-themed ball chair</a> would suffice</span></i></div> Perhaps when you no longer fit into the seats that your favorite fast food restaurant provides, it&apos;s time to cut back on the stuff. Or maybe it&apos;s time to launch a campaign for bigger seats! 64-year-old, 290-pound White Castle fanatic Martin Kessman says back in 2009 he walked into his local <a href="https://web.archive.org/web/20111224160853/http://gothamist.com/tags/whitecastle">White Castle</a> to find stationary booths that he barely fit into&#x2014;he left that day limping out of the restaurant after banging his knee on the table. Instead of finding the seats to be aspirational, he sent a letter to the corporate offices hoping for change on their end. According to <a href="https://web.archive.org/web/20111224160853/http://www.nypost.com/p/news/local/white_castle_hates_fatty_gut_UQk76R1S8Mbud5aMhaxD3J?CMP=OTC-rss&amp;FEEDNAME=">the NY Post</a>, the company replied with three &#x201C;very condescending letters,&quot; along with coupons for free burgers, and a promise to expand the seats, even sending specs.<p></p>
+
+<p>Now Kessman has filed a lawsuit, right here in Manhattan, since no change has been made in the two and a half years since the promise, which was as empty as the calories in the bun his burgers were served on. His suit says that the chain&#x2019;s booths &quot;violate the civil rights of fat people.&quot;</p>
+
+<p>The ordeal hasn&apos;t stopped his appetite for a Crave Case, however, but despite being able to &quot;wedge&quot; himself into the booths, he now sends his wife, saying, &quot;I did not want to set foot into the store. Any subsequent trips to the store have been made by my wife&#x2014;I have been like an outcast.&#x201D;</p>

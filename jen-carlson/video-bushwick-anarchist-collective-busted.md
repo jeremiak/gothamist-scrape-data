@@ -1,0 +1,13 @@
+---
+author: Jen Carlson
+date: April 14, 2010  2:06 PM
+title: Video: Bushwick Anarchist Collective Busted
+---
+
+<p><strong>[UPDATED BELOW]</strong> Yesterday the NYPD raided 13 Thames, a Bushwick-based art and performance space, arresting at least two residents/members of the Independent Anarchist Media (I AM) Collective, according to <a href="https://web.archive.org/web/20130622084325/http://www.freewilliamsburg.com/archives/2010/04/nypd_raids_13_t.html">Free Williamsburg</a>. The NYC Anarchist Film Festival is just days away, and that group has been holding up at 13 Thames organizing the event. Those involved posted the below video and statement:</p><blockquote>Two plainclothes detectives entered first, followed quickly by a Lieutenant and vans full of blue shirt officers. After corralling everyone present in the back room, they searched the space and detained two members of the collective. The I AM collective was preparing for the NYC Anarchist Film Festival, a showcase of resistance movements and insurrectionary events from around the world presented from an anarchist and anti-authoritarian perspective.</blockquote>And the show will go on! The group says that &quot;the voice of decentralized creative communities will not be silenced by police repression. They cannot raid us, because we are everywhere.&quot; And <a href="https://web.archive.org/web/20130622084325/http://anarchistnews.org/?q=node/10993">this Friday</a>, &quot;everywhere&quot; is really just Judson Memorial Church, where the fest will take place.<p></p>
+
+<p><object width="640" height="385"><param name="movie" value="http://www.youtube.com/v/AeJAo4f803k&amp;hl=en_US&amp;fs=1&amp;"><param name="allowFullScreen" value="true"><param name="allowscriptaccess" value="always"><embed src="https://web.archive.org/web/20130622084325oe_/http://www.youtube.com/v/AeJAo4f803k&amp;hl=en_US&amp;fs=1&amp;" type="application/x-shockwave-flash" allowscriptaccess="always" allowfullscreen="true" width="640" height="385"></object></p>
+
+<p>We&apos;ve contacted the NYPD press office to find out more details... but did that anarchist videotaping seem a little <em>too</em> shaky, and the cop seem a little <em>too</em> nice? Is it possible this is all part of the film festival that you never heard of until now?</p>
+
+<p><strong>UPDATE:</strong> Sgt Carlos Nieves at the NYPD tells us, &quot;On April 13, 2010 two individuals were arrested for outstanding Criminal Court summonses at 13 Thames Street.&quot;</p>

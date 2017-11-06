@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: November  5, 2009  8:27 AM
+title: One Dead in Upper West Side Apartment Fire
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <a href="https://web.archive.org/web/20110623140640/http://gothamist.com/attachments/jen/2009_11_firew104.jpg"> <img alt="2009_11_firew104.jpg" src="https://web.archive.org/web/20110623140640im_/http://gothamist.com/assets_c/2009/11/2009_11_firew104-thumb-150x174-455128.jpg" width="70" height="81" class="image-right"> </a> </span>Firefighters are investigating the cause of a blaze that killed a woman in an apartment at 250 West 104th Street yesterday before 6 p.m.  The <a href="https://web.archive.org/web/20110623140640/http://www.nypost.com/p/news/local/manhattan/gal_dies_in_west_side_apt_blaze_pTbiXjLFUaNqhozhvjmJZK">Post reports</a> the woman&apos;s mother attempted to rescue her 48-year-old daughter but the daughter&apos;s bedroom was &quot;mysteriously blockaded, according to neighbors who responded to the mom&apos;s cries for help.&quot; (<a href="https://web.archive.org/web/20110623140640/http://ny1.com/1-all-boroughs-news-content/top_stories/108472/fatal-manhattan-fire-under-investigation/">NY1 say</a>s the door was blocked with suitcases.)  The daughter died of smoke inhalation; more than 60 firefighters fought the fire.</p>

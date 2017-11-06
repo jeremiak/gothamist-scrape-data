@@ -1,0 +1,11 @@
+---
+author: Jen Carlson
+date: July 30, 2009  5:48 PM
+title: TIME Mag's History of Hipsterdom
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="phpN0Kv4SPM.jpg" src="https://web.archive.org/web/20120504040223im_/http://gothamist.com/attachments/arts_jen/phpN0Kv4SPM.jpg" width="257" height="300" class="image-right"> </span>Hey hipsters, you&apos;re too disaffected to probably care, but: you&apos;ve finally made it into the pages of TIME magazine! Or at least onto their internet home. They begin their <a href="https://web.archive.org/web/20120504040223/http://www.time.com/time/arts/article/0,8599,1913220,00.html">brief history of the hipster</a> by narrowing the group down to people who hate Coldplay, love silk-screened tees, and drink PBR. We cross-referenced this in our Urban Outfitters Hipster&apos;s Guide to the Galaxy handbook that doesn&apos;t exist because hipsters would never buy it, and it all seemed to check out.</p>
+
+<p>They move on with history lessons and the genus and blah blah yawn <em>when are they going to talk about you</em> and your awesome PBR-drinking lifestyle? Here we go; the scene is present day Williamsburg:</p><blockquote>The hip have been hit with a double whammy of economic reality (more are struggling to pay rent as parental support dries up) and population changes (the carefully gentrified neighborhood is gradually being infiltrated <a href="https://web.archive.org/web/20120504040223/http://gothamist.com/tags/gutterpunks">by squatters</a> inhabiting Williamsburg&apos;s <a href="https://web.archive.org/web/20120504040223/http://gothamist.com/2009/07/13/condo_no_developers_big_williamsbur.php">stalled building projects</a>). Hipsterdom&apos;s largest natural habitat, it seems, is under threat. <p></p>
+
+<p><strong>The hipsters who will be the dead end of Western Civilization are the ones who add nothing new or original and simply recycle and reduce old trends into a meaningless meme.</strong> It&apos;s for that reason that when Williamsburg&apos;s hipster playland is in crisis, there aren&apos;t many who are concerned.</p></blockquote>Mad Libs time! Give a hipster a ______ and he&apos;ll ______ for a day, teach a hipster to ______ and he&apos;ll ______ for a lifetime.<p></p>

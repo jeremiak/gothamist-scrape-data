@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: October 23, 2009  7:37 PM
+title: Balloon Boy's Mom Allegedly Admits It Was A Hoax
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2009_10_ballonboy.jpg" src="https://web.archive.org/web/20111202005053im_/http://gothamist.com/attachments/jen/2009_10_ballonboy.jpg" width="90" height="68" class="image-right"> </span>Aha!  The <a href="https://web.archive.org/web/20111202005053/http://www.denverpost.com/ci_13628771">AP reports</a>, &quot;According to documents released today by Larimer County Sheriff Jim Alderden, the boy&apos;s mother, <a href="https://web.archive.org/web/20111202005053/http://gothamist.com/2009/10/16/balloon_boy_investigated_911_call_l.php">Mayumi Heene</a>, told authorities two days after the<a href="https://web.archive.org/web/20111202005053/http://gothamist.com/2009/10/15/and_in_colorado_little_boy_floats_a.php"> balloon flight</a> that she and her husband knew all along that their son Falcon was hiding in the residence and was not in the balloon.&quot; Also, she allegedly said that the balloon was made for the hoax and that they were trying to get a reality show deal. Her husband&apos;s lawyer dismissed the news, &quot;Her English is not that great, first of all.&quot;</p>

@@ -1,0 +1,11 @@
+---
+author: Jen Chung
+date: June  8, 2009 10:15 AM
+title: R.I.P., DKNY Mural
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="2009_06_dedkny.jpg" src="https://web.archive.org/web/20110706143553im_/http://gothamist.com/attachments/jen/2009_06_dedkny.jpg" width="640" height="480"> <br> <i>Photograph by <a href="https://web.archive.org/web/20110706143553/http://www.boweryboogie.com/2009/06/breaking-dkny-mural-gone.html">Bowery Boogie</a></i></div> <p></p>
+
+<p>A <a href="https://web.archive.org/web/20110706143553/http://gothamist.com/2008/03/27/dknys_soho_wall.php">piece of Soho advertising</a> that had become a familiar and even beloved sight is gone from its Houston at Broadway spot: <a href="https://web.archive.org/web/20110706143553/http://www.boweryboogie.com/2009/06/breaking-dkny-mural-gone.html">Bowery Boogie reports</a>, &quot;As of this morning, the DKNY mural at the corner of Houston and Broadway is gone. Painted a shade of brown. Although, the former lettering is still somewhat visible.&quot;</p>
+
+<p>The wall is being painted brown by the building&apos;s <a href="https://web.archive.org/web/20110706143553/http://gothamist.com/2008/03/27/dknys_soho_wall.php">new anchor retail tenant, Hollister</a>&#x2014;it will <a href="https://web.archive.org/web/20110706143553/http://curbed.com/archives/2009/02/24/soho_shocker_iconic_dkny_wall_disappearing_going_gray_.php">look something like this</a>.  Community Board 2 chairman Brad Hoylman said of the <a href="https://web.archive.org/web/20110706143553/http://www.nypost.com/seven/02252009/news/regionalnews/a_mural_dilemma_in_soho_156802.htm">DKNY mural earlier this year</a>, &quot;While there&apos;s some nostalgia for the DKNY sign, it&apos;s not exactly the Domino Sugar factory.&quot; One resident <a href="https://web.archive.org/web/20110706143553/http://www.ny1.com/content/top_stories/100153/soho-mural-to-be-painted-over/Default.aspx">said to NY1 last week</a>, &quot;<strong>It&apos;s going to be sad to see the World Trade Center not there, because it&apos;s like a reminder of the towers and a reminder of what the city used to look like.</strong>&quot;  The DKNY mural after the jump:</p>

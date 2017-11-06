@@ -1,0 +1,9 @@
+---
+author: Jen Carlson
+date: December 24, 2007  4:59 PM
+title: Park Slope Strollers Line Up for the Gap  
+---
+
+<p><img alt="200712tealounge.jpg" src="https://web.archive.org/web/20110611050801im_/http://gothamist.com/attachments/arts_jen/200712tealounge.jpg" width="240" height="180" class="right">When <a href="https://web.archive.org/web/20110611050801/http://www.parkslopeparents.com/">ParkSlopeParents.com</a> advertised an open casting call for the new face of Baby Gap, we&apos;re sure an emergency meet-up took place at Tea Lounge. Who would make the cut?! Well <a href="https://web.archive.org/web/20110611050801/http://www.observer.com/2007/park-slope-parents-trotting-tots-baby-gap-audition-emit-aura-careful-nonchalance">The Observer</a> reports from the front lines of the stroller-heavy Slope, outside of Kidville on Union Street where tots recently lined up.</p><blockquote>In another city, even in another New York City neighborhood perhaps, a model search like this would bring out the momagers and mini pageant stars in force for their once in a lifetime shot at the big time. Here, if there was any real mania to turn the babies into models it was not to be seen beneath the patter of parents cooing at and complimenting each other on their babies. The event drew a well-heeled crowd who were more than a little conflicted by their own bright-lights curiosity.</blockquote>One pop mentioned &quot;most of the parents didn&#x2019;t seem very interested in their kids getting picked at all.&quot; But were guessing more than a few shared one couple&apos;s idea, who said, &#x201C;If it worked out, we thought it would be a nice way to help pay for preschool.&#x201D; One thing is for certain, if a Park Slope baby got picked, no one would hear the end of it at weekly playdates.<p></p>
+
+<p><em>Photo via <a href="https://web.archive.org/web/20110611050801/http://www.flickr.com/photos/kansasliberal/288113460">Kansas Liberal&apos;s Flickr</a>.</em></p>

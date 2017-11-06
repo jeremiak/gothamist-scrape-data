@@ -1,0 +1,15 @@
+---
+author: Jen Carlson
+date: Apr 16, 2010 5:52 pm
+title: Arsonist Shoe Shiner's Pal Says "Competition is Cutthroat"
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="swain0410shoeshiner.jpg" src="https://web.archive.org/web/20150522113343im_/http://gothamist.com/attachments/arts_jen/swain0410shoeshiner.jpg" width="275" height="249" class="image-left"> </span><a href="https://web.archive.org/web/20150522113343/http://gothamist.com/2010/04/15/shoe_shiner.php">Yesterday</a> we reported that 71-year-old John Swain confessed to burning down the Bryant Park Corporation&apos;s shoe shine booth not <a href="https://web.archive.org/web/20150522113343/http://gothamist.com/2010/03/23/shoe_shine.php">once</a>, but <a href="https://web.archive.org/web/20150522113343/http://gothamist.com/2010/04/06/shoe_shine_1.php"><em>twice</em></a> over the past month. A few hours later we reported that after being charged with two counts of arson, he was <a href="https://web.archive.org/web/20150522113343/http://gothamist.com/2010/04/15/is_the_arsonist_shoe_shiner_back_on.php">back at his shoe shining station</a> at Grand Central! Both the <a href="https://web.archive.org/web/20150522113343/http://www.nypost.com/p/news/local/shoeshiner_who_torched_two_stands_sdfk0tvwmJ4Osq5xZPnNXO?CMP=OTC-rss&amp;FEEDNAME=">NY Post</a> and <a href="https://web.archive.org/web/20150522113343/http://www.nytimes.com/2010/04/16/nyregion/16shine.html?partner=rss&amp;emc=rss">NY Times</a> went to visit the elderly arsonist&#x2014;who could be facing either a fine or jail time&#x2014;and there he was, wearing a cardboard sign around his neck with black lettering that read: Shoe Shine. </p>
+
+<p>The Fire Department has noted that Swain was angry that he wasn&apos;t permitted to work the Bryant Park booth&#x2014;most likely by other shoe shiners, who police the booth themselves even though it was put there by the Bryant Park Corporation. Swain&apos;s roommate Don Ward, a shoe shiner on 6th and 47th, says Swain believed the BPC&apos;s stand was stealing his business, a grudge he may have been holding for some 15 years. Ward told the Times, <strong>&#x201C;The frustration has been building up for a long time. You&#x2019;ve got to understand something: Out here, the competition is cutthroat, dog-eat-dog. If the other guy is taking your customers, he&#x2019;s stealing your livelihood, and you can&#x2019;t let that happen.&#x201D;</strong> Swain says his lawyer has told him not to discuss the case, but agreed with Ward, telling the reporter: &#x201C;You heard him right.&#x201D; His court appearance is on May 17th, and he says the facts revealed at that time will improve his image.</p>
+
+<p>Meanwhile, the BPC&apos;s Dick Dillon addresses Swain being out on the streets again, saying, &quot;I would have felt he would have gotten something a little more severe. I mean, the guy burns something down and he&#x2019;s allowed right back out?&quot;</p>					
+										
+									
+				

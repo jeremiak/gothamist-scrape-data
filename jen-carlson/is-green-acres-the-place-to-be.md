@@ -1,0 +1,15 @@
+---
+author: Jen Carlson
+date: Mar 17, 2008 1:41 pm
+title: Is Green Acres the Place to Be?
+---
+
+	
+										<p><img alt="200803farmsters.jpg" src="https://web.archive.org/web/20160417053024im_/http://gothamist.com/attachments/arts_jen/200803farmsters.jpg" width="269" height="360" class="left">Tie-dye is making a comeback in the fashion world (though most higher end shops are calling it &quot;dip dye&quot;), and it&apos;s not uncommon to hear Phish or The Grateful Dead playing at a coffee shop on Bedford Avenue...but are all of these signs that hipsters are becoming hippies? It seems the proof is in the homegrown pudding, as <a href="https://web.archive.org/web/20160417053024/http://www.nytimes.com/2008/03/16/fashion/16farmer.html?em&amp;ex=1205812800&amp;en=72f93cc99403b74a&amp;ei=5087%0A">The NY Times</a> reports on many young city slickers trading in their tight-jeans for some overalls (making their thrift store 4-H t-shirts no longer ironic). That&apos;s right, <a href="https://web.archive.org/web/20160417053024/http://www.nytimes.com/2007/07/08/fashion/08librarian.html?_r=1&amp;oref=slogin">hipster librarians are <em>so over</em></a>, all the cool kids are taking up farming now -- and even <em>current</em> city-dwellers are cheering them on. One commented on the winds of change a-blowin&apos;, saying, &quot;our rock stars are ricotta makers.&#x201D; </p>
+
+<p>The Times piece follows a small flock of these farmsters, who are certainly <a href="https://web.archive.org/web/20160417053024/http://audubonmagazine.org/features0703/cuisine.html">not the first</a> to leave <a href="https://web.archive.org/web/20160417053024/http://Pitchforkmedia.com/">Pitchfork</a> for a pitchfork. Benjamin Shute abandoned his Brooklyn Lager-imbibing Williamsburg lifestyle (where he played in a dart league) to get back to his roots in food production. After growing strawberries on his roof, he headed to Tivoli, New York to start <a href="https://web.archive.org/web/20160417053024/http://www.heartyroots.com/">Hearty Roots</a> with his partner-in-farm Miriam Latzer. This is just one example of a small-scale farm popping up near the city, and one small part of a positive growing social movement. In Tivoli (which is like the hipster mecca of farming) they are joined by KayCee Wimbish and Owen O&#x2019;Connor (pictured), who both moved there earlier this month to start the somewhat unfortunately named <a href="https://web.archive.org/web/20160417053024/http://www.awesomefarmny.com/">Awesome Farm</a>. </p>
+
+<p>Do you want to try out farm living but fear leaving the big city for more desolate digs? This summer, Just Food&apos;s City Chicken Project will build you a new chicken coop and give you chickens for your garden!  There are some rules you&apos;ll need to follow: &quot;Applicants must be NYC community groups of 8 or more people, must have 8 square feet of space for each hen, and should have a plan to use the eggs to feed their communities.  Application deadline: April 18th.&quot; Ready to get dirty?  Contact Owen at Just Food for more information: 212.645.9880.</p>					
+										
+									
+				

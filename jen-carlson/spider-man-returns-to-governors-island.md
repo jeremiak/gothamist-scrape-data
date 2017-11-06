@@ -1,0 +1,7 @@
+---
+author: Jen Carlson
+date: August  6, 2010  3:02 PM
+title: Spider-Man Returns To Governors Island
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="spidermangovis.jpg" src="https://web.archive.org/web/20110623131218im_/http://gothamist.com/attachments/arts_jen/spidermangovis.jpg" width="120" height="116" class="image-right"> </span>This Sunday Fred Van Lente, author of <em>The Amazing Spiderman</em>, will be on Governors Island this Sunday at 1:30 p.m. talking about how his protagonist landed on the island in two issues of the series. <a href="https://web.archive.org/web/20110623131218/http://govislandblog.com/2010/08/05/spiderman-returns-to-governors-island-on-sunday/">Governors Island blog</a> notes that &quot;in each story, Spiderman battles the Sandman around some of the island&#x2019;s most notable landmarks and areas, including Castle Williams, Fort Jay, the historic district and even the Brooklyn Battery Tunnel vent shaft (which is how the evil Sandman accesses Governors Island). Even the old Burger King on the southern end of the Island makes an appearance in the story.&quot; Yes, <a href="https://web.archive.org/web/20110623131218/http://ny.curbed.com/archives/2004/07/01/the_lost_burger_king_of_governors_island.php">there was a Burger King on Governors Island</a>! If you want to ask Van Lente some Spidey questions, or maybe about how he researched all these spots, drop by the Commanding Officers House on Sunday.</p>

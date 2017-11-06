@@ -1,0 +1,13 @@
+---
+author: Jen Chung
+date: Jul 8, 2010 10:44 am
+title: 2010 Emmy Noms: Glee Leads With 19, Conan Gets A Nod
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2010_07_conanemmy.jpg" src="https://web.archive.org/web/20150428150217im_/http://gothamist.com/attachments/jen/2010_07_conanemmy.jpg" width="200" height="239" class="image-left"> </span>The <a href="https://web.archive.org/web/20150428150217/http://emmys.org/">Emmys</a> showed the nomination love to <em>Glee, Mad Men, Lost, Modern Family, The Good Wife</em>, and many more programs. <em>Glee&apos;</em>s Matthew Morrison and Lea Michele got lead acting nods, while Chris Colfer and Jane Lynch were recognized in the supporting category (if Lynch doesn&apos;t win, it&apos;ll just be another Emmy screwup), as part of <em>Glee</em>&apos;s 19 nominations.  And here&apos;s a show that we&apos;d like to see win:  Conan O&apos;Brien&apos;s <em>Tonight Show</em> was nominated for best variety or sketch comedy program (as well as best writing for variety or sketch comedy), while Letterman and Leno&apos;s show weren&apos;t.</p>
+
+<p><em>Mad Men</em>&apos;s Jon Hamm, January Jones, Christina Hendricks, John Slattery and Elisabeth Moss all got nominations, as did<em> <a href="https://web.archive.org/web/20150428150217/http://gothamist.com/2010/05/24/so_that_happened_lost_ended.php">Lost</a></em>&apos;s Matthew Fox, Terry O&apos;Quinn (as the Smoke Monster!) and Michael Emerson.  Other notable nods: Amy Poehler  for <em>Parks &amp; Recreation</em>, Jim Parsons for <em>The Big Bang Theory</em>, and Betty White for <a href="https://web.archive.org/web/20150428150217/http://gothamist.com/2010/05/09/betty_white_is_golden_on_saturday_n.php">her <em>SNL</em> hosting gig.</a> Notable snubs: <em>Entourage</em> wasn&apos;t nominated for best comedy (yay!), no <em>Law &amp; Order </em>pity nod for best drama (boo) and <em>Modern Family&apos;</em>s Ed O&apos;Neill was the only adult cast member not to get a nomination (can the Academy not forgive him for playing Al Bundy?!).  Here&apos;s a <a href="https://web.archive.org/web/20150428150217/http://www.hollywoodreporter.com/hr/content_display/news/e3ic639ed027f3e13c9db61ce101917e812?pn=2">list of major categories</a>; here&apos;s <a href="https://web.archive.org/web/20150428150217/http://www.emmys.com/nominations">the full list</a>.</p>					
+										
+									
+				

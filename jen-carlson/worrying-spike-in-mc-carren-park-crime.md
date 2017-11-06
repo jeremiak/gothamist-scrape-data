@@ -1,0 +1,11 @@
+---
+author: Jen Carlson
+date: July  2, 2010  3:32 PM
+title: Worrying Spike In McCarren Park Crime
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:350px; "> <img alt="phpvRpNbsPM.jpg" src="https://web.archive.org/web/20120602115325im_/http://gothamist.com/attachments/arts_jen/phpvRpNbsPM.jpg" width="350" height="233"> <br> <i><span class="photo_caption">Photo by <a href="https://web.archive.org/web/20120602115325/http://www.flickr.com/photos/damski/4490669199/">Adam Lerner</a></span></i></div> The Bad Old Days have returned to <a href="https://web.archive.org/web/20120602115325/http://gothamist.com/tags/mccarrenpark">McCarren Park</a>. According to <a href="https://web.archive.org/web/20120602115325/http://www.brooklynpaper.com/stories/33/27/wb_as_mccarrencrime_2010_07_09_bk.html">the Brooklyn Paper</a>, there&apos;s been a &quot;crime wave&quot; in the area, with 15 incidents occurring over the past 3 months&#x2014;including two recent violent incidents. The paper reports that last Saturday at 8:30 p.m. a woman was raped in the park&apos;s bathrooms after meeting a man on the corner of North 12th Street and Bedford Avenue, and on June 18th a gunman fired at random at 1 a.m. Neither have been caught; the North Brooklyn Parks Administrator says they&apos;re now hiring a park enforcement police officer. <p></p>
+
+<p>Some locals believe that increased activity in the park will bring down the crime, while others would like to see more lights on the darker stretches of streets surrounding the park, as well as functioning path-lights inside.</p>
+
+<p>All in all, there has been a 10% increase in criminal complaints (<a href="https://web.archive.org/web/20120602115325/http://nyc.gov/html/nypd/downloads/pdf/crime_statistics/cs094pct.pdf">PDF</a>) in the past month for the 94th Precinct (hello, increased overnight street patrols). As <a href="https://web.archive.org/web/20120602115325/http://gothamist.com/2009/06/18/homicide.php">mentioned last year</a>, NYC becomes a &quot;distinctively lethal place&quot; during the summer.</p>

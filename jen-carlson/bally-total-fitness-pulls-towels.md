@@ -1,0 +1,11 @@
+---
+author: Jen Carlson
+date: December  3, 2008  4:08 PM
+title: Bally Total Fitness Pulls Towels
+---
+
+<p><img alt="towelbally1208.jpg" src="https://web.archive.org/web/20111104183145im_/http://gothamist.com/attachments/arts_jen/towelbally1208.jpg" width="200" height="251" class="left">Bally Total Fitness, the <a href="https://web.archive.org/web/20111104183145/http://gothamist.com/2004/02/18/ballys_total_fitness_deceptive_and_unlawful_business_practices.php">notoriously deceptive</a> gym, has found a new way to screw over its loyal members. A reader informs us that &quot;<strong>the <a href="https://web.archive.org/web/20111104183145/http://newyork.citysearch.com/profile/7142250/new_york_ny/bally_sports_club_worldwide_plaza.html">Bally&apos;s Sports Club in Worldwide Plaza</a> announced this week that, effective Dec. 15, it will no longer provide clean towels for members to use</strong>.&quot;</p>
+
+<p>Earlier this year the club got <a href="https://web.archive.org/web/20111104183145/http://gothamist.com/2008/01/07/gyms.php">a failing grade</a> for their cleanliness, so a decision to remove towels likely won&apos;t help out with the whole <em><a href="https://web.archive.org/web/20111104183145/http://gothamist.com/2008/02/12/new_york_gyms_a.php">bacteria</a> festering away on the equipment</em> thing. The tipster continues, saying: &quot;This raised concerns among members who worried about potential health issues, not to mention the luxury of having a clean towel to use to dry off after a shower or a swim in the club&apos;s pool. I think that it&apos;ll take one person to slip on wet equipment (like a treadmill) or a wet floor, and the club will wish that towels was its biggest expense.&quot; </p>
+
+<p>A call to Bally confirmed that all of their clubs will be pulling towels from their shelves, allegedly due to budget concerns. When asked, New York Sports Club said they would be continuing their towel service...now if only you could get out of that iron-clad Bally membership. For now, it&apos;s <a href="https://web.archive.org/web/20111104183145/http://www.fitsugar.com/1003321">B.Y.O.T.</a> time (<a href="https://web.archive.org/web/20111104183145/http://www.herecomestheboss.com/blog/wp-content/uploads/2008/05/nudegym_450x338.jpg">which could be a good thing</a>?).</p>

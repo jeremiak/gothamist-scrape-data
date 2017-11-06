@@ -31,7 +31,7 @@ title: [Update] 50 People Killed At Gay Nightclub In Orlando In "Domestic Terror
 
 <p>After calls from Orlando Mayor Buddy Dyer, Gov. Rick Scott has now declared a state of emergency for Florida in the wake of the attack.</p>
 
-&lt;center.<blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">JUST IN: Florida gov. declares State of Emergency in aftermath of Orlando mass shooting <a href="https://web.archive.org/web/20170310071046/https://t.co/ZdaJMt338S">https://t.co/ZdaJMt338S</a> <a href="https://web.archive.org/web/20170310071046/https://t.co/70yvflfVkd">pic.twitter.com/70yvflfVkd</a></p>&#x2014; ABC News (@ABC) <a href="https://web.archive.org/web/20170310071046/https://twitter.com/ABC/status/742028269537644544">June 12, 2016</a></blockquote>
+<center.<blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">JUST IN: Florida gov. declares State of Emergency in aftermath of Orlando mass shooting <a href="https://web.archive.org/web/20170310071046/https://t.co/ZdaJMt338S">https://t.co/ZdaJMt338S</a> <a href="https://web.archive.org/web/20170310071046/https://t.co/70yvflfVkd">pic.twitter.com/70yvflfVkd</a></p>&#x2014; ABC News (@ABC) <a href="https://web.archive.org/web/20170310071046/https://twitter.com/ABC/status/742028269537644544">June 12, 2016</a>
 <script async src="//web.archive.org/web/20170310071046js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script>
 
 <p>Mateen&apos;s father, Mir Seddique, <a href="https://web.archive.org/web/20170310071046/http://www.nbcnews.com/storyline/orlando-nightclub-massacre/orlando-nightclub-shooting-emergency-services-respond-reports-gunman-n590446">told NBC News</a> that the incident &quot;has nothing to do with religion,&quot; and stemmed instead from an incident a few months ago when his son &quot;saw two men kissing in Miami&quot; and became enraged. He added, &quot;We are saying we are apologizing for the whole incident. We weren&apos;t aware of any action he is taking. We are in shock like the whole country.&quot;</p>
@@ -98,4 +98,4 @@ title: [Update] 50 People Killed At Gay Nightclub In Orlando In "Domestic Terror
 <p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2016_06_pulsenightclub.jpg" src="https://web.archive.org/web/20170310071046im_/http://gothamist.com/attachments/jen/2016_06_pulsenightclub.jpg" width="640" height="407"> <br> <i> Orlando police officers seen outside of Pulse nightclub after a fatal shooting and hostage situation on June 12, 2016 in Orlando, Florida (Getty Images)</i></div> <p></p>					
 										
 									
-				
+				</center.<blockquote>

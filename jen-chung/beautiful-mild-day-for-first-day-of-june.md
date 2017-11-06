@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: June  1, 2009  8:45 AM
+title: Beautiful, Mild Day For First Day Of June
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2009_06_weat0601.jpg" src="https://web.archive.org/web/20110811091456im_/http://gothamist.com/attachments/jen/2009_06_weat0601.jpg" width="140" height="112" class="image-right"> </span>June is welcoming us with some fine weather. WCBS 2 meteorologist <a href="https://web.archive.org/web/20110811091456/http://wcbstv.com/topstories/nyc.weather.forecast.2.971612.html">Elise Finch says</a>, &quot;We are looking at, still, some very mild conditions...We start with lots of sunshine. The day will be a little cool to start, but we&apos;re expecting a high of 73 degrees. We&apos;re going to have breezy conditions for your Monday, [but] all-in-all, a very nice day - plenty of sunshine out there.&quot; Unfortunately, tomorrow will be cloudy (or partly cloudy) with a chance of showers in the evening; the temperature will hits the 80s before the front moves in, though. There may be showers on Wednesday morning as well. More on <a href="https://web.archive.org/web/20110811091456/http://www.wunderground.com/cgi-bin/findweather/getForecast?query=new%20york,%20ny&amp;wuSelect=WEATHER">NYC weather at Weather Underground</a>. <span class="photo_caption">Photo taken on the High Line from <a href="https://web.archive.org/web/20110811091456/http://www.flickr.com/photos/kittenclaw/3583676146/">Irene Roxanne (aka Irena Kittenclaw) on Flickr</a></span></p>

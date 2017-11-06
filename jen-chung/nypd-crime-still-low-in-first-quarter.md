@@ -1,0 +1,11 @@
+---
+author: Jen Chung
+date: Apr 27, 2009 2:00 pm
+title: NYPD: Crime Still Low In First Quarter
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2009_04_handgun.jpg" src="https://web.archive.org/web/20160229094326im_/http://gothamist.com/attachments/jen/2009_04_handgun.jpg" width="135" height="101" class="image-right"> </span>Late last week, the police department revealed that first quarter 2009 crime was the lowest in over 40 years. <a href="https://web.archive.org/web/20160229094326/http://www.1010wins.com/pages/4268303.php">According to the AP</a>, &quot;Through the end of March, overall crime dropped 13.5 percent from a year ago, down in every major category including homicides where there were 89, according to daily crime statistics from police. Last year there were 116 during the same period.&quot;  Police Commissioner Ray Kelly said, &quot;I know there&apos;s an anticipation ... that crime would go up as a result of the economic turndown. We just haven&apos;t experienced that.&quot; Of course, these stats don&apos;t include this past weekend&apos;s violence: <a href="https://web.archive.org/web/20160229094326/http://www.nypost.com/seven/04272009/news/regionalnews/14_shot_in_single_day_166420.htm">14 people were shot yesterday</a> (one woman, in her Fort Greene apartment, was <a href="https://web.archive.org/web/20160229094326/http://www.nydailynews.com/news/ny_crime/2009/04/27/2009-04-27_bklyn_woman_wounded_by_stray_bullet.html">hit by stray gunfire</a>) while there were <a href="https://web.archive.org/web/20160229094326/http://www.nydailynews.com/news/ny_crime/2009/04/27/2009-04-27_2_killed_in_weekend_of_bx_violence.html">13 shootings over the weekend</a> in the Bronx (including <a href="https://web.archive.org/web/20160229094326/http://www.nydailynews.com/news/ny_crime/2009/04/27/2009-04-27_shows_off_gun_pal_shot_dead.html">one fatality apparently from</a> one friend showing another his gun).</p>					
+										
+									
+				

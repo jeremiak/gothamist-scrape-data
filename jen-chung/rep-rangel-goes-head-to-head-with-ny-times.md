@@ -1,0 +1,15 @@
+---
+author: Jen Chung
+date: Dec 3, 2008 6:41 pm
+title: Rep. Rangel Goes Head to Head with NY Times
+---
+
+	
+										<p><img src="https://web.archive.org/web/20150501163059im_/http://gothamist.com/attachments/jen/2008_09_rangelti.jpg" class="left">It&apos;s politician vs. big newspaper pissing match! Representative Charles Rangel <a href="https://web.archive.org/web/20150501163059/http://gothamist.com/2008/07/11/rangel_says_his_rent_is_fine_and_bl.php">wasn&apos;t happy</a> when the NY Times <a href="https://web.archive.org/web/20150501163059/http://gothamist.com/2008/07/11/congressman_charles_rangel_and_his.php">blew the lid on his four rent-stabilized apartments</a> in Harlem (at a press conference, he told a Times reporter, &quot;Don&#x2019;t make yourself look more dumb than you want&quot;) over the summer.  </p>
+
+<p>Now the powerful chairman of the House Ways and Means Committee is upset about the Times&apos; story from last week; the article suggested that an oil executive donated $1 million to the City College school of public service being named after Rangel because <a href="https://web.archive.org/web/20150501163059/http://gothamist.com/2008/11/25/another_day_another_question_about.php">Rangel preserved a tax loophole</a>.  Yesterday, the Ways and Means Committee <a href="https://web.archive.org/web/20150501163059/http://www.politico.com/news/stories/1208/16114.html">communications director said</a>, &quot;<strong>The New York Times reporter repeatedly ignored facts and statements provided by tax policy experts that Chairman Rangel played no role in defending this tax loophole</strong>. In fact, the Nabors Corp. was grandfathered into the benefit by those who negotiated the 2004 Republican Jobs Act, a group that did not include Chairman Rangel.&#x201D;</p>
+
+<p>Now Rangel has sent a detailed letter to the Times complaining about the story. And the NY Times <a href="https://web.archive.org/web/20150501163059/http://www.nytimes.com/interactive/2008/12/03/nyregion/20081203_rangel_letter.html">printed Rangel&apos;s letter with a point-by-point response</a> and prefaced &quot;He Said, Times Said&quot; bit with:</p><blockquote> The article was based on weeks of reporting, including an extensive review of Congressional records, public statements and news media accounts of the legislation as it was written, as well as interviews with dozens of people involved in the creation of the law &#x2014; from members of Congress and Congressional staff members to lobbyists, corporate executives and other interested parties. In an effort to provide a fair and complete depiction of Mr. Rangel&#x2019;s account of events, he was repeatedly asked for an interview, and when he declined those requests, his lawyers were given the opportunity to convey his recollections &#x2014; which they did in face-to-face discussions, more than two dozen telephone conversations and via e-mail, over the course of several weeks. Those recollections were reflected in the article itself.</blockquote>We can&apos;t wait until Round 2!<p></p>					
+										
+									
+				

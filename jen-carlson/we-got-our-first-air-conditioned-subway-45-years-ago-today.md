@@ -1,0 +1,18 @@
+---
+author: Jen Carlson
+date: July 19, 2012 12:39 PM
+title: We Got Our First Air Conditioned Subway 45 Years Ago Today
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="67sub0812.jpeg" src="https://web.archive.org/web/20130517071655im_/http://gothamist.com/attachments/arts_jen/67sub0812.jpeg" width="640" height="527" class="image-none"> </span><br>
+<span class="photo_caption">1967 straphangers</span></p>
+
+<p>We just celebrated the air conditioner (a Brooklyn native), which <a href="https://web.archive.org/web/20130517071655/http://gothamist.com/2012/07/12/did_you_know_the_air_conditioner_is.php">turns 110 this year</a>, and now it&apos;s time to celebrate the air conditioning in the subway system (<a href="https://web.archive.org/web/20130517071655/http://gothamist.com/2011/07/20/where_the_f_is_the_ac_on_the_c_trai.php">when it works</a>). The first air conditioned cars were introduced 45 years ago today&#x2014;on July 19th, 1967 (how was this not in <a href="https://web.archive.org/web/20130517071655/http://gothamist.com/tags/madmen"><em>Mad Men</em></a>?).</p>
+
+<p>The first cars to get the cool air were ten R38 cars on the F line, following &quot;two decades of work to produce air-conditioning units small enough to fit IRT cars and powerful enough to handle a large number of customers traveling during rush hours,&quot; according to <a href="https://web.archive.org/web/20130517071655/http://www.mta.info/nyct/facts/ffhist.htm">the MTA</a>. Prior to this, straphangers only had ceiling fans (you can still find those in <a href="https://web.archive.org/web/20130517071655/http://gothamist.com/tags/nostalgiatrains">the nostalgia trains</a>), which were introduced in 1933.</p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="acnyt0712.jpeg" src="https://web.archive.org/web/20130517071655im_/http://gothamist.com/attachments/arts_jen/acnyt0712.jpeg" width="640" height="284" class="image-none"> </span></p>
+
+<p>The A.C. experiment was successful and led Mayor Lindsay to sign off on the purchase of 600 more air conditioned cars. In December of 1967, <a href="https://web.archive.org/web/20130517071655/http://select.nytimes.com/gst/abstract.html?res=F4061EF73554177B93C1A91789D95F438685F9">the NY Times</a> noted that the estimated cost was $15 million, and the rollout would be complete by 1969. Commissioner John J. Gilhooley of the Transit Authority said, &quot;We&apos;ll move heaven and earth to get as many of them built and in operation as we can at the earliest possible time.&quot; At the time, Mayor Lindsay also declared, &quot;We are initiating a study to see if there are other ways of air-conditioning, such as cooling stations and tunnels themselves so that the cars would not have to be cooled.&quot;</p>
+
+<p>The A.C. was popular with teenagers, and <a href="https://web.archive.org/web/20130517071655/http://famousdaily.com/history/first-air-conditioned-subway-car-nyc.html">the NY Times</a> wrote that year, with one young rider telling them, &quot;Boys take their dates to the movies to cool off. Now, they can take them for a subway ride instead.&#x201D; And one 14-year-old girl said she rode 4 to 6 hours. Though as time passed, the a/c began to break down, and photographer John Conn once <a href="https://web.archive.org/web/20130517071655/http://achillesinthealleyway.blogspot.com/2011/11/grave-yard-trains.html">recalled</a>, &quot;The air conditioning never worked. People rode between cars because it was the only way to stay cool.&quot;</p>

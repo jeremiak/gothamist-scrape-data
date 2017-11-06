@@ -1,0 +1,26 @@
+---
+author: Jen Carlson
+date: May 27, 2015 4:16 pm
+title: Video: Dog Found Abandoned & Crawling Through Harlem Park Takes Her First Steps
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="pupjessie15.jpg" src="https://web.archive.org/web/20151210183438im_/http://gothamist.com/attachments/arts_jen/pupjessie15.jpg" width="640" height="353" class="image-none"> </span></p>
+
+<p>Warning: It&apos;s very, very dusty in here.</p>
+
+<p>Earlier this year an abandoned mastiff pup named Jesse <a href="https://web.archive.org/web/20151210183438/http://thisdogslife.co/a-mastiff-found-abandoned-in-new-york-city-woods-takes-first-steps-5-26-2015/">was found</a> in a park in Harlem. She was injured (it is unclear how) and couldn&apos;t walk on her own, but her rescuers&#x2014;the non-profit <a href="https://web.archive.org/web/20151210183438/http://www.nybullycrew.org/">New York Bully Crew</a>&#x2014;were determined to help. They <a href="https://web.archive.org/web/20151210183438/http://www.youcaring.com/medical-fundraiser/help-us-with-jesse-s-extended-care-rehab-and-therapy-/346267">raised money</a> for her rehab, and documented her progress&#x2014;from crawling, to using some wheels:</p>
+
+<p><iframe width="640" height="360" src="https://web.archive.org/web/20151210183438if_/https://www.youtube.com/embed/L_0qSEhikJw" frameborder="0" allowfullscreen></iframe></p>
+
+<p>Man, *sniff*, allergy season IS really bad this year.</p>
+
+<p>But now there&apos;s good news: Jesse has come a long way since she was found crawling alone in a park in Harlem&#x2014;the organization recently released this video via Instagram, showing her walk on her own! They wrote <a href="https://web.archive.org/web/20151210183438/https://www.facebook.com/crewnewyorkbully/videos/vb.188532397825828/997060080306385/?type=2&amp;theater">on Facebook</a>, &quot;One week ago today, Jesse stood on all fours with no help. During this past week she took her first step. Today, she is walking! I knew she would... Next is running with my pack... This is truly what I live for and feel blessed to have been able to help her through this... And please don&apos;t be sad she fell at the end.. We all as babies have been there.&quot;</p>
+
+<blockquote class="instagram-media" data-instgrm-captioned="" data-instgrm-version="4" style=" background:#FFF; border:0; border-radius:3px; box-shadow:0 0 1px 0 rgba(0,0,0,0.5),0 1px 10px 0 rgba(0,0,0,0.15); margin: 1px; max-width:658px; padding:0; width:99.375%; width:-webkit-calc(100% - 2px); width:calc(100% - 2px);"><div style="padding:8px;"> <div style=" background:#F8F8F8; line-height:0; margin-top:40px; padding:50% 0; text-align:center; width:100%;"> <div style=" background:url(data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAACwAAAAsCAMAAAApWqozAAAAGFBMVEUiIiI9PT0eHh4gIB4hIBkcHBwcHBwcHBydr+JQAAAACHRSTlMABA4YHyQsM5jtaMwAAADfSURBVDjL7ZVBEgMhCAQBAf//42xcNbpAqakcM0ftUmFAAIBE81IqBJdS3lS6zs3bIpB9WED3YYXFPmHRfT8sgyrCP1x8uEUxLMzNWElFOYCV6mHWWwMzdPEKHlhLw7NWJqkHc4uIZphavDzA2JPzUDsBZziNae2S6owH8xPmX8G7zzgKEOPUoYHvGz1TBCxMkd3kwNVbU0gKHkx+iZILf77IofhrY1nYFnB/lQPb79drWOyJVa/DAvg9B/rLB4cC+Nqgdz/TvBbBnr6GBReqn/nRmDgaQEej7WhonozjF+Y2I/fZou/qAAAAAElFTkSuQmCC); display:block; height:44px; margin:0 auto -44px; position:relative; top:-22px; width:44px;"></div></div> <p style=" margin:8px 0 0 0; padding:0 4px;"> <a href="https://web.archive.org/web/20151210183438/https://instagram.com/p/3H3K8mxaW7/" style=" color:#000; font-family:Arial,sans-serif; font-size:14px; font-style:normal; font-weight:normal; line-height:17px; text-decoration:none; word-wrap:break-word;" target="_top">Building courage every day... One step at a time! &#x1F601; #GoJesseGo! By @c.legit5: #MyGirlJesse almost down the stairs &#x1F4AA;&#x1F4AA;&#x1F4AA;&#x1F4AA; soon tho &#x1F601;#WeGotThis #ILiveForThisYo #NYBCFam #NYBCmafia #nybullycrew #newyorkbullycrew</a></p> <p style=" color:#c9c8cd; font-family:Arial,sans-serif; font-size:14px; line-height:17px; margin-bottom:0; margin-top:8px; overflow:hidden; padding:8px 0 7px; text-align:center; text-overflow:ellipsis; white-space:nowrap;">A video posted by NYBC (@newyorkbullycrew) on <time style=" font-family:Arial,sans-serif; font-size:14px; line-height:17px;" datetime="2015-05-25T23:10:28+00:00">May 25, 2015 at 4:10pm PDT</time></p></div></blockquote>
+<script async defer src="//web.archive.org/web/20151210183438js_/http://platform.instagram.com/en_US/embeds.js"></script>
+
+<p>Jesse is not (yet?) up for adoption, but you can adopt <a href="https://web.archive.org/web/20151210183438/http://www.nybullycrew.org/female-dogs.html">any of these lovely ladies</a> the organization has listed. We&apos;re gonna go watch <a href="https://web.archive.org/web/20151210183438/https://www.youtube.com/watch?v=IO9d2PpP7tQ">that Sarah McLachlan SPCA commercial</a> now. [h/t/ <a href="https://web.archive.org/web/20151210183438/http://www.reddit.com/r/nyc/comments/37g6ht/a_mastiff_puppy_found_abandoned_in_new_york_city/">Reddit</a>]</p>					
+										
+									
+				

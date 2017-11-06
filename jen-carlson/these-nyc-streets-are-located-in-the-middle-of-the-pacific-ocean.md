@@ -1,0 +1,36 @@
+---
+author: Jen Carlson
+date: Jul 29, 2015 11:11 am
+title: These NYC Streets Are Located In The Middle Of The Pacific Ocean
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="tinianmaps.jpg" src="https://web.archive.org/web/20170322041943im_/http://gothamist.com/attachments/arts_jen/tinianmaps.jpg" width="640" height="356" class="image-none"> </span><br>
+<span class="photo_caption">Tinian from above, with <a href="https://web.archive.org/web/20170322041943/http://philcrowther.com/6thBG/6bgtinian_roads.html">a map showing the NYC street names</a>.</span></p>
+
+<p>Located just north of Guam, and about 8,000 miles from New York City, is <a href="https://web.archive.org/web/20170322041943/https://www.google.com/maps/place/Tinian,+Northern+Mariana+Islands/@14.997507,145.6344569,32819m/data=!3m1!1e3!4m2!3m1!1s0x66df525597fe6bcf:0x79e4d5d171efc87f">a tiny island in the Pacific Ocean called Tinian</a>. On that island you&apos;ll find 8th Avenue, Broadway, 86th Street, Riverside Drive, Lenox Avenue, West End Avenue, Central Park, and even Greenwich Village. On August 6th, 1945, two atomic bombs were loaded onto aircraft near Broadway&#x2014;these bombs, known as &quot;Fat Man&quot; and &quot;Little Boy,&quot; were dropped on Hiroshima and Nagasaki, killing over one hundred thousand Japanese civilians.</p>
+
+<p><iframe width="640" height="360" src="https://web.archive.org/web/20170322041943if_/https://www.youtube.com/embed/VBP0IKaPZxI" frameborder="0" allowfullscreen></iframe></p>
+
+<p>Tinian is part of the Commonwealth of the Northern Mariana Islands, and is around 39 square miles&#x2014;<a href="https://web.archive.org/web/20170322041943/http://www.globalsecurity.org/military/facility/tinian.htm">it is said</a> to still be used as <a href="https://web.archive.org/web/20170322041943/http://www.stripes.com/news/pacific/mariana-officials-bristle-at-us-military-s-live-fire-plans-for-pagan-tinian-1.340648">a training base</a>, with one or two active runways. According to <a href="https://web.archive.org/web/20170322041943/http://www.leeabbamonte.com/oceania/tinian.html">one recent visitor</a>, the island &quot;is only 5km from Saipan [the largest of the Northern Mariana Islands] and the flight is only 10 minutes and only costs $24.50 one-way.&quot; It&apos;s unclear if the airline, or even the ferry service, is still operational, as they may have both <a href="https://web.archive.org/web/20170322041943/https://en.wikipedia.org/wiki/Tinian#Economy">recently ceased</a> operations.</p>
+
+<p>On the island, you&apos;ll find plaques indicating where the bombs were loaded&#x2014;one states: &quot;From this loading pit the second atomic bomb ever to be used in combat was loaded aboard a B-29 aircraft and dropped on Nagasaki, Japan, August 9, 1945.&quot; </p>
+
+<p><iframe width="640" height="480" src="https://web.archive.org/web/20170322041943if_/https://www.youtube.com/embed/xe62yy4ImgQ" frameborder="0" allowfullscreen></iframe></p>
+
+<p>Other memorials also dot the overgrown landscape, along with rusted remnants of war time, old air raid shelters, a formation of ancient stones known as <a href="https://web.archive.org/web/20170322041943/http://www.atlasobscura.com/places/house-of-taga">House of Taga</a>, and <a href="https://web.archive.org/web/20170322041943/http://www.tiniandynasty.com/">a totally out-of-place casino</a>, complete with chandeliers and shiny marble floors.</p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="tiniancasino0715.jpg" src="https://web.archive.org/web/20170322041943im_/http://gothamist.com/attachments/arts_jen/tiniancasino0715.jpg" width="640" height="428" class="image-none"> </span></p>
+
+<p>And now for a little backstory on the island, and how it came to have a New York City imprint. In 1914, <a href="https://web.archive.org/web/20170322041943/https://en.wikipedia.org/wiki/Tinian#World_War_II">during WWI</a>, it was taken over by Japan, which established formal control just four years later. They developed &quot;large-scale sugar plantations, built port facilities, waterworks, power stations, paved roads and schools, along with entertainment facilities and Shinto shrines.&quot; By 1944 the island had a population of 15,700. It was around that time, during WWII, &quot;the island was seized by the Allies during the Battle of Tinian,&quot; during which thousands were killed. America took control of the island, creating a large airbase, and a bizarro Manhattan (the island is about the same size and shape as NYC&apos;s Manhattan).</p>
+
+<blockquote>Immediately after the island&apos;s seizure by the United States, construction work began on one of the largest airbases of World War II, which covered the entire island, excepting its three highland areas. The base was a 40,000-personnel installation, and the Navy Seabees (110th NCB) laid out the base in a pattern of city streets resembling New York&apos;s Manhattan Island, and named the streets accordingly. The former Japanese town of Sunharon was nicknamed &quot;The Village&quot; because its location corresponded to that of Greenwich Village. A large square area between West and North Fields, used primarily for the location of the base hospitals and otherwise left undeveloped, was called Central Park.</blockquote> 
+
+<p>All of those street names remain today. Most recently, the island (which has a population of around 3,000) <a href="https://web.archive.org/web/20170322041943/http://www.mvariety.com/cnmi/cnmi-news/local/78706-tinian-goes-green-launches-recycling-program">launched a recycling program</a>.</p>
+
+<p>To go back to its past, you can find more photos of Tinian in the 1940s <a href="https://web.archive.org/web/20170322041943/http://www.guanoloco.com/memday/Site/memday.html">right here</a>. And this is the crew that bombed Hiroshima, posing on the island in front of the Enola Gay.</p>
+
+<div class="getty embed image" style="background-color:#fff;display:inline-block;font-family:&apos;Helvetica Neue&apos;,Helvetica,Arial,sans-serif;color:#a7a7a7;font-size:11px;width:100%;max-width:594px;"><div style="overflow:hidden;position:relative;height:0;padding:73.400673% 0 0 0;width:100%;"><iframe src="//web.archive.org/web/20170322041943if_/http://embed.gettyimages.com/embed/51828054?et=i8nmlBNCTt1ZzbYQMq2Lwg&amp;viewMoreLink=off&amp;sig=T042f91Ln37vyLwFqtJiFf7VoTfFuYz-X-omVJRInfM=&amp;caption=true" width="594" height="436" scrolling="no" frameborder="0" style="display:inline-block;position:absolute;top:0;left:0;width:100%;height:100%;"></iframe></div><p style="margin:0;"></p><div style="padding:0;margin:0 0 0 10px;text-align:left;"><a href="https://web.archive.org/web/20170322041943/http://www.gettyimages.com/detail/51828054" target="_blank" style="color:#a7a7a7;text-decoration:none;font-weight:normal !important;border:none;display:inline-block;">View image</a> | <a href="https://web.archive.org/web/20170322041943/http://www.gettyimages.com/" target="_blank" style="color:#a7a7a7;text-decoration:none;font-weight:normal !important;border:none;display:inline-block;">gettyimages.com</a></div></div>					
+										
+									
+				

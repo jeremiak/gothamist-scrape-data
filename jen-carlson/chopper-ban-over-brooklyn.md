@@ -1,0 +1,11 @@
+---
+author: Jen Carlson
+date: April 30, 2010  4:07 PM
+title: Chopper Ban Over Brooklyn
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:350px; "> <img alt="phpbIFSmSPM.jpg" src="https://web.archive.org/web/20111118132608im_/http://gothamist.com/attachments/arts_jen/phpbIFSmSPM.jpg" width="350" height="258"> <br> <i><span class="photo_caption">Photo via <a href="https://web.archive.org/web/20111118132608/http://www.flickr.com/photos/23912576@N05/3025331568/">laverrue&apos;s flickr</a></span></i></div> After <a href="https://web.archive.org/web/20111118132608/http://gothamist.com/2010/04/09/hell_no_residents_lawmakers_protest.php">much protest</a>, and some claiming their sound can <a href="https://web.archive.org/web/20111118132608/http://gothamist.com/2010/04/12/can_the_choppers_over_brooklyn_caus.php/">cause brain damage</a>, the helicopter nightmare over Brooklyn may be coming to an end. According to <a href="https://web.archive.org/web/20111118132608/http://www.brooklynpaper.com/stories/33/18/dtg_heightschoppers_2010_05_07_bk.html">the Brooklyn Paper</a> the city instituted a no-fly zone over the entire borough today. The move will eliminate 30% of sightseeing helicopters, that often fly over for aerial views of DUMBO and Brooklyn Heights, as well as ban them from flying below 1,500 feet. There will be no short tours allowed, and no sightseeing over Brooklyn or the Brooklyn Bridge. <p></p>
+
+<p>State Senator Daniel Squadron spearheaded the Stop the Chop campaign, and says &quot;this solution was a quick effort to deal with the problem.&quot; His help came after an outcry from residents, who claim their calls to 311 weren&apos;t being logged, which resulted in difficulty proving the noise was a nuisance.</p>
+
+<p>A group rallying against helicopter noise in NYC adds that there will also be no sight seeing flights allowed over Central Park, or the Empire State Building. They have the <a href="https://web.archive.org/web/20111118132608/http://www.helifreenyc.org/2010/04/30/new-york-edc-releases-releases-new-york-city-helicopter-sightseeing-plan/">full press release</a> which outlines the entire effort as well as the new regulations. Serenity now!</p>

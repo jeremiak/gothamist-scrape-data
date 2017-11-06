@@ -1,0 +1,7 @@
+---
+author: Jen Carlson
+date: December 21, 2009  6:00 PM
+title: According To Anonymous Source: A-Rod's A Diva
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="phpGv7hxbPM.jpg" src="https://web.archive.org/web/20110611054718im_/http://gothamist.com/phpGv7hxbPM.jpg" width="100" height="120" class="image-right"> </span>It seems the <a href="https://web.archive.org/web/20110611054718/http://gothamist.com/tags/katehudson">Kate Hudson</a>/A-Rod breakup is getting more attention than their relationship ever did. Today <a href="https://web.archive.org/web/20110611054718/http://www.nydailynews.com/gossip/2009/12/20/2009-12-20_side_dish_kate_hudsons_folks_goldie_hawn__kurt_russell_help_her_get_over_arod.html">the Daily News</a> says the starlet is shacked up at her family&apos;s Aspen chalet, where Goldie Hawn and Kurt Russell are helping are helping get over the Yankee. Meanwhile, her friends say, &quot;Kate is better off. She had much better chemistry with Owen Wilson. Alex is such a diva. When he came to the London premiere of <em>Nine</em>, it was obvious he didn&apos;t like standing in the background.&quot; But his friends say he just wasn&apos;t ready for a serious relationship (<em>typical</em>), and that being together &quot;helped her more than him.&quot;</p>

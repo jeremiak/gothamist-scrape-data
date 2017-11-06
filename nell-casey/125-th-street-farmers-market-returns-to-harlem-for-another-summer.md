@@ -1,0 +1,13 @@
+---
+author: Nell Casey
+date: June 12, 2012  5:20 PM
+title: 125th Street Farmer's Market Returns To Harlem For Another Summer
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="061212farmersmarket.jpg" src="https://web.archive.org/web/20120617164048im_/http://gothamist.com/attachments/nyc_nellcasey/061212farmersmarket.jpg" width="300" height="300" class="image-left"> </span> Access to fresh farm produce will once again be made easier for residents of Upper Manhattan. Today the Governor&apos;s office announced the expansion of the <a href="https://web.archive.org/web/20120617164048/http://www.125thstreetfarmersmarket.com/">125th Street FreshConnect Farmers&apos; Market</a>, which operates on the plaza in front of the Adam Clayton Powell Jr. New York State Office Building in Central Harlem. Starting June 12th and continuing every Tuesday through the end of November, Harlem residents and visitors will be able to enjoy &quot;New York farmers and local vendors selling locally grown and processed foods, as well as...a variety of free community activities.&quot;</p>
+
+<p>The Market officially opened last summer and this year will offer an expanded list of participants and events. &quot;Our state has one of the most diverse agriculture industries and this market allows farmers to bring local, fresh and affordable products to Harlem,&quot; Cuomo said in a statement. Some of the diverse offerings include honey, nuts, dried food and seasonings from Nevins Farm in Pleasant Valley and eggs, poultry, cider and more from Breezy Hill Orchard in Staatsburg. Several of the vendors will even be from the boroughs, with Staten Island&apos;s El Poblano farm offering fruits, veggies and herbs and Brooklyn&apos;s Urban Green Eco Technology will sell herbs and edible plants. Prepared foods like breads, cakes and pies will also be available for purchase.</p>
+
+<p>In addition to the farmer&apos;s fare, health, nutrition and cooking workshops will educate consumers on healthy lifestyle choices and also provide samples and menus. There will also be free yoga, raffle drawings, live music, art and other activities to draw in and engage visitors. </p>
+
+<p>Hot on the heels of his move to <a href="https://web.archive.org/web/20120617164048/http://gothamist.com/2012/05/17/food_stamp_fingerprinting.php">lift the fingerprint requirement for food stamps</a>, Cuomo also revealed that the market will &quot;accept Food Stamp benefits as well as other nutrition incentives, such as Farmers Market Nutrition Program (FMNP) checks.&quot; </p>

@@ -1,0 +1,7 @@
+---
+author: Jen Carlson
+date: May  5, 2010 12:30 PM
+title: Picasso Painting Brings In Record $106.5MM
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="phppRFVjtPM.jpg" src="https://web.archive.org/web/20120602130231im_/http://gothamist.com/attachments/arts_jen/phppRFVjtPM.jpg" width="112" height="120" class="image-right"> </span>The art world is in the money once again. A 78-year-old <a href="https://web.archive.org/web/20120602130231/http://gothamist.com/tags/picasso">Pablo Picasso</a> painting titled &quot;Nude, Green Leaves and Bust&quot; just sold at Christie&apos;s last night for a record $106.5 million, though the auction house only expected around $70 million. The bidder is undisclosed, and called in to the Rockefeller Center salesroom. The painting is 5-by-4-foot and depicts Picasso&apos;s blond mistress, Marie-Therese Walter. Dealer Daniella Luxembourg told <a href="https://web.archive.org/web/20120602130231/http://online.wsj.com/article/SB10001424052748703866704575224873880379734.html?mod=WSJ_NY_MIDDLETopStories">the Wall Street Journal</a> she was surprised it took over the initial estimate, but that &quot;the purchase reflected the market&apos;s volatile mood. &apos;This is a fantastic picture, but the market also wants trophies right now.&apos;&quot; Wonder how much <a href="https://web.archive.org/web/20120602130231/http://gothamist.com/2010/04/09/picasso_1.php">the blowjob painting</a> he denied having anything to do with would go for? (Currently it&apos;s hanging at the Met.)</p>

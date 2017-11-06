@@ -1,0 +1,13 @@
+---
+author: Jen Chung
+date: September 16, 2008  9:44 AM
+title: OSHA Fines Midtown Crane Collapse Contractors
+---
+
+<p><img alt="2008_09_51crane.jpg" src="https://web.archive.org/web/20111117120030im_/http://gothamist.com/attachments/jen/2008_09_51crane.jpg" width="230" height="274" class="left">The federal Occupational Safety and Health Administration has issued a number of violations related to the <a href="https://web.archive.org/web/20111117120030/http://gothamist.com/2008/03/15/midtown_crane_c.php">March 15 crane collapse</a> in Turtle Bay, which <a href="https://web.archive.org/web/20111117120030/http://gothamist.com/2008/03/17/fdny_continues.php">killed seven people</a>. </p>
+
+<p>OSHA blamed the collapse on a <a href="https://web.archive.org/web/20111117120030/http://gothamist.com/2008/03/18/with_seven_dead.php">$40 nylon sling</a>, which the <a href="https://web.archive.org/web/20111117120030/http://www.nydailynews.com/ny_local/2008/09/15/2008-09-15_probe_faults_worn_sling_in_crane_crash.html">Daily News called</a> &quot;torn and tattered from years of misuse.&quot;  OSHA regional director Richard Mendelson said the sling had &quot;<strong>cuts and snags that existed before the March 15 disaster.  I don&apos;t think the slings cost more than $40 each.  There was no practical reason for not replacing one that is worn out.</strong>&quot;  </p>
+
+<p>Rapetti Rigging Services was hit with $220,000 in proposed fines and <a href="https://web.archive.org/web/20111117120030/http://www.nytimes.com/2008/09/16/nyregion/16crane.html?ref=nyregion">charged with &quot;willful violations&quot;</a>--&quot;with plain indifference to or intentional disregard for employee safety and health&quot;--and serious violations--ones where &quot;death or serious physical harm is likely to result from a hazard about which the employer knew or should have known.&#x201D;</p>
+
+<p>Rapetti&apos;s lawyer says they will fight the charges.  Two other contractors were also cited and hit with possible fines.  City Council member Jessica Lappin <a href="https://web.archive.org/web/20111117120030/http://www.nysun.com/new-york/contracting-companies-fined-for-crane-collapse/85919/">told the Sun</a>, &quot;Ultimately there was a failure here to follow basic safety protocol and a heartbreaking tragedy resulted from it. These are harsh penalties and I think totally appropriate.&quot;  And last month, it was reported the construction site where the crane had been working <a href="https://web.archive.org/web/20111117120030/http://gothamist.com/2008/08/02/possible_foreclosure_of_midtown_cra.php">might face foreclosure</a>.</p>

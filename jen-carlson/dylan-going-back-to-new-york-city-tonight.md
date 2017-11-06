@@ -1,0 +1,11 @@
+---
+author: Jen Carlson
+date: Aug 12, 2008 12:01 pm
+title: Dylan Going Back to New York City Tonight
+---
+
+	
+										<p><img alt="0808dylanbob.jpg" src="https://web.archive.org/web/20150502135933im_/http://gothamist.com/attachments/arts_jen/0808dylanbob.jpg" width="130" height="96" class="right">Bob Dylan will be playing to a <a href="https://web.archive.org/web/20150502135933/http://www.nycgovparks.org/sub_things_to_do/upcoming_events/events_search.php?borough=B&amp;c=2008-08-11&amp;search=1&amp;id=140651">sold out</a> crowd at Prospect Park tonight, and while some ticket gouging is going on <a href="https://web.archive.org/web/20150502135933/http://www.gowanuslounge.com/2008/08/12/dylan-in-propect-park-tonight-ticket-bazaar-in-full-swing/">at various online outlets</a>, you can probably hear the mumbling of the folk legend outside the perimeter of the venue for free. Will Dylan be returning to one of his old stomping grounds? There seems to be some uncertainty about him living <a href="https://web.archive.org/web/20150502135933/http://www.brownstoner.com/brownstoner/archives/2005/08/did_bob_dylan_r.php">in Brooklyn Heights</a>. While he alluded to spending time there (<a href="https://web.archive.org/web/20150502135933/http://en.wikipedia.org/wiki/Brooklyn_Heights,_Brooklyn#Notable_residents">allegedly</a> at &quot;Capulet&apos;s, the late-lamented Brooklyn Heights cafe&quot;) and even mentioned living there in his song <em>Tangled Up in Blue</em> (&quot;I lived with them on Montague Street/In a basement down the stairs/There was music in the cafes at night/And revolution in the air&quot;), he could have very well just been crashing at a friend&apos;s pad. Although, he <em>is</em> listed as a <a href="https://web.archive.org/web/20150502135933/http://en.wikipedia.org/wiki/Brooklyn_Heights,_Brooklyn#Notable_residents">notable resident</a> on the ever-so-reliable Wikipedia. Former resident or not, this is his first concert in New York City in two years.</p>					
+										
+									
+				

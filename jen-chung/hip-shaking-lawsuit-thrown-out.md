@@ -1,0 +1,13 @@
+---
+author: Jen Chung
+date: October 23, 2009  3:57 PM
+title: Hip-Shaking Lawsuit Thrown Out
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <a href="https://web.archive.org/web/20110623145940/http://gothamist.com/attachments/jen/2009_10_hips.jpg"> <img alt="2009_10_hips.jpg" src="https://web.archive.org/web/20110623145940im_/http://gothamist.com/assets_c/2009/10/2009_10_hips-thumb-180x248-451096.jpg" width="150" height="206" class="image-left"> </a> </span>Yesterday, a judge <a href="https://web.archive.org/web/20110623145940/http://www.nypost.com/p/news/local/manhattan/shake_suit_tossed_out_oQocHW2ovDXSxsqxVKVgxL">threw out</a> a lawsuit against a Midtown restaurant over a 2006 &quot;Shake It Like Shakira&quot; contest.  <a href="https://web.archive.org/web/20110623145940/http://gothamist.com/2006/11/08/leave_the_booty.php">Back then</a>, Megan Zacher, competing at Calico Jack&apos;s Cantina, was dancing on the bar but fell and, according to court documents, &quot;shredded ligaments&quot; in her knee. Ouch!</p>
+
+<p>Zacher&apos;s lawsuit claimed that the restaurant&apos;s bar area was &quot;wet, unprotected and unsafe&quot; and her lawyer said in 2006, &quot;Between people and bartenders spilling drinks on the bar, it&apos;s just not a safe surface.&quot; Hmm, bars with spilt drinks&#x2014;say it ain&apos;t so.</p>
+
+<p>Apparently a judge didn&apos;t think that Zacher&apos;s lawsuit, which said Calico Jack&apos;s should have known such a contest was &quot;dangerous and likely to cause injury,&quot; didn&apos;t have merit. But we think it&apos;s awfully suspicious it&apos;s happening the same week that Shakira is busting new hippy moves:</p>
+
+<center><embed src="https://web.archive.org/web/20110623145940oe_/http://media.mtvnservices.com/mgid:uma:video:mtv.com:447847" width="512" height="319" type="application/x-shockwave-flash" flashvars="configParams=artist%3D504144%26vid%3D447847%26uri%3Dmgid%3Auma%3Avideo%3Amtv.com%3A447847" allowfullscreen="true" allowscriptaccess="always" base="."><div style="margin:0;text-align:center;width:500px;font-family:Arial,sans-serif;font-size:12px;"><a href="https://web.archive.org/web/20110623145940/http://www.mtv.com/music/artist/shakira/artist.jhtml" style="color:#439CD8;" target="_blank">Shakira</a> - <a href="https://web.archive.org/web/20110623145940/http://www.mtv.com/music/" style="color:#439CD8;" target="_blank">New Music</a> - <a href="https://web.archive.org/web/20110623145940/http://www.mtv.com/music/video/" style="color:#439CD8;" target="_blank">More Music Videos</a></div></center>

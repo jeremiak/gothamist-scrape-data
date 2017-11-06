@@ -1,0 +1,11 @@
+---
+author: Jen Chung
+date: October 10, 2009  3:25 PM
+title: 16 NYC Post Offices On The Chopping Block
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2009_10_apc.jpg" src="https://web.archive.org/web/20111016082006im_/http://gothamist.com/attachments/jen/2009_10_apc.jpg" width="220" height="178" class="image-left"> </span>The U.S. Postal Service released a revised list (<a href="https://web.archive.org/web/20111016082006/http://www.usps.com/communications/newsroom/2009/pr09_086_list.pdf">PDF</a>) of locations it is closing, due to its financial woes (it lost <a href="https://web.archive.org/web/20111016082006/http://gothamist.com/2009/09/29/post_offices_prepared_to_shut_down.php">$7 billion</a> in the fiscal year that ended September 30), and 16 NYC locations are listed.  Seven are in the Bronx, seven are in Manhattan, and two are in Queens&#x2014;full list after the jump. While it&apos;s not pretty, <a href="https://web.archive.org/web/20111016082006/http://ny1.com/1-all-boroughs-news-Content/Top_Stories/103444/usps-mulls-post-office-closings-throughout-city/">53 locations</a> were on the possible closing list in the summer.</p>
+
+<p>In <a href="https://web.archive.org/web/20111016082006/http://press.org/wire/article.cfm?id=1489">remarks to the National Press Club</a> on Thursday, U.S. Postmaster General John Potter said that factors for the USPS&apos;s declining fortunes include more people using e-mail, fewer promotional mailings due to the recession, and because of a &quot;three-year-old law that added more than $5 billion to annual costs for prefunding retiree health benefits.&quot; He said that cutting mail service from six days-a-week to five days would save $3 billion and that the USPS could add other products for sale at branches&#x2014;apparently you can buy life insurance at Japanese postal offices and cell phones at French ones.</p>
+
+<p><a href="https://web.archive.org/web/20111016082006/http://cityroom.blogs.nytimes.com/2009/10/09/16-post-offices-in-city-still-under-threat-of-closure/">City Room reports</a> that a decision on whether the locations (listed below) will be closed is &quot;months away.&quot;</p>

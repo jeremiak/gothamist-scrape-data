@@ -1,0 +1,38 @@
+---
+author: Jen Carlson
+date: Jun 24, 2015 12:35 pm
+title: South Street Seaport Named One Of America's Top "Endangered Historic Places"
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="OLDPIER17A.jpg" src="https://web.archive.org/web/20150901062348im_/http://gothamist.com/attachments/arts_jen/OLDPIER17A.jpg" width="640" height="429" class="image-none"> </span><br>
+<span class="photo_caption">The old Pier 17. (Photo by <a href="https://web.archive.org/web/20150901062348/https://www.flickr.com/photos/wallyg/153299820">Wally G</a>)</span></p>
+
+<p>Among the 11 spots named in this year&apos;s <a href="https://web.archive.org/web/20150901062348/http://www.preservationnation.org/issues/11-most-endangered">Most Endangered Historic Places in America</a> is Manhattan&apos;s South Street Seaport, an area that&apos;s been undergoing dramatic change over the past few years. Landing on this list can only help the neighborhood preserve what&apos;s left of its history, however&#x2014;the National Trust uses this to raise awareness, and has managed to save some sites via preservation efforts in the past. Of the 250 sites named in 28 years, &quot;only a handful of listed sites have been lost.&quot; Regarding the Seaport, they note:</p>
+
+<blockquote>The South Street Seaport features some of the oldest architecture in New York City. While an 11-block area within the Seaport is part of a locally designated historic district, and a larger portion of the Seaport is separately listed on the National Register of Historic Places, it is currently under threat due to a series of development proposals that would disrupt the look, feel and low-scale historic character of the Seaport.
+
+<p>The Seaport&#x2019;s restored 19th-century commercial buildings transport visitors back in time, evoking the commercial trade of that era. Located along the East River, adjacent to the Financial District, the Seaport is unique for its continuous relationship to the waterfront and its status as the focal point of the early maritime industry in New York City.</p></blockquote><p></p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="17new17pier14.jpg" src="https://web.archive.org/web/20150901062348im_/http://gothamist.com/attachments/arts_jen/17new17pier14.jpg" width="640" height="427" class="image-none"> </span><br>
+<span class="photo_caption">Building the new Pier 17. (Gothamist)</span></p>
+
+<p>Recent changes have included a $425 million overhaul to Pier 17, including the construction of a four-story mall and <a href="https://web.archive.org/web/20150901062348/http://ny.curbed.com/archives/2015/04/12/construction_progressing_at_battery_maritime_building.php">a hotel</a> being built on top of the old <a href="https://web.archive.org/web/20150901062348/http://www.batterymaritimebuilding.com/history.html">Battery Maritime Building</a>. And there are more developments on the way, if they get approved. The Howard Hughes Corporation, which controls a large part of the area via a lease with the city, intends to build a high-rise tower on a pier at the foot of Beekman Street. Locals have been <a href="https://web.archive.org/web/20150901062348/http://gothamist.com/2014/09/19/south_street_seaport_fight.php">very vocal about the tower</a>, and worry about the ripple effects the tower would have on other development in the area. </p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="newSEAPORTTOWER14.jpg" src="https://web.archive.org/web/20150901062348im_/http://gothamist.com/attachments/arts_jen/newSEAPORTTOWER14.jpg" width="640" height="399" class="image-none"> </span><br>
+<span class="photo_caption">A prior rendering of a proposed tower met tough resistance.</span></p>
+
+<blockquote>The New Market building, a 1939 structure located within the National Register boundaries but outside the locally designated district, would be demolished to make way for the tower. There are also concerns about the potential demolition due to neglect of all or parts of the nearby locally designated historic Tin Building. Taken together, the tower and other development proposals threaten to dramatically alter a historic neighborhood that has endured for generations.</blockquote>
+
+<p>Stephanie Meeks, president of the National Trust for Historic Preservation, says &#x201C;the proposed developments will have an overwhelming impact on the historic neighborhood, diminishing the Seaport&#x2019;s unique relationship to the water and compromising the most intact 19th century neighborhood in Manhattan. If it were constructed on a pier jutting over the water, the tower would alter the character of the waterfront and block views of the Brooklyn Bridge to and from the historic Seaport.&quot; To help in efforts aimed at pulling back on development, check out <a href="https://web.archive.org/web/20150901062348/https://saveourseaport.wordpress.com/">Save the Seaport</a>.</p>
+
+<p>In a letter to Mayor de Blasio <a href="https://web.archive.org/web/20150901062348/http://www.dnainfo.com/new-york/20150608/south-street-seaport/seaport-developer-pledges-address-height-issue-of-luxury-tower">earlier this month</a>, Howard Hughes Corporation&#x2019;s CEO David Weinreb said his company is reevaluating the proposed tower height and is &#x201C;working on a significantly revised plan to address the height issue...following thoughtful planning and discussions with local officials and members of the community.&#x201D; The letter also blasted &quot;the gross mischaracterization of the Seaport&#x2019;s redevelopment process&quot; by the New York Landmarks Conservancy and other opponents. </p>
+
+<p>HHC&apos;s previous designs for the tower were over 600 feet high. The developer then lowered the proposed height to 494 feet last year, but local critics were still unsatisfied. Today&apos;s designation by the National Trust for Historic Preservation &quot;underscores the local concerns that the seaport is being overshadowed by a shopping mall and a potential luxury tower,&#x201D; <a href="https://web.archive.org/web/20150901062348/http://www.nytimes.com/2015/06/25/nyregion/south-street-seaport-tops-preservation-trusts-list-of-endangered-historic-sites.html">said Peg Breen</a>, president of New York Landmarks Conservancy.</p>
+
+<p><strong>UPDATE:</strong> Chris Curry, Senior EVP Development with HHC, responded with this statement:  &quot;In response to community concerns, we are exploring a significant reduction to the height of the proposed building on the New Market site. As we&apos;ve stated from the beginning of this process, our long-term vision for the Seaport celebrates the area&apos;s rich history by creating a vibrant Seaport District while also preserving its historic fabric and architecture, puts the South Street Seaport museum on sound financial footing and reestablishes New York&apos;s cherished connection to the working waterfront.&quot;</p>
+
+<p>The other <a href="https://web.archive.org/web/20150901062348/http://www.PreservationNation.org/places">Endangered Historic Places</a> are: the A.G. Gaston Motel in Birmingham, Alabama; the Carrollton Courthouse in New Orleans; the Chautauqua Amphitheater in Chautauqua, NY; the East Point Historic Civic Block in East Point, Georgia; the Fort Worth Stockyards in Texas;  The Grand Canyon (!) in Arizona; Little Havana in Miami; Oak Flat in Superior, Arizona; the Old U.S. Mint in San Francisco; and The Factory in West Hollywood.</p>					
+										
+									
+				

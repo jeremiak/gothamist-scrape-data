@@ -1,0 +1,11 @@
+---
+author: Jen Carlson
+date: April  1, 2011  6:00 PM
+title: Flashback: The Rhesus Monkey Revolt Of 1935
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="monkeyrevolt0411.jpg" src="https://web.archive.org/web/20110629170707im_/http://gothamist.com/attachments/arts_jen/monkeyrevolt0411.jpg" width="365" height="376" class="image-right"> </span>This week <a href="https://web.archive.org/web/20110629170707/http://www.time.com/time/specials/packages/article/0,28804,2041628_2041646_2041735,00.html">TIME</a> presented their Top 10 Zoo Escapes list (the <a href="https://web.archive.org/web/20110629170707/http://gothamist.com/tags/missingcobra">Bronx Zoo cobra</a> only came in at #6!), and it turns out this isn&apos;t the first time New York has lost an animal. Unsurprising, really. They recall the rhesus monkeys that escaped on Long Island decades upon decades ago, saying: </p>
+
+<blockquote>When an employee of Frank Buck&apos;s Jungle Camp Animal Park near Amityville, on New York&apos;s Long Island, accidentally left a plank across an exhibit moat, Capone the rhesus monkey led 172 of his cohorts out of the park and into the woods. Crossing a set of the Long Island Rail Road&apos;s tracks, the small monkeys chased away a set of train workers and stopped the progress of a locomotive for at least 5 minutes. Money and season passes were offered to anyone fleet enough to catch the swift simians and return them to the park.</blockquote>
+
+<p>This was back in October of 1935, and at the time the NY Times <a href="https://web.archive.org/web/20110629170707/http://paperspast.natlib.govt.nz/cgi-bin/paperspast?a=d&amp;d=EP19351029.2.34">reported</a> that police were expecting a flood of calls from humans waking up to monkeys in their houses! Since they were reportedly harmless, we might put them in <a href="https://web.archive.org/web/20110629170707/http://gothamist.com/2011/03/31/what_animals_should_escape_from_the.php">our list of animals</a> pre-approved for a zoo escape.</p>

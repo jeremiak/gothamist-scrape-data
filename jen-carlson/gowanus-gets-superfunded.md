@@ -1,0 +1,13 @@
+---
+author: Jen Carlson
+date: Mar 2, 2010 9:49 am
+title: Gowanus Gets Superfunded
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="superfundday0310.jpg" src="https://web.archive.org/web/20151123224137im_/http://gothamist.com/attachments/arts_jen/superfundday0310.jpg" width="130" height="112" class="image-right"> </span><strong>[UPDATE BELOW]</strong> This week the Gowanus Canal will be designated a <a href="https://web.archive.org/web/20151123224137/http://gothamist.com/tags/superfund">Superfund</a> site, according to <a href="https://web.archive.org/web/20151123224137/http://yournabe.com/articles/2010/03/01/brooklyn/courier-yn_brooklyn_front_page-gowrumor.txt">Courier Life</a>. An employee for the agency told them, &#x201C;If you asked me to put money on it, I think they will announce on Thursday.&quot; However, the EPA is set to make an announcement to the press <em>today</em> at 10 a.m. Once the call is officially made, expect <a href="https://web.archive.org/web/20151123224137/http://gothamist.com/2010/01/14/gowanus_goin-ons.php">the Toll Brothers</a> to toss aside any development plans they had for the area (the Superfund process takes 10-12 years), and for the mayor to <a href="https://web.archive.org/web/20151123224137/http://gothamist.com/2009/10/02/superfund.php">have a big sad</a>. A public meeting will be held this Thursday at 7 p.m. at PS 58 in Brooklyn. [via <a href="https://web.archive.org/web/20151123224137/http://curbed.com/archives/2010/03/02/gowanus_canal_superfunded.php">Curbed</a>]</p>
+
+<p><strong>UPDATE:</strong> <a href="https://web.archive.org/web/20151123224137/http://www.brooklynpaper.com/stories/33/10/33_10_gk_gowanus_superfund_main.html">The Brooklyn Paper</a> confirms the rumors; the Canal will be Superfunded. Judith Enck, the EPA&#x2019;s regional director, &quot;started her statement by declaring that taxpayers should rest easy that the feds went with a Superfund designation, which sets into motion a process of getting restitution from responsible polluters.&quot; She also likened the situation to the Hudson River, which was declared a Superfund site decades ago, saying, &#x201C;Back then, no one would have lived on the banks of the Hudson. But we made a massive commitment and now people flock to recreate and live on the shoreline.&quot; Even <a href="https://web.archive.org/web/20151123224137/http://gothamist.com/2010/02/09/bald_eagle.php">bald eagles</a>!</p>					
+										
+									
+				

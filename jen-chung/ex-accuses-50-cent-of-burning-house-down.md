@@ -1,0 +1,11 @@
+---
+author: Jen Chung
+date: May 31, 2008  5:29 PM
+title: Ex Accuses 50 Cent of Burning House Down
+---
+
+<p><img alt="2008_05_50cent.jpg" src="https://web.archive.org/web/20110706134344im_/http://gothamist.com/attachments/jen/2008_05_50cent.jpg" width="200" height="251" class="right">Rapper 50 Cent&apos;s ex-girlfriend accused him of arson and much worse after the house he owns and she lives in <a href="https://web.archive.org/web/20110706134344/http://gothamist.com/2008/05/30/50s_home_gutted.php">burned down yesterday</a>.  Shaniqua Tompkins, who is the mother of 50 Cent&apos;s 10-year-old son Marquise, <a href="https://web.archive.org/web/20110706134344/http://wcbstv.com/topstories/50.cent.dix.2.736579.html">told reporters</a>, &quot;He&apos;s trying to kill me and his own child. He told me so.&quot;</p>
+
+<p>The former couple had been <a href="https://web.archive.org/web/20110706134344/http://gothamist.com/2008/04/04/50_cent.php">battling about the $2.4 million home</a> in Dix Hills.  A housing judge agreed that 50 Cent, aka Curtis Jackson, owned the home and could force Tompkins out, but Tompkins filed a $50 million breach of contract lawsuit.  Earlier in the week, the pair met in at her lawyer&apos;s office to give depositions, and <a href="https://web.archive.org/web/20110706134344/http://www.newsday.com/news/local/suffolk/ny-licent0531,0,7819552.story">the office was trashed</a>, after 50 Cent&apos;s crew allegedly tangled with Tompkins&apos; current boyfriend and others.  </p>
+
+<p>50 Cent&apos;s lawyer denied all claims, &quot;Any suggestion that Mr. Jackson had anything whatsoever to do with the fire at his home is outrageous and offensive,&quot; pointing out the rapper was in Louisiana filming a movie, and added, &quot;My client categorically denies that there was ever a fight between ... [him and Tompkins] in connection with the house or otherwise.&quot;  Hmm, then how to explain the video TMZ has of them <a href="https://web.archive.org/web/20110706134344/http://www.tmz.com/2008/05/30/50-and-baby-mama-in-street-fight-before-fire/">fighting on a Manhattan street on Monday afternoon</a>?</p>

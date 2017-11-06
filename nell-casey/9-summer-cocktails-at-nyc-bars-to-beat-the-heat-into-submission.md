@@ -1,0 +1,41 @@
+---
+author: Nell Casey
+date: Jul 6, 2016 2:10 pm
+title: 9 Summer Cocktails At NYC Bars To Beat The Heat Into Submission
+---
+
+	
+										<p><em>Have you noticed? <a href="https://web.archive.org/web/20161021133722/http://gothamist.com/2016/07/06/swampy_hotbox_deadass.php">It&apos;s hot</a>. And humid. This is our life now. Let&apos;s get drunk.</em></p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="070616pouringribbons.jpg" src="https://web.archive.org/web/20161021133722im_/http://gothamist.com/attachments/nyc_nellcasey/070616pouringribbons.jpg" width="640" height="425"> <br> <i> The Peche-y Keen at Pouring Ribbons (Jenny Adams)</i></div> <p></p>
+
+<p>Summer is for citrus and stone fruit, and the two find a happy marriage at East Village cocktail spot <a href="https://web.archive.org/web/20161021133722/http://www.pouringribbons.com/">Pouring Ribbons</a>. The fruity notes of Knappogue Castle 12 year are accented by white vermouth, lemon juice and Giffard Creme de Peche in the <strong>Peche-y Keen</strong> ($15). The quartet are shaken with simple syrup and topped with club soda to transport the citrus oils from the lemon garnish via bubbles into your nose. </p>
+
+<p>We <a href="https://web.archive.org/web/20161021133722/http://gothamist.com/2016/05/25/frozen_wine_roundup.php">tackled frozen wine</a> earlier this season but there&apos;s always room for one more. <a href="https://web.archive.org/web/20161021133722/https://davios.com/nyc">Davio&apos;s Manhattan</a> has whipped up their own <strong>Frose</strong> ($14) in a multitude of fruity flavors. Rotari Rose can be combined with whatever sorbet they&apos;ve got fresh that day, like a blueberry version topped with raspberries and thyme or another with mango and mint. </p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="070616kingsco.jpg" src="https://web.archive.org/web/20161021133722im_/http://gothamist.com/attachments/nyc_nellcasey/070616kingsco.jpg" width="640" height="428"> <br> <i> Banana Snaquiri at Kings County Imperial </i></div> <p></p>
+
+<p>Frozen drinks like daiquiris and pina coladas are a popular summertime cool down and Williamsburg&apos;s <a href="https://web.archive.org/web/20161021133722/http://www.kingscoimperial.com/">Kings County Imperial</a> has their own version to pair with their <a href="https://web.archive.org/web/20161021133722/http://gothamist.com/2015/07/14/kings_county_imperial.php#photo-1">savory Chinese cooking</a>. This summer, they&apos;re serving an off-menu <strong>Banana Snaquiri</strong> ($12) loaded with rum and banana like many a good daiquiri. Lime syrup and velvet falurnum are also added to the mix, which is blended and garnished with sliced banana. Diners may even luck out with a gratis version once they&apos;ve successfully cleaned their plates. </p>
+
+<p><a href="https://web.archive.org/web/20161021133722/http://www.upandupnyc.com/">The Up &amp; Up</a>, one of <a href="https://web.archive.org/web/20161021133722/http://gothamist.com/2015/12/10/best_new_bars_2015.php">2015&apos;s best new bar offerings</a>, steers clear of more traditional summertime staples, instead choosing to embrace the season&apos;s darker notes. The <strong>Disco Volante</strong> ($15) hits bitter notes with Aperol, herbal notes with Aviation Gin, anisette notes with absinthe and citrus notes with lemon juice. The cocktail&apos;s actually a milk punch, meaning there&apos;s clarified milk in there, too, just don&apos;t expect anything creamy in your coup.</p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="070616anjeotribeca.jpg" src="https://web.archive.org/web/20161021133722im_/http://gothamist.com/attachments/nyc_nellcasey/070616anjeotribeca.jpg" width="640" height="428"> <br> <i> Coquito at A&#xF1;ejo Tribeca (Brendan Burke)</i></div> <p></p>
+
+<p>Those who prefer to drink both their alcohol and dessert should try a <strong>Coquito</strong>&#x2014;the popular Puerto Rican coconut drink&#x2014;that they&apos;re serving at <a href="https://web.archive.org/web/20161021133722/http://anejotribeca.com/">A&#xF1;ejo Tribeca</a>. While the drink is traditional made with rum, the restaurant&apos;s employing tequila for their version, combining El Tesoro Reposado with coconut milk, coconut water and Coco Lopez, plus clarified lime, vanilla syrup and a Demerara sugar syrup. This shaken cocktail comes served over ice with sprigs of fresh mint and grated nutmeg on top. </p>
+
+<p>In addition to having some <a href="https://web.archive.org/web/20161021133722/http://gothamist.com/2016/02/25/best_nachos_nyc_2016.php">seriously outrageous nachos</a>, <a href="https://web.archive.org/web/20161021133722/http://lacontentanyc.com/">La Contenta</a> on the LES shakes up some delicious agave-based drinks, including a menu of special margaritas like the <strong>Mezcal Avocado Margarita</strong>. Think of it a bit like drinkable, boozy guacamole: Milagro silver tequila is mixed with Montelobos and Joven mezcals, then combined with cucumber juice, jalapeno-infused agave syrup, lime juice and an avocado puree. For balance: a pinch of cilantro is added, too.  </p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="070616social.jpg" src="https://web.archive.org/web/20161021133722im_/http://gothamist.com/attachments/nyc_nellcasey/070616social.jpg" width="640" height="438"> <br> <i> Tropical Triple at Social Drink &amp; Food (Michael Tulipan)</i></div> <p></p>
+
+<p>We&apos;ve known about the fruit-forward <strong>Tropical Triple</strong> ($26) drink since <a href="https://web.archive.org/web/20161021133722/http://www.socialdrinkandfood.com/">Social Drink &amp; Food</a> <a href="https://web.archive.org/web/20161021133722/http://gothamist.com/2016/05/04/social_drink_and_food_rooftop_resta.php">opened its rainbow rooftop</a> in May. But anything served inside a pineapple is worth revisiting, especially when that pineapple is filled with Flor de Ca&#xF1;a rum, pineapple and coconut syrups, pineapple juice, Peychauds&#x2019; bitters and a house &quot;tiki tincture.&quot; Pair the multi-person cocktail with a <a href="https://web.archive.org/web/20161021133722/http://gothamist.com/2016/05/23/hawaiian_pizza_trend_nyc.php">Hawaiian pizza</a> to complete the tropical immersion.</p>
+
+<p>Also for the rooftop set is the <strong>Green Tea Honey</strong> ($18) at Midtown West cocktail lounge <a href="https://web.archive.org/web/20161021133722/http://theskylarknyc.com/">The Skylark</a>. This frozen drink employs Tito&apos;s Vodka to bind together a double dose of caffeine from both green tea and matcha. Honey and citrus are added for balance and brightness, with a lime wedge garnish helping keep your straw from floating away.</p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="070616garrett.jpg" src="https://web.archive.org/web/20161021133722im_/http://gothamist.com/attachments/nyc_nellcasey/070616garrett.jpg" width="640" height="427"> <br> <i> Mia Wallace at The Garret East</i></div> <p></p>
+
+<p>In extreme heat, milk <a href="https://web.archive.org/web/20161021133722/http://i.imgur.com/tZYCsRZ.gif">might be a bad choice</a>, but that won&apos;t stop <a href="https://web.archive.org/web/20161021133722/http://www.thegarreteast.com/">The Garret East</a> from employing some in their <strong>Mia Wallace</strong> cocktail (the air conditioning helps). The <em>Pulp Fiction</em>-inspired drink uses two types of milk&#x2014;regular and sweetened condensed&#x2014;to make a frothy drink reminiscent of more innocent options like a milkshake. Cacao-infused cacha&#xE7;a and Montenegro Amaro bring it full circle into adult territory. Stop by their <a href="https://web.archive.org/web/20161021133722/http://gothamist.com/2016/02/29/dinnertable_reverse_speakeasy.php#photo-1">excellent back room eatery</a> <a href="https://web.archive.org/web/20161021133722/http://www.dinnertable.nyc/">dinnertable</a> pre- or post-cocktail.</p>
+
+<p> </p>					
+										
+									
+				

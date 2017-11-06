@@ -1,0 +1,15 @@
+---
+author: Jen Carlson
+date: April  3, 2008 10:21 AM
+title: Historic Building Wants to Move out of Manhattanville
+---
+
+<p><img alt="0804sheffstable.jpg" src="https://web.archive.org/web/20110811141256im_/http://gothamist.com/attachments/arts_jen/0804sheffstable.jpg" width="250" height="329" class="right">Columbia University&#x2019;s 17-acre, $7 billion dollar expansion plan (which was <a href="https://web.archive.org/web/20110811141256/http://gothamist.com/2007/12/20/columbia_expans.php">approved late last year</a>) has some up in arms, and standing firm. </p>
+
+<p>Anne Whitman, owner of a building in the midst of the expansion territory, wants the University <a href="https://web.archive.org/web/20110811141256/http://www.amny.com/news/local/am-building0403,0,77010.story">to <em>move</em> her owner-occupied building</a> instead of having to give it up altogether. The building, a 1903 dairy stable purchased by her father in 1972, currently houses her antique moving and storage company. </p>
+
+<p>Originally part of Sheffield Farms, the stable is on the state register of historic places -- but moving it would cancel the designation. The <a href="https://web.archive.org/web/20110811141256/http://hdcvoice.blogspot.com/2008/04/move-sheffield-stables.html">Historic Districts Council Newsstand</a> blog reports on its history:</p><blockquote>The 1903 Sheffield Farms Stable was expanded in 1909 to house the horses and wagons of New York City&#x2019;s largest dairy company at a time when most milk was delivered to customers&#x2019; homes. It is a uniquely beautiful stable linked to the history of providing a pure milk supply to New York City in the days before refrigeration when farms were increasingly further away from the growing urban center. The stable is half of a pair that includes today&#x2019;s Prentis Hall, built as a Sheffield Farms pasteurization and bottling plant in 1909 and owned by Columbia University since 1949.</blockquote>While one Columbia rep dismissed the idea of moving the building as &quot;dream land stuff,&quot; an industrial archeologist says moving the ornate seven-story masonry structure is &quot;not easy, but it could be done.&quot; According to <a href="https://web.archive.org/web/20110811141256/http://www.columbiaspectator.com/node/30009">the Spectator</a>, the only three buildings Columbia has agreed not to demolish for their Manhattanville campus are &quot;the Studebaker building and former milk processing plant, which is now an auto parts warehouse, Prentis Hall, and the Warren Nash building, a former car servicing plant.&quot;<p></p>
+
+<p>While a price-tag hasn&apos;t been attached to the move yet, Whitman has a spot picked out for her beloved building already: 125th Street and Broadway (not far from its <a href="https://web.archive.org/web/20110811141256/http://maps.google.com/maps?hl=en&amp;q=3229+Broadway,+New+York,+NY+10027,+USA&amp;um=1&amp;ie=UTF-8&amp;sa=X&amp;oi=geocode_result&amp;resnum=1&amp;ct=image">current location</a>), Columbia-owned land and smack dab on top of a current McDonald&apos;s.</p>
+
+<p><span class="photo_caption">Photo via amNY.</span></p>

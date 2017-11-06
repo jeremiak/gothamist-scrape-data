@@ -1,0 +1,9 @@
+---
+author: Jen Chung
+date: October 25, 2009 10:32 AM
+title: Amnesia Teen Identified As Missing From Washington State
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <a href="https://web.archive.org/web/20110629170255/http://gothamist.com/attachments/nyc_arts_john/102309teen.jpg"> <img alt="102309teen.jpg" src="https://web.archive.org/web/20110629170255im_/http://gothamist.com/assets_c/2009/10/102309teen-thumb-225x260-450955.jpg" width="180" height="208" class="image-left"> </a> </span>A few days ago, city agencies asked for the public&apos;s help in <a href="https://web.archive.org/web/20110629170255/http://gothamist.com/2009/10/23/teen_with_amnesia_searching_for_her.php">identifying a teen girl</a> found wandering in Times Square, because the girl could not remember anything about her past, save some recollections about a fantasy novel and writing some fantasy fiction. Now, a tipster has led police to believe she is a missing 18-year-old from Washington State.</p>
+
+<p>The teen was found outside the Covenant House shelter in tattered clothing on October 9.  The Daily News <a href="https://web.archive.org/web/20110629170255/http://www.nydailynews.com/ny_local/2009/10/24/2009-10-24_police_id_amnesia_girl_found_in_manhattan_18yearold_from_washington_state.html">reports</a>, &quot;Police are working to reunite the teen with her family, who had reported her missing early this month.&quot;  The <a href="https://web.archive.org/web/20110629170255/http://www.nypost.com/p/news/local/wandering_jane_doe_missing_wash_fFVTngMWklkx2TcmkB9exH">Post adds</a>, &quot;Police have not yet released her name, but are talking with the girl&#x2019;s family to arrange whether they will come here to pick her up or if she will be flown home,&quot; with the police saying, &quot;We are trying to determine how long she was here in New York and what occurred, if anything, in the days prior to her being found here.&quot;</p>

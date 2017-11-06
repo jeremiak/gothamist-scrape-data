@@ -1,0 +1,11 @@
+---
+author: Jen Chung
+date: May 17, 2009 2:21 pm
+title: Exhausted, Underpaid Airline Pilots Talk To The Media
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2009_05_q400.jpg" src="https://web.archive.org/web/20140623015541im_/http://gothamist.com/attachments/jen/2009_05_q400.jpg" width="145" height="93" class="image-right"> </span>In the wake of the <a href="https://web.archive.org/web/20140623015541/http://gothamist.com/tags/flight3407">NTSB&apos;s hearings about the fatal Flight 3407</a> that crashed in Buffalo, more attention is being drawn on low pilot pay and their commutes. Flight 3407&apos;s captain commuted from Tampa to Newark while the co-pilot (who only made $16,000/year) commuted from Seattle. One young pilot <a href="https://web.archive.org/web/20140623015541/http://www.nytimes.com/2009/05/17/nyregion/17pilot.html?_r=1&amp;ref=nyregion">tells the NY Times</a> he makes $25,000/year as a co-pilot and is $100,000 in debt from training. One senior pilot said he was lucky to get 4.5 hours of sleep at a hotel, because others can&apos;t afford hotel rooms or even <a href="https://web.archive.org/web/20140623015541/http://newyork.craigslist.org/search/hhh?query=crash%20pad">&quot;crash pads&quot; listed on Craigslist</a>. A former regional pilot (now a safety consultant) said, &quot;I know a guy who bought a car that barely ran and parked it in the employee lot at his base airport, and slept in his car six or seven times a month.&quot; And NY-based (but lives in Boston) pilot Alex LaPointe <a href="https://web.archive.org/web/20140623015541/http://www.nydailynews.com/news/2009/05/17/2009-05-17_snoozing__cruising_at_30000_ft_pilots_admit_long_hours_led_them_to_sleep_on_job.html">spoke to the Daily News</a>, &quot;Probably at least once a trip you find yourself nodding off just &apos;cause there&apos;s some days you don&apos;t get enough sleep...If you spend an extra three or four hours commuting on top of a 14-hour duty day, you can easily go 18, 20 hours of being up. It cuts into your rest. It certainly fatigues you.&quot;</p>					
+										
+									
+				

@@ -1,0 +1,17 @@
+---
+author: Jen Chung
+date: Aug 20, 2009 10:32 am
+title: Plaxico Burress Pleads Guilty, Agrees To 2 Years In Prison
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="2009_06_plaxstrut.jpg" src="https://web.archive.org/web/20160529002326im_/http://gothamist.com/attachments/NYC_Billy/2009_06_plaxstrut.jpg" width="640" height="457"> <br> <i><span class="photo_caption"><a href="https://web.archive.org/web/20160529002326/http://gothamist.com/2009/06/15/plax_frees_up_his_summer_with_plent.php">July photograph</a> of Burress by Louis Lanzano/AP</span></i></div> <p></p>
+
+<p>Former Giants star Plaxico Burress has pleaded guilty to attempted criminal possession of a weapon in 2nd degree and will server 2 years in prison, in what <a href="https://web.archive.org/web/20160529002326/http://wcbstv.com/cbs2crew/plaxico.burress.giants.2.1136400.html">WCBS 2 says is a deal</a> with the Manhattan DA&apos;s office. It sounds like a deal, since he was <a href="https://web.archive.org/web/20160529002326/http://gothamist.com/2009/08/04/plaxs_lawyer_blames_bloomberg_morge.php">facing 3 1/2 to 15 years</a> on the <a href="https://web.archive.org/web/20160529002326/http://www.nydailynews.com/news/ny_crime/2009/08/03/2009-08-03_exnew_york_giants_star_plaxico_burress_indicted_on_three_charges_antonio_pierce_.html">three charges he was indicted on</a>&#x2014;&quot;two counts of criminal possession of a weapon and one count of reckless endangerment.&quot; </p>
+
+<p>The Post says Burress&apos;s sentence is <a href="https://web.archive.org/web/20160529002326/http://www.nypost.com/seven/08202009/news/regionalnews/manhattan/plaxico_burress_pleads_guilty_185509.htm">20 months</a>, but the <a href="https://web.archive.org/web/20160529002326/http://www.nydailynews.com/sports/football/giants/2009/08/20/2009-08-20_former_giants_star_plaxico_burress.html">Daily News explains </a>that Burress&apos;s lawyer Benjamin Brafman believes his client will serve 20 months if he behaves behind bars.   He <a href="https://web.archive.org/web/20160529002326/http://www.nypost.com/seven/08202009/news/regionalnews/manhattan/plaxico_burress_pleads_guilty_185509.htm">will turn himself in on September 22</a>. Burress shot <a href="https://web.archive.org/web/20160529002326/http://gothamist.com/2008/11/29/reports_plaxico_burress_shot_himsel.php">himself in the leg</a>&#x2014;with his own unregistered-in-NY gun&#x2014;at a Manhattan nightclub <a href="https://web.archive.org/web/20160529002326/http://gothamist.com/2008/11/30/everyone_agrees_plax_is_in_an_idiot.php">last November</a>.  </p>
+
+<p>Brafman said of the sentence, &quot;<strong>This was not an intentional criminal act.  prison sentence is a very severe punishment</strong>.&quot; To keep track, former Atlanta Falcon (now Philadelphia Eagle) Michael Vick served 18 months (of a 23 month sentence) in a federal prison for dogfighting while Cleveland Brown player Donte Stallworth served 24 days (of a 30 day sentence) for <a href="https://web.archive.org/web/20160529002326/http://www.miamiherald.com/sports/football/story/1099010.html?storylink=pd">DUI manslaughter charges in Miami</a>.  </p>					
+										
+									
+				

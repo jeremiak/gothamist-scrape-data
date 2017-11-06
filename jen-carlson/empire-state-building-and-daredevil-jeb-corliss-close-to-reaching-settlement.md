@@ -1,0 +1,11 @@
+---
+author: Jen Carlson
+date: May 31, 2011  6:31 PM
+title: Empire State Building And Daredevil Jeb Corliss Close To Reaching Settlement
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="corliss0511esb.jpg" src="https://web.archive.org/web/20110601010302im_/http://gothamist.com/attachments/arts_jen/corliss0511esb.jpg" width="225" height="272" class="image-right"> </span>Remember <a href="https://web.archive.org/web/20110601010302/http://gothamist.com/tags/jebcorliss">Jeb Corliss</a>? The daredevil that dared attempt to jump off the Empire State Building back in 2006 is back in the papers, with word that the $12 million lawsuit the landmark building filed against him is about to be settled. According to <a href="https://web.archive.org/web/20110601010302/http://www.nypost.com/p/news/local/stuntman_jeb_corliss_empire_state_rEHgJwOh9ghf34vSpMxuAK?CMP=OTC-rss&amp;FEEDNAME=">the NY Post</a>, the civil case was closed last week, and Corliss&apos;s lawyer Mark Jay Heller says a confidential deal was reached... though building owners say it&apos;s not finalized (until next week sometime).</p>
+
+<p>Heller says the daredevil is &#x201C;very, very pleased with the resolution. It&#x2019;s been a tremendous drain and emotional strain on him.&#x201D; Corliss has been dealing with the consequences of his actions for 5 years now, after he snuck into the building wearing a parachute under a fat suit (which he changed out of once reaching the 86th floor). Security stopped him, and instead of base jumping the building, he spiraled into a long legal battle.</p>
+
+<p>Now, will the building ever life Corliss&apos;s <a href="https://web.archive.org/web/20110601010302/http://gothamist.com/2010/06/16/daredevil_jeb_corliss_banned_from_e.php">lifelong ban</a>? After all, even <a href="https://web.archive.org/web/20110601010302/http://gothamist.com/tags/philippepetit">Philip Petit</a> (who walked a wire between the Twin Towers) has been invited back to wire walk around Manhattan.</p>

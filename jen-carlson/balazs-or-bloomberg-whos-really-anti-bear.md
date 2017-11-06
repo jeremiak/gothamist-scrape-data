@@ -1,0 +1,11 @@
+---
+author: Jen Carlson
+date: Sep 11, 2009 3:08 pm
+title: Balazs or Bloomberg: Who's Really Anti-Bear?
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="0909bearstandard.jpg" src="https://web.archive.org/web/20150424194943im_/http://gothamist.com/attachments/arts_jen/0909bearstandard.jpg" width="151" height="138" class="image-right"> </span>Andre Balazs of the Standard Hotel claims he&apos;s not the one behind keeping the West Village Leather &amp; Bear Street Fair off his turf. After reports came in that the hotelier was <a href="https://web.archive.org/web/20150424194943/http://gothamist.com/2009/09/07/the_standard_1.php">anti-Bear</a> (despite <a href="https://web.archive.org/web/20150424194943/http://gothamist.com/2009/08/26/exhibitionists_are_standard_at_hote.php">fully supporting</a> his guests baring it all for visitors of the High Line), he now says it&apos;s the mayor&apos;s fault! His hotel is actually &quot;headquarters for the big NYC Wine and Food Festival happening that same weekend, so the mayor&apos;s office wants the bears to reschedule.&quot; Robert Valin, executive director of the Leather Weekend, told <a href="https://web.archive.org/web/20150424194943/http://thevillager.com/villager_332/scoopysnotebook.html">the Villager</a> that the &quot;hotel&#x2019;s managing director, Ian Nicholson, reached out to him, and that a sit-down was set for this week. The hotel people now claim they had no idea the leather fest was being booted off the block&#x2014;though Valin the previous week had told us the Mayor&#x2019;s Office clearly said the hotel didn&#x2019;t want the S&amp;M; confab there.&quot; Looks like no one wants to be on the bear&apos;s bad side! As for staying at the hotel, Valin told the paper: &#x201C;I think I would request that the bears get higher floors&#x2014;we are sexual men.&quot; [via <a href="https://web.archive.org/web/20150424194943/http://curbed.com/archives/2009/09/11/balazs_wants_a_bear_hug.php">Curbed</a>]</p>					
+										
+									
+				

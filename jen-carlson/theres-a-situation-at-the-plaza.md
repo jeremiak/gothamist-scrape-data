@@ -1,0 +1,9 @@
+---
+author: Jen Carlson
+date: October 15, 2010  1:41 PM
+title: There's A Situation At The Plaza
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="situationplaza1010.jpg" src="https://web.archive.org/web/20111130071148im_/http://gothamist.com/attachments/arts_jen/situationplaza1010.jpg" width="300" height="255" class="image-left"> </span>The Plaza hotel, in all its French Renaissance ch&#xE2;teau-style glory, opened in 1907, and since then has become a National Historic Landmark. The Beatles stayed there, Truman Capote hosted his Black &amp; White Ball in its Grand Ballroom... so of course the next logical move is to get Mike &quot;<a href="https://web.archive.org/web/20111130071148/http://gothamist.com/tags/jerseyshore">The Situation</a>&quot; Sorrentino on board as some sort of face for the iconic building. </p>
+
+<p>No. That is the next logical move for the rent-by-the-hour hotel rooms you might pass in the middle of nowhere, or maybe for a Mustang Ranch type establishment... but not for the Plaza Hotel! It <em>is</em> allegedly what the powers-that-be are aiming to do, however. According to <a href="https://web.archive.org/web/20111130071148/http://www.nypost.com/p/pagesix/surprise_situation_at_plaza_eYctTFXKwZH1IPbs2GX9sK?CMP=OTC-rss&amp;FEEDNAME=">the NY Post</a>, &quot;The Situation is in talks to become a partner and the face of a luxury gym at the Plaza Hotel&#x2014;and offer personal ab workouts to its posh clientele.&quot; For his part, he would create a workout program, and occasionally teach ab classes. Eloise would disapprove!</p>

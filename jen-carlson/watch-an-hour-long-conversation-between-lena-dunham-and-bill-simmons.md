@@ -1,0 +1,23 @@
+---
+author: Jen Carlson
+date: Feb 21, 2014 10:45 am
+title: Watch An Hour Long Conversation Between Lena Dunham And Bill Simmons
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="simmonsdunham14.jpg" src="https://web.archive.org/web/20140410030720im_/http://gothamist.com/attachments/arts_jen/simmonsdunham14.jpg" width="640" height="418" class="image-none"> </span></p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="DUNHAMvogue.jpg" src="https://web.archive.org/web/20140410030720im_/http://gothamist.com/attachments/arts_jen/DUNHAMvogue.jpg" width="314" height="336" class="image-right"> </span>In January photos from <a href="https://web.archive.org/web/20140410030720/http://gothamist.com/tags/lenadunham">Lena Dunham</a>&apos;s <em>Vogue</em> photoshoot were released, and many&#x2014;<a href="https://web.archive.org/web/20140410030720/http://gothamist.com/2014/01/15/how_much_did_vogue_photoshop_lena_d.php">including us</a>&#x2014;wondered how much the magazine retouched the images. Upon first look, however, it was clear they did not overdo it... in fact, it seemed they even scaled back their retouching practices a bit. <em>At the very least</em>, the photos that were published in the issue certainly were not messed with enough to warrant <a href="https://web.archive.org/web/20140410030720/http://jezebel.com/were-offering-10-000-for-unretouched-images-of-lena-d-1502000514">a $10,000 bounty</a> on the unretouched photos, which is what Jezebel offered. But for what it&apos;s worth, for years Jezebel has dutifully called out magazines for Photoshopping, as these types of digital makeovers can plant some serious body image issues in young women. </p>
+
+<p>Anyway, Jezebel received the raw images almost immediately, and <a href="https://web.archive.org/web/20140410030720/http://gothamist.com/2014/01/17/lena_dunham_responds_to_jezebels_bo.php">published them as GIFs</a>, showing the transformation from real life to glossy magazine fantasy. That transformation was amongst the least shocking in the magazine&apos;s history, but the whole thing threw Dunham back at the center of a universal discussion <a href="https://web.archive.org/web/20140410030720/http://gothamist.com/2014/01/16/lena_dunham_body_image_interview.php">about her physical appearance</a>.</p>
+
+<p>While Dunham has <a href="https://web.archive.org/web/20140410030720/http://gothamist.com/2014/01/17/lena_dunham_responds_to_jezebels_bo.php">responded briefly</a> in subtweets and some comments during interviews, she just discussed it again in an hour long interview <a href="https://web.archive.org/web/20140410030720/http://grantland.com/hollywood-prospectus/b-s-report-lena-dunham-2/">with Bill Simmons</a>, telling him:</p>
+
+<blockquote>&quot;It&#x2019;s hard to enjoy, once you feel like they&#x2019;ve made such a monumental error in their approach to feminism... It was the most minimal retouching. I felt completely respected by <em>Vogue</em>. Instead of going like, &apos;Hey, we kind of fucked up&#x2014;these pictures are not that unretouched, Lena enjoy the Vogue spread that you&apos;ve been excited about since you were 8 years old.&apos; They were like: she&#x2019;s not retouched, but she could have been. It was this weird political maneuvering that I couldn&#x2019;t respect.&#x201D;</blockquote>
+
+<p>During the interview she also lays into Gawker, and anyone who played the nepotism card during their coverage of her show <em>Girls</em>. She told Simmons, &quot;The Gawker recaps, which I didn&apos;t read because I don&apos;t read Gawker... I love gossip sites, [but] I literally get no pleasure from the Gawker kingdom. They did these recaps where they wouldn&apos;t call us by our names... [it would be] Laurie Simmons&apos; daughter, David Mamet&apos;s daughter, Brian Williams&apos; daughter... and I wanted to so badly to get inside these people&apos;s heads and be like, &apos;Is this really what you think the landscape of Hollywood is?&apos; You walk in and you&apos;re like, &apos;My mother has one photo in the collection of the Museum of Modern Art, I&apos;d love to have a TV show.&apos;&quot; Watch the entire hour long conversation below:</p>
+
+<p><iframe width="640" height="360" src="//web.archive.org/web/20140410030720if_/http://www.youtube.com/embed/-Cya8Aukpgk" frameborder="0" allowfullscreen></iframe></p>					
+										
+									
+				

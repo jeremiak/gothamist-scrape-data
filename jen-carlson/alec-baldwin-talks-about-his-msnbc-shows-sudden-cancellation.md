@@ -1,0 +1,23 @@
+---
+author: Jen Carlson
+date: Nov 26, 2013 5:00 pm
+title: Alec Baldwin Talks About His MSNBC Show's Sudden Cancellation
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="baldwinuplate.jpg" src="https://web.archive.org/web/20150430033950im_/http://gothamist.com/attachments/arts_jen/baldwinuplate.jpg" width="640" height="358" class="image-none"> </span></p>
+
+<p>Following a confrontation with paparazzi outside of his New York City home&#x2014;<a href="https://web.archive.org/web/20150430033950/http://gothamist.com/2013/11/16/msnbc_suspends_alec_baldwin_after_h.php">allegedly calling a paparazzo</a> a &quot;c**ksucking fag&quot;&#x2014; MSNBC suspended Alec Baldwin&apos;s show, and now they have cancelled it.  </p>
+
+<p>Today <a href="https://web.archive.org/web/20150430033950/http://pagesix.com/2013/11/26/msnbc-fires-alec-baldwin/?utm_campaign=SocialFlow&amp;utm_source=P6Twitter&amp;utm_medium=SocialFlow">the NY Post</a> spoke with a source at MSNBC that told them, &#x201C;The decision has been made. He&#x2019;s gone. The [parent company] Comcast guys have decided. Word is spreading through the building.&#x201D; The tabloid also listed off other reasons he was allegedly dismissed&#x2014;one source claims he insisted on taking over a makeup room &quot;being used by a woman with cancer who is sensitive to hairspray. When Baldwin was told he couldn&#x2019;t have his way, he allegedly bellowed at the top of his lungs, &apos;I don&#x2019;t give a f&#x200A;uc&#x200A;k if she has cancer or not, I want that fucking makeup room.&apos;&quot; </p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-right"> <img alt="abaldwin10pap.jpg" src="https://web.archive.org/web/20150430033950im_/http://gothamist.com/attachments/jen/abaldwin10pap.jpg" width="375" height="304"> <br> <i> Paparazzi, camera crews and Baldwin earlier this summer (Pacific Coast News)</i></div> Baldwin, who is currently filming the new Cameron Crowe movie in Hawaii, spoke with us this afternoon and confirmed that his show will not return to MSNBC. He also addressed the situation that led to this, saying, &quot;Showing a video in which I call someone a &apos;cocksucking something&apos;... you can&apos;t really tell what I&apos;m saying, and we live in a world in which the phrase &apos;TMZ&apos;s enhanced audio&apos; exists. &apos;<em>TMZ&apos;s enhanced audio</em>.&apos; And then with The Post... there&apos;s nothing you can do when you get thrown in this washing machine, nothing. You know? Nothing. All you end up doing is just defending yourself all day long.&quot; <p></p>
+
+<p>&quot;Martin Bashir&apos;s on the air, and he made his comment on the air! I dispute half the comment I made... if I called him &apos;cocksucking maggot&apos; or a &apos;cocksucking motherfucker&apos;... &apos;faggot&apos; is not the word that came out of my mouth. That I know. But you&apos;ve got the fundamentalist wing of gay advocacy&#x2014;Rich Ferraro and Andrew Sullivan&#x2014;they&apos;re out there, they&apos;ve got you. Rich Ferraro, this is probably one of his greatest triumphs. They killed my show. And I have to take some responsibility for that myself.&quot;</p>
+
+<p>Regarding today&apos;s Post story, Baldwin said, &quot;People who I worked with that I cared about&#x2014;these people were all very supportive of the show. Now there was somebody on the staff who I did not want to work with. There was somebody on the staff who I thought wasn&apos;t a good fit for me. And I wouldn&apos;t rule out if that person went to the Post and gave them that story. These stories with the Post, the way they work, they have to have some kernel of truth. So if I complained, as I did, I said to them... I didn&apos;t ask for a humidifier, I asked for humidification. So we had a day where... my voice would crack, it was heavily air conditioned, I found it tough to talk. I did not demand someone put a humidifier in. And the woman using that dressing room, I was told she&apos;s allergic to some chemical, no one ever ever ever said to me that somebody had cancer, and I never said &apos;I don&apos;t give a fuck...&apos;&quot;</p>
+
+<p>Baldwin also spoke at length with us about MSNBC and the future of his podcast (or rather, the end of his podcast)&#x2014;we&apos;ll have all of that tomorrow. [UPDATE: <a href="https://web.archive.org/web/20150430033950/http://gothamist.com/2013/11/27/alec_baldwin_talks_about_his_podcas.php">Here is more of the interview</a>.]</p>					
+										
+									
+				

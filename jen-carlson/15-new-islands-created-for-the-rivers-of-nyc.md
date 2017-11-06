@@ -1,0 +1,13 @@
+---
+author: Jen Carlson
+date: February 17, 2012 10:13 AM
+title: 15 New Islands Created For The Rivers Of NYC
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="dunkinissland0212.jpeg" src="https://web.archive.org/web/20120217210548im_/http://gothamist.com/attachments/arts_jen/dunkinissland0212.jpeg" width="640" height="409" class="image-none"> </span></p>
+
+<p>The Queens Museum of Art invited collaborators to propose ideas for new islands in the city&apos;s rivers, for a site-specific art infiltration into their amazing Panorama. It&apos;s called &quot;<a href="https://web.archive.org/web/20120217210548/http://www.queensmuseum.org/9204/fifteen-islands-for-robert-moses">Fifteen Islands for Robert Moses</a>.&quot; Today they give us Dunkin Island, created by Larry M. Bogad. <a href="https://web.archive.org/web/20120217210548/http://www.queensmuseum.org/exhibitions/exhibitions-misc-pages/larry-m-bogad">This fictional creation</a> would be 100-yards in diameter and located right off Battery Park, containing a round bulls-eye at the center... but you wouldn&apos;t want the water taxi service dropping you off there. Here&apos;s what Bogad has in mind:</p>
+
+<blockquote>A state-subsidized, comfortable water taxi will deliver those who have committed egregious offenses&#x2014;for example, bankers and speculators responsible for the most recent financial crisis&#x2014;to permanent exile on this island. A gigantic catapult that fires soft projectiles will be installed on the roof of the Museum of the American Indian, with open and free access to the public. Tourists and New Yorkers alike can aim and fire at the target on Dunkin&#x2018; Island. The island is rigged with springs so that, when the target is hit, the entire mini-landmass submerges under water, bouncing back up again after the inhabitants have been thoroughly soaked. Due to this constant dunking, smartphones and iPads will not last long on Dunkin&#x2018; Island. This will provide ecologically sound and cathartic entertainment while drawing on our nation&#x2018;s Puritan heritage of public shaming as a social corrective. The island&#x2018;s proximity to Wall Street will prove convenient.</blockquote>
+
+<p>Dunkin, and the other islands, will all be on view through May 20th. And now we&apos;ll ask you the same question collaborators on this project were asked: &#x201C;If you could add an island to New York City, what would that new landmass be like?&#x201D;</p>

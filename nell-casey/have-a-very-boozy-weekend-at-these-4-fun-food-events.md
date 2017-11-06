@@ -1,0 +1,19 @@
+---
+author: Nell Casey
+date: Feb 6, 2014 4:23 pm
+title: Have A Very Boozy Weekend At These 4 Fun Food Events
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="012814meatball.jpg" src="https://web.archive.org/web/20140420043614im_/http://gothamist.com/upload/2014/01/012814meatball.jpg" width="640" height="427"> <br> <i> <span class="photo_caption">(via <a href="https://web.archive.org/web/20140420043614/https://www.facebook.com/photo.php?fbid=10151344200114034&amp;set=a.10151344199039034.490505.91667049033&amp;type=3&amp;theater">Facebook</a>)</span></i></div> <p></p>
+
+<p>Lower East Side staple &apos;Inoteca leaves this mortal coil after service on Saturday, so you only have a few more days to say goodbye while <a href="https://web.archive.org/web/20140420043614/http://gothamist.com/2014/02/05/mourn_the_closing_of_noteca_with_th.php">noshing on egg toast</a>. Besides getting your last truffle fix, you can also <strong>score deeply discounted wines</strong>, as the restaurant has <a href="https://web.archive.org/web/20140420043614/http://www.reddit.com/r/nyc/comments/1x41eb/hey_nyc_winos_lower_east_side_institution_inoteca/">put out a call</a> urging would-be diners to help them drain their vino stash before last call. Prices have already been &quot;slashed&quot; and the owners are promising &quot;increasingly outrageous&quot; discounts as the clock ticks down. And don&apos;t feel guilty reaping the rewards of the restaurant&apos;s sorrow: whatever doesn&apos;t get imbibed gets repossessed. Bottoms up!</p>
+
+<p>Speaking of wine, if you&apos;re more into the all-you-can-drink variety, check out this Saturday&apos;s <strong><a href="https://web.archive.org/web/20140420043614/http://www.nywinefestivals.com/">NYC Winter Wine Festival</a></strong> at Times Square&apos;s Best Buy Theater. The three-hour session includes samples of over 200 wines, nibbles like pasta, cheese and breads and a wine glass to add to your growing collection at home. If you yearn to learn about boozy grapes, check out one of the wine classes on offer throughout the day or just meander through the tables and randomly choose something to sample. The afternoon session has sold out, but <a href="https://web.archive.org/web/20140420043614/https://web.ovationtix.com/trs/pe/9833991">$89 tickets</a> to the evening affair are still available.</p>
+
+<p>Ball lovers of NYC unite at this month&apos;s <a href="https://web.archive.org/web/20140420043614/http://thetakedowns.com/the-banshee-seductress-eviscerates-the-lonely-and-the-damned-2014bkln-meatball-takedown/"><strong>Meatball Takedown</strong></a> filled with balls of all shapes, sizes and flavors. Nothing but home cooks at this meatball contest and it looks like there aren&apos;t any rules besides preparing balls made of meat. If you like meat and you like it shaped like a ping pong ball, then open wide. The ball eating goes down at the Bell House on Sunday from 2 p.m. to 4 p.m.</p>
+
+<p>The monthly pop-up <strong><a href="https://web.archive.org/web/20140420043614/http://www.queenscountymarket.com/">Queens County Market</a></strong> takes over <a href="https://web.archive.org/web/20140420043614/http://www.singlecutbeer.com/">Singlecut Beersmiths</a> this Sunday from 1 p.m. to 5 p.m. bringing the best of the borough to Astoria for snacking and drinking. Packaged products like coffee, kimchi and cookies are available for purchase and off-site consumption; hot and cold foods are also available to stuff your face with at the venue. It&apos;s a special Valentine&apos;s theme this month and there will be some artisan vendors on hand to pick up a little something special for your special someone. And since the location calls for it, there&apos;ll also be plenty of beer to help promote that loving feeling.</p>					
+										
+									
+				

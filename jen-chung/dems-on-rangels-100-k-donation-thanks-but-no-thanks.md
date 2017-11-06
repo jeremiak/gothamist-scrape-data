@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: August 25, 2008  1:35 PM
+title: Dems on Rangel's $100K Donation: Thanks, But No Thanks
+---
+
+<p><img src="https://web.archive.org/web/20120311130621im_/http://gothamist.com/attachments/jen/2008_07_rangelc10.jpg" class="right">The <a href="https://web.archive.org/web/20120311130621/http://www.nypost.com/seven/08252008/news/regionalnews/dnc_to_return_100g_donation_to_rangel_126038.htm">Post reports</a> that the Democratic National Committee will return $100,000 donated by Representative Charles Rangel, &quot;saying it goes against a Team Obama ban on PAC money.&quot;  There&apos;s debate about whether DNC chairman Howard Dean accepted the check a few weeks ago, saying it was a sign of party unity (Rangel was/is a big Clinton supporter), or if Dean didn&apos;t know the envelope contained a check. But one source told the Post that Rangel&apos;s money is considered &quot;tainted&quot; because it&apos;s &quot;lobbyists&apos; money.&quot;  Previously in DNC-Rangel tanglings, some wondered why the Chairman of the House Ways and Means Committee <a href="https://web.archive.org/web/20120311130621/http://www.nydailynews.com/news/politics/2008/08/15/2008-08-15_no_speech_from_charles_rangel_at_democra.html">wasn&apos;t speaking during the convention</a>.</p>

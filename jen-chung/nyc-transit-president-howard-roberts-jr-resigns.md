@@ -1,0 +1,11 @@
+---
+author: Jen Chung
+date: November  4, 2009  2:28 PM
+title: NYC Transit President Howard Roberts Jr. Resigns
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2009_11_howrob.jpg" src="https://web.archive.org/web/20110623152237im_/http://gothamist.com/attachments/jen/2009_11_howrob.jpg" width="120" height="182" class="image-left"> </span>Howard Roberts Jr., president of NYC Transit for the past 2 1/2 years, <a href="https://web.archive.org/web/20110623152237/http://www.nydailynews.com/ny_local/2009/11/04/2009-11-04_nyc_transit_president_howard_roberts_resigns_in_wake_of_jay_walders_elevation_to.html">resigned today</a>, leading many to suspect more resignations will come, as new <a href="https://web.archive.org/web/20110623152237/http://gothamist.com/2009/10/06/new_mta_chief_rides_subway_talks_bu.php">MTA head Jay Walder</a> wants to leave his own stamp on the agency.  </p>
+
+<p>According to the Daily News, &quot;Transit advocates credit Roberts for a series of reforms, like asking bus and subway riders to rate service on their lines and rank their priorities,&quot; but a &quot;few board members have expressed exasperation with delays that continue to plague the subway system. And some in the authority felt Roberts was too deferential to labor - a contention he strongly disputed.&quot;  </p>
+
+<p>One transit advocacy group, the Straphangers Campaign, issued a statement: &quot;Howard Roberts Jr. has been a good head of New York City&apos;s transit system.  Although saddled with budget cuts and disruptions caused by needed repair work, he put managers<a href="https://web.archive.org/web/20110623152237/http://gothamist.com/2007/12/06/2_vs_f_c_vs_5_s.php"> in charge of each line</a> and pushed to provide faster bus service.  The subways and buses can drive New Yorkers nuts, but Howard Roberts worked hard for a saner system.&quot; The Straphangers also cite other accomplishments like providing faster bus service (the first-ever &quot;Select Bus Service&quot; routes in the Bronx and Manhattan), the subway rider report cards, and adopting a <a href="https://web.archive.org/web/20110623152237/http://gothamist.com/2007/09/21/subway_floodfig.php">new flood strategy</a>.</p>

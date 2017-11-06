@@ -1,0 +1,15 @@
+---
+author: Jen Carlson
+date: Jul 15, 2009 4:19 pm
+title: Williamsburg Gutter Punks Get Ink
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:350px; "> <img alt="heroinhipster.jpg" src="https://web.archive.org/web/20160529012057im_/http://gothamist.com/attachments/arts_jen/heroinhipster.jpg" width="350" height="263"> <br> <i><span class="photo_caption">Original photo of construction via <a href="https://web.archive.org/web/20160529012057/http://www.flickr.com/photos/9736580@N06/3501532490/">krzysztof.poluchowicz</a></span></i></div> While Williamsburg sits stagnant in a confused state of purgatory, the <a href="https://web.archive.org/web/20160529012057/http://gothamist.com/2009/07/13/condo_no_developers_big_williamsbur.php">abandoned and stalled luxury condos</a> have become a haven for one group: the gutter punks. <a href="https://web.archive.org/web/20160529012057/http://www.nydailynews.com/ny_local/brooklyn/2009/07/15/2009-07-15_hordes_of_hobos_set_up_shop_in_williamsburg_punks_invade_neighborhood.html">The Daily News</a> gives the group a <a href="https://web.archive.org/web/20160529012057/http://www.nydailynews.com/ny_local/brooklyn/2009/07/15/2009-07-15_for_some_homeless_drugaddicts_squatting_in_williamsburg_came_be_a_great_job.html">two-story treatment</a> today, saying the &quot;heroin-addict hobos from around the country are overrunning&quot; the area. And as with every other newcomer to the Brooklyn neighborhood, they&apos;re hated by those who came before them.<p></p>
+
+<p>Not too long ago we pointed to <a href="https://web.archive.org/web/20160529012057/http://williamsboard.com/thread/view/82726/">the Williamsboard</a> community, where there&apos;s a massive thread on the punks. Some say they&apos;re friendly, some say they&apos;re smelly, some are sick of <a href="https://web.archive.org/web/20160529012057/http://www.flickr.com/photos/mollybucketx/3638354079">their panhandling</a> and fighting. One local told the paper, <strong>&quot;It&apos;s like St. Marks in the &apos;70s. It&apos;s the bad old days all over again. There&apos;s crack and heroin all over the neighborhood.&quot;</strong> Indeed, the punks shoot up at the same cafes you pay 4 bucks for an iced latte.</p>
+
+<p>Reportedly they escape their middle-class upbringing by hopping a freight train to the city, where they make up to $150 a day panhandling before returning to their chosen neighborhood to catch some shut eye (or shoot up). Many squat at 510 Driggs Avenue, an alleged hot spot for heroin and the stalled site of a 50-unit luxury rental complex. One such 22-year-old told the News, <strong>&quot;I&apos;ve got to sleep somewhere, and I might as well do it in Williamsburg. The girls here like it that I&apos;m dirty and I ride trains.&quot;</strong> It&apos;s like the heroin hipster version of batting ones eyelashes, he makes $15/hour in Union Square by simply holding a sign that reads: &quot;Traveling Broke and Sexy.&quot;</p>					
+										
+									
+				

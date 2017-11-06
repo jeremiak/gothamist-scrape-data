@@ -1,0 +1,67 @@
+---
+author: Emma Whitford
+date: Feb 8, 2016 11:09 am
+title: Photos: Extreme High Tides & "Major Flooding" In NY, NJ
+---
+
+	
+										<p>The National Weather Service <a href="https://web.archive.org/web/20160720214651/http://forecast.weather.gov/product.php?site=NWS&amp;issuedby=OKX&amp;product=HWO">issued</a> a flooding advisory for coastal neighborhoods in NYC and Long Island this morning. Residents from Far Rockaway, Broad Chanel, Howard Beach and other waterfront neighborhoods are documenting flooding on city streets, in addition to snow flurries. </p>
+
+<center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">Flooding in Far Rockaway, Queens on Almeda Ave. &amp; B 72nd St. <a href="https://web.archive.org/web/20160720214651/https://twitter.com/ABC7NY">@ABC7NY</a> <a href="https://web.archive.org/web/20160720214651/https://t.co/7vLVwKirJT">pic.twitter.com/7vLVwKirJT</a></p>&#x2014; Dray Clark (@DrayClarkABC7) <a href="https://web.archive.org/web/20160720214651/https://twitter.com/DrayClarkABC7/status/696719642161782785">February 8, 2016</a></blockquote>
+<script async src="//web.archive.org/web/20160720214651js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<p>The Weather Service says that in addition to that <a href="https://web.archive.org/web/20160720214651/http://gothamist.com/2016/02/08/snow_nyc_advisory_danger.php">winter weather advisory</a>, shore neighborhoods in Nassau and Suffolk counties, southern Westchester, and the Bronx were under advisory until 11:00 a.m, and will be again from 7:00 p.m. to 11:00 p.m. tonight to coincide with the next high tide. A <a href="https://web.archive.org/web/20160720214651/http://www.accuweather.com/en/us/new-york-ny/10007/weather-warnings-1555408/349727">high-surf warning</a> is also in effect until 7:00 a.m. tomorrow, in Queens, Nassau and Suffolk Counties. </p>
+
+<p>The tidal flooding is due in part to a coastal storm moving northward up the Atlantic today, <a href="https://web.archive.org/web/20160720214651/http://www.nbcnewyork.com/news/local/Coastal-Storm-Moves-in-Tri-State-New-York-New-Jersey-Flooding-Howard-Beach-Snow-Hoboken-Union-368032901.html">NBC reports</a>. That storm is &quot;glancing&quot; the tri-state area, hence the high tides. The NJ Advance reports that the <a href="https://web.archive.org/web/20160720214651/http://www.silive.com/news/index.ssf/2016/02/1_to_4_inches_of_snow_forecast.html#incart_article_small">new moon</a> isn&apos;t helping.</p>
+
+<p>Add to that the predicted snow flurries, and you&apos;ve got liquid precipitating above, and pooling below. </p>
+
+<center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">Coastal flooding this morning. High tide is 8:43am, low tide 3:07pm and High tide 9:08pm.</p>&#x2014; NYCFireWire (@NYCFireWire) <a href="https://web.archive.org/web/20160720214651/https://twitter.com/NYCFireWire/status/696710876171214849">February 8, 2016</a></blockquote>
+<script async src="//web.archive.org/web/20160720214651js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr"><a href="https://web.archive.org/web/20160720214651/https://twitter.com/hashtag/HamiltonBeach?src=hash">#HamiltonBeach</a> residents on 104th trying to make it home however they can <a href="https://web.archive.org/web/20160720214651/https://twitter.com/hashtag/flood?src=hash">#flood</a> <a href="https://web.archive.org/web/20160720214651/https://twitter.com/hashtag/tides?src=hash">#tides</a> <a href="https://web.archive.org/web/20160720214651/https://twitter.com/civicpres_nhbc">@civicpres_nhbc</a> <a href="https://web.archive.org/web/20160720214651/https://twitter.com/ORiled_Up">@ORiled_Up</a> <a href="https://web.archive.org/web/20160720214651/https://t.co/LFfbtIPcCo">pic.twitter.com/LFfbtIPcCo</a></p>&#x2014; Jon Greenfield (@JonBGreenfield) <a href="https://web.archive.org/web/20160720214651/https://twitter.com/JonBGreenfield/status/696712188946472960">February 8, 2016</a></blockquote>
+<script async src="//web.archive.org/web/20160720214651js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">Major flooding in Rockaway, massive flooding in Broad Channel. bay at high tide, water coming up from drains. <a href="https://web.archive.org/web/20160720214651/https://t.co/B3EkNKjWjp">pic.twitter.com/B3EkNKjWjp</a></p>&#x2014; Spencer Scott (@_spencerscott) <a href="https://web.archive.org/web/20160720214651/https://twitter.com/_spencerscott/status/696686026736168961">February 8, 2016</a></blockquote>
+<script async src="//web.archive.org/web/20160720214651js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">Major flooding in <a href="https://web.archive.org/web/20160720214651/https://twitter.com/hashtag/Rockaway?src=hash">#Rockaway</a> along Seagirt Ave in B30&apos;s, getting reports of flooding in B60&apos;s BCD, B116 &amp; Neponsit <a href="https://web.archive.org/web/20160720214651/https://t.co/oFmlrETk22">pic.twitter.com/oFmlrETk22</a></p>&#x2014; The Wave Newspaper (@TheWaveNews) <a href="https://web.archive.org/web/20160720214651/https://twitter.com/TheWaveNews/status/696690866812030976">February 8, 2016</a></blockquote>
+<script async src="//web.archive.org/web/20160720214651js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">I have no idea what happened last night, but Old Howard Beach is under water. <a href="https://web.archive.org/web/20160720214651/https://twitter.com/eric_ulrich">@eric_ulrich</a> <a href="https://web.archive.org/web/20160720214651/https://twitter.com/nycoem">@nycoem</a> <a href="https://web.archive.org/web/20160720214651/https://twitter.com/NYCMayorsOffice">@NYCMayorsOffice</a> <a href="https://web.archive.org/web/20160720214651/https://t.co/mEEIf0BaUh">pic.twitter.com/mEEIf0BaUh</a></p>&#x2014; Richard Resk (@RichResk) <a href="https://web.archive.org/web/20160720214651/https://twitter.com/RichResk/status/696672740141625345">February 8, 2016</a></blockquote>
+<script async src="//web.archive.org/web/20160720214651js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">Flooding in Broad Channel <a href="https://web.archive.org/web/20160720214651/https://twitter.com/hashtag/Queens?src=hash">#Queens</a> adds to growing Winter word for Metro <a href="https://web.archive.org/web/20160720214651/https://twitter.com/hashtag/NYC?src=hash">#NYC</a> <a href="https://web.archive.org/web/20160720214651/https://twitter.com/ABC7NY">@ABC7NY</a> pic courtesy Helen Henglein <a href="https://web.archive.org/web/20160720214651/https://t.co/RZV4NNj2WN">pic.twitter.com/RZV4NNj2WN</a></p>&#x2014; jim hoffer (@NYCinvestigates) <a href="https://web.archive.org/web/20160720214651/https://twitter.com/NYCinvestigates/status/696697805960843264">February 8, 2016</a></blockquote>
+<script async src="//web.archive.org/web/20160720214651js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<p>According to the MTA, the Q11 and Q114 buses are currently being rerouted in Howard Beach and Far Rockaway. </p>
+
+<center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr"><a href="https://web.archive.org/web/20160720214651/https://twitter.com/hashtag/ServAdv?src=hash">#ServAdv</a>: b/d <a href="https://web.archive.org/web/20160720214651/https://twitter.com/hashtag/Q11?src=hash">#Q11</a> buses detoured, due to flooding in Howard Beach. See <a href="https://web.archive.org/web/20160720214651/https://t.co/4PI10QaRnr">https://t.co/4PI10QaRnr</a></p>&#x2014; NYCT Buses (@NYCTBus) <a href="https://web.archive.org/web/20160720214651/https://twitter.com/NYCTBus/status/696713096962969601">February 8, 2016</a></blockquote>
+<script async src="//web.archive.org/web/20160720214651js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr"><a href="https://web.archive.org/web/20160720214651/https://twitter.com/hashtag/ServAdv?src=hash">#ServAdv</a>: b/d <a href="https://web.archive.org/web/20160720214651/https://twitter.com/hashtag/Q114?src=hash">#Q114</a> <a href="https://web.archive.org/web/20160720214651/https://twitter.com/hashtag/LTD?src=hash">#LTD</a> buses detoured due to high tide on Brookville Blvd b/t Rockaway Blvd &amp; 147 Av. Details at <a href="https://web.archive.org/web/20160720214651/https://t.co/ygleyWAnV2">https://t.co/ygleyWAnV2</a></p>&#x2014; NYCT Buses (@NYCTBus) <a href="https://web.archive.org/web/20160720214651/https://twitter.com/NYCTBus/status/696713025840144384">February 8, 2016</a></blockquote>
+<script async src="//web.archive.org/web/20160720214651js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<p>Both the 8:00 a.m. and 8:15 a.m. Staten Island Ferry trips were canceled due to &quot;extreme high tides,&quot; with regular service resuming at 8:30 for sardine-packed riders. </p>
+
+<center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr"><a href="https://web.archive.org/web/20160720214651/https://twitter.com/hashtag/StatenIslandFerry?src=hash">#StatenIslandFerry</a> delays due to &apos;extreme high tide:&apos; <a href="https://web.archive.org/web/20160720214651/https://twitter.com/hashtag/StatenIslandTraffic?src=hash">#StatenIslandTraffic</a> <a href="https://web.archive.org/web/20160720214651/https://t.co/XJdK2nNvgA">https://t.co/XJdK2nNvgA</a></p>&#x2014; SIAdvance (@siadvance) <a href="https://web.archive.org/web/20160720214651/https://twitter.com/siadvance/status/696692791720673280">February 8, 2016</a></blockquote>
+<script async src="//web.archive.org/web/20160720214651js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<p>In Hoboken, New Jersey, high tides were lapping at boardwalks along the Hudson shortly after 8:00 a.m., and flooded rails at the Hoboken New Jersey Transit terminal, prompting early morning train cancellations and residual delays. </p>
+
+<center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">NEC train #3817 the 7:46am from Princeton Jct is up to 15 min. late due to track maintenance.</p>&#x2014; NJ TRANSIT - NEC (@NJTRANSIT_NEC) <a href="https://web.archive.org/web/20160720214651/https://twitter.com/NJTRANSIT_NEC/status/696677529596211202">February 8, 2016</a></blockquote>
+<script async src="//web.archive.org/web/20160720214651js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center> 
+
+<center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr"><a href="https://web.archive.org/web/20160720214651/https://twitter.com/Evansweather">@Evansweather</a> Hudson River takes over Hoboken Terminal?!? <a href="https://web.archive.org/web/20160720214651/https://t.co/QbGDSGjpHW">pic.twitter.com/QbGDSGjpHW</a></p>&#x2014; Adam Brenner (@BrenBren2424) <a href="https://web.archive.org/web/20160720214651/https://twitter.com/BrenBren2424/status/696677291649343488">February 8, 2016</a></blockquote>
+<script async src="//web.archive.org/web/20160720214651js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">Flooded tracks at Hoboken terminal <a href="https://web.archive.org/web/20160720214651/https://twitter.com/hashtag/njtransit?src=hash">#njtransit</a> <a href="https://web.archive.org/web/20160720214651/https://t.co/ZymLFPWX48">pic.twitter.com/ZymLFPWX48</a></p>&#x2014; lawhawk (@lawhawk) <a href="https://web.archive.org/web/20160720214651/https://twitter.com/lawhawk/status/696685628776411137">February 8, 2016</a></blockquote>
+<script async src="//web.archive.org/web/20160720214651js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<p>Lest drivers feel left out of the excitement, the FDR is also best left alone, if you can help it. </p>
+
+<center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">Flooding in <a href="https://web.archive.org/web/20160720214651/https://twitter.com/hashtag/Nyc?src=hash">#Nyc</a> on The FDR Dr NB approaching 96th St, stop and go traffic back to 61st St, delay of 3 mins <a href="https://web.archive.org/web/20160720214651/https://twitter.com/hashtag/traff?src=hash">#traff</a>&#x2026; <a href="https://web.archive.org/web/20160720214651/https://t.co/DY2wZwtr2B">https://t.co/DY2wZwtr2B</a></p>&#x2014; Breaking Traffic (@newszbreakintfc) <a href="https://web.archive.org/web/20160720214651/https://twitter.com/newszbreakintfc/status/696711082119970816">February 8, 2016</a></blockquote>
+<script async src="//web.archive.org/web/20160720214651js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>					
+										
+									
+				

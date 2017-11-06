@@ -1,0 +1,13 @@
+---
+author: Jen Carlson
+date: Dec 5, 2007 4:10 pm
+title: Media Mentions Unmentionables! Uncovering New York's Women
+---
+
+	
+										<p><img alt="200712brahitchcock.jpg" src="https://web.archive.org/web/20150509173632im_/http://gothamist.com/attachments/arts_jen/200712brahitchcock.jpg" width="360" height="267" class="right">Men, if you&apos;d like to keep your delusions alive -- steer clear of <a href="https://web.archive.org/web/20150509173632/http://www.observer.com/2007/spanx-me-baby">this Observer article</a> on Spanx. It appears that women of all shapes and sizes are stocking their drawers with the girdle-esque garment.</p><blockquote>&quot;She did what an increasing number of New York women are doing every night of the week: She wiggled into a pair of Spanx, the nylon and spandex undergarments that cinch a gal&#x2019;s waist and thighs, eliminating underwear lines and shaving off anywhere from 2 to 10 pounds, depending on whom you ask.&quot;</blockquote>From <em>Glamour</em> mag editors to Gwyneth Paltrow, women are Spanxin&apos; it up all over town. The paper reports that they &quot;are particularly coveted in New York, where they have become ubiquitous at benefits and photo shoots.&quot; Even the cast of <em>Lipstick Jungle</em> slid into the slimming Spanx for filming. But will owning <a href="https://web.archive.org/web/20150509173632/http://www.spanx.com/">their products</a> have women skipping the gym? Well, they&apos;re certainly cheaper than a gym membership. And gentlemen, these aren&apos;t for you -- one Observer scribe <a href="https://web.archive.org/web/20150509173632/http://www.observer.com/2007/spanx-me-baby-0">found that out the hard way</a>.<p></p>
+
+<p>Speaking of underthings, <a href="https://web.archive.org/web/20150509173632/http://nymag.com/guides/everything/bras/">NYMag has a guide</a> to buying the perfect brassiere, with <a href="https://web.archive.org/web/20150509173632/http://nymag.com/guides/everything/bras/41545">a list</a> of some top shops in Manhattan. They also <a href="https://web.archive.org/web/20150509173632/http://nymag.com/guides/everything/bras/41548">take a look back</a> at the history of the bra, and lo and behold, the first patent on one was right here in New York. In 1914 (though according to <a href="https://web.archive.org/web/20150509173632/http://family.phelpsinc.com/bios/mary_phelps_jacob.htm">other sources</a> it was 1910) New York socialite Mary Phelps Jacob came out with her &quot;backless brassiere, a primitive construction of two handkerchiefs and a pink ribbon.&quot; And 7 years prior <em>Vogue</em> used the word brassiere for the first time. Learn enough about lingerie for the day? Class dismissed.</p>					
+										
+									
+				

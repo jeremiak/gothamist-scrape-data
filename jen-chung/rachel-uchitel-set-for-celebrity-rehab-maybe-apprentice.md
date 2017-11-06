@@ -1,0 +1,11 @@
+---
+author: Jen Chung
+date: July 19, 2010 10:43 AM
+title: Rachel Uchitel Set For Celebrity Rehab, Maybe Apprentice
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2010_07_racheluch.jpg" src="https://web.archive.org/web/20110624102850im_/http://gothamist.com/attachments/jen/2010_07_racheluch.jpg" width="180" height="237" class="image-left"> </span>Just because she (allegedly) <a href="https://web.archive.org/web/20110624102850/http://gothamist.com/2010/04/01/tmz_tiger_woods_paid_lover_10_milli.php">got $10 million</a> for not spilling the details of her affair with Tiger Woods doesn&apos;t mean<a href="https://web.archive.org/web/20110624102850/http://gothamist.com/tags/racheluchitel"> Rachel Uchitel</a> wants to just sit around.  Apparently the former NYC nightclub, um, hostess has <a href="https://web.archive.org/web/20110624102850/http://www.nydailynews.com/gossip/2010/07/19/2010-07-19_rachel_uchitel_jeremy_london_janice_dickinson_officially_join_celebrity_rehab_wi.html">agreed to be on VH1&apos;s next incarnation</a> of Celebrity Rehab, alongside Jeremy London, Janice Dickinson, Leif Garrett, and other D-list celebrities.  </p>
+
+<p>What&apos;s she addicted to?  Pills, although it&apos;s unclear whether it&apos;s Ambien (she claimed to have <a href="https://web.archive.org/web/20110624102850/http://www.newser.com/story/75461/rachel-uchitel-had-crazy-ambien-sex-with-tiger.html">&quot;crazy Ambien sex&quot;</a> with Woods) or something related to the tragedy in her life (her fiance <a href="https://web.archive.org/web/20110624102850/http://gothamist.com/2009/11/30/tiger_woods_alleged_mistress_lost_f.php">died in the Twin Towers</a> on 9/11).  </p>
+
+<p>In other Uchitel news, last week, Donald Trump <a href="https://web.archive.org/web/20110624102850/http://www.tmz.com/2010/07/15/donald-trump-rachel-uchitel-celebrity-apprentice/11/">told TMZ</a> that he asked the 35-year-old to be on Celebrity Apprentice.  Uchitel told the gossip site she&apos;d &quot;absolutely&quot; do it. </p>

@@ -1,0 +1,63 @@
+---
+author: Emma Whitford
+date: Mar 15, 2017 3:41 pm
+title: Activists And Lawyers Are Preparing For Trump's New Travel Ban To Drop At Midnight
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="031517heins.jpg" src="https://web.archive.org/web/20170805122626im_/http://gothamist.com/attachments/nyc_arts_john/031517heins.jpg" width="640" height="427"> <br> <i> Attorneys working the graveyard shift during the Trump administration&apos;s first attempt at a travel ban. (Scott Heins / Gothamist)</i></div> <p></p>
+
+<p>Tonight, around 9:00 p.m., a group of 20 lawyers and translators will gather at John F. Kennedy Airport with their laptops and resurrect a <a href="https://web.archive.org/web/20170805122626/http://gothamist.com/2017/01/30/lawyers_immigration_jfk.php#photo-1">central command station</a> at the arrivals gate at Terminal 4. The <a href="https://web.archive.org/web/20170805122626/http://gothamist.com/2017/03/06/trump_travel_ban_take_two.php">second iteration</a> of President Donald Trump&apos;s travel ban&#x2014;barring citizens from Iran, Libya, Syria, Somalia, Sudan and Yemen for at least three months and all refugees for four&#x2014;goes into effect at midnight. Advocates, attorneys and policymakers aren&apos;t expecting the same levels of <a href="https://web.archive.org/web/20170805122626/http://gothamist.com/2017/01/28/refugee_advocates_hold_rally_agains.php">chaos</a> that accompanied Trump&apos;s January order on border security, but <a href="https://web.archive.org/web/20170805122626/http://gothamist.com/2017/02/06/jfk_lawyers_trump_travel_ban.php">#NoBanJFK</a> is planning to be at the airport at least until Saturday. The terminal is even providing them with tables, chairs and power strips. </p>
+
+<p>&quot;We&apos;d rather be on the safe side,&quot; said Camille Mackler, director of legal initiatives at the New York Immigration Coalition. &quot;I don&apos;t think that we&apos;ll be seeing the massive detentions that we saw the first time around, but obviously we could be wrong.&quot; </p>
+
+<p>The Trump administration hopes this new travel ban iteration will withstand legal scrutiny, sparing current green card and visa holders, as well as dual-citizens. It&apos;s even won praise from some Republican legislators, for appearing on the Department of Homeland Security a full ten days ahead of implementation (New York Congressman Dan Donovan called the rollout &quot;smoother and more controlled&quot;). </p>
+
+<p>&quot;Ten days isn&apos;t a lot of time to issue guidance and train thousands and thousands of airport employees,&quot; Mackler cautioned. &quot;These are employees who perform vital functions beyond immigration enforcement. It&apos;s not like they&apos;re just sitting around waiting for orders.&quot; </p>
+
+<p>Even after a <a href="https://web.archive.org/web/20170805122626/http://gothamist.com/2017/02/04/federal_judge_blocks_president_trum.php#photo-1">February court ruling</a> suspended the administration&apos;s first ban, immigrant advocates say they&apos;ve noticed a shift towards more frequent detentions at airports.</p>
+
+<p>&quot;We&apos;ve seen detention and extensive questioning in airports that seems to show increased interest in Customs monitoring people who are entering,&quot; said Betsy Fischer, policy director for the International Refugee Assistance Project (IRAP), which provides free legal services to refugees overseas. &quot;Like Customs holding people without access to attorneys for several hours at a time.&quot; </p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="031517_NoBan.jpeg" src="https://web.archive.org/web/20170805122626im_/http://gothamist.com/attachments/nyc_ewhitford/031517_NoBan.jpeg" width="640" height="426"> <br> <i> (Gretchen Robinette / Gothamist) </i></div> <p></p>
+
+<p>Lawyers stressed that they consider this ban to be just as punitive, and legally dubious, as the last one. &quot;They have tweaked the ban, but at the end of the day they are still targeting six countries, each of which has a Muslim population of over 90 percent,&quot; said ACLU National Legal Director David Cole in a <a href="https://web.archive.org/web/20170805122626/http://gothamist.com/2017/03/06/trump_travel_ban_aclu.php">recent video conference</a>. &quot;And that violates the <a href="https://web.archive.org/web/20170805122626/https://www.aclu.org/blog/speak-freely/well-see-you-court-why-trumps-executive-order-refugees-violates-establishment">Establishment Clause</a> in the same way the original one does: it disfavors one religion.&quot;</p>
+
+<p>This argument could also apply to the refugee ban. <a href="https://web.archive.org/web/20170805122626/https://static1.squarespace.com/static/580e4274e58c624696efadc6/t/58bdc3fef5e2319165a1ecf4/1488831487012/Arrivals+by+Processing+Country+and+Nationality+-+Map3.6.17.pdf">According to the Department of State</a>, Iran, Iraq, and Syria were among the top refugee origin countries between October and February. </p>
+
+<p>Even if airports prove quiet this week, the 120 day pause on refugee applications, and accompanying 90 day suspension of visa applications, will impact thousands of people oversees: students and professionals from the six countries attempting to study and work in the US, as well as refugees from war-torn and famine-ravaged countries awaiting resettlement. </p>
+
+<p>&quot;The harm is still there, just hidden from the public&apos;s eye,&quot; said Jordan Wells, an attorney with the New York Civil Liberties Union. </p>
+
+<p>Fischer, of IRAP, warned that the ban will likely impact refugees well outside the prescribed 120 day window. The entire refugee resettlement process is about to go under extensive review, and will only be reinstated with approvals from top officials. Security and medical checks required for resettlement have expiration dates, too. &quot;It&apos;s not like on day 121 things automatically restart,&quot; she said.</p>
+
+<p>The executive order also caps the number of refugees admitted to the US this fiscal year at 50,000, down from President Obama&apos;s 110,000-per-year cap.</p>
+
+<p>&quot;There is a gap of 60,000 people who will be affected, and who even without the 120 day pause, would no longer be admitted to the US this year,&quot; Fischer said. For context, about <a href="https://web.archive.org/web/20170805122626/http://www.undispatch.com/travel-ban-executive-order-means-refugees-around-world/">85,000 refugees</a> were resettled in the US in 2016. </p>
+
+<p>Many refugees are currently living in dire conditions in Kenya, Jordan and Lebanon. &quot;The Kenyan government hosts Somalis, but have <a href="https://web.archive.org/web/20170805122626/http://www.cnn.com/2017/02/09/africa/kenya-dadaab-refugee-camp/">recently threatened</a> to shut down all of the Somali camps and forcibly return them,&quot; Fischer said. &quot;The people waiting in limbo in Kenya might very well, during those 120 days, be forced to return to famine, civil war, and terrorism.&quot; </p>
+
+<center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">TRAVEL BAN LITIGATION:<br><br>Maryland hearing &#x2014;&gt; awaiting order<br>Hawaii &#x2014;&gt; 3:30 PM ET/9:30 AM HT<br>Washington hearing &#x2014;&gt; 5 PM ET/2 PM PT</p>&#x2014; David (@DavidPontious) <a href="https://web.archive.org/web/20170805122626/https://twitter.com/DavidPontious/status/842037507013394433">March 15, 2017</a></blockquote>
+<script async src="//web.archive.org/web/20170805122626js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<p>While some lawyers gird themselves to respond to individual cases at airports, others are in court. Today alone, three hearings are weighing the legality of Trump&apos;s second travel ban, in the hopes that it might be stalled&#x2014;in part or entirely&#x2014;on the eve of implementation. </p>
+
+<p>In Maryland this morning, IRAP challenged the Trump administration <a href="https://web.archive.org/web/20170805122626/https://www.aclu.org/legal-document/international-refugee-assistance-project-v-trump-motion-preliminary-injunction">on the grounds</a> that the executive branch cannot legally adjust the refugee cap mid-year, without input from Congress. </p>
+
+<center><blockquote class="twitter-tweet" data-conversation="none" data-lang="en"><p lang="en" dir="ltr">No ruling from the bench from the judge in Maryland. Says he&apos;ll try to issue a written order today, but not 100% sure he will.</p>&#x2014; Zoe Tillman (@ZoeTillman) <a href="https://web.archive.org/web/20170805122626/https://twitter.com/ZoeTillman/status/842031565584650241">March 15, 2017</a></blockquote>
+<script async src="//web.archive.org/web/20170805122626js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<p>A <a href="https://web.archive.org/web/20170805122626/https://t.co/bSt3kM63a2">hearing this afternoon in Hawaii</a> calls for a temporary restraining order on the implementation of the ban, and challenges its constitutionality on the grounds that it discriminates against one religious group. According to <a href="https://web.archive.org/web/20170805122626/file:///Users/gothamist2015a/Downloads/secondamendedcomplaint3716.pdf">the complaint</a>, &quot;The Order denies... their right to associate with family members overseas on the basis of their religion and national origin.&quot; </p>
+
+<p>And at 5:00 p.m. eastern time, <a href="https://web.archive.org/web/20170805122626/https://www.buzzfeed.com/chrisgeidner/trump-administration-pushes-back-in-court-to-defend-the-lega?utm_term=.tbZXErjrKq#.pxQpmGZGzj">Buzzfeed reports</a> that US District Judge James Robart will hold a hearing on an emergency stay for the section of the ban that <a href="https://web.archive.org/web/20170805122626/http://www.newsmax.com/Politics/judge-grants-extension-travel-ban/2017/03/04/id/776895/">specifically applies to visa applications</a>. Robart <a href="https://web.archive.org/web/20170805122626/http://gothamist.com/2017/02/04/federal_judge_blocks_president_trum.php#photo-1">issued</a> the restraining order against the first ban last month.</p>
+
+<p>In a court filings opposing the Hawaii suit, <a href="https://web.archive.org/web/20170805122626/http://www.politico.com/story/2017/03/donald-trump-travel-ban-states-lawsuit-judge-235998">reported by Politico</a>, lawyers for the Justice Department have reiterated Washington&apos;s argument that refugees and immigrants from the six chosen countries <a href="https://web.archive.org/web/20170805122626/http://www.politico.com/f/?id=0000015a-c929-d536-a37b-c97f09a80001">pose a security threat</a>. For example, Homeland Security Secretary John Kelly has argued that more than 300 refugees in the US are being investigated for &quot;potential terrorism-related activities.&quot; </p>
+
+<p>&quot;We&apos;re going to continue to monitor the spillover effects of this order, like travelers being subject to increased scrutiny,&quot; Wells, of the NYCLU, said Wednesday. &quot;In terms of the [survival of] the ban, we&apos;re sort of on the edges of our seats in Washington, Maryland and Hawaii.&quot; </p>
+
+<p>Rob Hunter <a href="https://web.archive.org/web/20170805122626/https://www.theguardian.com/commentisfree/2017/mar/15/battle-over-new-travel-ban-here-protest?CMP=share_btn_tw">argues</a> in The Guardian this week that the massive, nation-wide protests in response to Trump&apos;s first travel ban were crucial to its rollback. &quot;The spectacle of simultaneous direct action at multiple international airports formed the political backdrop for the legal proceedings initiated against the ban,&quot; he writes. </p>
+
+<p>To that end, activist Linda Sarsour is one of several organizers behind a &quot;<a href="https://web.archive.org/web/20170805122626/https://www.facebook.com/events/1889239878021922/">human banner</a>&quot; action planned for the Pavilion at Rockefeller Park in Manhattan. At 5:00 p.m. on Friday, protesters will stand in formation to spell out #NOBAN. You can sign up for that action <a href="https://web.archive.org/web/20170805122626/https://goo.gl/forms/leLIK07rAN9Ast3r2">here</a>. There will also be a demonstration in Union Square on Thursday, details <a href="https://web.archive.org/web/20170805122626/https://www.facebook.com/events/1174673449296716/">here</a>.</p>					
+										
+									
+				

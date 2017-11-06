@@ -1,0 +1,17 @@
+---
+author: Jen Carlson
+date: Nov 14, 2013 1:38 pm
+title: People Are Now Crowdfunding Their Moves To NYC
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-right"> <img alt="ccoyotefundme.jpg" src="https://web.archive.org/web/20160310172051im_/http://gothamist.com/attachments/arts_jen/ccoyotefundme.jpg" width="370" height="243"> <br> <i style=" width:370px; ;display:block"> Some of us didn&apos;t have GoFundMe to move here</i></div> If you can crowdfund your goddamn <a href="https://web.archive.org/web/20160310172051/http://gothamist.com/2012/04/11/brooklyn_girl_raises_nearly_1500_fo.php">Rainbow Parade Birthday Party</a> on Kickstarter, then you better believe over on GoFundMe things are much more fast and loose. The world is now your trust fund! You no longer have to work in porn to earn your Big City money <a href="https://web.archive.org/web/20160310172051/http://dailyrefill.blogs.com/daily/2004/04/shock_awe_.html">like <em>some of us</em> did</a>.<p></p>
+
+<p>There are thousands of hopeful would-be New Yorkers over there trying to get enough scratch together for a move to the big city, and this week some were featured in <a href="https://web.archive.org/web/20160310172051/http://www.amny.com/urbanite-1.812039/future-new-yorkers-funding-moves-to-city-online-1.6417469">an amNewYork story about their brave struggle</a>. Let&apos;s use <a href="https://web.archive.org/web/20160310172051/http://www.gofundme.com/NewYorkDreamFund">Jes Ann Nail</a> as our example. The Austinite signed up last September after dreaming of living here since 8th grade&#x2014;&quot;I love the energy. I love all the loud city noises. I love walking in herds of people, going places with different hopes and dreams but sharing the same place and time. I love the Art, the Culture, the buildings, the sights. But most of all I love the idea of me moving there to Live. Be. Create. Love. Dance. Dream. Learn and Grow.&quot;</p>
+
+<p>One assumes the city has now sufficiently crushed Jes&apos;s hopes, dreams, and sometimes even her will to live, and that she&apos;s been too busy working a soul-crushing job to have any time to &quot;create&quot; or &quot;be.&quot; She says the money &quot;is gone. It went very quickly,&quot; but Jes, at least for the press, is keeping optimistic.</p>
+
+<p>She told AmNY that she&apos;s falling back on the &quot;New York survival goals&quot; she posted on her GoFundMe page, namely the part about teaching dance and &quot;showing my art work in galleries, coffee shops.&quot; She&apos;s now booking students through <a href="https://web.archive.org/web/20160310172051/http://jesannnail.com/">her website</a> &quot;and producing paintings she hopes to sell.&quot; She&apos;s paying half of a $1900/month rent (or a &quot;share&quot; of it, at least, with her boyfriend) and says, &quot;If you&apos;re willing to live in the boroughs, you can make it work.&quot; At least she didn&apos;t expect a life she <a href="https://web.archive.org/web/20160310172051/http://gothamist.com/2011/05/11/young_writer_who_moved_to_nyc_finds.php">saw on TV</a>... but if someone sees Jes please tell her they&apos;re <em>all</em> boroughs.</p>					
+										
+									
+				

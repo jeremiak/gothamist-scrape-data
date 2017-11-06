@@ -1,0 +1,20 @@
+---
+author: Jen Carlson
+date: Jan 4, 2016 10:40 am
+title: It's OK, You Can Scoop Your Bagel If You Want To
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="BAGELunscooped15.jpg" src="https://web.archive.org/web/20161108003120im_/http://gothamist.com/attachments/arts_jen/BAGELunscooped15.jpg" width="640" height="426" class="image-none"> </span><br>
+<span class="photo_caption">Unscooped. (Photo by <a href="https://web.archive.org/web/20161108003120/https://www.flickr.com/photos/wallyg/14441148475">Wally G</a>)</span></p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-right"> <img alt="2016bagelbook.jpg" src="https://web.archive.org/web/20161108003120im_/http://gothamist.com/attachments/arts_jen/2016bagelbook.jpg" width="275" height="341"> <br> <i style=" width:275px; ;display:block"> A: If you want to!</i></div> There&apos;s a book coming out tomorrow called <a href="https://web.archive.org/web/20161108003120/http://www.amazon.com/Should-Scoop-Out-Bagel-Nutrition/dp/1634502310"><em>Should I Scoop Out My Bagel?</em></a>, but we don&apos;t know the answer that authors Ilyse Schapiro and Hallie Rich give because we haven&apos;t read it. The duo are self-described as &#x201C;Dear Abby&#x201D; meets <em>Sex and the City</em> meets Dr. Oz, however, and their diet book as &quot;fun and breezy,&quot; so their answer is probably &quot;no, don&apos;t scoop your bagel,&quot; even though they probably secretly do. <p></p>
+
+<p>Scooping bagels gets a bad rep in NYC, but <em>have you tried it?</em> It&apos;s actually quite nice! For myself, the perfect bagel is an everything bagel that&apos;s been scooped and toasted, then filled with tofu scallion cream cheese. Maybe some sliced tomatoes on top and a dash of salt and pepper. This is just for taste, not for carb-cutting&#x2014;but I was raised on Lender&apos;s frozen bagels in Connecticut, so what do I know about taste. Anyway, do I order a bagel that way? Fuck no I don&apos;t. I have never ordered a bagel that way. I am fully aware of my geography&#x2014;maybe this would fly at an Einstein&apos;s Bagels in Nowheresville, USA, but in NYC? No. I don&apos;t want to be <a href="https://web.archive.org/web/20161108003120/http://gothamist.com/2011/08/12/psa_on_ordering_bagels.php">that asshole</a> in the bagel shop&#x2014;if I&apos;m going to order the bagel, I just order the bagel untoasted with cream cheese. I do not make its creator tear out its heart and soul before putting it over some electric fire for me.</p>
+
+<p>People don&apos;t really scoop for taste, however, they scoop for &quot;health.&quot; But scooping that bagel out isn&apos;t going to save you much in way of calories and carbs&#x2014;when this came up <a href="https://web.archive.org/web/20161108003120/http://gothamist.com/2010/06/27/do_you_scoop.php">in 2010</a>, nutritionist Marissa Lippert declared: &quot;You&#x2019;re saving maximum 75 calories by scooping it out.&quot; And through our brief Google research you aren&apos;t really cutting down much in the way of carbs, either (maybe, like, 20ish carbs if the bagel is really doughy). It&apos;s just going to make you mentally <em>feel</em> like you are somehow cheating the system, and therefore you can rationalize eating the bagel. But if you are concerned about calories and carbs, what are you doing in a bagel shop? There&apos;s probably a nice juice place just next door.</p>
+
+<p>Listen, if you want to scoop your bagel, here is what you do: <em>you do whatever you want to do.</em> You may be in New York City, where this type of behavior is frowned upon, but you are also in America, where our Constitution makes it very clear that if you want to gut your bagel you can gut your bagel. Don&apos;t let <a href="https://web.archive.org/web/20161108003120/http://nypost.com/2016/01/03/bagel-scoopers-are-ruining-nyc/">the NY Post</a> tell you what you to do. Don&apos;t let us tell you what to do. It&apos;s just a goddamn bagel.</p>					
+										
+									
+				

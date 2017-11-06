@@ -1,0 +1,13 @@
+---
+author: Jen Chung
+date: September 16, 2008  5:52 PM
+title: Stocks Gain Over 100 Points, Fed's Lending Rate Steady 
+---
+
+<p><img alt="2008_09_nyme.jpg" src="https://web.archive.org/web/20111117113730im_/http://gothamist.com/attachments/jen/2008_09_nyme.jpg" width="610" height="413"></p>
+
+<p>After <a href="https://web.archive.org/web/20111117113730/http://gothamist.com/2008/09/15/worst_day_on_wall_street_since_911.php">one of the worst days ever</a> on Wall Street, stock market <a href="https://web.archive.org/web/20111117113730/http://www.cnbc.com/id/26737573">rallied by the end of the day</a>, with the Dow Jones industrial average gaining 141.51 points today.  That increase was helped by the belief the Federal Reserve <a href="https://web.archive.org/web/20111117113730/http://www.bloomberg.com/apps/news?pid=20601087&amp;sid=ag7Ey1npcBlU&amp;refer=home">will rescue AIG</a> and news that Barclays would buy the Lehman&apos;s broker business.</p>
+
+<p>Stocks had a <a href="https://web.archive.org/web/20111117113730/http://www.usatoday.com/money/markets/2008-09-16-stocks-tuesday_N.htm">roller-coaster day</a> amid disappointment that the Fed <a href="https://web.archive.org/web/20111117113730/http://www.nytimes.com/2008/09/17/business/economy/17fed.html?hp">would not change the key lending rate</a>.  You can read the Fed&apos;s statement <a href="https://web.archive.org/web/20111117113730/http://www.federalreserve.gov/newsevents/press/monetary/20080916a.htm">here</a>--it includes the observations: &quot;Strains in financial markets have increased significantly and labor markets have weakened further. <strong>Economic growth appears to have slowed recently, partly reflecting a softening of household spending. </strong>Tight credit conditions, the ongoing housing contraction, and some slowing in export growth are likely to weigh on economic growth over the next few quarters.&quot;</p>
+
+<p>Overall, many think the Fed made the right decision, because of, <a href="https://web.archive.org/web/20111117113730/http://www.nytimes.com/2008/09/17/business/economy/17fed.html?hp">per the Times</a>wa, &quot;the Fed&#x2019;s limited ability to solve a problem that entails the entire housing and mortgage markets.&quot;  The chief investment strategist of the Hartford, Quincy Krosby, told Bloomberg News, &quot;<strong>This is a market that&apos;s not looking at fundamentals. IIt&apos;s going back and forth based on rumor and headlines and it has temporarily divorced itself from fundamental analysis.</strong>&apos;&apos; </p>

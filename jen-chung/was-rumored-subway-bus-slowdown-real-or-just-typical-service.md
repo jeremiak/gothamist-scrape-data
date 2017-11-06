@@ -1,0 +1,15 @@
+---
+author: Jen Chung
+date: Oct 15, 2009 10:18 am
+title: Was Rumored Subway, Bus Slowdown Real Or Just Typical Service?
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:250px; "> <img alt="2009_10_subcom2.jpg" src="https://web.archive.org/web/20150424122846im_/http://gothamist.com/attachments/jen/2009_10_subcom2.jpg" width="250" height="180"> <br> <i>Photograph by <a href="https://web.archive.org/web/20150424122846/http://www.flickr.com/photos/amintorres/3970191416/">aminTorres on Flickr</a></i></div> After rumors that the Transit Workers Union <a href="https://web.archive.org/web/20150424122846/http://gothamist.com/2009/10/14/are_subways_buses_slow_due_to_twu_d.php">would &quot;slow it down&quot;</a>&#x2014;it being subway and bus service&#x2014;yesterday during its &quot;Day of Outrage,&quot; the jury is out on whether or not service was truly affected.  One reader <a href="https://web.archive.org/web/20150424122846/http://gothamist.com/2009/10/14/are_subways_buses_slow_due_to_twu_d.php#comment-2363883">described</a>, &quot;The worst B/Q train service I can remember. Waited 20 minutes this morning, and the train was too packed to fit on. When another one finally arrived, it went half speed the entire way into Manhattan,&quot; yet another who must have slipped into a Bizarro dimension <a href="https://web.archive.org/web/20150424122846/http://gothamist.com/2009/10/14/are_subways_buses_slow_due_to_twu_d.php#comment-2363899">said</a>, &quot;My service this morning was actually noticably better than it usually is (on the F)&quot;?<p></p>
+
+<p>NYC Transit spokesman Paul Fleuranges <a href="https://web.archive.org/web/20150424122846/http://www.nytimes.com/2009/10/15/nyregion/15transit.html?_r=1&amp;ref=nyregion">told the NY Times</a>, &quot;It was a run-of-the-mill rush hour...It&#x2019;s the usual things that can happen.&quot; The Times cataloged the subway issues: &quot;A sick passenger caused the E train to be rerouted along the Avenue of the Americas track for 15 minutes. No. 7 trains were suspended for 10 minutes. Emergency brakes engaged on two L trains.&quot; But for conspiracy theorists, they may ask this&#x2014;who engaged the emergency brakes?!</p>
+
+<p>The TWU, which denied that it told members to slow down yesterday, was protesting the MTA&apos;s refusal to pay arbitrator-ruled 11% wage increases over three years.  The union held protests and TWU Local 100 acting president Curtis Tate <a href="https://web.archive.org/web/20150424122846/http://ny1.com/5-manhattan-news-content/top_stories/107278/transit-workers-hold--day-of-outrage-">told NY1</a>, &quot;To the MTA, to the powers that be, understand this. Do not under estimate us. This is day of outrage number one and there will be 101 if necessary.&quot;</p>					
+										
+									
+				

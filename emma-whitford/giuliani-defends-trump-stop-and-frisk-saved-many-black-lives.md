@@ -1,0 +1,34 @@
+---
+author: Emma Whitford
+date: Sep 28, 2016 2:25 pm
+title: Giuliani Defends Trump: 'Stop And Frisk Saved Many Black Lives'
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="2016_07_rudystfu.jpg" src="https://web.archive.org/web/20170626180251im_/http://gothamist.com/attachments/nyc_ewhitford/2016_07_rudystfu.jpg" width="640" height="465"> <br> <i>(via Face the Nation)</i></div> <p></p>
+
+<p>Considering the <a href="https://web.archive.org/web/20170626180251/http://gothamist.com/2016/09/27/trump_stop_and_frisk.php">hailstorm of fact-checking</a> that hit Donald Trump&apos;s stop-and-frisk endorsement at Monday night&apos;s presidential debate, it was really only a matter of time before <a href="https://web.archive.org/web/20170626180251/http://gothamist.com/2016/07/12/seth_meyers_giuliani.php">professional troll/Trump defender/former NYC mayor</a> Rudy &quot;<a href="https://web.archive.org/web/20170626180251/http://gothamist.com/2016/07/10/rudy_giuliani_says_the_black_kid_wh.php">the-real-danger-to-you-is-that-black-kid-who-is-going-to-shoot-you-on-the-street</a>&quot; Giuliani penned his two cents. </p>
+
+<p>Those two cents were delivered Tuesday evening, <a href="https://web.archive.org/web/20170626180251/http://www.wsj.com/articles/trump-is-right-about-stop-and-frisk-1475018152">in the digital pages of the Wall Street Journal</a>. And the gist is this: a federal judge ruled stop-and-frisk in NYC &quot;not unconstitutional in general but unconstitutional as applied.&quot; In the 1968 ruling <em><a href="https://web.archive.org/web/20170626180251/https://www.law.cornell.edu/supremecourt/text/392/1">Terry v. Ohio</a></em>, stop-and-frisk was deemed constitutional, assuming the officer has &quot;reasonable cause&quot; to believe that a person has committed, is committing, or will commit a crime. It can be applied appropriately, and Giuliani believes he was successful in this during his mayor-ship. </p>
+
+<p>Here&apos;s an excerpt (emphasis added): </p>
+
+<blockquote>Over a 20-year use of this policy, spanning the administration of two New York City mayors and four police commissioners, stop and frisk played a material part in reducing homicides in New York City. It helped to change New York City from the crime capital of America to the safest large city in the country. In each of those 20 years, approximately six of 10 murder victims in New York City were African-Americans. <strong>In other words, stop and frisk saved many black lives</strong>. </blockquote>
+
+<p>Long story short: crime went down when Giuliani was mayor (true!) and stop-and-frisk has been ruled constitutional (also true!). But, two truths do not a justification for racist policing make. </p>
+
+<p>&quot;The only thing that Giuliani is right on is that Supreme Court says that a stop-and-frisk is legal under certain circumstances,&quot; said New York Civil Liberties Union Director Donna Lieberman. &quot;But not as a policy that targets hundreds of thousands of innocent New Yorkers.&quot; </p>
+
+<p>To <a href="https://web.archive.org/web/20170626180251/http://gothamist.com/2016/09/27/trump_stop_and_frisk.php">review</a>, violent crime was already on the decline when stop-and-frisks came into vogue under Giuliani in the late 1990s (Rudy&apos;s predecessor, Mayor David Dinkins, <a href="https://web.archive.org/web/20170626180251/http://www.nydailynews.com/opinion/williams-yes-david-dinkins-criminal-justice-pioneer-article-1.2204993">instituted policies</a> that drove crime down). Violent crime has continued to decline since 2012, when the NYPD significantly cut down on the practice (this year, according to the NYPD, stop-and-frisks are <a href="https://web.archive.org/web/20170626180251/https://twitter.com/JPeterDonald/status/780585387974590468?ref_src=twsrc%5Etfw">down 97%</a> over 2011 levels). </p>
+
+<p>Setting aside various <a href="https://web.archive.org/web/20170626180251/http://gothamist.com/2013/08/12/federal_judge_stop_frisk_violates_u.php">court rulings</a> and their outcomes, the bottom line is that in New York City, where the use of stop-and-frisk skyrocketed in the early 2000s, black and brown people were stopped <a href="https://web.archive.org/web/20170626180251/http://www.nyclu.org/content/stop-and-frisk-data">nearly nine times out of ten</a>. In the vast majority of these cases, it turned out that those civilians stopped, questioned and patted down had done nothing wrong. And, <a href="https://web.archive.org/web/20170626180251/http://www.nytimes.com/2016/09/28/nyregion/what-donald-trump-got-wrong-on-stop-and-frisk.html?rref=collection%2Fsectioncollection%2Fnyregion">as the NY Times pointed out this week</a>, the vast majority of those who were subsequently arrested had marijuana on their person&#x2014;not a gun. </p>
+
+<p>Brooklyn Borough President Eric Adams, who served as an NYPD captain under Giuliani and Bloomberg, <a href="https://web.archive.org/web/20170626180251/http://www.newyorker.com/magazine/2015/09/07/fixing-broken-windows">told the New Yorker last fall</a> that during both administrations, officers were encouraged to &quot;make as many contacts as possible with people based on their race and ethnicity and where they live,&quot; adding, &quot;it was about instilling fear in people.&quot; </p>
+
+<center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">12% of those victimized by stop &amp; frisk were white. Naturally, when WSJ needed a photo to accompany this garbage... <a href="https://web.archive.org/web/20170626180251/https://t.co/hEWUgcyanK">https://t.co/hEWUgcyanK</a></p>&#x2014; Bae Talese (@elongreen) <a href="https://web.archive.org/web/20170626180251/https://twitter.com/elongreen/status/781122681898958849">September 28, 2016</a></blockquote>
+<script async src="//web.archive.org/web/20170626180251js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<p>The Republican presidential candidate has yet to clarify exactly <em>how</em> he would apply stop-and-frisk. What we <em>do</em> have, is his track record of <a href="https://web.archive.org/web/20170626180251/http://gothamist.com/2016/07/31/trump_soldier.php">deeply-prejudiced</a> and <a href="https://web.archive.org/web/20170626180251/http://gothamist.com/2015/08/20/trump_koi_soho_worker.php">racist pronouncements</a>. &quot;We have gangs roaming the street and in many cases they&apos;re illegally here, illegal immigrants,&quot; Trump said on Monday. &quot;And they have guns and they shoot people.&quot; </p>					
+										
+									
+				

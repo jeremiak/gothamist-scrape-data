@@ -1,0 +1,17 @@
+---
+author: Jen Chung
+date: Sep 3, 2009 9:30 am
+title: Ashley Dupre Fires Back At Ladies Who Judge Her
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2009_08_ashdupre.jpg" src="https://web.archive.org/web/20160904053132im_/http://gothamist.com/attachments/jen/2009_08_ashdupre.jpg" width="270" height="293" class="image-left"> </span>Ashley Dupre, aka <a href="https://web.archive.org/web/20160904053132/http://gothamist.com/2008/03/12/spitzers_kriste.php">Kristen the pricey escort</a> that former Govenor Spitzer enjoyed, has a <a href="https://web.archive.org/web/20160904053132/http://globalgrind.com/content/956971/The-Controversy-Wont-Stop/">blog post on Global Grind</a> about the neverending Hookergate controversy, which flared up this week with the <a href="https://web.archive.org/web/20160904053132/http://gothamist.com/2009/09/01/possible_return_of_spitzer_the_stea.php">Post&apos;s speculation that Spitzer would run for office again</a>.  Which prompts the aspiring singer to write, &quot;I read the front page of the NY Post this week and was happy to see that Mr. Spitzer is moving on with his life and considering getting back into politics.  Everyone makes mistakes.  <strong>Everyone deserves a second chance.  Me too, right?  Well, apparently not.  Why?  Because many people are liars and hypocrites.</strong>  Let me give you just a few examples of what I keep encountering, despite my best efforts to move on.&quot;</p>
+
+<p>And she does give a few examples. &quot;Third, speaking of perpetuating the problem and feeding into the stereotype, <strong>let me tell you about most book publishers - they are worse than the tabloids.</strong>  I won&#x2019;t give them the &apos;tell all&apos; they are demanding and won&#x2019;t glorify and sensationalize &apos;how exciting the life of a high-priced NYC escort must be,&apos; as one major publisher put it.  <strong>Sorry folks, my life wasn&#x2019;t like a &apos;Sex And The City&apos; episode.</strong>&quot; </p>
+
+<p>Then Dupre blasts women who look down on her for having been a prostitute, &quot;I see this all over New York City. Some women aren&apos;t as vindictive, but still dive into relationships with wealthy guys who they don&apos;t love or even find attractive, but they stay in it because they have a nice home, a car and spending money...<strong>I know many women who target guys with money and use them to get these things.</strong>  They toy with them, flirt, go on dates, have sex and then drop hints about that new dress at the store down the street or being short on rent money - and the guys deliver it.  This is a dishonest relationship.&quot; </p>
+
+<p>Warning: If you go to Dupre&apos;s <a href="https://web.archive.org/web/20160904053132/http://globalgrind.com/content/956971/The-Controversy-Wont-Stop/">post on Global Grind</a>, her new song will start playing.  But Post music critic <a href="https://web.archive.org/web/20160904053132/http://www.nypost.com/seven/09032009/news/regionalnews/her_ballad_just_might_strike_the_right_c_187924.htm">Dan Aquilante likes it</a>, writing that &quot;with her looks and reputation, [it] might just launch her career in a new direction. <strong>The tune is a slow, introspective piano ballad where Dupre&apos;s middle range pours like burnt honey.</strong> There is an honesty in her singing that says she&apos;s believing it when she sings lyrics such as &apos;If I was faithful, if I was true, If I loved no one else but you.&apos;&quot;</p>					
+										
+									
+				

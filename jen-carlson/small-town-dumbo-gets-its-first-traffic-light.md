@@ -1,0 +1,14 @@
+---
+author: Jen Carlson
+date: September  1, 2010  9:55 AM
+title: Small Town DUMBO Gets Its First Traffic Light
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="dumbolight0910.jpg" src="https://web.archive.org/web/20130530140014im_/http://gothamist.com/attachments/arts_jen/dumbolight0910.jpg" width="640" height="462" class="image-none"> </span><br>
+<span class="photo_caption">Photo by Janelle Gunther</span></p>
+
+<p>Apparently DUMBO is New York City&apos;s unofficial &quot;small town,&quot; and today the neighborhood got its first traffic light! And yes, this <em>is</em> being considered DUMBO&apos;s first traffic light, even though there is one just a block away at Bridge Street, another two blocks away at York and Gold Streets, and plenty of others scattered around nearby. </p>
+
+<p>The light was installed this morning at the intersection of <a href="https://web.archive.org/web/20130530140014/http://maps.google.com/maps?f=q&amp;source=s_q&amp;hl=en&amp;geocode=&amp;q=york+and+jay+street+brooklyn,+ny&amp;sll=40.70136,-73.982842&amp;sspn=0.008329,0.017295&amp;gl=us&amp;ie=UTF8&amp;hq=&amp;hnear=Jay+St+%26+York+St,+Brooklyn,+Kings,+New+York+11201&amp;ll=40.702521,-73.98674&amp;spn=0.008329,0.017295&amp;t=h&amp;z=16&amp;layer=c&amp;cbll=40.701536,-73.98674&amp;panoid=Z3Gl54D2J2NPTMTf2SS8Kw&amp;cbp=12,185.38,,0,5.9">Jay and York Streets</a>&#x2014;and just look at that monstrosity! A signal that the neighborhood is growing up. Next thing you know kids will be checking into <a href="https://web.archive.org/web/20130530140014/http://gothamist.com/2010/08/19/foursquare_mayorships_turn_ugly_in.php">Stabber Alley on Foursquare</a> and DUMBO will be getting bars, parking garages, luxury condos, bike lanes, massive 100+ year old bridges... and then the speakeasy <a href="https://web.archive.org/web/20130530140014/http://gothamist.com/2009/07/22/dumbo_speakeasy_customers_outraged.php">will be outed</a>!</p>
+
+<p>Last week <a href="https://web.archive.org/web/20130530140014/http://www.brooklynpaper.com/stories/33/34/bh_dumbolight_2010_08_27_bk.html">the Brooklyn Paper</a> reported on the light, which was brought in due to the rise in vehicular, bike, and pedestrian traffic in the area (the York Street subway station is right there). One local pedestrian seemed conflicted about the development, however, telling them: &#x201C;The cars here have always sucked&#x2014;nobody stops at these signs. [But with these lights], cars are gonna speed up to get through before it turns red. It&#x2019;s already dangerous here.&#x201D; Perhaps DUMBO should have stuck to its small town vibe and just banned cars all together&#x2014;could have been <a href="https://web.archive.org/web/20130530140014/http://gothamist.com/2010/02/05/flashback_brooklyn_1936.php?gallery0Pic=4#gallery">just like the old days</a>.</p>

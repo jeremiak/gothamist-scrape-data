@@ -1,0 +1,17 @@
+---
+author: Jen Chung
+date: Jun 6, 2008 9:43 am
+title: Horrifying Details Recounted as Hamilton Heights Rape Trial Begins
+---
+
+	
+										<p><img alt="2008_06_hhrape.jpg" src="https://web.archive.org/web/20150629015936im_/http://gothamist.com/attachments/jen/2008_06_hhrape.jpg" width="320" height="229" class="right">In April 2007, a Columbia graduate student was <a href="https://web.archive.org/web/20150629015936/http://gothamist.com/2007/04/16/police_still_se.php">raped and tortured for 19 hours</a> in her Hamilton Terrace apartment.  More than a year later, her suspected rapist is now in court, facing 71 criminal charges including attempted murder, arson, rape and sodomy. </p>
+
+<p>Assistant District Attorney Ann Prunty describe the harrowing ordeal in her opening statement.  From <a href="https://web.archive.org/web/20150629015936/http://www.nytimes.com/2008/06/06/nyregion/06rape.html?ref=nyregion">the NY Times</a>:</p><blockquote>Over many torturous hours, [the victim] had been repeatedly raped, sodomized and forced to perform oral sex, a prosecutor told a jury on Thursday. The accused, Robert A. Williams, 31, had doused the woman&#x2019;s face and body with boiling water and bleach, forced her to swallow handfuls of pills and to chase them with beer, sealed her mouth with glue, and bound her wrists and legs with shoelaces, cords and duct tape, said the prosecutor, Ann P. Prunty. And now, Ms. Prunty said, he was asking the woman to gouge out her own eyes with a pair of scissors.</blockquote>Williams allegedly wanted her to blind herself, so she <a href="https://web.archive.org/web/20150629015936/http://www.nypost.com/seven/06062008/news/regionalnews/evil__survival_114217.htm">would not be able to identify him</a>.  The victim ended up trying to stab her neck, and Williams allegedly continued his abuse, using a butcher knife, to, <a href="https://web.archive.org/web/20150629015936/http://www.nydailynews.com/news/ny_crime/2008/06/05/2008-06-05_unspeakable_horrors_as_trial_opens_in_to.html">as Prunty said</a>, &quot;<strong>slice into her face and eyelids, carving and disfiguring her face</strong>.&quot;  The victim passed out from the pills and awoke to find her futon on fire--her attacker meant to kill her, but she managed to burn through the ties of her bound hands and <a href="https://web.archive.org/web/20150629015936/http://gothamist.com/2007/04/15/woman_raped_and.php">escape to find help</a>.<p></p>
+
+<p>Police <a href="https://web.archive.org/web/20150629015936/http://gothamist.com/2007/04/19/police_id_hamil.php">conducted a manhunt to find Williams</a>, 31, who has a criminal history including attempted murder (twice) and assault.  He was <a href="https://web.archive.org/web/20150629015936/http://gothamist.com/2007/04/21/queens_resident.php">found a week later</a> when he tried to break into a Queens apartment; residents there stopped him and called the police.  One said, &quot;If we had known he was a rapist, he wouldn&apos;t have made it off this block.&quot;</p>
+
+<p>Police have previously said they have DNA evidence linked Williams to the rape, but his defense attorney has previously said he was argue <a href="https://web.archive.org/web/20150629015936/http://columbiaspectator.com/node/55172">his client is mentally ill</a> (though psychological exams found Williams fit for trial). The victim is expected to testify today and the trial will continue throughout next week.  </p>					
+										
+									
+				

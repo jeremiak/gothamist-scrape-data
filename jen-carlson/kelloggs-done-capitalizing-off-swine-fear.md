@@ -1,0 +1,7 @@
+---
+author: Jen Carlson
+date: November  5, 2009  1:30 PM
+title: Kellogg's Done Capitalizing Off Swine Fear
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="cocoaswine1109.jpg" src="https://web.archive.org/web/20110629170531im_/http://gothamist.com/attachments/arts_jen/cocoaswine1109.jpg" width="100" height="76" class="image-right"> </span><a href="https://web.archive.org/web/20110629170531/http://gothamist.com/2009/11/02/snap_crackle_pop_will_save_you_from.php">After giving the impression</a> that Snap, Crackle &amp; Pop could save your kids from swine flu, <a href="https://web.archive.org/web/20110629170531/http://www.brandweek.com/bw/content_display/news-and-features/direct/e3i5262a3b026dcf171f2551c67f012ae74">Kellogg is reportedly</a> &quot;discontinuing the packaging of its Cocoa Krispies cereals that claim to boost children&#x2019;s immunity.&quot; NYU&apos;s Professor Nestle said that the company had no choice, &#x201C;They had to. [It&apos;s] too embarrassing and [it faced] too much risk of setting off the FDA.&quot; Which leaves <a href="https://web.archive.org/web/20110629170531/http://gothamist.com/2009/11/03/will_onions_stave_off_the_swine.php">onions</a> to capitalize off the H1N1 epidemic.</p>

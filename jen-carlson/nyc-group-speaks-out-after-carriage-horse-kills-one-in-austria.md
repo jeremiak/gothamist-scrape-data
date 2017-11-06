@@ -1,0 +1,11 @@
+---
+author: Jen Carlson
+date: August 16, 2010  2:59 PM
+title: NYC Group Speaks Out After Carriage Horse Kills One In Austria
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="carriagehorseaccidentcp.jpg" src="https://web.archive.org/web/20110611055457im_/http://gothamist.com/attachments/arts_jen/carriagehorseaccidentcp.jpg" width="350" height="249" class="image-right"> </span>Laura Eldridge, Executive Director of <a href="https://web.archive.org/web/20110611055457/http://www.ny-class.org/">NYC CLASS</a>, says in an accident last week, &quot;a French tourist in Salzburg, Austria was killed by a bolting carriage horse. According to <a href="https://web.archive.org/web/20110611055457/http://www.austriantimes.at/news/General_News/2010-08-09/25815/Tourist_killed_by_bolting_horse">the Austrian Times</a> the 16 year-old horse was startled and galloped over the woman, who was standing on the sidewalk. She died of a head injury on her way to the hospital.&quot; This, of course, raises concerns once again over the carriage horse industry still kicking in New York. </p>
+
+<p>In an email, Eldridge said: &quot;Tragic news like this reminds us that the massive creatures used in the carriage industry are unpredictable and can turn into a public threat when they are spooked by the loud noises or sudden movements that are so common in an urban setting. When startled, horses often react by running and can easily cause serious damage and injury to their passengers, pedestrians and passing motorists.&quot; (<a href="https://web.archive.org/web/20110611055457/http://gothamist.com/2010/05/13/carriage_horse_crash.php">In May</a>, a carriage horse was spooked and crashed into a cab in Central Park.) She also notes that last week&apos;s <a href="https://web.archive.org/web/20110611055457/http://abclocal.go.com/wabc/story?section=news/local&amp;id=7595695">electrical fire</a> at Chateau Stables located on West 48th Street could have also ended in tragedy (luckily, it did not)&#x2014;current NYC law doesn&apos;t require stables to have sprinkler systems.</p>
+
+<p>Earlier this year some new rules were put into place regarding the industry, but animal rights activists want <a href="https://web.archive.org/web/20110611055457/http://gothamist.com/tags/carriagehorses">the industry</a> banned.</p>

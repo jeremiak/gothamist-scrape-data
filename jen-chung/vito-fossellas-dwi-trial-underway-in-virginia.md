@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: October 17, 2008  3:30 PM
+title: Vito Fossella's DWI Trial Underway in Virginia
+---
+
+<p><img src="https://web.archive.org/web/20130314084146im_/http://gothamist.com/attachments/jen/2008_09_dramvit.jpg" class="right"> The police officer who pulled over Representative Vito Fossella earlier this year for DWI <a href="https://web.archive.org/web/20130314084146/http://www.silive.com/news/index.ssf/2008/10/cop_details_demeanor_of_staten.html">took the stand today</a> at the start of only NYC&apos;s Republican Representative&apos;s trial.  Fossella&apos;s lawyers are trying to argue the validity of various sobriety tests (&quot;An alphabet test, a counting test, two balancing tests and a breathalyzer test&quot;). At one point it was suggested that Fossella wobbled during a balancing test because he was nervous and a defense lawyer asked police officer Jamie Gernatt to <a href="https://web.archive.org/web/20130314084146/http://abclocal.go.com/wabc/story?section=news/local&amp;id=6454768">perform one of the balancing acts</a>. Gernatt said, &quot;I completed the test and I&apos;m pretty nervous right now.&quot;  The DWI arrest led to the discovery that Fossella had a <a href="https://web.archive.org/web/20130314084146/http://gothamist.com/2008/05/09/vito_fossella_a_1.php">mistress and love child</a>, a scandal which then led to the married-with-three kids Fossella to <a href="https://web.archive.org/web/20130314084146/http://gothamist.com/2008/05/20/vito_fossella_a_2.php">not seek re-election</a>.</p>

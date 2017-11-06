@@ -1,0 +1,31 @@
+---
+author: Jen Carlson
+date: Jun 18, 2012 3:00 pm
+title: Julia Stiles Tells Us About Her Fascination With Prostitution, And The Bell Jar Movie That Hasn't Happened 
+---
+
+	
+										<p><em>Julia Stiles is currently starring in a new web series, &#x201C;Blue,&#x201D; which is part of the <a href="https://web.archive.org/web/20150502122420/http://www.youtube.com/wigs">WIGS YouTube network</a>. In the series, she portrays a single mom trying to protect her son from the consequences of her secret career as an escort. You can get a view of her character&apos;s rather dark world online, where the first two episodes are already available (they run just under 9 minutes). We talked to Stiles this afternoon about her new series, her fascination with paying for sex, and her big screen adaptation of The Bell Jar.</em></p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="stilesblue0612a.jpeg" src="https://web.archive.org/web/20150502122420im_/http://gothamist.com/attachments/arts_jen/stilesblue0612a.jpeg" width="350" height="252" class="image-left"> </span><strong>Can you tell us a little bit about WIGS, and what got you interested in the &quot;Blue&quot; web series?</strong> Very simply, the script was what made me want to do it. I really like Rodrigo Garcia&apos;s work. <em>In Treatment</em> I was a big fan of ... one of his early movies called <em>Things You Can Tell Just By Looking At Her</em>. When I read the very first episode, it hooked me. Because I felt like it was such a good set up and such a good summation of what the problem is going to be for this woman. That she&apos;s on the phone with her son while she&apos;s lying to him and living a secret life. I&apos;ve always been sort of fascinated by the idea of prostitution or escorts, and the idea that people pay for sex and what that means. But sort of wary in getting involved in a movie or a television show about that, only because there&apos;s so many of them and they don&apos;t focus on the things that I find interesting. So I felt this was very different. </p>
+
+<p><iframe width="640" height="360" src="https://web.archive.org/web/20150502122420if_/http://www.youtube.com/embed/Dg59wBbegvk" frameborder="0" allowfullscreen></iframe></p>
+
+<p>There&apos;s a scene where Blue asks Cooper, &quot;Why are you paying for sex?&quot; Because he&apos;s an otherwise handsome and capable guy... so to look at it from that angle too. What is the male side of it? Anyway, I just thought it was very rich material. With movies and television it so often takes so long to... from when you have a script to having it developed to raising money for financing and then to get to shoot and edit it and have it come out in theaters, or they go straight to video. That can take years and years and years...</p>
+
+<p><strong>How long did it take you to make this?</strong> This took... we shot it in a month, in December, so to have it turned around so quickly and out there for people to see so quickly is, I think really exciting and refreshing.</p>
+
+<p><strong>You hit on some mature subject matters in the episodes, was that difficult in your scenes with Blue&#x2019;s son?</strong> Oh [laughs], no it wasn&apos;t. He&apos;s such a precocious kid. I mean I think because he&apos;s been working for a long time, it&apos;s sometimes easy to forget that he&apos;s so young. And then he&apos;ll say something that reminds me, &quot;Oh yeah you&apos;re a teenager.&quot; It&apos;s the first time I&apos;ve had to play the mom of somebody that old, but I guess she&apos;s in very specific circumstances.</p>
+
+<p><strong>Would you consider doing your own television show?</strong> For me it doesn&apos;t really matter what the medium is. If it&apos;s good material and a subject matter I&apos;m interested in, and talented people driving me creatively, then I don&apos;t ... I&apos;m happy to be in large movies, small movies, television, theater, whatever. Doesn&apos;t really matter.</p>
+
+<p><strong>I&apos;m a fan of yours, and also of Sylvia Plath&apos;s... so I wanted to see if you have an update on The Bell Jar movie. Sometimes I Google around just to find more information, but it&apos;s been years...</strong> Oh thank you, that means so much to me... because it&apos;s so hard to... it just means a lot to me. Unfortunately I let the rights expire, I had to give them up. I mean that&apos;s a perfect example, it took... for years I had the rights to the book, I had commissioned a script for it, we never got the script to the right place, because it&apos;s obviously a great book and we wanted to do it justice. I kind of had to let it go because it was taking so long... it doesn&apos;t mean that it&apos;s a totally lost cause. It&apos;s just a hard book to get people behind, in terms... people... it&apos;s funny I still can&apos;t really explain it. To me it&apos;s a no-brainer, but I think people who have to give money for movies, they didn&apos;t see that it would find an audience, or they thought it was too dark. So... I tried, but maybe there will be some incarnation of it. </p>
+
+<p><strong>That would be great... I thought you were the right person to do it. You don&apos;t want that book getting into the wrong hands.</strong> Yeah, who knows, I may revisit it at some point, and not to act in obviously... or not to play Esther, but maybe play a different part, or direct it or something. I don&apos;t know! But yeah, it&apos;s a really special book.</p>
+
+<p><strong>Who would you cast as Esther?</strong> Um, I&apos;m not really familiar with 19-year-old girls, but... maybe the girl that was in a version of <em>Jane Eyre</em> and <em>The Kids Are Alright</em>... what is her name. Fuck. [ed. note: <a href="https://web.archive.org/web/20150502122420/http://www.imdb.com/name/nm1985859/">Mia Wasikowska</a>] I don&apos;t know, but other than that I&apos;m not really familiar with 19-year-old actresses.</p>
+
+<p><strong>You&apos;re also starring in a doomsday comedy with David Cross, what would you do if you knew the world was ending?</strong> Yes, yeah. Oh I would want to do so many things, but... well I guess I would get really drunk and I would dance a lot. Hopefully with people that I love.</p>					
+										
+									
+				

@@ -1,0 +1,16 @@
+---
+author: Jen Carlson
+date: May  8, 2012  1:29 PM
+title: Video: Jon Hamm Freestyles Taxi Theme Song With Reggie Watts
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="hammandwatts94.jpeg" src="https://web.archive.org/web/20120510023353im_/http://gothamist.com/attachments/arts_jen/hammandwatts94.jpeg" width="640" height="376" class="image-none"> </span><br>
+<span class="photo_caption">Could Hamm &amp; Watts be the new Hall &amp; Oates?</span></p>
+
+<p>Have you ever wanted to hear Jon Hamm freestyle as one-man-band Reggie Watts worked his magic alongside him? Have you ever hoped that when he did this his rhymes would be loosely based on the 1970/80s sitcom <em>Taxi</em>? <a href="https://web.archive.org/web/20120510023353/http://www.ifc.com/fix/2012/05/reggie-watts-makes-music-with-jon-hamm">Dreams come true, people</a>.</p>
+
+<center><object id="flashObj" width="640" height="370" classid="clsid:D27CDB6E-AE6D-11cf-96B8-444553540000" codebase="https://web.archive.org/web/20120510023353oe_/http://download.macromedia.com/pub/shockwave/cabs/flash/swflash.cab#version=9,0,47,0"><param name="movie" value="http://c.brightcove.com/services/viewer/federated_f9?isVid=1&amp;isUI=1"><param name="bgcolor" value="#FFFFFF"><param name="flashVars" value="videoId=1620009788001&amp;playerID=88218671001&amp;playerKey=AQ~~,AAAAAAAn_zM~,B6LaFUvNnt2RhwK5cjOvZ4hHQyd5XXC9&amp;domain=embed&amp;dynamicStreaming=true"><param name="base" value="http://admin.brightcove.com"><param name="seamlesstabbing" value="false"><param name="allowFullScreen" value="true"><param name="swLiveConnect" value="true"><param name="allowScriptAccess" value="always"><embed src="https://web.archive.org/web/20120510023353oe_/http://c.brightcove.com/services/viewer/federated_f9?isVid=1&amp;isUI=1" bgcolor="#FFFFFF" flashvars="videoId=1620009788001&amp;playerID=88218671001&amp;playerKey=AQ~~,AAAAAAAn_zM~,B6LaFUvNnt2RhwK5cjOvZ4hHQyd5XXC9&amp;domain=embed&amp;dynamicStreaming=true" base="http://admin.brightcove.com" name="flashObj" width="640" height="370" seamlesstabbing="false" type="application/x-shockwave-flash" allowfullscreen="true" allowscriptaccess="always" swliveconnect="true" pluginspage="http://www.macromedia.com/shockwave/download/index.cgi?P1_Prod_Version=ShockwaveFlash"></object></center>
+
+<p>This bit of strange magic (quick question: Could Hamm &amp; Watts be the new Hall &amp; Oates?) came about for a piece Hamm filmed for the upcoming comedy series <em>Comedy Bang! Bang!</em>, which premieres Friday, June 8th <a href="https://web.archive.org/web/20120510023353/http://www.ifc.com/fix/2012/05/reggie-watts-makes-music-with-jon-hamm">on IFC</a>; new Reggie Makes Music webisodes will premiere throughout the season <a href="https://web.archive.org/web/20120510023353/http://www.ifc.com/fix/tag/reggie-makes-music">right here</a>. </p>
+
+<p>Previously in gratuitous Jon Hamm posts: Jon Hamm <a href="https://web.archive.org/web/20120510023353/http://gothamist.com/2012/04/18/alert_jon_hamm_is_eating_soup_on_th.php">eats a bowl of matzo ball soup at Lansky&apos;s</a>.</p>

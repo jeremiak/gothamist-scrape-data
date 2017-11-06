@@ -1,0 +1,13 @@
+---
+author: Jen Chung
+date: June 12, 2008 11:06 AM
+title: Brooklyn Site Owner Charged With Manslaughter in Construction Fatality
+---
+
+<p><img src="https://web.archive.org/web/20110611054741im_/http://gothamist.com/attachments/jen/2007_08_handcuffs.jpg" class="left">As concerns over citywide construction-related fatalities grow, the Brooklyn DA&apos;s office has <a href="https://web.archive.org/web/20110611054741/http://www.nytimes.com/2008/06/12/nyregion/12indict.html?em&amp;ex=1213416000&amp;en=b1040527a153ea51&amp;ei=5087%0A">charged a site owner with manslaughter</a>, after a worker died in a March trench collapse.</p>
+
+<p>William Lattarulo was building a commercial building up at 791 Glenmore Avenue in East New York, which is next to his house at 795 Glenmore, and had decided not to hire a contractor to oversee the job, though he was not qualified to do so (a savings of $90,000).  Even though a consultant had <a href="https://web.archive.org/web/20110611054741/http://www.newsday.com/news/local/newyork/ny-nycont125723769jun12,0,4472691.story">warned him the site was dangerous</a> (the foundation day laborers were building was much deeper than the one next door), Lattarulo kept at work, even telling concerned workers not to worry, until, on March 12, the <a href="https://web.archive.org/web/20110611054741/http://gothamist.com/2008/03/13/brooklyn_wall_c.php">neighboring wall caved in and killed Lauro Ortega</a>.  </p>
+
+<p>Lattarulo was charged with manslaughter, criminally negligent homicide and reckless endangerment, and officials said other construction-related prosecutions could come.  However, Lattarulo told the Daily News he <a href="https://web.archive.org/web/20110611054741/http://www.nydailynews.com/news/ny_crime/2008/06/10/2008-06-10_builder_may_face_slay_rap_in_hardhat_dea.html">believed he was a scapegoat</a>, &quot;They&apos;re just looking for someone to blame for all this. They&apos;re going to make me pay.&quot;  And Newsday reported his lawyer as saying, &quot;It was an accident and accidents happen at construction sites,&quot; and also blasting the city for having press conferences instead of inspecting job sites.  </p>
+
+<p>Ortega was an illegal immigrant; the <a href="https://web.archive.org/web/20110611054741/http://www.nytimes.com/2008/06/12/nyregion/12worker.html?ref=nyregion">NY Times spoke to his brother</a>, who said Ortega &quot;sent more than half of his weekly salary of about $700 to his wife and two children in Ecuador.&quot;</p>

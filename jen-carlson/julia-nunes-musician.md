@@ -1,0 +1,15 @@
+---
+author: Jen Carlson
+date: July  9, 2008  8:30 AM
+title: Julia Nunes, Musician
+---
+
+<p><img alt="0807%20julian.jpg" src="https://web.archive.org/web/20120602074759im_/http://gothamist.com/attachments/arts_jen/0807%20julian.jpg" width="350" height="233" class="left"><em>Julia Nunes has impressed everyone from Molly Ringwald to Ben Folds to random YouTube spectators, and she&apos;s only 19-years-old. The musician composes original music (her debut album <a href="https://web.archive.org/web/20120602074759/http://junumusic.com/products.html">Left Right Wrong</a> just came out), but has become an overnight sensation through her original covers of familiar songs -- which she sonically weaves together in upstate New York. Check out her YouTube videos <a href="https://web.archive.org/web/20120602074759/http://www.youtube.com/user/jaaaaaaa?ob=4">here</a>, her music (both original and covers) <a href="https://web.archive.org/web/20120602074759/http://www.myspace.com/jaaaaaaa">here</a>, and catch her live at the Knitting Factory this coming Saturday. She plays the ukulele and beatboxes...which is all the convincing you should need.</em> </p>
+
+<p><strong>How did the YouTube thing get started?</strong> I had videos that I was too embarrassed to upload on Facebook, so I&apos;d just put them on YouTube and show them to specific people, as opposed to having every random person from my high school that has ever checked my Facebook page witness my semi-private warblings. That plan obviously didn&apos;t pan out the way I expected. </p>
+
+<p><strong>How did you get into the ukulele?</strong> Ukulele was a product of boredom. I found one at a music store while a friend was taking eons to pick out a guitar. I bought it and ended up playing it in the car a lot. I stuck with it cause... i mean...it&apos;s hilarious.</p>
+
+<p><strong>Are there any other instruments you play, that you plan to incorporate in your videos or live shows?</strong> I play guitar, the album&apos;s about 50/50 guitar and ukulele. I play piss poor piano, and mediocre melodica (the little piano-looking thing I play in some videos in lieu of a guitar/horn part) but I play them with enthusiasm none the less. I could fake my way through drums and bass, but I decided to let some higher caliber musicians take the reins on the new album, there&apos;s like 5 or 6 songs with Todd on bass and Dave on drums. Also, I&apos;m a pretty sick (literally sickening, in a bad way) beatboxer, which is featured in a few videos, and perfected in one of my favorite songs on the new CD.</p>
+
+<p><strong>How long does it take to make one video?</strong> About 2 hours if I&apos;m being a decent performer, but if it&apos;s one of those days I suck it ends up taking much longer... this is where I reveal my concerning addiction to making videos because I admittedly have canceled social plans or skipped meals to finish a song. </p>

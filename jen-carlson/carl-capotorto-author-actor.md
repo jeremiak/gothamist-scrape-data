@@ -1,0 +1,15 @@
+---
+author: Jen Carlson
+date: November 17, 2008  8:30 AM
+title: Carl Capotorto, Author, Actor
+---
+
+<p><img alt="CarlCapotorto1108.JPG" src="https://web.archive.org/web/20120324072956im_/http://gothamist.com/attachments/arts_jen/CarlCapotorto1108.JPG" width="350" height="233" class="left"><em>Last month Carl Capotorto&apos;s <a href="https://web.archive.org/web/20120324072956/http://www.amazon.com/Twisted-Head-Italian-American-Memoir/dp/076792861X/?tag=gothamist03-20">Twisted Head</a> hit the bookshelves. The memoir traces his life in the Bronx decades ago, from his father&apos;s &quot;Pizza and Sangwheech Shoppe&quot; to the Summer of Sam. This week he told us a little bit about what life was like in New York back then, how the Son of Sam killed his childhood friend, and his role as <a href="https://web.archive.org/web/20120324072956/http://www.imdb.com/name/nm0135406/">Little Paulie Germani</a> in The Sopranos.</em></p>
+
+<p><strong>Can you tell us what it was like to grow up in the Bronx in the 1960s and &apos;70s?</strong> Yes I can.  In fact, I wrote a book about it.  Let me summarize it this way: only in the Bronx of those years could a kid grow up in a place called Cappi&apos;s Pizza &amp; Sangweech Shoppe, survive the Son of Sam, and work at a McDonald&apos;s managed by Curtis Sliwa.    <br>
+ <br>
+<strong>Do you miss anything from that era of New York?</strong> I miss everything, from frothy egg creams and games of Ringolevio&#x2026;to leather maxi coats and the birth of disco.  But I like living in the present.   </p>
+
+<p><strong>How do you think the area has changed in the decades since then?</strong> My old neighborhood has changed a lot ... and then again, not so much.  It&apos;s more densely populated now, more developed.  And the faces are different.  Where you used to see mostly white ethnic families, you now see mostly black and Latino families.  But the area remains what it has always been: a diverse collection of hard-working people striving to climb higher up the social ladder.  (Don&apos;t spread it around too much, but the Bronx is the last great frontier of lovely, affordable housing in New York City.)   <br>
+ <br>
+<strong>Who was one of your favorite neighborhood characters during that time?</strong>  Alexis, a forty-something madwoman who walked around with crazily mismatched outfits in electric shades of red and orange, her boobs spilling out of her blouse, her face a painted mask.  She had only two teeth in her head -- both long and yellow -- sticking straight out of her mouth.  She talked to herself a mile a minute, and sometimes had screaming fights with imaginary foes.  Rumor had it that she had once been a very beautiful, highly paid prostitute...but had lost her mind to a nasty bout of untreated syphilis.  (We were told that she still turned tricks in the wilds of Bronx Park.)  I found her terrifying and heartbreaking in equal measure.  But there were dozens of others.  Don&apos;t get me started.</p>

@@ -1,0 +1,22 @@
+---
+author: Jen Carlson
+date: June 14, 2011  5:30 PM
+title: Prepare Now, For Wednesday Is National Lobster Day
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="LOBSTERDAY0611.jpg" src="https://web.archive.org/web/20110616205925im_/http://gothamist.com/attachments/arts_jen/LOBSTERDAY0611.jpg" width="640" height="519" class="image-none"> </span><br>
+<span class="photo_caption">Photo via <a href="https://web.archive.org/web/20110616205925/http://www.flickr.com/photos/jglsongs/2372305858/">jglsongs&apos; flickr</a></span></p>
+
+<p>There are some holidays that should be celebrated daily: <a href="https://web.archive.org/web/20110616205925/http://gothamist.com/2011/05/25/tap_that_box_of_franzia_its_nationa.php">National Wine Day</a>, <a href="https://web.archive.org/web/20110616205925/http://gothamist.com/2011/02/18/today_is_drink_wine_day.php">National <em>Drink</em> Wine Day</a>, and National Lobster Day. The latter is coming up TOMORROW, and we wanted to give you time to prepare so that you may eat a breakfast, lunch, <em>and</em> dinner that incorporates the delicious sea creature. We&apos;ll help:</p>
+
+<p><strong>Breakfast:</strong> Start the day off with a Lobster Eggs Benedict at <a href="https://web.archive.org/web/20110616205925/http://www.yelp.com/search?find_desc=lobster+eggs+benedict&amp;find_loc=New+York%2C+NY">one of these fine establishments</a> (pick the one with the most stars next to it!). Or you can cook at home; check out this <a href="https://web.archive.org/web/20110616205925/http://www.almanac.com/recipe/lobster-omelette">Farmer&apos;s Almanac</a> recipe for a Lobster Omelette, which includes butter, cheese, <em>melted</em> butter, whipping cream, and flour, amongst other things (like lobster). Why not, if you&apos;re eating lobster for breakfast you might as well turn it up to 11 (if there were a gluttony meter).</p>
+
+<p><strong>Lunch:</strong> Eat a lobster roll! <a href="https://web.archive.org/web/20110616205925/http://gothamist.com/2010/07/22/lobster_rolls.php">Here are 13 of our favorites</a> available in the city. Right now <a href="https://web.archive.org/web/20110616205925/http://www.urbanlobstershack.com/index2.html">Urban Lobster</a> has a $10 lobster roll lunch special, and they deliver! Which is helpful because you won&apos;t want to move after all that butter you had at breakfast.</p>
+
+<p><strong>Dinner:</strong> For dinner why not treat yourself to the new four course for $15 extravaganza <a href="https://web.archive.org/web/20110616205925/http://gothamist.com/2011/06/02/red_lobster_stretches_its_claws_add.php">at Red Lobster</a>... just kidding! Save that for National Cheddar Biscuit Day. Instead, go to a real restaurant, <em>or</em> pick up a fresh lobster on your way home. Here&apos;s <a href="https://web.archive.org/web/20110616205925/http://www.yumsugar.com/Get-Cracking-s-National-Lobster-Day-315457">how to pick the perfect one</a>:<br>
+<span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="lobsternyc0611.jpg" src="https://web.archive.org/web/20110616205925im_/http://gothamist.com/attachments/arts_jen/lobsternyc0611.jpg" width="275" height="188" class="image-right"> </span></p><ul><li>Make sure it&apos;s moving, that means it&apos;s alive and fresh.<br>
+</li><li>Tender lobsters tend to be under 2 pounds.<br>
+</li><li>Females have a more delicate flesh and are lighter. The males have larger claws and narrower tails.<br>
+</li><li><a href="https://web.archive.org/web/20110616205925/http://gothamist.com/2011/06/03/freak_of_nature_blue_lobster.php">If it&apos;s blue</a>, that&apos;s okay.</li></ul><p></p>
+
+<p>You can pick up a live one at <a href="https://web.archive.org/web/20110616205925/http://www.yelp.com/biz/red-hook-lobster-pound-brooklyn#query:live%20lobster">Red Hook Lobster Pound</a>, <a href="https://web.archive.org/web/20110616205925/http://www.yelp.com/biz/the-lobster-place-seafood-market-new-york#query:live%20lobster">The Lobster Place</a> on Bleecker Street, and <a href="https://web.archive.org/web/20110616205925/http://chelseamarket.com/thelobsterplace/">The Lobster Place</a> in Chelsea Market. And remember your bib (here&apos;s a cute one <a href="https://web.archive.org/web/20110616205925/http://www.etsy.com/listing/70864651/sale-30-off-lobster-bibs-2-summer-sun?ref=sr_gallery_4&amp;ga_search_submit=&amp;ga_search_query=lobster+bib&amp;ga_page=2&amp;ga_search_type=all&amp;ga_facet=">at Etsy</a>).</p>

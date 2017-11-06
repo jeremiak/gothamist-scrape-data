@@ -1,0 +1,15 @@
+---
+author: Jen Carlson
+date: Mar 27, 2010 12:55 pm
+title: Coyotes: They Are Basically One Of Us Now
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="phpoDyZGkPM.jpg" src="https://web.archive.org/web/20150508152630im_/http://gothamist.com/attachments/arts_jen/phpoDyZGkPM.jpg" width="270" height="250" class="image-right"> </span>The 30-pound female coyote that was captured Thursday after leading authorities on a chase through lower Manhattan, has been released! The Parks Department kept mum on her new location when talking to the <a href="https://web.archive.org/web/20150508152630/http://www.nypost.com/p/news/local/nd_coyote_invasion_expected_in_fall_ubNYsdXYsfoQmqiTUoupoK">NY Post</a> and <a href="https://web.archive.org/web/20150508152630/http://cityroom.blogs.nytimes.com/2010/03/26/coyote-bound-for-undisclosed-location/">NY Times</a>, noting it didn&apos;t want Wally (that&apos;s what they named her) to be harassed once back in her natural habitat, but this morning spokeswoman Vickie Karp told us: <strong>&quot;Our coyote has been released into Pelham Bay Park, the city&apos;s largest park, and one which already has coyotes in residence. Off she went &#x2014; healthy, beautiful, and happy.&quot;</strong> Leave Wally alone, everyone.</p>
+
+<p>Meanwhile, there are other <a href="https://web.archive.org/web/20150508152630/http://gothamist.com/tags/coyote">coyotes</a> roaming the city streets (this year there have been numerous sightings in Central Park, Chelsea, and at Columbia University&apos;s Morningside campus)... and experts say the population is growing! Allegedly Westchester is overflowing with Wile E. Ones, and many are expected to arrive here by Fall. Ward Stone of the state Department of Environmental Conservation told the Post, &quot;I would anticipate we will be hearing more about coyotes in the city in the fall. I think you&apos;re going to see more in the city.&quot;</p>
+
+<p>Parks Deputy Commissioner Kevin Jeffrey tells us there are &quot;several New York City agencies working together to take a look at how we manage urban coyotes. This year, they are passing through New York City as part of a southern expansion of their range.  <strong>Furthermore, we know that coyotes have a 30% chance of survival beyond one year in the wild and a 60% chance of survival in urban areas due to the increased availability of food and less risk to them from hunting. So it&#x2019;s really no surprise that there is an increase in sightings within the city.</strong>&quot; But how will we keep the next urban coyote out of our precious <a href="https://web.archive.org/web/20150508152630/http://gothamist.com/2010/03/25/coyote_captured_after_bike_lane_run.php">bike lanes</a>? He says, &quot;Next time an incident occurs, agencies at very high levels will immediately coordinate, and based on the context, will come up with a decision.&#x201D; This sounds very <em>X-Files</em> &#x2014; watch out coyotes!</p>					
+										
+									
+				

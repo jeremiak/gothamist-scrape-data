@@ -1,0 +1,15 @@
+---
+author: Jen Carlson
+date: Feb 3, 2010 12:21 pm
+title: Controversial Debarking Debated
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:300px; "> <img alt="DOBARKING0210.jpg" src="https://web.archive.org/web/20160201202824im_/http://gothamist.com/attachments/arts_jen/DOBARKING0210.jpg" width="300" height="236"> <br> <i><span class="photo_caption">Photo via <a href="https://web.archive.org/web/20160201202824/http://www.flickr.com/photos/dogseat/398812150/&quot;">Dogseat&apos;s Flickr</a></span></i></div> While a vet over at <a href="https://web.archive.org/web/20160201202824/http://cityroom.blogs.nytimes.com/2010/02/02/ask-about-canine-devocalization/">CityRoom</a> takes questions about the controversial debarking procedure, the NY Times <a href="https://web.archive.org/web/20160201202824/http://www.nytimes.com/2010/02/03/nyregion/03debark.html?ref=nyregion">profiles</a> some folks that have put their pups through it. Like Dr. Marder, a veterinarian himself, who had his dog Nestl&#xE9;&apos;s vocal means of communication severed after a neighbor in their Upper East co-op complained. The paper notes that the dog barks and barks... but only manages a sad squeaky wheeze. Marder and his family tell people he&apos;s just raspy from all the barking, but the truth of the matter is they had his vocal cords cut.<p></p>
+
+<p>Many young veterinarians refuse the surgery and side with animal-rights advocates, who are against the procedure and say it&apos;s outdated and inhumane. Some humans who have debarked their dogs, however, say there&apos;s no change in their furry friend&apos;s behavior after the procedure&#x2014;and one woman challenged, &#x201C;You may think it&#x2019;s horrible. But if I had to give up my dog or get the surgery, I would choose the surgery.&#x201D; On the flip side, <a href="https://web.archive.org/web/20160201202824/http://www.apdt.com/about/ps/surgical_debarking.aspx">the APDT</a> says dogs bark for a reason, and often &quot;because they are bored, lonely, threatened, or otherwise distressed. Debarking silences the dog without addressing the environmental issues that are causing the stress and the debarking.&quot; Some nonsurgical methods if you are stuck between and bark and hard place: try spraying citronella when your dog gets vocal, or get that sucker trained!</p>
+
+<p>While the procedure is banned in New Jersey and elsewhere&#x2014;it is legal in New York City, where there are <a href="https://web.archive.org/web/20160201202824/http://www.newyorker.com/archive/2004/06/28/040628ta_talk_konigsberg">barking</a> <a href="https://web.archive.org/web/20160201202824/http://www.stopthebarking.com/dog-barking-laws.php">laws</a> meant to control the duration in which a pet is making noise. However, 311 still took in almost 7,000 barking dog complaints last year.</p>					
+										
+									
+				

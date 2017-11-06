@@ -1,0 +1,43 @@
+---
+author: Emma Whitford
+date: Feb 16, 2016 4:35 pm
+title: De Blasio Makes Case For $2.5 Billion Streetcar "Experiment"
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="021616_Streetcar.jpeg" src="https://web.archive.org/web/20171023040912im_/http://gothamist.com/attachments/nyc_ewhitford/021616_Streetcar.jpeg" width="640" height="428"> <br> <i> Mayor de Blasio pushing his streetcar plan in Red Hook on Tuesday (Mayor&apos;s Flickr). </i></div> <p></p>
+
+<p>Mayor de Blasio did his best to overcome criticism of his <a href="https://web.archive.org/web/20171023040912/http://gothamist.com/2016/02/04/streetcar_named_de_blasio.php#photo-1">$2.5 billion Brooklyn-Queens Connector (BQX) streetcar</a> plan today, arguing that the 16 miles of electric track that could eventually connect Astoria, Queens to Sunset Park, Brooklyn would be a worthy investment of resources and community board deliberation&#x2014;whether or not the project would ultimately connect straphangers to MTA buses and trains along the route with a free transfer. </p>
+
+<p>&quot;Even if this were a thing unto itself, it would still be adding intensely to people&apos;s options and ability to get around,&quot; the Mayor told reporters on Tuesday, from a podium at PowerHouse Arena, an arts venue in Red Hook. &quot;A lot of people are just going to take this from one point to another without transferring. This is progress unto itself.&quot; </p>
+
+<p>&quot;We look forward to those conversations [about transfers] with the MTA,&quot; de Blasio added. &quot;Getting the transfers worked out will take some detailed work.&quot;</p>
+
+<p>There would be 60 passenger cars total for the entire system, with each streetcar stopping every half mile along the route. Relying entirely on electricity and traveling at a predicted 12 miles per hour, they would ideally be quicker than the alternative bus, subway and ferry routes already in place along the waterfront (DOT Commissioner Polly Trottenberg said this week that the BQX would have the right of way in city traffic &quot;as much as we can [manage],&quot; but would not have a dedicated lane). </p>
+
+<p>A trip on the BQX would also cost exactly the same as a MetroCard swipe&#x2014;senior and student discounts included. But because the project would be city-funded, there is no guaranteed cooperation with the state-controlled MTA. Compare this to a <a href="https://web.archive.org/web/20171023040912/http://gothamist.com/2013/08/21/the_dream_subway_line_with_20_conne.php">1996 proposal from the Regional Plan Association</a> that detailed converting pre-existing freight and Long Island Railroad tracks into an MTA beltway from Brooklyn to Queens. </p>
+
+<p>According to the Mayor&apos;s office, the proposed streetcar would cut travel times along the Brooklyn-Queens waterfront for 700,000 New Yorkers, more than 40,000 of whom live in NYCHA housing. For example, a trip from Astoria to Williamsburg&#x2014;two neighborhoods currently connected by the N and L lines&#x2014;would be cut in half, from 61 minutes to about 30 minutes. Riders could also get from the Brooklyn Navy Yard to Red Hook in 52 minutes (previously a 67 minute bus ride), or from Dumbo to Red Hook in 20. </p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="021616_Streetcar2.jpeg" src="https://web.archive.org/web/20171023040912im_/http://gothamist.com/attachments/nyc_ewhitford/021616_Streetcar2.jpeg" width="640" height="235"> <br> <i> (via the Mayor&apos;s Office). </i></div> <p></p>
+
+<p>Early supporters of the proposal include a nonprofit group called <a href="https://web.archive.org/web/20171023040912/http://gothamist.com/2016/01/06/brooklyn_queens_connector.php">Friends of the Brooklyn Queens Connector</a>, which <a href="https://web.archive.org/web/20171023040912/http://www.nydailynews.com/new-york/brooklyn-queens-waterfront-streetcar-proposed-article-1.2519542">reportedly includes</a> Brooklyn developer Jed Walentas&#x2014;a man who would inarguably profit from a sleek, new ride between his DUMBO developments and his forthcoming <a href="https://web.archive.org/web/20171023040912/http://gothamist.com/2014/03/04/de_blasio_eats_rich.php">mixed-use development at the Domino Sugar refinery</a> in Williamsburg. </p>
+
+<p>But while leaders in business and economic development along the waterfront are already laying on thick praise&#x2014;Brooklyn Chamber of Commerce President Carlo Scissura gushed &quot;revolutionary...wow...transformative...game changer...city of the future&quot; in one breath on Tuesday&#x2014;critics have pointed out that New Yorkers who live along this waterfront (one that will <a href="https://web.archive.org/web/20171023040912/http://gothamist.com/2015/02/04/expanded_ferry_map_nyc.php">soon be served by extended ferry service</a>) are not among the city&apos;s <a href="https://web.archive.org/web/20171023040912/http://gothamist.com/2015/02/04/expanded_ferry_map_nyc.php">most dense or transit starved</a>. </p>
+
+<p>When the MTA released a list of priority Brooklyn transit routes in 2009, the waterfront was <a href="https://web.archive.org/web/20171023040912/http://www.streetsblog.org/2016/02/04/4-reasons-a-2-5-billion-brooklyn-queens-streetcar-doesnt-add-up/">notably absent</a>. </p>
+
+<p>By the end of Tuesday&apos;s press conference, Mayor de Blasio&apos;s boasting&#x2014;&quot;state-of-the-art&quot; and &quot;the next big thing&quot;&#x2014;had been tempered slightly. Barraged by questions about transfer points and travel speeds, he stated bluntly that the Brooklyn-Queens waterfront, with its peppering of &quot;innovation clusters,&quot; is well suited for a test run of the streetcar concept.</p>
+
+<p>&quot;This happens to be a place of particularly concentrated population and economic growth, with a particular ability to get that revenue that would pay for the light rail,&quot; he said. Indeed, the city is banking that the streetcar would raise property taxes along its route enough to <a href="https://web.archive.org/web/20171023040912/http://www.reuters.com/article/us-new-york-transportation-idUSKCN0VP28F">pay for itself</a>. &quot;This to me is a good and noble experiment,&quot; he added. &quot;If we could make this work [here] it could possibly work in other neighborhoods as well.&quot; </p>
+
+<p>NYC&apos;s so-called <a href="https://web.archive.org/web/20171023040912/http://gothamist.com/2015/12/02/mta_freedom_ticket_plan.php">transit deserts</a>, like Southeast Queens and Throggs Neck and City Island in the Bronx, are a separate issue. &quot;Obviously for a long time we have encouraged the MTA to invest much more deeply in the outer boroughs, particularly under-served neighborhoods,&quot; de Blasio said. &quot;And there&apos;s still a lot to be done on that front.&quot;</p>
+
+<p>Asked if he believed that the streetcar might accelerate the forces of gentrification in neighborhoods like Red Hook and Sunset Park, de Blasio made a plug for his <a href="https://web.archive.org/web/20171023040912/http://gothamist.com/2015/05/07/de_blasio_affordable_housing.php">controversial affordable housing plan</a>. For months, he has argued that subsidizing for-profit development in return for a percentage of affordable apartments is the only way to stymie gentrification in NYC. <a href="https://web.archive.org/web/20171023040912/http://gothamist.com/2016/02/10/affordable_housing_battle.php">Critics have countered</a> that the proposed standard of affordability is not deep enough, and that new high-rise apartments will benefit the coffee-shops-and-boutiques set already flocking to neighborhoods like Sunset Park, ultimately accelerating displacement. </p>
+
+<p>&quot;The city is becoming a more and more attractive place to businesses of all kinds, so standing back and doing nothing is the worst of all roles,&quot; de Blasio said on Tuesday. &quot;If we don&apos;t aggressively create new affordable housing... then those development pressures will swamp the situation.&quot; </p>
+
+<p>The city says it hopes to break ground on the BQX by 2019 at the earliest. Reached for comment on any fare-integration negotiations, MTA spokesman Adam Lisberg said, &quot;We look forward to learning more about the city&apos;s proposal.&quot;  </p>					
+										
+									
+				

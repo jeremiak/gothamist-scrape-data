@@ -1,0 +1,17 @@
+---
+author: Nell Casey
+date: Dec 30, 2013 10:53 am
+title: Times Square Applebee's Offering $375 New Years Eve Bash
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="123013applebees.jpg.jpg" src="https://web.archive.org/web/20150416191056im_/http://gothamist.com/attachments/nyc_nellcasey/123013applebees.jpg.jpg" width="640" height="480"> <br> <i> <span class="photo_caption">(<a href="https://web.archive.org/web/20150416191056/http://www.flickr.com/photos/kuniochi/907579130/">SaikoSakura</a>/Flickr)</span></i></div> <p></p>
+
+<p>There&apos;s no shortage of <a href="https://web.archive.org/web/20150416191056/http://nypost.com/2013/12/28/nyc-steakhouse-serves-up-10k-new-years-feast/">over the top</a> New Year&apos;s Eve celebrations to throw money at this week and while those highbrow restaurants might give you an epic meal, they can&apos;t give you the most sacred of all holiday gifts: proximity to the screaming hordes in Times Square. But never fear because Applebee&apos;s is here to make sure you&apos;re right in the thick of the annual NYE fracas with an <a href="https://web.archive.org/web/20150416191056/http://www.marketwatch.com/story/the-375-applebees-dinner-2013-12-30?link=MW_home_latest_news">all inclusive celebration</a> at one of their Times Square locations at the much more tourist-friendly price of $375 per person. Yes, a mediocre chain dinner that costs hundreds of dollars. In Times Square. On New Year&apos;s Eve.</p>
+
+<p>So what awaits you at their so-called <a href="https://web.archive.org/web/20150416191056/http://www.newyearsevepartynyc.com/">New Year&apos;s Eve Bash</a>? Most importantly, there&apos;s a premium open bar, a necessity given the surroundings; if you opt for the 50th Street location you also get &quot;satellite wine &amp; beer stations,&quot; whatever that means. You&apos;ll also be Eating Good in the (Worst) Neighborhood (In NYC) with a &quot;chef&apos;s selection buffet&quot; that includes a &quot;ton of food&quot;&#x2014;steak and shrimp!&#x2014;cooked by &quot;some fairly sophisticated culinary people.&quot; Sounds promising! &#x201C;You wouldn&#x2019;t know you were at an Applebee&#x2019;s for that one night,&#x201D; explains NY franchise owner Zane <a href="https://web.archive.org/web/20150416191056/http://gothamist.com/2013/06/17/coney_island_applebees_has_killer_s.php">Shark</a>-Tankel. </p>
+
+<p>The &quot;Non-Stop Fun!&quot; continues with both a DJ and live music to encourage boogieing Ohio-style on the dance floor plus party favors&#x2014;BYO dignity. The party begins at 8 p.m. and they&apos;re kicking everyone out at midnight, unless you choose to &quot;make [your] way to the streets of Times Square&quot; (&#x201C;subject to NYPD approval&#x201D;). We can&apos;t imagine cutting out early after spending nearly $400 to rub elbows with visiting Midwesterners and though it&apos;s hard to imagine, bathroom-less Times Square looks even worse after three hours of open bar. We&apos;ll just <a href="https://web.archive.org/web/20150416191056/http://gothamist.com/2011/04/12/applebees_to_reiterate_the_differen.php">chug our adult apple juice</a> and <a href="https://web.archive.org/web/20150416191056/http://gothamist.com/2013/12/12/miley_cyrus_will_perform_in_times_s.php">catch Miley on the big screen</a>. </p>					
+										
+									
+				

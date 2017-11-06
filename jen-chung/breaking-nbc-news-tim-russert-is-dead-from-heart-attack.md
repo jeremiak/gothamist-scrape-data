@@ -1,0 +1,17 @@
+---
+author: Jen Chung
+date: June 13, 2008  4:25 PM
+title: BREAKING: NBC News' Tim Russert is Dead from Heart Attack
+---
+
+<p><img alt="2008_06_russert2.jpg" src="https://web.archive.org/web/20110611062957im_/http://gothamist.com/attachments/jen/2008_06_russert2.jpg" width="192" height="282" class="right">Reports say that NBC News Washington Bureau Chief and host of Meet the Press <a href="https://web.archive.org/web/20110611062957/http://en.wikipedia.org/wiki/Tim_Russert">Tim Russert</a> has died.  It&apos;s believed he had a heart attack.  A source <a href="https://web.archive.org/web/20110611062957/http://www.nypost.com/seven/06132008/news/nationalnews/tim_russert_dies_from_apparent_heart_att_115384.htm">told the NY Post</a> he collapsed in the Washington Bureau. NBC News <a href="https://web.archive.org/web/20110611062957/http://www.msnbc.msn.com/id/25145431/">now confirms Russert&apos;s death and says</a> he was recording voiceovers for Sunday&apos;s Meet the Press.  </p>
+
+<p>The NY Times reports that at 3:39 p.m., retired anchor Tom Brokaw <a href="https://web.archive.org/web/20110611062957/http://thecaucus.blogs.nytimes.com/2008/06/13/russert-dies-of-apparent-heart-attack/index.html?hp">went on the air to announce Russert&apos;s death</a>.</p><blockquote>&#x201C;Our beloved colleague,&#x201D; a grave Mr. Brokaw called him, one of the premier journalists of our time. He said this was one of the most important years in his life, with his deep engagement in the network&#x2019;s political coverage, and that he &#x201C;worked to the point of exhaustion.&#x201D; Mr. Brokaw said Mr. Russert was a true child of Buffalo and always stayed in touch with his blue collar roots and &#x201C;the ethos of that community.&#x201D;<p></p>
+
+<p>He said Mr. Russert had just moved his father, who is in his late 80s, from one facility to another in Buffalo. He said he loved his family, his Catholic faith, his country, politics, the Buffalo Bills, the New York Yankees and the Washington Nationals.</p>
+
+<p>&#x201C;This news division will not be the same without his strong, clear voice,&#x201D; Mr. Brokaw said. </p></blockquote>Video of Brokaw announcing his death below.  Russert had just returned from a trip to Italy with his family.  His survivors include wife Maureen Orth, a writer for Vanity Fair, and son Luke; they had been celebrating Luke&apos;s graduation from Boston College.<p></p>
+
+<center><iframe height="339" width="425" src="https://web.archive.org/web/20110611062957if_/http://www.msnbc.msn.com/id/22425001/vp/25146085#25146085" frameborder="0" scrolling="no"></iframe></center>
+
+<p>Russert, who started in politics working for Senator Daniel Patrick Moynihan and Governor Mario Cuomo, was hired by NBC in 1984 and became Washington bureau chief in 1988.   He had hosted Meet the Press since 1991, but his insightful political analysis reached even broader audiences during the 2000 election: When it was unclear how the election would turn, Russert used a dry erase board to explain the electoral college count.  His use of a dry erase board was selected by TV Guide and TV Land as <a href="https://web.archive.org/web/20110611062957/http://www.listosaurusrex.com/2008/01/30/100-most-memorable-tv-moments/">one of the 100 Most Memorable moments (#68)</a> back in 2004.  </p>

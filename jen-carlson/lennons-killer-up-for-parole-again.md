@@ -1,0 +1,13 @@
+---
+author: Jen Carlson
+date: July 27, 2010  1:58 PM
+title: Lennon's Killer Up For Parole Again
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="chapman0710parole.jpg" src="https://web.archive.org/web/20110623144651im_/http://gothamist.com/attachments/arts_jen/chapman0710parole.jpg" width="220" height="283" class="image-left"> </span>It&apos;s been just over <a href="https://web.archive.org/web/20110623144651/http://gothamist.com/2008/08/11/mark_david_chapman_up_for_parole.php">two years</a> since <a href="https://web.archive.org/web/20110623144651/http://gothamist.com/tags/markdavidchapman">Mark David Chapman</a> was last up for parole for killing John Lennon. At the time, Yoko Ono said, &quot;It&apos;s dangerous for him to come out. Not only for us, but for himself. There are so many people out there who dislike him. It&apos;s safer for him to stay in jail.&quot; The parole board stated his release &quot;would not be in the best interest of the community,&quot; and denied him parole for the 5th time. Chapman has said in the past that Lennon would have forgiven him (and below is an interview he did with Barbara Walters, where he describes the night he killed Lennon).</p>
+
+<p>As the 30th anniversary of that night approaches (on December 8th), Chapman is up for parole once again&#x2014;his sentence was 20 years to life. According to <a href="https://web.archive.org/web/20110623144651/http://www.nydailynews.com/ny_local/2010/07/27/2010-07-27_yoko_not_in_my_life_ono_he_wont_lennon_widow_says_of_parole.html">the Daily News</a>, he is scheduled to be interviewed by a parole board panel the week of August 9th, and has had a clean record since 1994 (he&apos;s even allowed conjugal visits!).</p>
+
+<p>Ono&apos;s lawyer, Peter Shukat, says she has once again sent a letter to the parole board opposing Chapman&apos;s release&#x2014;in her previous letter she stated, &quot;myself and John&apos;s two sons would not feel safe for the rest of our lives.&quot;</p>
+
+<p><object width="640" height="505"><param name="movie" value="http://www.youtube.com/v/rEFP0WCZB48&amp;hl=en_US&amp;fs=1"><param name="allowFullScreen" value="true"><param name="allowscriptaccess" value="always"><embed src="https://web.archive.org/web/20110623144651oe_/http://www.youtube.com/v/rEFP0WCZB48&amp;hl=en_US&amp;fs=1" type="application/x-shockwave-flash" allowscriptaccess="always" allowfullscreen="true" width="640" height="505"></object></p>

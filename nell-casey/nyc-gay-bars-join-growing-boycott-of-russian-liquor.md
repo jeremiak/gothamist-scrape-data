@@ -1,0 +1,19 @@
+---
+author: Nell Casey
+date: Jul 29, 2013 1:00 pm
+title: NYC Gay Bars Join Growing Boycott Of Russian Liquor
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="072913stoli_ban.jpg" src="https://web.archive.org/web/20160517085710im_/http://gothamist.com/attachments/nyc_nellcasey/072913stoli_ban.jpg" width="640" height="426"> <br> <i> <span class="photo_caption">via <a href="https://web.archive.org/web/20160517085710/https://www.facebook.com/photo.php?fbid=10151708552151162&amp;set=pb.91352931161.-2207520000.1375111759.&amp;type=3&amp;theater">Stoli Vodka</a> on Facebook</span></i></div> <p></p>
+
+<p>Following in the footsteps of bars in <a href="https://web.archive.org/web/20160517085710/http://chicagoist.com/2013/07/25/popular_gay_bar_sidetrack_removes_r.php">Chicago</a>, <a href="https://web.archive.org/web/20160517085710/http://laist.com/2013/07/27/weho_bars_join_boycott_of_stoli_vod.php">Los Angeles</a> and Florida, a group of New York City gay bars have implemented a <a href="https://web.archive.org/web/20160517085710/http://www.dnainfo.com/new-york/20130728/west-village/gay-bars-chelsea-west-village-boycott-russian-vodkas">boycott of Russian vodkas</a>. The boycott comes as a response to Russian President Vladimir Putin&apos;s strict <a href="https://web.archive.org/web/20160517085710/http://www.huffingtonpost.com/2013/07/11/russia-gay-law-tourists-_n_3581217.html">&quot;gay propaganda&quot; law</a>, which imposes fines and deportation on anyone found supporting LGBT culture in any way and prohibits gay parents from adopting Russian children. </p>
+
+<p>&#x201C;This is a small retaliation that we hope is going to pick up,&#x201D; Mike Garcia, manager of Boxer Sports Bar, <a href="https://web.archive.org/web/20160517085710/http://www.dnainfo.com/new-york/20130728/west-village/gay-bars-chelsea-west-village-boycott-russian-vodkas">told DNAinfo</a>. &#x201C;Russian vodka isn&#x2019;t the only type of vodka.&#x201D; The bar has <a href="https://web.archive.org/web/20160517085710/https://www.facebook.com/photo.php?fbid=10151749387126117&amp;set=a.409358556116.204376.377763576116&amp;type=1&amp;theater">removed all Russian-based vodkas</a> from its shelves, including popular Stolichnaya, which has become the focal brand of this boycott after Dan Savage name-checked it in his <a href="https://web.archive.org/web/20160517085710/http://slog.thestranger.com/slog/archives/2013/07/24/why-im-boycotting-russian-vodka">piece about the situation in Russia</a>. So far, nine other prominent West Village and Chelsea gay bars have followed suit.</p>
+
+<p>While the Russian government&apos;s actions are deplorable, some say the <a href="https://web.archive.org/web/20160517085710/http://reason.com/blog/2013/07/26/the-terrible-bad-no-good-plan-to-boycott">ban on Russian products is misguided</a>. Chelsea&apos;s <a href="https://web.archive.org/web/20160517085710/http://www.xesnyc.com/">XES Lounge</a> wrote a letter to customers <a href="https://web.archive.org/web/20160517085710/https://www.facebook.com/XES.Lounge/posts/10151701191539765">on their Facebook page</a> explaining why they wouldn&apos;t be participating in the boycott. The bar points to the Stoli&apos;s support of the LGBT community and notes that a boycott &quot;doesn&apos;t make sense&quot; as the company isn&apos;t headquartered in Russia. Instead of a ban, the bar will donate $1 to Amnesty International for every drink made with Stoli that they sell this summer. </p>
+
+<p>Stolichnaya CEO Val Mendeleev also penned an open letter to the LGBT community hoping to &quot;clear the confusion&quot; about the brand and remind customers of the vodka&apos;s long-standing support of gay rights. </p>					
+										
+									
+				

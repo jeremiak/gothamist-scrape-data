@@ -1,0 +1,60 @@
+---
+author: Jen Carlson
+date: Jul 23, 2012 3:10 pm
+title: Rockaway's Boatel Is Back: What To Expect If You Book A Stay
+---
+
+	
+					<div class="galleryEase" id="gallery-528993">
+<!-- gallery js -->
+<script type="text/javascript" src="https://web.archive.org/web/20150721052007js_/http://assets.gothamistllc.com/v5/js/gallery.js"></script>
+<!-- end gallery js -->
+
+<style type="text/css">
+#imgContainer {
+min-height: 300px;
+min-width: 300px;
+background: url('https://web.archive.org/web/20150721052007im_/http://assets.gothamistllc.com/v5/images/progress.gif') center center no-repeat;
+}
+</style>
+
+<!--start of gallery code-->
+<a name="gallery"></a>
+<div class="galleryEaseDisplayed">
+<div id="imgContainer">
+    <img id="galleryImg">
+</div>
+<div class="galleyEaseInfo"></div>
+<div class="galleryEaseNext"></div>
+<div class="galleryEasePrev"></div>
+</div>
+<div class="galleryEaseThumbs">
+		<img src="https://web.archive.org/web/20150721052007im_/http://gothamist.com/assets_c/2012/07/10boatel0712-thumb-60x60-729557.jpg" title="" id="photo_1" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":1, "image": "https://web.archive.org/web/20150721052007/http://gothamist.com/upload/2012/07/10boatel0712.jpg", "caption": "\<span class=\"photo_caption\"\>Photo by \<a href=\"http://www.samhorine.com/\"\>Sam Horine\<\/a\>/Gothamist\<\/span\>", "credit":""};galleryObj['photo_1'] = photo;</script>
+		<img src="https://web.archive.org/web/20150721052007im_/http://gothamist.com/assets_c/2012/07/8boatel0712-thumb-60x60-729559.jpg" title="" id="photo_2" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":2, "image": "https://web.archive.org/web/20150721052007/http://gothamist.com/upload/2012/07/8boatel0712.jpg", "caption": "\<span class=\"photo_caption\"\>Photo by \<a href=\"http://www.samhorine.com/\"\>Sam Horine\<\/a\>/Gothamist\<\/span\>", "credit":""};galleryObj['photo_2'] = photo;</script>
+		<img src="https://web.archive.org/web/20150721052007im_/http://gothamist.com/assets_c/2012/07/9boatel0712-thumb-60x60-729558.jpg" title="" id="photo_3" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":3, "image": "https://web.archive.org/web/20150721052007/http://gothamist.com/upload/2012/07/9boatel0712.jpg", "caption": "\<span class=\"photo_caption\"\>Photo by \<a href=\"http://www.samhorine.com/\"\>Sam Horine\<\/a\>/Gothamist\<\/span\>", "credit":""};galleryObj['photo_3'] = photo;</script>
+		<img src="https://web.archive.org/web/20150721052007im_/http://gothamist.com/assets_c/2012/07/7boatel0712-thumb-60x60-729560.jpg" title="" id="photo_4" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":4, "image": "https://web.archive.org/web/20150721052007/http://gothamist.com/upload/2012/07/7boatel0712.jpg", "caption": "\<span class=\"photo_caption\"\>Photo by \<a href=\"http://www.samhorine.com/\"\>Sam Horine\<\/a\>/Gothamist\<\/span\>", "credit":""};galleryObj['photo_4'] = photo;</script>
+		<img src="https://web.archive.org/web/20150721052007im_/http://gothamist.com/assets_c/2012/07/6boatel0712-thumb-60x60-729561.jpg" title="" id="photo_5" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":5, "image": "https://web.archive.org/web/20150721052007/http://gothamist.com/upload/2012/07/6boatel0712.jpg", "caption": "\<span class=\"photo_caption\"\>Photo by \<a href=\"http://www.samhorine.com/\"\>Sam Horine\<\/a\>/Gothamist\<\/span\>", "credit":""};galleryObj['photo_5'] = photo;</script>
+		<img src="https://web.archive.org/web/20150721052007im_/http://gothamist.com/assets_c/2012/07/5boatel0712-thumb-60x60-729562.jpg" title="" id="photo_6" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":6, "image": "https://web.archive.org/web/20150721052007/http://gothamist.com/upload/2012/07/5boatel0712.jpg", "caption": "\<span class=\"photo_caption\"\>Photo by \<a href=\"http://www.samhorine.com/\"\>Sam Horine\<\/a\>/Gothamist\<\/span\>", "credit":""};galleryObj['photo_6'] = photo;</script>
+		<img src="https://web.archive.org/web/20150721052007im_/http://gothamist.com/assets_c/2012/07/16boatel0712-thumb-60x60-729553.jpg" title="" id="photo_7" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":7, "image": "https://web.archive.org/web/20150721052007/http://gothamist.com/upload/2012/07/16boatel0712.jpg", "caption": "\<span class=\"photo_caption\"\>Photo by \<a href=\"http://www.samhorine.com/\"\>Sam Horine\<\/a\>/Gothamist\<\/span\>", "credit":""};galleryObj['photo_7'] = photo;</script>
+<br>		<img src="https://web.archive.org/web/20150721052007im_/http://gothamist.com/assets_c/2012/07/4boatel0712-thumb-60x60-729563.jpg" title="" id="photo_8" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":8, "image": "https://web.archive.org/web/20150721052007/http://gothamist.com/upload/2012/07/4boatel0712.jpg", "caption": "\<span class=\"photo_caption\"\>Photo by \<a href=\"http://www.samhorine.com/\"\>Sam Horine\<\/a\>/Gothamist\<\/span\>", "credit":""};galleryObj['photo_8'] = photo;</script>
+		<img src="https://web.archive.org/web/20150721052007im_/http://gothamist.com/assets_c/2012/07/3boatel0712-thumb-60x60-729564.jpg" title="" id="photo_9" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":9, "image": "https://web.archive.org/web/20150721052007/http://gothamist.com/upload/2012/07/3boatel0712.jpg", "caption": "\<span class=\"photo_caption\"\>Photo by \<a href=\"http://www.samhorine.com/\"\>Sam Horine\<\/a\>/Gothamist\<\/span\>", "credit":""};galleryObj['photo_9'] = photo;</script>
+		<img src="https://web.archive.org/web/20150721052007im_/http://gothamist.com/assets_c/2012/07/boatel0712-thumb-60x60-729548.jpg" title="" id="photo_10" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":10, "image": "https://web.archive.org/web/20150721052007/http://gothamist.com/upload/2012/07/boatel0712.jpg", "caption": "\<span class=\"photo_caption\"\>Photo by \<a href=\"http://www.samhorine.com/\"\>Sam Horine\<\/a\>/Gothamist\<\/span\>", "credit":""};galleryObj['photo_10'] = photo;</script>
+		<img src="https://web.archive.org/web/20150721052007im_/http://gothamist.com/assets_c/2012/07/18boatel0712-thumb-60x60-729551.jpg" title="" id="photo_11" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":11, "image": "https://web.archive.org/web/20150721052007/http://gothamist.com/upload/2012/07/18boatel0712.jpg", "caption": "\<span class=\"photo_caption\"\>Photo by \<a href=\"http://www.samhorine.com/\"\>Sam Horine\<\/a\>/Gothamist\<\/span\>", "credit":""};galleryObj['photo_11'] = photo;</script>
+		<img src="https://web.archive.org/web/20150721052007im_/http://gothamist.com/assets_c/2012/07/19boatel0712-thumb-60x60-729550.jpg" title="" id="photo_12" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":12, "image": "https://web.archive.org/web/20150721052007/http://gothamist.com/upload/2012/07/19boatel0712.jpg", "caption": "\<span class=\"photo_caption\"\>Photo by \<a href=\"http://www.samhorine.com/\"\>Sam Horine\<\/a\>/Gothamist\<\/span\>", "credit":""};galleryObj['photo_12'] = photo;</script>
+		<img src="https://web.archive.org/web/20150721052007im_/http://gothamist.com/assets_c/2012/07/14boatel0712-thumb-60x60-729555.jpg" title="" id="photo_13" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":13, "image": "https://web.archive.org/web/20150721052007/http://gothamist.com/upload/2012/07/14boatel0712.jpg", "caption": "\<span class=\"photo_caption\"\>Photo by \<a href=\"http://www.samhorine.com/\"\>Sam Horine\<\/a\>/Gothamist\<\/span\>", "credit":""};galleryObj['photo_13'] = photo;</script>
+		<img src="https://web.archive.org/web/20150721052007im_/http://gothamist.com/assets_c/2012/07/11boatel0712-thumb-60x60-729556.jpg" title="" id="photo_14" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":14, "image": "https://web.archive.org/web/20150721052007/http://gothamist.com/upload/2012/07/11boatel0712.jpg", "caption": "\<span class=\"photo_caption\"\>Photo by \<a href=\"http://www.samhorine.com/\"\>Sam Horine\<\/a\>/Gothamist\<\/span\>", "credit":""};galleryObj['photo_14'] = photo;</script>
+									
+</div></div>					<p>Last year <a href="https://web.archive.org/web/20150721052007/http://gothamist.com/2011/08/01/a_visit_to_rockaways_floating_boate.php#photo-1">we ventured out</a> to the new Rockaway spot Boatel, and its abandoned ships <a href="https://web.archive.org/web/20150721052007/http://marina59.com/boatel.html">at Marina 59</a> are back again this season, with vacancies available through November 1st. Photographer <a href="https://web.archive.org/web/20150721052007/http://SamHorine.com/">Sam Horine</a> was there earlier this summer, and he gave us the rundown, along with some pointers.</p>
+
+<p><strong>WHAT TO EXPECT</strong>: Don&apos;t expect to swim: &quot;I mean you <em>could</em> swim but the water was fairly brackish right off the docks.&quot; Horine adds, &quot;It&apos;s pretty much a no-rules hotel, so if there were loud people there and you wanted to sleep, it might be tough, although you could also rent a boat that was further away from the central dock where pretty much all the hanging out happens.&quot; Don&apos;t expect luxury accommodations&#x2014;&quot;it&apos;s pretty rustic and &apos;fend for yourself&apos; but if you&apos;re into that kind of thing then it&apos;s totally awesome, and you certainly can&apos;t beat the price to get out of the city for the night.&quot; It&apos;s also worth noting that their Floating Cinema shows movies on some nights (screening <a href="https://web.archive.org/web/20150721052007/https://www.google.com/calendar/embed?src=ngoivnbrhc8gnt9ul7fghd3t6o%40group.calendar.google.com&amp;ctz=America/New_York">schedule here</a>).</p>
+
+<p><strong>THE BOATS</strong> &quot;The boats are all one of a kind and are each receiving personalizations from local artists&#x2014;our boat had a very Caribbean red leather theme, other boats had 70s disco theme, and others were decked out with paper mermaids.  We had a great time on the Sweet Annisa, which was billed as the only one with power although we found that all of the boats had power.  If I were going to stay there again, which i totally would, I&apos;d pick the houseboat since it&apos;s the largest of the boats with the most comfortable sleeping quarters.&quot;</p>
+
+<p><strong>WHAT TO BRING:</strong> Bug spray&#x2014;&quot;some of the boats have screens in the windows but others don&apos;t and since it&apos;s the summer and there isn&apos;t any AC on the boats it can get hot and sticky.&quot; Also bring food and drinks&#x2014;&quot;there&apos;s a grill and central &apos;living room&apos; dock for communal hanging.&quot;</p>
+
+<p><strong>GETTING THERE:</strong> You can take public transportation, but it&apos;s &quot;definitely easiest to drive there&#x2014;drive or zipcar or get a taxi at the train station.&quot; The marina is in a &quot;fairly sketchy neighborhood,&quot; which means you probably don&apos;t want to roam around off the docks too much after dark, either.</p>
+
+<p>The <a href="https://web.archive.org/web/20150721052007/http://clients.innroad.com/marina59/property.aspx">abandoned boats</a> start at $55 a night, running up to $105. Click through to get a look at the place as it looks this year&#x2014;this afternoon Boatel&apos;s Angie Kang told us, &quot;I think it&#x2019;s pretty different from last year&#x2019;s project,&quot; adding, &quot;We like to encourage everyone to create their own experience.&quot;</p>					
+										
+									
+				

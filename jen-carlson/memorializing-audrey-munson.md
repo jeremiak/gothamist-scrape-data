@@ -1,0 +1,15 @@
+---
+author: Jen Carlson
+date: Dec 12, 2007 1:23 pm
+title: Memorializing Audrey Munson
+---
+
+	
+										<p><img alt="200712memory.jpg" src="https://web.archive.org/web/20150424012730im_/http://gothamist.com/attachments/arts_jen/200712memory.jpg" width="350" height="260" class="right">Last year WNBC got up close and personal with the <a href="https://web.archive.org/web/20150424012730/http://gothamist.com/2006/06/22/up_close_and_pe.php">Civic Fame</a> statue atop the Municipal Building, and this week <a href="https://web.archive.org/web/20150424012730/http://www.nytimes.com/2007/12/09/nyregion/thecity/09muns.html?_r=1&amp;ref=thecity&amp;oref=slogin">The NY Times</a> looks at the woman who modeled for that statue, and many others -- Audrey Munson, &quot;a long-forgotten New York celebrity whose face and figure continue to grace the contours of statues all around Manhattan.&quot;</p><blockquote>It was Ms. Munson&#x2019;s eyes that stared stoically from the marble forms of the Firemen&#x2019;s Memorial on Riverside Drive, Ms. Munson&#x2019;s strong body that seemed ready to burst from the granite archway at the foot of the Manhattan Bridge. Altogether, Ms. Munson served as the inspiration for more than 15 statues around the city.</blockquote>Munson began her career as a model at the age of 15, and later was in a number of films (including <em>Inspiration</em>, which featured the first female nude scene). Once her youth was in the past, she moved out of the city, and &quot;America&apos;s Venus&quot; was rarely heard from again, save for the 20 weeks worth of articles she wrote in 1921 for the American Weekly. Just 10 years later Munson was in St. Lawrence State Hospital for the Insane, where she was admitted on June 8th, 1931 and where she died in 1996 at the age of 105. <p></p>
+
+<p>She was buried in <a href="https://web.archive.org/web/20150424012730/http://jschumacher.typepad.com/audrey_munson/2003/12/unmarked_grave.html">an unmarked grave</a>, something that Andrea Geyer (a New York-based, German-born artist) is trying to amend. Last year Geyer published a book about Ms. Munson, titled <a href="https://web.archive.org/web/20150424012730/http://www.artingeneral.org/projects/5"><em>Queen of the Artists&apos; Studio</em></a> -- something she began after locking eyes with Civic Fame while working in the Woolworth Building. Art in General, along with Geyer, are raising money for a monument for the gravesite, which is located in upstate New York. More info on how to donate, <a href="https://web.archive.org/web/20150424012730/http://www.artingeneral.org/articles/31">here</a>. The two have also joined forces to create a New York map highlighting all of the locations of Ms. Munson&apos;s statues.</p>
+
+<p><em>Photo  of &quot;Memory&quot; in Straus Park, 107th and Broadway via <a href="https://web.archive.org/web/20150424012730/http://jschumacher.typepad.com/audrey_munson/">Joe Schumacher</a>.</em></p>					
+										
+									
+				

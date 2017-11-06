@@ -1,0 +1,12 @@
+---
+author: Jen Carlson
+date: April 15, 2011  3:31 PM
+title: Amy Poehler Sends "Hot Chicks Room" Sign To Governors Island
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="hotchicksroom0411gov.jpg" src="https://web.archive.org/web/20110516025749im_/http://gothamist.com/attachments/arts_jen/hotchicksroom0411gov.jpg" width="365" height="244" class="image-right"> </span>Have the heathens at the UCB Theater taken down that <a href="https://web.archive.org/web/20110516025749/http://gothamist.com/2011/03/17/hot_chicks_room.php">Hot Chicks Room</a> signage yet? You can breathe a sigh of relief, puritanical locals, and know that the East Village is now G-rated again! Well, <em>almost</em>. As you can see in <a href="https://web.archive.org/web/20110516025749/http://evgrieve.com/2011/04/hot-chicks-room-sign-will-now-bring.html">this photo</a> taken earlier today, the theater still has those salacious <a href="https://web.archive.org/web/20110516025749/http://gothamist.com/2011/03/30/local_comedy_venue_trying_to_turn_e.php">red curtains</a> up, but it&apos;s probably only a matter of time before the area folk burn the place down.</p>
+
+<p>Back to that &quot;sleazy&quot; sign, though&#x2014;<a href="https://web.archive.org/web/20110516025749/http://artsbeat.blogs.nytimes.com/2011/04/15/tempest-in-a-compost-heap-controversial-comedy-sign-gets-a-funny-new-home/?partner=rss&amp;emc=rss">the NY Times</a> reports that an impromptu ceremony was held outside of the theater today, where Amy Poehler presented the sign to Marisa DeDominicis and Charlie Bayrer, of the nonprofit group Earth Matter. It will now adorn a compost learning center (which houses <em>chick</em>ens) run by the organization on Governors Island, where there are no residents to complain.<br>
+Instead, the sign will decorate a compost learning center run by Earth Matter on Governors Island. This &#x201C;Hot Chicks Room&#x201D; will feature a greenhouse containing chickens who, in their own way, will teach visitors about the nutrient cycle and waste-reduction practices and help create a fertile soil additive for the island.</p>
+
+<p>This morning Poehler said, &#x201C;We wanted to appease.&quot; A new sign went up after the old one was taken down, it reads: &#x201C;Live Comedy.&#x201D;</p>

@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: September 18, 2008  2:08 PM
+title: Barclays's New NYC Home
+---
+
+<p><img src="https://web.archive.org/web/20111117124130im_/http://gothamist.com/attachments/jen/2008_08_lehman.jpg" class="right">Now that Barclays is <a href="https://web.archive.org/web/20111117124130/http://gothamist.com/2008/09/16/barclays_to_gobble_up_lehman_brothe.php">buying Lehman Brothers&apos; broker-dealer business</a>, the British firm is also getting Lehman&apos;s Seventh Avenue headquarters. The <a href="https://web.archive.org/web/20111117124130/http://www.nytimes.com/2008/09/18/nyregion/18building.html?_r=1&amp;ref=nyregion&amp;oref=slogin">NY Times has a great story</a> following the building&apos;s history: It was originally built for Morgan Stanley, but MS decided back out before it was finished and Lehman bought the building four weeks after the 9/11 attacks.  The Partnership for NYC&apos;s Kathryn Wilde said, &#x201C;Barclays has had a rather modest presence here, so this is a big new commitment to New York. Given the role that many of our New York-based firms have played in building London&#x2019;s presence in the world&#x2019;s financial markets, it seems like a good quid pro quo.&#x201D; Barclays will also have another marquee NYC address for its name: The <a href="https://web.archive.org/web/20111117124130/http://gothamist.com/2007/01/19/big_buts_for_br.php">Barclays Center</a> where the Nets will play at the Atlantic Yards.</p>

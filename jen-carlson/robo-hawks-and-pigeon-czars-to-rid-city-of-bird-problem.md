@@ -1,0 +1,11 @@
+---
+author: Jen Carlson
+date: May 16, 2008  4:09 PM
+title: Robo Hawks and Pigeon Czars to Rid City of Bird Problem?
+---
+
+<p><img alt="0805robohawk.jpg" src="https://web.archive.org/web/20110811124726im_/http://gothamist.com/attachments/arts_jen/0805robohawk.jpg" width="308" height="232" class="right"><a href="https://web.archive.org/web/20110811124726/http://gothamist.com/2008/01/08/its_hawk_eat_sq.php">Earlier this year</a>  Central Park crowds looked on in horror as a hawk dug his talons into a squirrel. Now the pigeons of New York are being targeted as the city considers bringing in robotic hawks to perch on rooftops. </p>
+
+<p><a href="https://web.archive.org/web/20110811124726/http://www.newsday.com/news/am-robohawk0516,0,6711889.story">Newsday</a> reports that robo hawks could be a weapon for driving pigeons from city sidewalks; an idea brought in last year by Brooklyn Councilman Simcha Felder. Just how much will it take to rid the city of its huge pigeon problem?</p><blockquote>Felder is proposing a bill that would fine people $1,000 for feeding the birds and would create a &quot;pigeon czar&quot; to be responsible for pigeon-related matters, such as cleanup. He expects a council hearing on the legislation, which is still being drafted, to be held before the end of the year.</blockquote>The <em>pigeon czar</em> will allegedly be backed by an army of robotic hawks, and while they&apos;re not a part of Felder&apos;s bill, he mentioned they &quot;could be an option if the Bloomberg administration feels the high-tech scarecrows are a good investment.&quot;<p></p>
+
+<p>The faux hawks could be a solution to <a href="https://web.archive.org/web/20110811124726/http://gothamist.com/2008/05/08/squirrels.php">Astoria&apos;s squirrel problem</a> too, but they aren&apos;t a cure-all <em>or</em> necessarily a workable solution for the city; the <a href="https://web.archive.org/web/20110811124726/http://www.robop.co.uk/Q-Site_what.html">Robop</a> (pictured) was designed for much smaller areas. But at about $4500 a pop, the city would just need to catch a few (hundred) pigeon feeders to fine in order to stock up on the robo hawks.</p>

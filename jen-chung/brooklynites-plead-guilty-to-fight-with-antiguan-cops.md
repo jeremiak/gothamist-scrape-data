@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: October  5, 2009 10:26 AM
+title: Brooklynites Plead Guilty To Fight With Antiguan Cops
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2009_10_antigu.jpg" src="https://web.archive.org/web/20110629084827im_/http://gothamist.com/attachments/jen/2009_10_antigu.jpg" width="80" height="78" class="image-right"> </span>A group of Brooklyn residents who got into a fight with cops in Antigua last month&#x2014;apparently over a cab fare&#x2014;have decided to <a href="https://web.archive.org/web/20110629084827/http://www.nydailynews.com/news/2009/10/04/2009-10-04_guilty_pleas_in_antigua_brawl_jailed_bklyn_tourists_to_be_sentenced_tomorrow.html">plead guilty</a> in hopes of no jail time. The group had been upset about a $100 cab fee (twice what they negotiated with the driver&#x2014;hey, <a href="https://web.archive.org/web/20110629084827/http://gothamist.com/2009/10/02/120_is_the_going_rate_for_an_unlice.php">it&apos;s like NYC</a>) and the <a href="https://web.archive.org/web/20110629084827/http://www.nydailynews.com/news/2009/09/13/2009-09-13_dream_vacation_could_end_in_jail_for_new_yorkers.html">incident escalated</a> when two plainclothes cops got involved.  The tourists swung at them, claiming the cops didn&apos;t ID themselves. The cops, in turn, claimed the tourists hit them first&#x2014;and even bit them. The Brooklyn five will be sentenced today.</p>

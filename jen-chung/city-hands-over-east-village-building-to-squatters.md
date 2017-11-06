@@ -1,0 +1,15 @@
+---
+author: Jen Chung
+date: May 17, 2009 5:30 pm
+title: City Hands Over East Village Building To Squatters
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2009_05_292ea4.jpg" src="https://web.archive.org/web/20160115074604im_/http://gothamist.com/attachments/jen/2009_05_292ea4.jpg" width="220" height="252" class="image-left"> </span>Earlier this week, a former squat, the <a href="https://web.archive.org/web/20160115074604/http://bulletspace.org/">Bullet Space</a> at 292 East 3rd Street in the East Village, <a href="https://web.archive.org/web/20160115074604/http://evgrieve.com/2009/05/bullet-space-is-first-of-former-les.html">was turned over</a> to its residents.  Or, as <a href="https://web.archive.org/web/20160115074604/http://www.nypost.com/seven/05172009/news/regionalnews/space_invaders_pay_diddly_squat_169652.htm">the NY Post puts it</a>, &quot;Nearly 30 years after an eclectic group of poets, performers, anarchists and artists illegally occupied a burned-out East Village tenement, they&apos;ve officially become a Manhattan co-op.&quot;  </p>
+
+<p>Back in the 1980s, many damaged buildings were abandoned by owners; enter the squatters, who then worked to make the buildings more habitable and stayed.  In 2002, the city sold <a href="https://web.archive.org/web/20160115074604/http://www.nypost.com/seven/05172009/photos/006_graphic.jpg">11 buildings</a> to Urban Homesteading Assistance Board for $1 each; the <a href="https://web.archive.org/web/20160115074604/http://www.thevillager.com/villager_296/formersquats.html">Villager explains</a>, &quot;Under the agreement, the squatters, with UHAB&#x2019;s guidance, would bring their buildings up to code within one year, then buy them &#x2014; for just $250 per apartment &#x2014; and the buildings would become permanently affordable, Housing Development Fund Corporation&quot; co-ops.  The squatters-turned-legitimate residents also pay $614 in monthly maintenance costs.</p>
+
+<p>Market value for the building is now in the $4-5 million range. While there are some who hate the idea of squatters getting the buildings, the Post reports that one Bullet Space resident &quot;invested significant sweat equity and personal money into the building&quot; and &quot;remembers the days when the toilets were &apos;bucket flush&apos; and heat came from wood stoves fueled by flammable objects hauled in from the streets.&quot;  And some squatters <a href="https://web.archive.org/web/20160115074604/http://www.thevillager.com/villager_296/formersquats.html">aren&apos;t thrilled with UHAB</a>: One building is suing UHAB over mishandling finances while others are upset with the restrictions on selling the units. <a href="https://web.archive.org/web/20160115074604/http://www.thevillager.com/villager_296/formersquats.html">According to the Villager</a>, restrictions would force one resident to sell his unit at a building on East 7th Street for less than $150,000&#x2014;and the resident says he&apos;s put in $150,000 of renovations into the 4.5 room apartment.</p>					
+										
+									
+				

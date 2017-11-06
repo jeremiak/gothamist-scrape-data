@@ -1,0 +1,18 @@
+---
+author: Jen Carlson
+date: February 15, 2012 12:46 PM
+title: Tonight: Watch You've Got Mail With Your Fellow New Yorkers
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="ryanmeg0212.jpeg" src="https://web.archive.org/web/20120215205638im_/http://gothamist.com/attachments/arts_jen/ryanmeg0212.jpeg" width="640" height="360" class="image-none"> </span></p>
+
+<p><em>You&apos;ve Got Mail</em> just turned lucky 13 last year, which we celebrated by looking back at the <a href="https://web.archive.org/web/20120215205638/http://gothamist.com/2011/08/20/happy_2011_the_youve_got_mail_websi.php">still-functioning website</a> and <a href="https://web.archive.org/web/20120215205638/http://gothamist.com/2011/05/20/nyc_as_seen_on_tv_meg_ryan_hits_rea.php#photo-2">Meg Ryan&apos;s apartment</a> in the movie. This year, however, there&apos;s an IRL celebration of the film, taking place at 7 p.m. tonight at Housing Works Bookstore (126 Crosby Street). <a href="https://web.archive.org/web/20120215205638/http://wevegotmail.tumblr.com/">We&apos;ve Got Mail: An Interactive <em>You&apos;ve Got Mail</em> Experience</a> will revive Nora Ephron&apos;s rom com and bring fans of the flick a new type of viewing experience. We asked one of the organizers,  <a href="https://web.archive.org/web/20120215205638/http://bobbyfinger.tumblr.com/">Bobby Finger</a>, for more details about the event, and he told us:</p>
+
+<blockquote>We created text and bubbles that appear throughout the movie (as AOL Instant Messanger IMs) that give the audience trivia, jokes/asides, and various other instructional messages. For example, <strong>everyone will be asked to imitate the dial up internet noises when a character logs on to AOL, and scream &quot;ewwww&quot; when Tom Hanks&apos; stepmother appears onscreen</strong>.
+
+<p>We chose You&apos;ve Got Mail not only because it&apos;s a favorite movie of ours, but because we knew it had a substantial following. It&apos;s one of those movies that seems to be on every weekend, but whose over saturation doesn&apos;t diminish its appeal. When you pair up Hanks, Ryan, and Ephron, you have charm that&apos;s impossible to resist, despite the fact that, tech-wise, it&apos;s almost comically dated. Like I said, it&apos;s a weekend afternoon movie&#x2014;something you watch on your couch alone or with one or two other friends. What we&apos;re so excited about is having people bring the fun they have during a more intimate viewing (the laughter, reciting of lines, singing along of Harry Nillson songs) to a larger scale.</p></blockquote> <p></p>
+
+<p>Plus, there will be prizes! Including <em>You&apos;ve Got Mail</em>-themed artwork, a themed gift package from Ephron herself, and the group even contacted local businesses&#x2014;some featured in the movie, others just New York icons&#x2014;and collected a number of other gifts to raffle off through that. No word on if there will be &quot;a bouquet of newly sharpened pencils,&quot; included in the raffle. Should you decide to <em>log in</em> and join the fun, here&apos;s an example of what you could win tonight:</p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="ygmstitch.jpeg" src="https://web.archive.org/web/20120215205638im_/http://gothamist.com/attachments/arts_jen/ygmstitch.jpeg" width="640" height="500" class="image-none"> </span><br>
+<span class="photo_caption">Created by <a href="https://web.archive.org/web/20120215205638/http://www.kellaroot.com/">Kelly Reeves</a></span></p>

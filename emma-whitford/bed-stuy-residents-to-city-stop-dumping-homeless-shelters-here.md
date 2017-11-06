@@ -1,0 +1,54 @@
+---
+author: Emma Whitford
+date: Aug 30, 2016 3:28 pm
+title: Bed-Stuy Residents To City: Stop 'Dumping' Homeless Shelters Here
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="083016_BedStuy.jpg" src="https://web.archive.org/web/20170620165359im_/http://gothamist.com/attachments/nyc_ewhitford/083016_BedStuy.jpg" width="640" height="400"> <br> <i> The proposed drop-in center site, on Bedford Avenue in Bed-Stuy. (Google Maps)</i></div> <p></p>
+
+<p>Bedford-Stuyvesant residents and business leaders are rallying against a proposed drop-in center for homeless adults on Bedford Avenue that they say will be a magnet for trouble. The new facility would be less than a block from an elementary school in a district that currently contains 13 shelters, and some argue that this latest proposal&#x2014;in a zip code that is three quarters African American&#x2014;is further evidence of the city&apos;s tendency to concentrate social services facilities in minority neighborhoods. </p>
+
+<p>&quot;Communities of color have always been a dump for homeless shelters,&quot; said Community Board 3 district manager Henry Butler on Tuesday. &quot;To me that&apos;s the racist politics of this shelter.&quot; </p>
+
+<p>The Department of Homeless Services pitched the drop-in center to a room packed with frustrated residents on Monday night. City presenters sought to distinguish the center from a shelter&#x2014;where homeless families and adults live&#x2014;saying it will be a combination drop-in center and &quot;safe haven,&quot; welcoming street-homeless adults in for a shower, a meal, medical care, and housing placement services. The average drop-in client is classified as chronically homeless, meaning he or she has been homeless for an average of seven years, often battling health issues or substance abuse. Yet, the center is also supposed to include overnight beds. The typical safe haven has between 30 and 50 beds&#x2014;some shelters have hundreds&#x2014;though the number for this facility has not been finalized.</p>
+
+<center><blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">Bed-Stuy Residents Oppose City Proposed Drop-in Center for Homeless near Shelter <a href="https://web.archive.org/web/20170620165359/https://t.co/7xik0Oc05S">https://t.co/7xik0Oc05S</a> <a href="https://web.archive.org/web/20170620165359/https://t.co/y32r2bS16z">pic.twitter.com/y32r2bS16z</a></p>&#x2014; Upper West Siders (@upperwestsiders) <a href="https://web.archive.org/web/20170620165359/https://twitter.com/upperwestsiders/status/770484775744376833">August 30, 2016</a></blockquote>
+<script async src="//web.archive.org/web/20170620165359js_/http://platform.twitter.com/widgets.js" charset="utf-8"></script></center>
+
+<p>Alethea Smalls, 46, a member of the advocacy group <a href="https://web.archive.org/web/20170620165359/http://picturethehomeless.org/">Picture the Homeless</a>, described drop-in centers as operating essentially like traditional shelters, and said they are not as helpful as they purport to be. &quot;No help with no kind of real affordable housing goes on in places like that,&quot; she said, citing infrequent showers, unhealthy food, and a lack of comfortable sleeping accommodations. &quot;It&apos;s just a place to warehouse the impoverished.&quot; </p>
+
+<p>According to the city, drop-in centers made 1,238 housing placements over fiscal years 2014 and 2015. </p>
+
+<p>As for the concerns of Bed-Stuy residents, Smalls said, &quot;Don&apos;t victimize the victim.&quot; </p>
+
+<p>The proposed facility would occupy 1217 Bedford Avenue, near the corner of Halsey Street. It would be operated by <a href="https://web.archive.org/web/20170620165359/http://www.breakingground.org/">Breaking Ground</a>, a nonprofit that holds the city&apos;s largest stock of <a href="https://web.archive.org/web/20170620165359/http://gothamist.com/2016/08/26/cuomo_supportive_housing.php">supportive housing</a>&#x2014;subsidized apartments meant to provide on-site healthcare for homeless New Yorkers with medical and psychiatric needs. </p>
+
+<p>Mayor de Blasio <a href="https://web.archive.org/web/20170620165359/http://www1.nyc.gov/office-of-the-mayor/news/039-16/de-blasio-administration-doubling-city-funded-drop-in-centers-bring-street-homeless-off-nyc">announced $8.5 million in funding</a> this January to double the number of drop-in centers city-wide from four to eight&#x2014;one of several reforms that came out of the city&apos;s <a href="https://web.archive.org/web/20170620165359/http://gothamist.com/2016/04/12/nyc_homeless_service_de_blasio.php">90-day shelter system review</a>. At the time, de Blasio described the facilities as a complement to his new <a href="https://web.archive.org/web/20170620165359/http://gothamist.com/2015/12/18/de_blasio_home_stat.php">Homeless Outreach and Mobile Engagement Street Action Teams (HOME-STAT) initiative</a>, which entails daily canvassing of street homeless populations. </p>
+
+<p>For Butler, the technical differences between a shelter and a drop-in center are irrelevant. &quot;It was pitched not as a shelter, which we think is BS,&quot; he said. For him and others, 1217 Bedford Avenue&apos;s proximity to PS 3 and the shopping corridor along Fulton Street is particularly problematic. </p>
+
+<p>&quot;Remember the <a href="https://web.archive.org/web/20170620165359/http://gothamist.com/2016/07/14/bed-stuy_k2_zombieland.php">whole K2 stuff that went down</a>?&quot; he said. &quot;Two blocks from that location is [Samaritan Village]. That opened a year-and-a-half ago and it&apos;s been a living hell for those residents. We&apos;ve had so many meetings about the men from those facilities harassing and touching women over there.&quot; That facility serves as a men&apos;s shelter and drug treatment center. </p>
+
+<p>Michael Lambert, director of the <a href="https://web.archive.org/web/20170620165359/http://bedstuybid.org/">Bed-Stuy Gateway BID</a>, said that local business owners are concerned that the shelter might reduce foot-traffic to the neighborhood. &quot;These locations tend to attract people living on the street from all parts of the area,&quot; he said. &quot;We&apos;ve had issues with aggressive panhandling and people sleeping on benches, and that will return to a normal pattern around here.&quot; </p>
+
+<p>A spokeswoman for Breaking Ground countered that safe havens, unlike shelters, don&apos;t require residents to leave the facility during the day. </p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="083016_BedStuy2.jpg" src="https://web.archive.org/web/20170620165359im_/http://gothamist.com/attachments/nyc_ewhitford/083016_BedStuy2.jpg" width="640" height="277"> <br> <i> Monday night&apos;s meeting with DHS in Bed-Stuy (<a href="https://web.archive.org/web/20170620165359/http://abc7ny.com/news/residents-fight-against-proposed-shelter-in-bedford-stuyvesant/1490464/">via Pix11</a>). </i></div> <p></p>
+
+<p>A neighborhood politician said Tuesday that the proposed center&apos;s proximity to a school is a deal-breaker, and emphasized that this is not yet another case of entitled people saying, &quot;not in my backyard.&quot;</p>
+
+<p>&quot;This is not a NIMBY conversation,&quot; local Councilman Robert Cornegy said. &quot;We have been, and remain to be, a very empathetic community to all of our residents, including the temporarily and chronically homeless. However when the conversation devolves to it being within a rock&apos;s throw of a prominent elementary school, that is non-negotiable.&quot; </p>
+
+<p>Citing <a href="https://web.archive.org/web/20170620165359/http://gothamist.com/2015/10/16/homeless_costs_nyc.php">reports</a> that sheltering a homeless individual is more expensive than <a href="https://web.archive.org/web/20170620165359/http://gothamist.com/2016/08/26/cuomo_supportive_housing.php">placing her in permanent housing</a>, Cornegy suggested that the drop-in services could be folded into existing shelters as the city focuses resources on getting housing built. &quot;We need good, permanent affordable housing,&quot; he said. &quot;We have enough temporary stopgaps already.&quot; </p>
+
+<p>Three and a half miles and a world away in the predominately white, isolated-from-transit neighborhood of Maspeth, Queens, residents have spent the last month <a href="https://web.archive.org/web/20170620165359/http://gothamist.com/2016/08/12/maspeth_shelter_debate.php">vehemently protesting</a> the conversion of a local hotel into a homeless shelter for families with adult children. Many of the <a href="https://web.archive.org/web/20170620165359/http://gothamist.com/2016/08/12/maspeth_shelter_debate.php">arguments</a> are similar&#x2014;concerns about an influx of uncouth outsiders, the proposed shelter&apos;s proximity to a park and school, and fear for the safety of local children. There are currently no homeless shelters within Maspeth&apos;s Community Board 5, but locals say the <a href="https://web.archive.org/web/20170620165359/http://go.redirectingat.com/?id=50913X1248263&amp;site=gothamist.com&amp;xs=1&amp;isjs=1&amp;url=http%3A%2F%2Fwww.nytimes.com%2F2014%2F07%2F26%2Fnyregion%2Fhomeless-shelters-opening-in-queens-stirs-ugly-exchanges.html%3F_r%3D0&amp;xguid=14733c6dea481944c590e16ed2613468&amp;xuuid=d2d5176f4a859623ac0587295e2ba543&amp;xsessid=4570191fa689c239d268eb62e0a1a460&amp;xcreo=0&amp;xed=0&amp;sref=http%3A%2F%2Fgothamist.com%2F2016%2F08%2F12%2Fmaspeth_shelter_debate.php&amp;pref=http%3A%2F%2Fr.search.yahoo.com%2F_ylt%3DA0LEVrgqp8VXJKwA3JknnIlQ%3B_ylu%3DX3oDMTBybGY3bmpvBGNvbG8DYmYxBHBvcwMyBHZ0aWQDBHNlYwNzcg--%2FRV%3D2%2FRE%3D1472599979%2FRO%3D10%2FRU%3Dhttp%253a%252f%252fgothamist.com%252f2016%252f08%252f12%252fmaspeth_shelter_debate.php%2FRK%3D0%2FRS%3Dva9F5khw3h5IHRO6_OQVMkFPgt0-&amp;xtz=240">Pan American shelter</a> in neighboring Elmhurst is too close for comfort. </p>
+
+<p>In Bed-Stuy on Monday night, DHS made the case that the city is trying to more evenly distribute its homeless services, pointing to its efforts in Maspeth. Butler was unimpressed. </p>
+
+<p>&quot;You can&apos;t say it&apos;s fair when they are getting their first one and we have 13,&quot; he said. &quot;Come back to me when they have at least 9 or 10. Come back when every community board in the city has at least one.&quot; </p>
+
+<p>DHS spokeswoman Lauren Grey said on Tuesday that agency officials have yet to make a final decision on the Bed-Stuy drop-in center location. &quot;This site is currently being vetted by the administration and no decision has been made regarding this site,&quot; she said. </p>					
+										
+									
+				

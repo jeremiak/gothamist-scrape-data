@@ -1,0 +1,35 @@
+---
+author: Emma Whitford
+date: Dec 7, 2016 10:30 am
+title: Republican Congress Proposes Covering 20% Of NYC's Costs For Trump Tower Security
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="120716_BDB.jpg" src="https://web.archive.org/web/20170509035822im_/http://gothamist.com/attachments/nyc_ewhitford/120716_BDB.jpg" width="640" height="427"> <br> <i> Mayor de Blasio announcing his $35 million ask earlier this week (via Mayor&apos;s Flickr). </i></div> <p></p>
+
+<p>Two days after Mayor de Blasio <a href="https://web.archive.org/web/20170509035822/https://twitter.com/NoahHurowitz/status/805793545986707458">formally asked</a> President Obama and Congress for up to $35 million in federal restitution for security outside <a href="https://web.archive.org/web/20170509035822/http://gothamist.com/2016/11/18/trump_tower_forget_it.php">traffic-snarled</a> <a href="https://web.archive.org/web/20170509035822/http://gothamist.com/2016/12/05/they_have_the_best_weather.php">White House North</a>, Congressional Republicans indicated that they are interested in fronting only a small percentage of the City&apos;s ask. A stopgap federal spending bill introduced Tuesday night <a href="https://web.archive.org/web/20170509035822/http://thehill.com/policy/finance/appropriations/309145-funding-bill-gives-new-york-7-million-for-protecting-trump">includes $7 million</a> for overtime incurred by state and local law enforcement protecting President-elect Trump between the November 8th election and January 20th inauguration.</p>
+
+<p>&quot;New York City taxpayers should not be on the hook for 80 percent of the national bill to protect our President-elect and his family&apos;s residence,&quot; the mayor said in a statement Wednesday. &quot;We are counting on Congress to step up in the coming months to pay back what it owes our city. This is a national responsibility and the burden cannot fall alone on our city and police department.&quot;</p>
+
+<p>Earlier this week Mayor de Blasio <a href="https://web.archive.org/web/20170509035822/http://www1.nyc.gov/office-of-the-mayor/news/924-16/transcript-mayor-de-blasio-commissioner-o-neill-november-crime-statistics/#/0">told reporters</a> that he has also been in touch with the incoming administration about reimbursement for the NYPD&apos;s Secret Service assistance; that he had a &quot;good conversation&quot; with incoming Treasury Secretary Steve Mnuchin. However, &quot;This is the time now to really lean in to nailing down the reimbursement, particularly for the period up to January 20.&quot; </p>
+
+<p>The cost of protecting Trump, a <a href="https://web.archive.org/web/20170509035822/http://www.huffingtonpost.com/entry/trump-luxury-jet_us_57e6bc0ee4b08d73b8319f15">known homebody</a>, has been estimated at about <a href="https://web.archive.org/web/20170509035822/http://gothamist.com/2016/12/02/trump_security_costs_nyc.php">$1 million a day</a> (though Mayor de Blasio&apos;s $35 million ask comes to $500,000 per day). And while the mayor has been hesitant to speculate about how much time Trump might spend in his gilded Fifth Avenue suites after inauguration day, a <a href="https://web.archive.org/web/20170509035822/https://www.change.org/p/federal-government-not-nyc-must-cover-trump-tower-security-costs">petition</a> circulated by members of the City Council points out that Melania Trump&apos;s decision to stay in Trump Tower while Barron Trump finishes school will come at no small cost. City Council Speaker Melissa Mark-Viverito and Council Member Dan Garodnick have called on Trump to use federal funds to cover his security detail, citing a potential NYC taxpayer burden of more than $1 billion over the next four years. </p>
+
+<p>The speaker called Congress&apos;s proposal &quot;outrageous&quot; on Wednesday. &quot;New York City cannot single handedly shoulder the staggering cost of protecting the President-elect and his family,&quot; Mark-Viverito said in a statement, adding, &quot;The President-elect and Congress must commit to repaying NYPD, the taxpayers, and our City. We will not accept anything else.&#x201D; </p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="120716nypdtower.jpg" src="https://web.archive.org/web/20170509035822im_/http://gothamist.com/attachments/nyc_arts_john/120716nypdtower.jpg" width="640" height="428"> <br> <i> (Getty)</i></div> <p></p>
+
+<p><a href="https://web.archive.org/web/20170509035822/http://thehill.com/policy/finance/appropriations/309145-funding-bill-gives-new-york-7-million-for-protecting-trump">The Hill reports</a> that because the GOP&apos;s new spending bill doesn&apos;t specify New York, the proposed $7 million could also be applied to security during Trump&apos;s thank-you tours and rallies ahead of inauguration day. </p>
+
+<p>New York Democratic Congresswoman Carolyn Maloney said she would challenge the bill. &quot;I am extremely disappointed that the Continuing Resolution to fund the federal government does not fully reimburse the people of New York for the unprecedented security costs,&quot; she <a href="https://web.archive.org/web/20170509035822/http://newyork.cbslocal.com/2016/12/07/trump-security-tab-new-york/">said</a>. </p>
+
+<p>NYPD Deputy Commissioner John Miller has also been explicit about the need for reimbursement. This week, he traveled to Washington for a press conference with six Congressional Democrats representing New York who <a href="https://web.archive.org/web/20170509035822/http://nypost.com/2016/12/06/nyc-lawmakers-demand-trump-move-or-foot-the-security-bill/">are urging</a> President elect Trump to move out of Trump Tower after his inauguration. </p>
+
+<p>&quot;There&apos;s no implied message here that if we don&apos;t get this [$35 million] we&#x2019;re going to do any less security than is required,&#x201D; Miller told reporters. &quot;But it&#x2019;s about doing the right thing for the City of New York and its police department.&quot; </p>
+
+<p>During a <a href="https://web.archive.org/web/20170509035822/http://gothamist.com/2016/11/18/trump_tower_forget_it.php">November NYPD press conference</a> outlining &apos;unprecedented&apos; security measures around Trump Tower, Mayor de Blasio said he was confident the feds would help cover the cost of protecting the President elect, including overtime for NYPD officers. &quot;We know for a fact, whether it was protecting foreign leaders or the President, there has been reimbursement [in the past],&quot; he said. However, &quot;This [task] makes all of those seem quite small.&quot; </p>
+
+<p>&quot;The NYPD is carrying a burden for the entire nation,&quot; he added. </p>					
+										
+									
+				

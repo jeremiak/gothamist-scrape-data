@@ -1,0 +1,13 @@
+---
+author: Jen Carlson
+date: October 26, 2010  1:41 PM
+title: Man Dragged By Cab Blames Racial Profiling
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="cabdragged1010.jpg" src="https://web.archive.org/web/20110624103202im_/http://gothamist.com/attachments/arts_jen/cabdragged1010.jpg" width="640" height="286" class="image-none"> </span></p>
+
+<p>This weekend <a href="https://web.archive.org/web/20110624103202/http://gothamist.com/2010/10/24/man_dragged_by_taxi_who_refused_to.php">we talked to Jerrell Horton</a> about his harrowing cab experience that occurred on Saturday night, when he was hopping into a cab in Manhattan&#x2014;and like many before him&#x2014;was met with a driver who did not like his destination of Brooklyn. Except <em>unlike</em> many before him, he was then <em>dragged</em> down the street by the driver. He sent the above photos and told us, &quot;It was insane. He stopped, and when I told him my destination he took off while I was dragging from the door... He knew he was dragging me. I was injured.&quot;</p>
+
+<p>Well, now <a href="https://web.archive.org/web/20110624103202/http://www.nydailynews.com/ny_local/2010/10/25/2010-10-25_man_says_cab_dragged_him_through_streets_for_asking_to_go_to_brooklyn_in_racial_.html">the Daily News</a> has picked up the story, and the 23-year-old Horton tells them he believes &quot;this is racial profiling and it&apos;s sickening. It&apos;s ridiculous trying to find a cab that will take you where you want to go if you&apos;re a black man. I am the first person in my family to go to college, I have accomplished things. All they see is a black man, a potential hoodlum. It&apos;s very disheartening. I&apos;m a black guy yes, but I have a job, I have a college degree, I live in a nice area in Bushwick.&quot; At this time it&apos;s unknown who the driver is, but Horton says he thinks he was Middle Eastern.</p>
+
+<p>As we noted over the weekend, the Taxicab Rider Bill of Rights states that riders have the right to be taken to &quot;any destination in NYC, Westchester, Nassau, or Newark Airport.&quot; However, as <a href="https://web.archive.org/web/20110624103202/http://gothamist.com/2010/10/17/brooklyn_bridge_construction_causin.php">we also noted</a>, <em>everyone</em> is having a problem getting a lift to Brooklyn these days, so this may just be a case of borough profiling.</p>

@@ -1,0 +1,19 @@
+---
+author: Jen Carlson
+date: April 10, 2012  2:20 PM
+title: Live From New York: It's Jack Kerouac Talking About What A Beat Is (And Isn't) In 1958
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="smbigkerouacrading.jpg" src="https://web.archive.org/web/20120411214543im_/http://gothamist.com/attachments/arts_jen/smbigkerouacrading.jpg" width="350" height="242" class="image-left"> </span>There are few greater things in life than listening to a recording of <a href="https://web.archive.org/web/20120411214543/http://gothamist.com/tags/jackkerouac">Jack Kerouac</a> speak. Today WNYC posted this old archival audio on <a href="https://web.archive.org/web/20120411214543/https://www.facebook.com/photo.php?fbid=10150619968011080&amp;set=p.10150619968011080&amp;type=1&amp;theater">their Facebook</a>, a just under 7-minute speech Kerouac gave at New York&apos;s Hunter College Playhouse (sponsored by Brandeis University) in 1958, which <a href="https://web.archive.org/web/20120411214543/http://www.wnyc.org/shows/fromthearchives/2007/jan/01/">the station notes</a> &quot;would turn out to be a major cultural event for the under-30 crowd of the day.&quot; He was making a rare public appearance to debate on the Beat generation. Other panelists included James A. Wechsler of the NY Post, Princeton anthropologist Ashley Montagu, and author Kingsley Amis. </p>
+
+<p>There are no known transcripts of the event, but Kerouac later wrote the following based on his notes: </p>
+
+<blockquote>Much of the misunderstanding about hipsters and the Beat Generation in general today derives from the fact that there are two distinct styles of hipsterism: the cool today is your bearded laconic sage, or schlerm, before a hardly touched beer in a beatnik dive, whose speech is low and unfriendly, whose girls say nothing and wear black. The &quot;hot&quot; today is the crazy talkative shining eyed (often innocent and openhearted) nut who runs from bar to  bar, pad to pad, looking for everybody, shouting, restless, lushy, trying to &quot;make it&quot; with the subterranean  beatniks who ignore him. Most Beat Generation artists belong to the hot school, naturally since that hard gemlike flame needs a little heat. In many cases the mixture s 50-50. It was a hot hipster like myself who finally cooled it in Buddhist meditation, though when I go in a jazz joint I still feel like yelling, Blow baby blow! to the musicians though nowadays I&apos;d get 86&apos;d for this.</blockquote> 
+
+<p>You can, and should, <a href="https://web.archive.org/web/20120411214543/http://books.google.com/books?id=0M1CLgpyoNEC&amp;pg=PA210&amp;lpg=PA210&amp;dq=hunter+college+jack+kerouac+transcript&amp;source=bl&amp;ots=MrJYBz_ekP&amp;sig=w2JdgjZKhYp0wWJq9SMUy9JJQMo&amp;hl=en&amp;sa=X&amp;ei=q2-ET__0PIL30gHhnrnJBw&amp;ved=0CCgQ6AEwADgK#v=onepage&amp;q=hunter%20college%20jack%20kerouac%20transcript&amp;f=false">read the rest here</a>, and in this below excerpt from WNYC&apos;s broadcast of the debate, Kerouac reads from this essay. NY Post writer Wechsler and Kerouac didn&apos;t seem to vibe though, man, and you can check out more of their banter <a href="https://web.archive.org/web/20120411214543/http://www.writing.upenn.edu/~afilreis/50s/wechsler-unthink.html">here</a>; Wechsler told Kerouac: &quot;Life is complicated enough without trying to make it a poem.&quot;</p>
+
+<center><iframe width="474" height="54" frameborder="0" src="https://web.archive.org/web/20120411214543if_/http://www.wnyc.org/widgets/ondemand_player/#file=%2Faudio%2Fxspf%2F44464%2F;containerClass=wnyc"></iframe></center>
+
+<p>While we&apos;re here, why not revisit Kerouac&apos;s appearance on the Steve Allen show a year after this debate:</p>
+
+<p><iframe width="640" height="480" src="https://web.archive.org/web/20120411214543if_/http://www.youtube.com/embed/QzCF6hgEfto" frameborder="0" allowfullscreen></iframe></p>

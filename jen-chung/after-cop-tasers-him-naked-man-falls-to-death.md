@@ -1,0 +1,21 @@
+---
+author: Jen Chung
+date: Sep 25, 2008 9:00 am
+title: After Cop Tasers Him, Naked Man Falls to Death
+---
+
+	
+										<p><img alt="2008_09_taser2.jpg" src="https://web.archive.org/web/20170424125934im_/http://gothamist.com/attachments/jen/2008_09_taser2.jpg" width="240" height="180" class="right">A naked man standing on a fire escape and, later, a storefont, fell to his death after a police officer stunned him with a Taser.  Based on video (below) and witness reports, Iman Morales, 35, was wielding a fluorescent light bulbs at cops who tried to get close.  </p>
+
+<p><a href="https://web.archive.org/web/20170424125934/http://www.nypost.com/seven/09252008/news/regionalnews/cops_in_nude_taser_slay_130670.htm">According to the Post</a>, Morales was yelling from the fire escape at 491 Tompkins Avenue in Bedford-Stuyvesant.  When police asked him to come down, he &quot;climbed down to a ledge above a metal roll-down storefront cover&quot; and starting waving the long light bulb. The <a href="https://web.archive.org/web/20170424125934/http://www.nydailynews.com/news/ny_crime/2008/09/24/2008-09-24_naked_man_falls_to_his_death_after_taser-1.html">Daily News reports a witness</a> as saying, &quot;When the police came, he was screaming, &apos;You&apos;re gonna kill me and I&apos;m gonna take everyone with me. I&apos;m gonna die and you&apos;re gonna die with me.&apos;&quot; </p>
+
+<p>After he continued to ignore the police order, one officer fired his stun gun, apparently per orders from his boss.  <a href="https://web.archive.org/web/20170424125934/http://www.wnbc.com/news/17550915/detail.html?dl=mainclick">WNBC reports</a> a witness saw Morales freeze and fall &quot;on his head on the sidewalk.&quot;  Another witness told the NY Times, &quot;It was a dead man&apos;s fall.&quot;  The Post also has a <a href="https://web.archive.org/web/20170424125934/http://www.nypost.com/seven/09252008/news/regionalnews/cops_in_nude_taser_slay_130670.htm">distressing gallery of images</a> showing Morales outside the building, being Tasered, falling and on the ground.  </p>
+
+<center><object width="480" height="385"><param name="movie" value="http://www.youtube.com/v/Sg5RVq4m8xg&amp;hl=en&amp;fs=1"><param name="allowFullScreen" value="true"><param name="allowscriptaccess" value="always"><embed src="https://web.archive.org/web/20170424125934oe_/http://www.youtube.com/v/Sg5RVq4m8xg&amp;hl=en&amp;fs=1" type="application/x-shockwave-flash" allowscriptaccess="always" allowfullscreen="true" width="480" height="385"></object></center>
+
+<p>Morales was taken to Kings County Hospital, where he later died.  He had rented an apartment on the third floor of the building.  His mother had called 911, finding him &quot;out of control&quot; (she believed he stopped taking his medication).  When police went to his apartment, the Daily News reports he &quot;crept nude onto the fire escape and tried to enter a neighbor&apos;s fourth-floor window when police forced their way into his apartment.&quot;  That neighbor said, &quot;He tried to get into my window. He banged. He said, &apos;Let me in! Let me in!&apos;<strong> But no way I&apos;m letting a naked man into my apartment.</strong>&quot;  Another witness said that his mother had been yelling, &quot;No! No! Don&apos;t hurt him!  He&apos;s sick.&quot;</p>
+
+<p>The NYPD is investigating the incident; this past summer, the NYPD <a href="https://web.archive.org/web/20170424125934/http://gothamist.com/2008/06/08/nypd_looks_to_t_1.php">started to arm police officers with Tasers</a>, as a way to avoid shootings. The Times notes, &quot;Community activists held a news conference after Mr. Morales&#x2019;s death, urging neighbors not to prejudge the police and urging the authorities to fully investigate.&quot; However, City Councilman Peter Vallone did say, &#x201C;<strong>My first take is that while I&#x2019;m sure there are no experts out there on how to handle a crazy naked man with a weapon on top of a ledge, I&#x2019;m also sure this wasn&#x2019;t the right way</strong>.&quot;  </p>					
+										
+									
+				

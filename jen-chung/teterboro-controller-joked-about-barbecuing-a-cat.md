@@ -1,0 +1,11 @@
+---
+author: Jen Chung
+date: Aug 20, 2009 9:27 am
+title: Teterboro Controller Joked About Barbecuing A Cat
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2009_08_hud51.jpg" src="https://web.archive.org/web/20150508001123im_/http://gothamist.com/attachments/jen/2009_08_hud51.jpg" width="140" height="117" class="image-right"> </span>The AP got hold of transcripts of Teterboro Airport&apos;s air traffic controller conversations on August 8&#x2014;the day a <a href="https://web.archive.org/web/20150508001123/http://gothamist.com/2009/08/08/helicopter_and_plane_plunge_into_hu.php">small plane and sightseeing helicopter collided over the Hudson River</a>&#x2014;and found the controller in charge of guiding the small plane was joking was about barbecuing a cat. Before the small plane had taken off, the controller had called a woman in the airport&apos;s operations center about a dead cat that needed to be removed from the runway.  The <a href="https://web.archive.org/web/20150508001123/http://www.nydailynews.com/ny_local/2009/08/19/2009-08-19_transcript_shows_teterboro_airport_controller_joked_about_cooking_cat_just_befor.html">Daily News reports</a>, &quot;Two minutes after the [small plane], the controller called the woman back,&quot; saying, &quot;<strong>We got plenty of gas in the grill? Fire up the cat</strong>.&quot; The woman replied, &quot;Ooh, disgusting ... that thing was disgusting.&quot; The pair bantered about the cat some more &quot;while the controller directed traffic. <strong>Seconds before the accident, the controller said, &apos;Damn&apos; - and ended the call.</strong>&quot; The National Transportation Safety Board has said radar data showed many aircraft in the small plane&apos;s path, but the<a href="https://web.archive.org/web/20150508001123/http://gothamist.com/2009/08/16/ntsb_controllers_union_offer_differ.php"> controller never alerted the plane&apos;s pilot</a>, a claim the National Air Traffic Controllers Association disputes. The FAA, which suspended the controller and his supervisor, has said the conversation <a href="https://web.archive.org/web/20150508001123/http://gothamist.com/2009/08/14/video_shows_collision_over_hudson_r.php">was inappropriate</a> but probably did not cause the crash that left nine dead.</p>					
+										
+									
+				

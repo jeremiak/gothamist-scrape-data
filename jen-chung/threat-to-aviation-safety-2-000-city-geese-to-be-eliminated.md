@@ -1,0 +1,17 @@
+---
+author: Jen Chung
+date: Jun 12, 2009 5:48 pm
+title: "Threat To Aviation Safety": 2,000 City Geese To Be Eliminated
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="2009_06_geese.jpg" src="https://web.archive.org/web/20160529125543im_/http://gothamist.com/attachments/jen/2009_06_geese.jpg" width="640" height="471"> <br> <i>Photograph of geese in Gantry Park by <a href="https://web.archive.org/web/20160529125543/http://www.flickr.com/photos/themikebot/507058037/">themikebot on Flickr</a></i></div> <p></p>
+
+<p>In other <a href="https://web.archive.org/web/20160529125543/http://gothamist.com/2009/01/15/plane_crash_in_hudson.php">Flight 1549</a> news, the city and Port Authority are embarking on a plan to <a href="https://web.archive.org/web/20160529125543/http://www.nydailynews.com/ny_local/2009/06/11/2009-06-11_their_goose_is_cooked_city_to_kill_at_least_2000_geese_near_laguardia_jfk_in_bir.html">kill at least 2,000 pesky Canada geese living within 5 miles of airports</a>. Mayor Bloomberg said, &quot;The serious dangers that Canada geese pose to aviation became all too clear when geese struck US Airways Flight 1549. <strong>The incident served as a catalyst to strengthen our efforts in removing geese from - and discouraging them from nesting on - city property near our runways</strong>.&quot;</p>
+
+<p>The <a href="https://web.archive.org/web/20160529125543/http://www.nytimes.com/2009/06/12/nyregion/12geese.html">NY Times explains the first phase</a> of Operation: Goose Be Gone starts &quot;next week, during the goose molting season, when the birds shed old wing feathers and are less mobile, and continue until the end of July. The immediate culling effort &#x2014; in which the birds will be euthanized &#x2014; will cost as much as $100,000...The 40 parks in Brooklyn, Queens, Manhattan and the Bronx will include Fort Totten and Flushing Meadows-Corona; culling will also take place at city properties like wastewater-treatment plants.&quot;  Deputy Mayor Ed Sklyer said, &#x201C;Clearly, geese are a threat to aviation safety, and we can&#x2019;t count on miracles.&quot;</p>
+
+<p>Other measures <a href="https://web.archive.org/web/20160529125543/http://www.nypost.com/seven/06122009/news/regionalnews/goose_is_cooked_in_new_airport_bird_blit_173917.htm">reported by the Post</a> (which can now claim victory in <a href="https://web.archive.org/web/20160529125543/http://gothamist.com/2009/01/17/post_calls_fowl_on_canada_geese.php">its war against the birds</a>) include: &quot;Training airport supervisors as certified shotgun instructors, so they can shoot birds in &apos;emergency&quot; situations,&apos;&quot; &quot;Enhancing a falconry program, which involves training birds of prey to scare off the geese or attack them,&quot;  and &quot;Installing a new bird radar pilot program at JFK.&quot;  Another interesting fact: The Flight 1549 was a US Airways Airbus 320, whose engines can &quot;withstand a strike of up to seven birds weighing 1.5 pounds without shutting down, or one 4-pound bird without catching fire or breaking apart.&quot;  But the geese that hit Flight 1549 were about 8 pounds each.</p>					
+										
+									
+				

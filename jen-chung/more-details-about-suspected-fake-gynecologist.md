@@ -1,0 +1,11 @@
+---
+author: Jen Chung
+date: June 17, 2008  4:45 PM
+title: More Details About Suspected Fake Gynecologist
+---
+
+<p><img alt="2008_06_speculum.jpg" src="https://web.archive.org/web/20110521105230im_/http://gothamist.com/attachments/jen/2008_06_speculum.jpg" width="218" height="209" class="left">The man accused of <a href="https://web.archive.org/web/20110521105230/http://gothamist.com/2008/06/13/suspected_fake_gynecologist_arreste.php">pretending to be a Park Avenue gynecologist</a> apparently had an accomplice.  The <a href="https://web.archive.org/web/20110521105230/http://www.nydailynews.com/news/ny_crime/2008/06/16/2008-06-16_rockland_cop_tied_to_fake_gynecologist.html">Daily News reports</a> that, according to sources, Monsey resident Zalman Silber &quot;tricked one woman into undergoing a pelvic exam by saying his friend, the Rockland County police officer, was a doctor who made house calls.&quot;  Sources also say the cop ended up conducting the exam in Silber&apos;s house--with Silber watching.</p>
+
+<p>Prosecutors have charged Silber with third-degree sexual abuse and impersonating a doctor, after two victims from 2003 and 2004 picked him from a line-up.  A source said the victims were tricked into thinking they were participating in an insurance company survey, &quot;They knew something was wrong because you don&apos;t pinch nipples in exams like that.&quot;  Silber also allegedly had the women &quot;<a href="https://web.archive.org/web/20110521105230/http://abclocal.go.com/wabc/story?section=news/local&amp;id=6204690">turn on their sides for a rectal exam.</a>&quot;</p>
+
+<p><a href="https://web.archive.org/web/20110521105230/http://lohud.com/apps/pbcs.dll/article?AID=/20080614/NEWS03/806140348/-1/newsfront">According to the Journal News</a>, Silber&apos;s lawyer says his client is innocent--&quot;Mr. Silber is a prominent businessman who is involved in numerous philanthropic causes&quot;--and claims the statute of limitations has run out on some of the incidents (some other women claim they were assaulted by Silber). </p>

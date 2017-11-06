@@ -1,0 +1,11 @@
+---
+author: Jen Carlson
+date: January 12, 2010  4:00 PM
+title: Conan Says No To New Late Night Lineup
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="weloveconan0110.jpg" src="https://web.archive.org/web/20110628042210im_/http://gothamist.com/attachments/arts_jen/weloveconan0110.jpg" width="323" height="250" class="image-right"> </span>Following his assault on NBC for their recent decisions during <a href="https://web.archive.org/web/20110628042210/http://gothamist.com/2010/01/12/whoops_conans_lawyers_never_specifi.php">his monologue</a> last night, <a href="https://web.archive.org/web/20110628042210/http://gothamist.com/tags/conanobrien">Conan O&apos;Brien</a> has <a href="https://web.archive.org/web/20110628042210/http://mediadecoder.blogs.nytimes.com/2010/01/12/conan-obrien-says-he-wont-do-tonight-show-following-leno/">announced</a> that he will <em>not</em> host <em>The Tonight Show</em> if it is moved to follow Jay Leno at 12:05 a.m. </p>
+
+<p>He released a statement this afternoon (read it in full after the jump), making points that the move would be unfair to Jimmy Fallon, that NBC is tarnishing a 60-year-old tradition of <em>the Tonight Show</em> running at 11:35 p.m. and, finally, stating: &quot;I cannot participate in what I honestly believe is [<em>the Tonight Show</em>&apos;s] destruction. Some people will make the argument that with DVRs and the Internet a time slot doesn&#x2019;t matter. But with <em>the Tonight Show</em>, I believe nothing could matter more.&quot;</p>
+
+<p>He says he has not made any decisions about moving to another network (though <a href="https://web.archive.org/web/20110628042210/http://www.youtube.com/watch?v=piujKXn0XlU">he has mentioned</a> that he&apos;d like to drink cheap red wine in Spain and write things for Mr. Burns to say), and has &quot;no other offer&quot; right now &#x2014;&#xA0;which makes this bold and classy move even more applaudable &#x2014;&#xA0;as he&apos;s turning his back on $45 million. Your move, NBC.</p>

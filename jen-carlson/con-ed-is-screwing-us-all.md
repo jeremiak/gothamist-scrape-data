@@ -1,0 +1,12 @@
+---
+author: Jen Carlson
+date: January 29, 2010 10:42 AM
+title: Con Ed Is Screwing Us All
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:350px; "> <img alt="conedman0110.jpg" src="https://web.archive.org/web/20130616141527im_/http://gothamist.com/attachments/arts_jen/conedman0110.jpg" width="350" height="231"> <br> <i><span class="photo_caption">Photo via <a href="https://web.archive.org/web/20130616141527/http://www.flickr.com/photos/tobyleah/180361457/">tobyleah&apos;s flickr</a></span></i></div> <em>Shocking.</em> Con Ed reportedly charges the highest residential rates of any major utility in the 48 contiguous states. The only people who pay more live in Alaska, Hawaii, Fishers and Block Islands. <p></p>
+
+<p>The federal numbers released yesterday were from 2008, and <a href="https://web.archive.org/web/20130616141527/http://www.nypost.com/p/news/local/con_ed_wallet_shock_T6Xs8Frt0NF3I6l6qhsD9H">the NY Post</a> reports that the company charges an average 24.18 cents per kilowatt hour, something they dub <br>
+&quot;sky high rates&quot; when other areas pay and average of 11.26 cents per kilowatt hour. A rep for the company said, &quot;Many costs are higher in New York than in other parts of the country.&quot; Well, that&apos;s true, but... <em>why?</em></p>
+
+<p>Con Ed is pointing the finger at high state and local taxes, and management of the state&apos;s electric grid. While the state Public Service Commission did promise lower rates ten years ago, after it deregulated electricity, the utility&apos;s prices have only increased since&#x2014;meaning New Yorkers have never paid less than half of the national average. And don&apos;t expect any relief soon&#x2014;in November last year <a href="https://web.archive.org/web/20130616141527/http://gothamist.com/2009/11/11/con_ed_wants_to_hike_gas_prices.php">it was reported</a> that the Public Service Commission approved a 2010 Con Ed rate hike (resulting in a $6/month increase for residential bills) <em>and</em> they want more rate hikes in 2011 and 2012 to help with their rising costs. Okay then... we saw <a href="https://web.archive.org/web/20130616141527/http://gothamist.com/2010/01/21/new_trend_freezing_in_your_own_apar.php">a recent Times trend piece</a> on going without heat, up next: living by candlelight?</p>

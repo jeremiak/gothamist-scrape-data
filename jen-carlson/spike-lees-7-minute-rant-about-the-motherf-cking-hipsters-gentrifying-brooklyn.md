@@ -1,0 +1,29 @@
+---
+author: Jen Carlson
+date: Feb 26, 2014 7:50 am
+title: Spike Lee's 7-Minute Rant About The 'Motherf*cking Hipsters' Gentrifying Brooklyn
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="spikelee14.jpg" src="https://web.archive.org/web/20150511170730im_/http://gothamist.com/attachments/arts_jen/spikelee14.jpg" width="640" height="403" class="image-none"> </span><br>
+<span class="photo_caption">(Getty)</span></p>
+
+<p>At an event <a href="https://web.archive.org/web/20150511170730/https://www.pratt.edu/news/view/famed_brooklyn_raised_filmmaker_spike_lee_to_speak_at_pratt_on_february_25/">at Pratt last night</a>, Spike Lee was asked about something he&apos;s been <a href="https://web.archive.org/web/20150511170730/http://gothamist.com/2012/07/09/spike_lee_talks_gentrification_what.php">consistently passionate about</a>: Gentrification. Specifically the gentrification of Brooklyn, where he was raised. In 2010 <a href="https://web.archive.org/web/20150511170730/http://gothamist.com/2010/07/06/spike_lee_interview.php">we asked him about this</a>, and here&apos;s how <em>that</em> went:</p>
+
+<blockquote><strong>Were you still living there when the neighborhood began transitioning into what it is now?When did you start noticing it changing?</strong> You know, you have to do your homework. You do your homework and you find out the specific year when gentrification took place.<br><br>
+<strong>I&apos;m asking if you witnessed that gentrification.</strong> I can&apos;t give you an exact date.<br><br>
+<strong>Okay, but what was your own experience of it?</strong> [No response.]</blockquote>
+
+<p>This time around he had more to say, about seven minutes worth according to NY Mag&#x2014;<a href="https://web.archive.org/web/20150511170730/http://nymag.com/daily/intelligencer/2014/02/spike-lee-amazing-rant-against-gentrification.html">they transcribed the entire thing</a>. They report back that he railed against the hipsters taking over Brooklyn&#x2014;sorry, that&apos;s &quot;motherfucking hipsters&quot;&#x2014;when asked about the &quot;other side&quot; of the gentrification debate (&quot;there was some bullshit article in the <a href="https://web.archive.org/web/20150511170730/http://www.nytimes.com/2014/02/23/realestate/the-case-for-and-against-a-bed-stuy-historic-district.html?_r=1">New York Times</a> saying &#x2018;the good of gentrification&apos;&quot;). Here are some bullet points from his talk, as well as the audio, captured by NY Mag:</p>
+
+<p><iframe width="100%" height="166" scrolling="no" frameborder="no" src="https://web.archive.org/web/20150511170730if_/https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/136785029&amp;color=ff5500"></iframe></p>
+
+<ul><li>&quot;Why does it take an influx of white New Yorkers <a href="https://web.archive.org/web/20150511170730/http://gothamist.com/2013/11/22/ask_a_native_new_yorker_will_the_so.php">in the South Bronx</a>, in Harlem, in Bed Stuy, in Crown Heights for the facilities to get better? Why did it take this great influx of white people to get the schools better? The garbage wasn&#x2019;t picked up every motherfuckin&#x2019; day when I was living in 165 Washington Park... The police weren&#x2019;t around... When you see white mothers pushing their babies in strollers, three o&#x2019;clock in the morning on 125th Street, that must tell you something.&quot;
+</li><li>&quot;Then comes the motherfuckin&#x2019; Christopher Columbus Syndrome. You can&#x2019;t discover this! We been here. You just can&#x2019;t come and bogart. You can&#x2019;t just come in the neighborhood and start bogarting and say, like you&#x2019;re motherfuckin&#x2019; Columbus and kill off the Native Americans. Or what they do in Brazil, what they did to the indigenous people. You have to come with respect. There&#x2019;s a code. There&#x2019;s people. I&#x2019;m for democracy and letting everybody live but you gotta have some respect. You can&#x2019;t just come in when people have a culture that&#x2019;s been laid down for generations and you come in and now shit gotta change because you&#x2019;re here?&quot;
+</li><li>&quot;When Michael Jackson died they wanted to have a party for him in motherfuckin&#x2019; Fort Greene Park and all of a sudden the white people in Fort Greene said, &apos;Wait a minute! We can&#x2019;t have black people having a party for Michael Jackson to celebrate his life. Who&#x2019;s coming to the neighborhood? They&#x2019;re gonna leave lots of garbage.&apos; Garbage? Have you seen Fort Greene Park in the morning? It&#x2019;s like the motherfuckin&#x2019; Westminster Dog Show. There&#x2019;s 20,000 dogs running around.&quot;
+</li><li>[After discussing people not being able to afford Williamsburg anymore...] &quot;These real estate motherfuckers are changing names! Stuyvestant Heights? [SpaHa] What the fuck is that? What do they call Bushwick now? How you changin&#x2019; names?&quot;</li></ul>
+
+<p>Well, as Native New Yorker Jake Dobkin <a href="https://web.archive.org/web/20150511170730/http://gothamist.com/2013/09/23/ask_a_native_new_yorker_how_guilty.php">once penned</a>, &quot;If it&apos;s any consolation, like Autumn following Summer, degentrification (&apos;urban decay&apos;) is the inevitable second stroke of the urban cycle. Some neighborhoods, like Fort Greene, have been gentrified, degentrified, and regentrified, and will be again at some point in the future. It may take 25 or 50 years, but wait long enough and you too may get to experience falling rents and street crime!&quot;</p>					
+										
+									
+				

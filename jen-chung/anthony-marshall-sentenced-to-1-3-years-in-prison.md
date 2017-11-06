@@ -1,0 +1,13 @@
+---
+author: Jen Chung
+date: December 21, 2009  1:24 PM
+title: Anthony Marshall Sentenced To 1-3 Years In Prison
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="2009_12_antmarsh.jpg" src="https://web.archive.org/web/20110611045220im_/http://gothamist.com/attachments/jen/2009_12_antmarsh.jpg" width="640" height="454"> <br> <i>Photograph of Anthony Marshall heading to his sentencing this morning (wife Charlene is on the far left) by Louis Lanzano/AP</i></div> <p></p>
+
+<p>Anthony Marshall, who was found <a href="https://web.archive.org/web/20110611045220/http://gothamist.com/2009/10/08/brooke_astors_son_found_guilty_of_g.php">guilty of grand larceny</a> related to stealing from his late mother Brooke Astor&apos;s fortune, was sentenced to one to three years in prison today.  The 85-year-old World War II veteran and former U.S. ambassador had been fighting a sentence that would require prison time, with his lawyers pointing out that his illnesses could mean he would die in prison.</p>
+
+<p><a href="https://web.archive.org/web/20110611045220/http://wcbstv.com/local/anthony.marshall.brooke.2.1383651.html">WCBS 2 report</a>s that he &quot;was sentenced Monday to the minimum allowed. But the judge gave him 30 days to get his affairs in order. He might then be able to stay free on bail indefinitely while his expected appeal proceeds.&quot;  Marshall was convicted of diverting millions from his mother&apos;s estate while her mental state was diminished and forging her signature so he could gain control of the estate as well.</p>
+
+<p>At the sentencing, <a href="https://web.archive.org/web/20110611045220/http://www.nypost.com/p/news/local/manhattan/astor_son_greed_hard_to_fathom_prosecutor_DALQL8dJmJ562nFePzv7kO">prosecutor Joel Seidemann asked</a>, &quot;How much money does an 85-year-old man need? Was $23 million not enough for the defendant? Was that something he couldn&apos;t live with?&quot; referring to to the $23 million in cash and property that Astor was leaving him in her will. (The Post adds, &quot;He already enjoyed the $2 million Upper East Side apartment she&apos;d bought him and his wife, Charlene, along with a $450,000 a year salary she paid him for &quot;managing&quot; her affairs.&quot;)  Seidemann also said, &quot;He stole more and he stole it from his mother and he stole it from her when she was vulnerable.&quot;</p>

@@ -1,0 +1,41 @@
+---
+author: Emma Whitford
+date: Mar 28, 2016 3:21 pm
+title: Naked Cowboy Joins Business Interests To Push For New Times Square Restrictions
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="091615_TimesSquare.jpeg" src="https://web.archive.org/web/20171030070051im_/http://gothamist.com/attachments/nyc_ewhitford/091615_TimesSquare.jpeg" width="640" height="426"> <br> <i> (Getty)</i></div> <p></p>
+
+<p>Members of the <a href="https://web.archive.org/web/20171030070051/http://www.timessquarenyc.org/about-the-alliance/index.aspx#.VvllBJMrKi4">Times Square Alliance</a>, a local business coalition, hoisted a tailgating tent against the rain at 46th and Broadway on Monday, and huddled with local councilmembers, a manager of the nearby Marriott Marquee, and the Naked Cowboy to promote legislation that would relegate costumed characters, <a href="https://web.archive.org/web/20171030070051/http://gothamist.com/tags/desnudas">desnudas</a> and ticket sellers to designated zones within the Times Square pedestrian plaza from 42nd to 47th streets.</p>
+
+<p>&quot;These are some tweets, totally unsolicited, from 2016,&quot; said Alliance President Tim Tompkins, who presented the legislation as a necessary measure to curb physical and verbal harassment on the plaza. &quot;One: &apos;Those costume characters in Times Square are scam artists.&apos; And another: &apos;When Elmo grabs your ass in Time Square your childhood is immediately ruined.&apos; These are <em>real tweets</em>.&quot; </p>
+
+<p>&quot;Just two days ago a tourist in Times Square <a href="https://web.archive.org/web/20171030070051/http://gothamist.com/2016/03/27/times_square_spider-man_arrested_fo.php">faced off</a> in a physical altercation with Spiderman allegedly in a dispute over a tip,&quot; added Councilmember Dan Gorodnick. &quot;We need to protect tourists and New Yorkers.&quot; </p>
+
+<p>The <a href="https://web.archive.org/web/20171030070051/http://legistar.council.nyc.gov/LegislationDetail.aspx?ID=2597317&amp;GUID=56AB0593-7AB9-4595-BED3-FB292E6E1FC6&amp;Options=ID|Text|&amp;Search=1109">legislation</a>, up for vote April 7th, would empower the Department of Transportation to exact control over the city&apos;s 69 pedestrian plazas, regulating them much the same way that the Parks Department regulates city parks. Co-written by Garodnick and Midtown Councilmember Corey Johnson, it calls on the DOT to establish &quot;plaza-specific rules&quot; to regulate the &quot;use of, and activities within, an individual pedestrian plaza.&quot;</p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="032916_cowboy2.jpg" src="https://web.archive.org/web/20171030070051im_/http://gothamist.com/attachments/nyc_arts_john/032916_cowboy2.jpg" width="640" height="379"> <br> <i> (Getty)</i></div> <p></p>
+
+<p>The Naked Cowboy was the only performer invited to the podium on Monday&#x2014;&quot;I was going to wear a suit today, but then I realized that no one would recognize me&quot;&#x2014;and he argued that the number of performers on the plaza has ballooned since he started the gig in the late 1990s. &quot;It&apos;s created a lot of competition, some conflicts, and people even say they avoid Times Square,&quot; he said. &quot;If I have to lose some of my own little freedom to run around, so be it. I think it will increase the quality of the performers.&quot; </p>
+
+<p>The Times Square Alliance first raised <a href="https://web.archive.org/web/20171030070051/http://www.usnews.com/news/us/articles/2015/08/21/topless-painted-women-ignite-latest-furor-in-times-square">concerns</a> about &quot;aggressive&quot; desnudas and costumed characters over the summer, coinciding with a <a href="https://web.archive.org/web/20171030070051/http://gothamist.com/tags/desnudas">flood</a> of tabloid coverage and <a href="https://web.archive.org/web/20171030070051/http://gothamist.com/2015/09/11/times_square_freedom_zones.php">calls for regulation</a>. Mayor de Blasio took to moralizing, and said that although he &quot;believes in civil liberties and believes in our First Amendment,&quot; as long as tourists were being forced to dodge bare breasts, &quot;I don&apos;t think that&apos;s the end of the discussion.&quot;</p>
+
+<p>While the legislation being presented to the Council this week wouldn&apos;t give the Alliance full reign to enact the <a href="https://web.archive.org/web/20171030070051/http://gothamist.com/2015/09/17/times_square_freedom_cages.php">Times Square Commons</a> plan it&apos;s been promoting since last September&#x2014;&quot;Civic Zones&quot; for free-speech actives like political protesting, panhandling, and pamphleteering; &quot;Activity Zones&quot; for desnudas, costumed characters, ticket sellers, and fake buddhist monks; and &quot;Pedestrian Flow Zones&quot; simply for walking&#x2014;it does call on the DOT to &quot;consider the input&quot; of local nonprofits. </p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="032816_TimesSquare.jpeg" src="https://web.archive.org/web/20171030070051im_/http://gothamist.com/attachments/nyc_ewhitford/032816_TimesSquare.jpeg" width="640" height="480"> <br> <i> A ticket seller protesting legislation that could regulate his work space (Emma Whitford/Gothamist)</i></div> <p></p>
+
+<p>The Alliance also stressed on Monday that the legislation will not &quot;ban&quot; anyone from Times Square. &quot;Does that mean that Times Square is going to lose its spirit? No,&quot; said Tompkins. &quot;What we&apos;ve always said is Times Square should be unusual. Quirky is fine, but creepy is not.&quot; </p>
+
+<p>About a dozen ticket sellers who work for double-decker bus tours in Times Square challenged this defense, edging around the bank of press cameras on Monday with signs that read &quot;Don&apos;t kill union jobs.&quot; Ticket seller Yanilda Taveras, 23, said that she fears the regulation will group her fellow sellers into one area of the plaza, forcing them to compete with each other for sales. &quot;How are we going to make money if we all have to congregate in one site?&quot; she said. </p>
+
+<p>Represented by the Transportation Workers Union (TWU) Local 225, the ticket sellers have healthcare and benefits, but work on commission&#x2014;each ticket sale earns them about $10, and while they work about nine hours per day, there&apos;s no guaranteed daily income. </p>
+
+<p>Tompkins was insistent that the ticket sellers&apos; jobs would not be negatively impacted by the proposed regulations. &quot;If the tourists are going to keep coming and getting tickets on the buses, they&apos;re going to need to stop [being harassed],&quot; he said. Tompkins added that the zones had not been determined yet, and that &quot;the details can be worked out&quot; to accommodate the ticket sellers&apos; needs. </p>
+
+<p>After today&apos;s conference, we spoke with Saira Nicole, 29, a desnuda who <a href="https://web.archive.org/web/20171030070051/http://gothamist.com/2015/08/24/nypd_officers_took_painted_womens_c.php">worked in Times Square</a> last summer. She recently returned from a working trip to Las Vegas, where she experience designated activity zones firsthand. On <a href="https://web.archive.org/web/20171030070051/http://vegasexperience.com/things-to-do/">Fremont Street</a> in Las Vegas, performers sign up for two-hour slots in designated areas. &quot;It really wasn&apos;t that bad,&quot; she said. &quot;The worst part of this legislation is that they&apos;re saying we&apos;re overly aggressive. If it&apos;s just about giving pedestrians their walking rights, to manage the ebb and flow of the traffic, that&apos;s fine.&quot; </p>
+
+<p>&quot;Even if someone walks up to us in the designated zones, and Elmo doesn&apos;t get the tip he wants, he can still be aggressive,&quot; she added. &quot;At the end of the day, if you&apos;re working for tips, there&apos;s always room to be aggressive, no matter where you&apos;re standing.&quot; </p>					
+										
+									
+				

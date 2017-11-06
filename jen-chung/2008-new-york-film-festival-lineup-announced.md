@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: August 12, 2008  5:11 PM
+title: 2008 New York Film Festival Lineup Announced
+---
+
+<p><img alt="2008_08_change.jpg" src="https://web.archive.org/web/20120324072828im_/http://gothamist.com/attachments/jen/2008_08_change.jpg" width="125" height="132" class="right">The Film Society of Lincoln Center announced <a href="https://web.archive.org/web/20120324072828/http://www.filmlinc.com/nyff/nyff.html">the full New York Film Festival lineup today</a>.  Clint Eastwood&apos;s period drama, <i>The Changeling</i>, starring Angelina Jolie, is the Centerpiece film and closing night is Darren Aronofsky&apos;s <i>The Wrestler</i> (the Film Society&apos;s Kent Jones says Mickey Rourke gives &quot;<strong>a performance of a lifetime</strong>&quot; as a retired boxer performing for wrestling fans in NJ).  The previously announced opening night film is Palme d&apos;Or-winner <i>The Class</i>, Laurent Cantet&apos;s high school classroom drama. Other films include Steven Soderbergh&apos;s four-hour <i>Che</i> starring Benicio Del Toro, Mike Leigh&apos;s <i>Happy-Go-Lucky</i>, Ari Folman&apos;s animated <i>Waltz with Bashir</i>, Wong Kar Wai&apos;s <i>Ashes of Time Redux</i>, and Arnaud Desplechin&apos;s <i>A Christmas Tale</i>. Also, Max Opul&apos;s <i>Lola Montes</i> will be screened.   Indiewire have brief descriptions of films <a href="https://web.archive.org/web/20120324072828/http://www.indiewire.com/ots/2008/08/nyff_08_changel.html">here</a>; tickets start to go on sale September 7.  </p>

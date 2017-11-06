@@ -1,0 +1,57 @@
+---
+author: Jen Carlson
+date: Jun 8, 2009 2:31 pm
+title: Surprise! The High Line is Open
+---
+
+	
+					<div class="galleryEase" id="gallery-273032">
+<!-- gallery js -->
+<script type="text/javascript" src="https://web.archive.org/web/20150626215300js_/http://assets.gothamistllc.com/v5/js/gallery.js"></script>
+<!-- end gallery js -->
+
+<style type="text/css">
+#imgContainer {
+min-height: 300px;
+min-width: 300px;
+background: url('https://web.archive.org/web/20150626215300im_/http://assets.gothamistllc.com/v5/images/progress.gif') center center no-repeat;
+}
+</style>
+
+<!--start of gallery code-->
+<a name="gallery"></a>
+<div class="galleryEaseDisplayed">
+<div id="imgContainer">
+    <img id="galleryImg">
+</div>
+<div class="galleyEaseInfo"></div>
+<div class="galleryEaseNext"></div>
+<div class="galleryEasePrev"></div>
+</div>
+<div class="galleryEaseThumbs">
+		<img src="https://web.archive.org/web/20150626215300im_/http://gothamist.com/assets_c/2009/06/phpzBTvjjPM-thumb-60x60-289802.jpg" title="" id="photo_1" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":1, "image": "https://web.archive.org/web/20150626215300/http://gothamist.com/attachments/arts_jen/phpzBTvjjPM.jpg", "caption": "", "credit":"Jason Andra/Gothamist"};galleryObj['photo_1'] = photo;</script>
+		<img src="https://web.archive.org/web/20150626215300im_/http://gothamist.com/assets_c/2009/06/phpWMgCbYPM-thumb-60x60-289812.jpg" title="" id="photo_2" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":2, "image": "https://web.archive.org/web/20150626215300/http://gothamist.com/attachments/arts_jen/phpWMgCbYPM.jpg", "caption": "", "credit":"Jason Andra/Gothamist"};galleryObj['photo_2'] = photo;</script>
+		<img src="https://web.archive.org/web/20150626215300im_/http://gothamist.com/assets_c/2009/06/phpO6lmUPPM-thumb-60x60-289822.jpg" title="" id="photo_3" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":3, "image": "https://web.archive.org/web/20150626215300/http://gothamist.com/attachments/arts_jen/phpO6lmUPPM.jpg", "caption": "", "credit":"Jason Andra/Gothamist"};galleryObj['photo_3'] = photo;</script>
+		<img src="https://web.archive.org/web/20150626215300im_/http://gothamist.com/assets_c/2009/06/phpb3OBP0PM-thumb-60x60-289832.jpg" title="" id="photo_4" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":4, "image": "https://web.archive.org/web/20150626215300/http://gothamist.com/attachments/arts_jen/phpb3OBP0PM.jpg", "caption": "", "credit":"Jason Andra/Gothamist"};galleryObj['photo_4'] = photo;</script>
+		<img src="https://web.archive.org/web/20150626215300im_/http://gothamist.com/assets_c/2009/06/phpWBiejqPM-thumb-60x60-289842.jpg" title="" id="photo_5" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":5, "image": "https://web.archive.org/web/20150626215300/http://gothamist.com/attachments/arts_jen/phpWBiejqPM.jpg", "caption": "", "credit":"Jason Andra/Gothamist"};galleryObj['photo_5'] = photo;</script>
+		<img src="https://web.archive.org/web/20150626215300im_/http://gothamist.com/assets_c/2009/06/20609highline-thumb-60x60-289852.jpg" title="" id="photo_6" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":6, "image": "https://web.archive.org/web/20150626215300/http://gothamist.com/attachments/arts_jen/20609highline.jpg", "caption": "", "credit":"Jason Andra/Gothamist"};galleryObj['photo_6'] = photo;</script>
+		<img src="https://web.archive.org/web/20150626215300im_/http://gothamist.com/assets_c/2009/06/phpo2PoD0PM-thumb-60x60-289862.jpg" title="" id="photo_7" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":7, "image": "https://web.archive.org/web/20150626215300/http://gothamist.com/attachments/arts_jen/phpo2PoD0PM.jpg", "caption": "", "credit":"Jason Andra/Gothamist"};galleryObj['photo_7'] = photo;</script>
+<br>		<img src="https://web.archive.org/web/20150626215300im_/http://gothamist.com/assets_c/2009/06/2009_06_high8-thumb-60x60-289962.jpg" title="" id="photo_8" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":8, "image": "https://web.archive.org/web/20150626215300/http://gothamist.com/attachments/jen/2009_06_high8.jpg", "caption": "", "credit":""};galleryObj['photo_8'] = photo;</script>
+		<img src="https://web.archive.org/web/20150626215300im_/http://gothamist.com/assets_c/2009/06/2009_06_high1-thumb-60x60-289972.jpg" title="" id="photo_9" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":9, "image": "https://web.archive.org/web/20150626215300/http://gothamist.com/attachments/jen/2009_06_high1.jpg", "caption": "", "credit":"Jason Andra/Gothamist"};galleryObj['photo_9'] = photo;</script>
+		<img src="https://web.archive.org/web/20150626215300im_/http://gothamist.com/assets_c/2009/06/2009_06_high3-thumb-60x60-289982.jpg" title="" id="photo_10" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":10, "image": "https://web.archive.org/web/20150626215300/http://gothamist.com/attachments/jen/2009_06_high3.jpg", "caption": "", "credit":"Jason Andra/Gothamist"};galleryObj['photo_10'] = photo;</script>
+		<img src="https://web.archive.org/web/20150626215300im_/http://gothamist.com/assets_c/2009/06/2009_06_high4-thumb-60x60-289992.jpg" title="" id="photo_11" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":11, "image": "https://web.archive.org/web/20150626215300/http://gothamist.com/attachments/jen/2009_06_high4.jpg", "caption": "", "credit":"Jason Andra/Gothamist"};galleryObj['photo_11'] = photo;</script>
+		<img src="https://web.archive.org/web/20150626215300im_/http://gothamist.com/assets_c/2009/06/2009_06_high2-thumb-60x60-290002.jpg" title="" id="photo_12" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":12, "image": "https://web.archive.org/web/20150626215300/http://gothamist.com/attachments/jen/2009_06_high2.jpg", "caption": "", "credit":"Jason Andra/Gothamist"};galleryObj['photo_12'] = photo;</script>
+		<img src="https://web.archive.org/web/20150626215300im_/http://gothamist.com/assets_c/2009/06/2009_06_high5-thumb-60x60-290012.jpg" title="" id="photo_13" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":13, "image": "https://web.archive.org/web/20150626215300/http://gothamist.com/attachments/jen/2009_06_high5.jpg", "caption": "", "credit":"Jason Andra/Gothamist"};galleryObj['photo_13'] = photo;</script>
+		<img src="https://web.archive.org/web/20150626215300im_/http://gothamist.com/assets_c/2009/06/2009_06_high6-thumb-60x60-290022.jpg" title="" id="photo_14" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":14, "image": "https://web.archive.org/web/20150626215300/http://gothamist.com/attachments/jen/2009_06_high6.jpg", "caption": "", "credit":"Jason Andra/Gothamist"};galleryObj['photo_14'] = photo;</script>
+		<img src="https://web.archive.org/web/20150626215300im_/http://gothamist.com/assets_c/2009/06/2009_06_high7-thumb-60x60-290032.jpg" title="" id="photo_15" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":15, "image": "https://web.archive.org/web/20150626215300/http://gothamist.com/attachments/jen/2009_06_high7.jpg", "caption": "The yellow chairs are part of the High Line. They\'re at the base of the building that straddles the HL diagonal from Hogs and Heffers.", "credit":"Jason Andra/Gothamist"};galleryObj['photo_15'] = photo;</script>
+		<img src="https://web.archive.org/web/20150626215300im_/http://gothamist.com/assets_c/2009/06/2009_06_high10-thumb-60x60-290042.jpg" title="" id="photo_16" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":16, "image": "https://web.archive.org/web/20150626215300/http://gothamist.com/attachments/jen/2009_06_high10.jpg", "caption": "", "credit":"Jason Andra/Gothamist"};galleryObj['photo_16'] = photo;</script>
+		<img src="https://web.archive.org/web/20150626215300im_/http://gothamist.com/assets_c/2009/06/2009_06_high9-thumb-60x60-290052.jpg" title="" id="photo_17" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":17, "image": "https://web.archive.org/web/20150626215300/http://gothamist.com/attachments/jen/2009_06_high9.jpg", "caption": "", "credit":"Jason Andra/Gothamist"};galleryObj['photo_17'] = photo;</script>
+		<img src="https://web.archive.org/web/20150626215300im_/http://gothamist.com/assets_c/2009/06/2009_06_high11-thumb-60x60-290062.jpg" title="" id="photo_18" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":18, "image": "https://web.archive.org/web/20150626215300/http://gothamist.com/attachments/jen/2009_06_high11.jpg", "caption": "", "credit":"Jason Andra/Gothamist"};galleryObj['photo_18'] = photo;</script>
+		<img src="https://web.archive.org/web/20150626215300im_/http://gothamist.com/assets_c/2009/06/2009_06_high12-thumb-60x60-290072.jpg" title="" id="photo_19" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":19, "image": "https://web.archive.org/web/20150626215300/http://gothamist.com/attachments/jen/2009_06_high12.jpg", "caption": "", "credit":"Jason Andra/Gothamist"};galleryObj['photo_19'] = photo;</script>
+		<img src="https://web.archive.org/web/20150626215300im_/http://gothamist.com/assets_c/2009/06/2009_06_high14-thumb-60x60-290082.jpg" title="" id="photo_20" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":20, "image": "https://web.archive.org/web/20150626215300/http://gothamist.com/attachments/jen/2009_06_high14.jpg", "caption": "", "credit":"Jason Andra/Gothamist"};galleryObj['photo_20'] = photo;</script>
+		<img src="https://web.archive.org/web/20150626215300im_/http://gothamist.com/assets_c/2009/06/2009_06_high13-thumb-60x60-290092.jpg" title="" id="photo_21" class="galleryEaseActiveThumb" width="76" height="76"><script type="text/javascript">var photo = { "id":21, "image": "https://web.archive.org/web/20150626215300/http://gothamist.com/attachments/jen/2009_06_high13.jpg", "caption": "", "credit":"Jason Andra/Gothamist"};galleryObj['photo_21'] = photo;</script>
+									
+</div></div>					<p>Looks like <a href="https://web.archive.org/web/20150626215300/http://gothamist.com/tags/highline">the High Line</a> opened to the public <a href="https://web.archive.org/web/20150626215300/http://gothamist.com/2009/06/04/high_line_5.php">one day ahead of schedule</a>! This park really knows how to keep us guessing. We headed over there earlier today, and will be updating with more photos soon&#x2014;but why not go have a look for yourself?</p>					
+										
+									
+				

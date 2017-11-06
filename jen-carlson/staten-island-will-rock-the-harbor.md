@@ -1,0 +1,11 @@
+---
+author: Jen Carlson
+date: May 29, 2008 4:45 pm
+title: Staten Island Will Rock the Harbor
+---
+
+	
+										<p><img alt="0805RTH.jpg" src="https://web.archive.org/web/20160301055757im_/http://gothamist.com/attachments/arts_jen/0805RTH.jpg" width="350" height="350" class="right">In a couple of weeks Staten Island will hold its very own music festival called <a href="https://web.archive.org/web/20160301055757/http://www.rocktheharbor.net/">Rock the Harbor</a>, something <a href="https://web.archive.org/web/20160301055757/http://www.brooklynvegan.com/archives/2008/05/rock_the_harbor.html">Brooklyn Vegan posted about</a> this week -- instantly sparking a lot of &quot;discussion&quot; about the borough (&quot;Does everyone have to tan and work out before the show?&quot; etc). With Manhattanites trying to pawn SI off on Jersey, and Jerseyites rejecting it, it was only a matter of time before <a href="https://web.archive.org/web/20160301055757/http://www.silive.com/entertainment/index.ssf/2008/05/rock_the_harbor_sparks_staten.html">Staten Island Advance</a> caught wind of the fightin&apos; words, noting that &quot;battle lines were drawn.&quot; One of the promoters of the show also chimed in, saying, in part:</p><blockquote>We actually have a lot more to offer on Staten Island aside from what you may have seen on <a href="https://web.archive.org/web/20160301055757/http://gothamist.com/2007/01/04/no_mtv_footage.php">True Life: I&apos;m a Staten Island Girl</a>. Not all of us say &apos;Bro&apos;, not all of us are mobbed up, and not all of us have no idea about the arts or culture. We actually have quite a few beautiful attractions, but I&apos;ll save the tourism chat for another time. The whole point of Rock the Harbor was to shine a light on a music scene that is slowly gaining some steam. There&apos;s all sorts of bands on this lineup from straight up indie, to shoegaze, to punk, to pop, to bluegrass, we have a bit of everything and are planning on hosting this event with a completely open mind.</blockquote>And is the commute <em>really</em> much worse than getting out to the Siren Fest on Coney Island, which swarms with hipsters every year?<p></p>					
+										
+									
+				

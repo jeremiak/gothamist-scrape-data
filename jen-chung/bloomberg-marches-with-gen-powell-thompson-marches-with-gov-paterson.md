@@ -1,0 +1,13 @@
+---
+author: Jen Chung
+date: September  8, 2009 10:33 AM
+title: Bloomberg Marches With Gen. Powell, Thompson Marches With Gov. Paterson
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="2009_09_bltmpwidp.jpg" src="https://web.archive.org/web/20110811123101im_/http://gothamist.com/attachments/jen/2009_09_bltmpwidp.jpg" width="640" height="313"> <br> <i>Photographs of Mayor Bloomberg and Gen. Powell (left) and Comptroller Thompson (right) by Azi Paybarah/<a href="https://web.archive.org/web/20110811123101/http://politickerny.com/">PolitickerNY</a></i></div> <p></p>
+
+<p>Yesterday&apos;s West Indian American Day Carnival was the place for city-wide office candidates to be seen, and leading the way were Mayor Michael Bloomberg and City Comptroller William Thompson, who are expected to battle to be mayor come November.  Mayor Bloomberg marched with one of the parade&apos;s Grand Marshals&#x2014;General Colin Powell&#x2014;who endorsed him heartily, while Thompson marched with Governor David Paterson.  </p>
+
+<p><a href="https://web.archive.org/web/20110811123101/http://cityroom.blogs.nytimes.com/2009/09/07/colin-powell-endorses-bloomberg-at-west-indian-day-parade/">CityRoom reports</a> that Powell, who has Jamaican roots, said, &#x201C;I would encourage everybody in the crowd, all the citizens of New York not just to go with an endorsement, even though endorsements are important, but to look at the record of the individual. If they do that, I think they would find that Mike is the guy who ought to be mayor for a third term.&quot;  Of course, Powell, who endorsed Bloomberg on Larry King Live <a href="https://web.archive.org/web/20110811123101/http://gothamist.com/2009/07/29/colin_powell_gates_shouldnt_have_ar.php">earlier this summer</a>, is a Virginia resident.  Anti-Bloomberg hecklers <a href="https://web.archive.org/web/20110811123101/http://www.wnyc.org/news/articles/140219">shouted</a>, &quot;No more years.&quot;</p>
+
+<p><a href="https://web.archive.org/web/20110811123101/http://www.politickerny.com/5171/paterson-marches-anti-bloombergs">According to PolitickerNY,</a> Paterson couldn&apos;t offer the same kind of support for Thompson&#x2014;&#x2014;pointing out, &quot;I just have to wait for the Democratic primary to be over because those candidates are both members of the same party&quot;&#x2014;referring to City Councilman Tony Avella&#x2014;&quot;and like a minute after the primary&#x2019;s over I&#x2019;ll be ready to endorse.&#x201D;</p>

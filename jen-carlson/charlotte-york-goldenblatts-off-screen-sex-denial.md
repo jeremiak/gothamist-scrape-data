@@ -1,0 +1,11 @@
+---
+author: Jen Carlson
+date: March 18, 2008  2:40 PM
+title: Charlotte York-Goldenblatt's Off-Screen Sex Denial
+---
+
+<p><img alt="kdpb.jpg" src="https://web.archive.org/web/20110629195337im_/http://gothamist.com/attachments/arts_jen/kdpb.jpg" width="250" height="285" class="right">Has a <em>Sex and the City</em> star been caught doing the dirty deed on film? Kristin Davis (aka Charlotte York-Goldenblatt) reportedly has a sex tape floating around out there, and this particular scene wasn&apos;t meant for major motion picture audiences. At the moment, only the photos have leaked -- which you can <a href="https://web.archive.org/web/20110629195337/http://scottfayner.com/?p=30">see here</a> (warning: the images do not include innocent Pinkberry frozen yogurt, and are decidedly NSFW!). </p>
+
+<p>While her rep is saying &quot;This is not a photo of Kristin Davis. There is no sex tape,&quot; <a href="https://web.archive.org/web/20110629195337/http://defamer.com/369133/three-reasons-why-we-think-the-kristin-davis-sex-tape-is-for-real">Defamer</a> debunks the starlet&apos;s <a href="https://web.archive.org/web/20110629195337/http://news.aol.com/entertainment/television/tv-news-story/ar/_a/davis-denies-sex-tape-clip-is-her/20080317180409990001?ecid=RSS0001">denials</a>. Davis has been declaring that the image is Photoshopped to look like her (and it <em>does</em> look like her), but few are believing the spin. Besides, while the photos would have her on-screen character cringing, the 43-year-old is single -- so what&apos;s the big deal?   </p>
+
+<p><a href="https://web.archive.org/web/20110629195337/http://www.tmz.com/2008/03/18/sex-in-kristins-city">TMZ</a> is reporting that the photos are from 5 years ago, taken by an ex-boyfriend and only now being shopped around by a broker (strike while the sex tape iron is hot!). Two things are certain at this point: this will be the easiest sex tape to name <em>and</em> this is one smart marketing campaign for <a href="https://web.archive.org/web/20110629195337/http://gothamist.com/2007/12/07/satc_1.php">the movie</a>. Chin up Kristin, you just sold some tickets to your &quot;real&quot; film.</p>

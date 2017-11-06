@@ -1,0 +1,21 @@
+---
+author: Jen Carlson
+date: Sep 10, 2007 9:46 am
+title: MTZzzzz's Music Awards
+---
+
+	
+										<p>Unfortunately, what happens in Vegas doesn&apos;t always stay in Vegas. Last night MTV took over the Strip and filled it with up and comers, the standard rock, rollers and rappers and of course...the token has beens. </p>
+
+<p><img alt="200709brit.jpg" src="https://web.archive.org/web/20150508175755im_/http://gothamist.com/attachments/arts_jen/200709brit.jpg" width="620" height="469"></p>
+
+<p>Last week <a href="https://web.archive.org/web/20150508175755/http://www.nytimes.com/2007/09/06/arts/television/06mtv.html?ref=todayspaper">The New York Times</a> reported on some problems at the network over the past few years. </p><blockquote>For one thing, critics say the Video Music Awards, intended as a raucous counterpoint to more staid ceremonies, has become stale itself; the show has endured a four-year ratings slump, including a 28 percent drop last year.<p></p>
+
+<p>Another issue is the channel&#x2019;s slow response to the explosion of video and social networking online. Music fans are regularly watching music videos on its Web site, mtv.com, which drew about 8.5 million visitors in July. But Yahoo&#x2019;s music service, which has long showcased videos, attracted 23 million, and MySpace&#x2019;s music site drew more than 21 million.</p></blockquote>To redeem themselves they gave the VMA&apos;s a makeover. The show was brought to Vegas last night and instead of the performances all being in one space, they were spread out throughout the hotels. <a href="https://web.archive.org/web/20150508175755/http://yourhereblog.mtv.com/">A website</a> called &quot;You R Here&quot; was set up for instant reports via MTV and fans. Interactive, flashy and fast-moving it was...but Justin Timberlake said it best in his acceptance speech by simply stating, &quot;I want to challenge MTV right now to play more videos!&quot; Only to be followed by his next acceptance speech in which he received his award from the girls of reality show <em>The Hills</em>, then declared that no one wants to see reality shows on a music network. Oh yes he did!<p></p>
+
+<p>JT&apos;s ex and the other makeover challenge of the night, Britney Spears, opened the show with a tired performance. The song, the dance and the energy level were at an all time low -- and according to <a href="https://web.archive.org/web/20150508175755/http://www.nydailynews.com/gossip/2007/09/09/2007-09-09_mtv_lectures_britney_spears_to_behave_on.html">The Daily News</a>, Brit was warned beforehand to rehearse, relax and stay out of trouble. </p><blockquote>&quot;Britney knows she&apos;s on thin ice. When they agreed to the performance, they sat her down and told her she should not be going out, and instead focus on rehearsing and resting,&quot; an insider said. &quot;She seemed to be thankful and appreciative for the chance, but who knows with her? MTV made it clear that her usual behavior will not be tolerated.&quot;</blockquote><img alt="2007_09_brit.jpg" src="https://web.archive.org/web/20150508175755im_/http://gothamist.com/attachments/arts_jen/2007_09_brit.jpg" width="640" height="276"><p></p>
+
+<p>The best part of the night? The two previous Mr. Pamela Anderson&apos;s <a href="https://web.archive.org/web/20150508175755/http://www.accesshollywood.com/news/ah6739.shtml">got in a brawl</a>. We&apos;re guessing Kid rock (after failing <a href="https://web.archive.org/web/20150508175755/http://www.nypost.com/seven/01032007/gossip/pagesix/jealous_kid_misses_target_pagesix_.htm">earlier this year</a>) tried to punch Tommy Lee in the face. We think next year MTV should stick to their hometown and spread the performances throughout the five boroughs. Britney at McCarren Park Pool, Beyonce on the Brooklyn Bridge, and all brawls over broads settled by a breakdance-off underground in the subways. Too bad <a href="https://web.archive.org/web/20150508175755/http://news.yahoo.com/s/ap/20070910/ap_en_mu/mtv_awards_kanye_west;_ylt=Alc5J66xGFTtS..ocdKF9fVxFb8C">Kanye won&apos;t be there</a> though. </p>					
+										
+									
+				

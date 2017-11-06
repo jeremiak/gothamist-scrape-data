@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: October 17, 2008 10:06 AM
+title: Chelsea Fire Survivor Dies
+---
+
+<p><img alt="2008_10_jbalb.jpg" src="https://web.archive.org/web/20130613020505im_/http://gothamist.com/attachments/jen/2008_10_jbalb.jpg" width="115" height="138" class="right">The 10-year-old survivor of a <a href="https://web.archive.org/web/20130613020505/http://gothamist.com/2008/10/12/smoke_detector_disabled_in_fatal_ch.php">Chelsea fire</a> that claimed his parents&apos; and three sisters&apos; lives <a href="https://web.archive.org/web/20130613020505/http://www.nypost.com/seven/10172008/news/regionalnews/chelsea_blaze_kid_dies_134005.htm">was taken off life support</a> yesterday. Jonzan Joa-Balbuena had been at Jacobi Medical Center in the Bronx, in critical condition, since the Saturday blaze.  He was later found to be brain dead, and his relatives decided to take him off his respirator and donate his organs.  His uncle <a href="https://web.archive.org/web/20130613020505/http://www.nydailynews.com/ny_local/2008/10/16/2008-10-16_survivor_of_chelsea_fire_jonzan_valdez_t.html">said</a>, &quot;We tried to do our best for him... we prayed hard.  He knows we tried to keep him alive.&quot;  And a family advocate who was helping with funeral arrangements for the other deceased family members wept to the Daily News, &quot;I have to buy a [funeral] suit for the little boy now, after buying clothes for the other children, too.&quot;  The FDNY found the apartment&apos;s smoke detector had been disabled.</p>

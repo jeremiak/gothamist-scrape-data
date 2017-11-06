@@ -1,0 +1,18 @@
+---
+author: Nell Casey
+date: Oct 29, 2013 12:38 PM
+title: Early Addition: Startup Guarantees Only Attractive People Rent Your Airbnb
+---
+
+
+                            
+                            
+                            
+                            <p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="102913ea.jpg" src="https://web.archive.org/web/20131203044918im_/http://gothamist.com/attachments/nyc_nellcasey/102913ea.jpg" width="641" height="359"> <br> <i> <span class="photo_caption">(<a href="https://web.archive.org/web/20131203044918/http://www.flickr.com/photos/jlb10022/10516306185/in/pool-gothamist">Joseph Buttigieg</a>/Flickr)</span></i></div> <br>
+ <br>
+<ul><li>Follow Gothamist <a href="https://web.archive.org/web/20131203044918/http://twitter.com/#!/gothamist">on Twitter</a> and <a href="https://web.archive.org/web/20131203044918/http://www.facebook.com/pages/Gothamist/13927915491">like us on Facebook</a>. You can also get the top stories mailed to you&#x2014;<a href="https://web.archive.org/web/20131203044918/http://eepurl.com/Mu4T">sign up here</a>.</li><li>The reported hysteria following Orson Welles&apos; <em>War of the Worlds</em> broadcast was <a href="https://web.archive.org/web/20131203044918/http://www.slate.com/articles/arts/history/2013/10/orson_welles_war_of_the_worlds_panic_myth_the_infamous_radio_broadcast_did.html">fabricated by newspapers</a>.</li><li>Video: check out the trailer for the upcoming <a href="https://web.archive.org/web/20131203044918/http://blogs.wsj.com/speakeasy/2013/10/29/x-men-days-of-future-past-trailer-released/?mod=WSJBlog"><em>X-Men: Day of Future Past</em></a>.</li><li>Kristen Bell and Dax Shepard had the best <a href="https://web.archive.org/web/20131203044918/http://www.hollywoodreporter.com/news/dax-shepard-kristen-bells-wedding-651433">&quot;World&apos;s Worst Wedding&quot;</a>.</li><li>New startup LoveRoom ensures that Airbnb, landlords <a href="https://web.archive.org/web/20131203044918/http://betabeat.com/2013/10/no-uglies-loveroom-ensures-only-hotties-will-rent-your-extra-bedroom-this-weekend/">only rent rooms to attractive people</a>.</li><li>Morrissey&apos;s autobiography has <a href="https://web.archive.org/web/20131203044918/http://www.nytimes.com/2013/10/29/business/media/us-publisher-said-to-have-acquired-morrissey-autobiography.html?partner=rss&amp;emc=rss">found a publisher in the US</a>.</li><li>Beyonce: <a href="https://web.archive.org/web/20131203044918/http://www.uproxx.com/music/2013/10/beyonce-perfectly-timed-photobomb-ridiculously-photogenic-teenagers-selfie/">queen of the selfie photobomb</a>.</li><li>If you want to appear more attractive, <a href="https://web.archive.org/web/20131203044918/http://nymag.com/thecut/2013/10/study-you-look-hotter-standing-with-friends.html?mid=twitter_thecutblog">stand near other people</a>.</li><li>Joe Biden&apos;s troubled niece <a href="https://web.archive.org/web/20131203044918/http://nypost.com/2013/10/29/bidens-niece-sports-a-black-eye-in-court/?utm_campaign=SocialFlow&amp;utm_source=NYPTwitter&amp;utm_medium=SocialFlow">showed up in court with a black eye</a> to face charges following her arrest in September.</li><li>And finally, otters make for really adorable BFFs:</li></ul><p></p>
+
+<p><iframe width="640" height="360" src="//web.archive.org/web/20131203044918if_/http://www.youtube.com/embed/hA6Yl1QPGJY" frameborder="0" allowfullscreen></iframe></p>
+                            
+                            
+                            

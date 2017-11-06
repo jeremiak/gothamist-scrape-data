@@ -1,0 +1,35 @@
+---
+author: Nell Casey
+date: Oct 14, 2013 10:55 am
+title: A Guide To Truffles, The Funkiest Of The Fungi
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="101413truffle2.jpg" src="https://web.archive.org/web/20150429192516im_/http://gothamist.com/attachments/nyc_nellcasey/101413truffle2.jpg" width="640" height="478"> <br> <i> <span class="photo_caption">White truffles over rice (Nell Casey/Gothamist)</span></i></div> <p></p>
+
+<p>Truffles, truffles, truffles&#x2014;they&apos;re all over the foodiot blogs and local chefs have been worked into a tizzy over these odd-looking little lumps. With autumn comes truffle season, which means you&apos;ll be seeing the funky fungi pop up on menus all over the place, demanding that you part with serious cash for a shower of shavings on top of your agnolotti. &quot;Aren&apos;t truffles just some bourgey ingredient chefs like to tack on to dishes to jack up the price?&quot; skeptics will ask. You&apos;ll be tempted to listen to them, but don&apos;t. Yes, truffles can be expensive, but they are also really, really delicious and&#x2014;if you known the right way to go about it&#x2014;very much worth your money.</p>
+
+<p>We&apos;ve put together a little Truffle FAQ for anyone wanting to know what all the fuss is about and, hopefully, also interested in seeking out some truffles of their own.</p>
+
+<p><strong>So aren&apos;t truffles really just absurdly priced mushrooms?</strong> In a sense, yes. Truffles are a type of fungus that grows on the roots of trees like oaks and beeches, drawing nutrients from the tree and developing its musky flavor. In certain parts of the world truffles are cultivated in special fields, though for many purists they&apos;re still foraged in the wild, which is why you&apos;re going to be paying hundreds of dollars for something that most closely resembles a rock and kind of smells a little funky. Originally, foragers used pigs to scout out the goods, though their eagerness to eat the truffle has caused many regions to switch to using dogs. In Italy, it&apos;s actually against the law to use pigs to hunt truffles.</p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="101314truffledog.jpg" src="https://web.archive.org/web/20150429192516im_/http://gothamist.com/attachments/nyc_nellcasey/101314truffledog.jpg" width="640" height="427"> <br> <i> <span class="photo_caption">D&apos;awwwwwg (Davide Dutto- Archive: Ente Turismo Alba Bra Langhe Roero)</span></i></div> <p></p>
+
+<p><strong>White truffles, black truffles, Alba truffles, burgundy truffles&#x2014;what the what?</strong> The two most common varieties of truffle you&apos;ll encounter are the white truffle (or Alba truffle) and the black truffle. Most white truffle comes from, you guessed it, the city of Alba in the Piedmont region of Italy. Each autumn, the city holds the Fiera del Tartufo, where the region&apos;s bounty is celebrated, sold and consumed to much fanfare. When a restaurant offers a &quot;truffle supplement&quot; (more on this later) you&apos;ll most likely be receiving white truffles. Black truffles are equally delicious if a little hyped. They&apos;re harvested a bit later in the season from oak and hazelnut trees in the Perigord region of France. </p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="101413truffle1.jpg" src="https://web.archive.org/web/20150429192516im_/http://gothamist.com/attachments/nyc_nellcasey/101413truffle1.jpg" width="640" height="478"> <br> <i> <span class="photo_caption">This white truffle doesn&apos;t look like much but damned if it isn&apos;t tasty as hell (Nell Casey/Gothamist)</span></i></div> <p></p>
+
+<p><strong>Okay let&apos;s get down to what actually matters: WTF does a truffle taste like?</strong> There are lots of different ways to describe the flavor and odor, but commonly you&apos;ll hear it described as slightly garlicky with a deep musky aroma. It&apos;s a very earthy, pungent and deliciously funky. Chef Lidia Bastianich, who helps run the show over at Eataly, points out truffles&apos; &quot;animal musk,&quot; which is said to cause amorous feelings. So...do with that what you will.</p>
+
+<p><strong>I could maybe get down with that. So how do I eat them?</strong> By and large, white truffles are served uncooked, usually shaved on top of hot dishes so they just barely warm through and blossom. You&apos;ll see &quot;truffle supplements&quot; on menus around town, which means that for an extra fee you can get freshly shaved white truffles on top of your plate of pasta or other savory dishes. Black truffles can stand up to cooking and you&apos;ll sometimes find them shaved on pizza or stuffed into roasted meat. </p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="101314truffledish2.jpg" src="https://web.archive.org/web/20150429192516im_/http://gothamist.com/attachments/nyc_nellcasey/101314truffledish2.jpg" width="640" height="468"> <br> <i> <span class="photo_caption">YUM (Davide Dutto- Archive: Ente Turismo Alba Bra Langhe Roero)</span></i></div> <p></p>
+
+<p><strong>That sounds expensive. Why don&apos;t I just buy my own truffles and cut out the middle man?</strong> If you have $300 to drop on a fist-sized mushroom by all means be my guest. Larger grocers like Citarella often carry truffles, as do smaller specialty stores like <a href="https://web.archive.org/web/20150429192516/http://www.sos-chefs.com/">SOS Chefs</a>. To store your truffle, wrap it loosely in a slightly damp kitchen towel and store inside a plastic tub in your fridge; it will keep like that for just about a week. You can find recipes online for various ways to use it, but the most delicious serving suggestion is the simplest: thinly shave your truffle over soft scrambled eggs. </p>
+
+<p><strong>This sounds expensive and complicated and I saw truffle oil at Gristedes so why don&apos;t I just buy that?</strong> I&apos;m not going to tell you <em>not</em> to use truffle oil; it can be quite tasty drizzled over a pizza bianca or even on some parmesan fries. But don&apos;t think for a moment you&apos;re getting a true truffle experience here because truffle oil <em>doesn&apos;t actually contain truffles</em>. Tricky scientists take plain old olive oil and use chemicals to mimic the flavor of truffles, which is why you can pick up a jar of so-called truffle oil for a fraction of the price of the real deal.  </p>
+
+<p><strong>Fine, fine, fine I&apos;ll just go to a restaurant and eat truffles! Where are the best places to go?</strong> I&apos;m so very glad you asked. We&apos;ll have a great big truffle roundup for you very soon, so stayed tuned!</p>					
+										
+									
+				

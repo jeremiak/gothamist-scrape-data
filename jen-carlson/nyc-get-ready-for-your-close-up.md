@@ -1,0 +1,7 @@
+---
+author: Jen Carlson
+date: December  3, 2008  2:55 PM
+title: NYC, Get Ready for Your Close-up
+---
+
+<p><img alt="polan1208.jpg" src="https://web.archive.org/web/20130501125635im_/http://gothamist.com/attachments/arts_jen/polan1208.jpg" width="130" height="100" class="right">Earlier this year we took a look at <a href="https://web.archive.org/web/20130501125635/http://gothamist.com/2008/05/10/drawing_every_p.php">Jason Polan&apos;s ambitious effort</a> to draw every person in NYC. Well, starting today you can put yourself in front of his pencil and pad and help out his project, but more importantly <a href="https://web.archive.org/web/20130501125635/http://www.826nyc.org/">826NYC</a>. <a href="https://web.archive.org/web/20130501125635/http://www.jasonpolan.com/">Polan</a> and fellow artist <a href="https://web.archive.org/web/20130501125635/http://www.janemount.com/portfolio/index.php">Jane Mount</a> are teaming up with Jen Bekman and her 20x200 site for <a href="https://web.archive.org/web/20130501125635/http://www.thrillainmanila.net/">Thrilla in Manila</a>; the event is a three-day draw-a-thon where the public is invited to draw, be drawn or learn how to draw. Supplies will be provided, and next Monday the portraits will be for sale at the gallery (on Tuesday they&apos;ll go up for grabs <a href="https://web.archive.org/web/20130501125635/http://20x200.com/">online</a>).</p>

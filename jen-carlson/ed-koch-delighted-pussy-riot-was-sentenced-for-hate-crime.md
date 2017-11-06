@@ -1,0 +1,19 @@
+---
+author: Jen Carlson
+date: Aug 22, 2012 11:03 am
+title: Ed Koch "Delighted" Pussy Riot Was Sentenced For "Hate Crime"
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="kochriot.jpeg" src="https://web.archive.org/web/20150506012729im_/http://gothamist.com/attachments/arts_jen/kochriot.jpeg" width="640" height="435" class="image-none"> </span></p>
+
+<p>In an opinion piece he penned <a href="https://web.archive.org/web/20150506012729/http://politicker.com/2012/08/ed-koch-defends-the-arrest-of-pussy-riot-compares-them-to-aids-activists-of-the-80s/">this week</a>, former Mayor Ed Koch defended Vladimir Putin and the Russian courts for sending three members of <a href="https://web.archive.org/web/20150506012729/http://gothamist.com/tags/pussyriot">Pussy Riot</a> to jail. The women were arrested <a href="https://web.archive.org/web/20150506012729/http://gothamist.com/2012/08/08/a_timeline_of_the_russian_punk_band.php">earlier this year</a> after staging a short &quot;punk prayer&quot; inside of the Russian Orthodox Cathedral, where they wanted to highlight the close relationship between the church and state. For this act, they were <a href="https://web.archive.org/web/20150506012729/http://gothamist.com/2012/08/17/russian_court_finds_pussy_riot_guil.php">sentenced to two years</a> in jail, on a charge of &quot;hooliganism.&quot; Koch has now felt the need to voice his support of this punishment, which the rest of the world has been rallying against. He wrote:</p>
+
+<blockquote>&quot;The Western cultural elite is rallying to the defense of the disrupters in the cathedral. Some approve of the verbal attack on Putin. Others support the denunciation of the Russian Orthodox church leadership and the church disruption because of the church leadership support of Putin. All cited characterize the issue as one of free speech. I do not.
+
+<p>I would assume that many Pussy Riot supporters would take a different position, and rightly so, if here in the U.S. a black church were invaded and three men or women engaged in comparable conduct insulting holy places within the church and the pastor.&#x3000;I recall when I was Mayor in 1989 and the AIDS activist group Act Up, <a href="https://web.archive.org/web/20150506012729/http://www.nytimes.com/1990/01/03/nyregion/rude-rash-effective-act-up-shifts-aids-policy.html">unjustifiably angry with John Cardinal O&#x2019;Connor</a>, invaded St. Patrick&#x2019;s Cathedral and interrupted the Mass, throwing the Communion wafers&#x2014;which for Catholics are the actual Body of Christ&#x2014;to the floor. Some were arrested. So far as I can recall, no one was punished. <strong>I think the decision of the Russian court to punish a hate crime was just and to be applauded, rather than condemned and ridiculed.</strong> One can argue concerning the degree of punishment, whether fines rather than jail time should have been imposed, but that is a function of the Russian penalty procedures.&quot;</p></blockquote>He concludes by saying, &quot;I do not believe the issue is properly one of freedom of expression. The right to free expression is not unlimited and does not mean one can say anything anywhere and at anytime. Further, Russia and most countries do not have embedded in their law the constitutional protection of the First Amendment that we do. I for one am delighted they now punish religious hatred.&quot; <p></p>
+
+<p>Can we change <a href="https://web.archive.org/web/20150506012729/http://gothamist.com/2011/03/23/queensboro_bridge_could_be_koch_bri.php">the name of the bridge</a> back to the Queensboro now? [via <a href="https://web.archive.org/web/20150506012729/http://politicker.com/2012/08/ed-koch-defends-the-arrest-of-pussy-riot-compares-them-to-aids-activists-of-the-80s/">Politicker</a>]</p>					
+										
+									
+				

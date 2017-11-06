@@ -1,0 +1,19 @@
+---
+author: Nell Casey
+date: Oct 16, 2013 5:17 pm
+title: Low-Wage Fast Food Jobs Cost New York Taxpayers $708 Million A Year 
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="071613mcds_budget1.jpg" src="https://web.archive.org/web/20150508124039im_/http://gothamist.com/attachments/nyc_nellcasey/071613mcds_budget1.jpg" width="640" height="424"> <br> <i> <span class="photo_caption">(<a href="https://web.archive.org/web/20150508124039/http://www.flickr.com/photos/christinyca/4493022309/in/photolist-7R2UZT-7Nn8Mb-a3MLzd-atN4GZ-bAXhFH-bDPNAJ-93XpYi-9oKpwJ-cfbED3-eY8hCn-eY8gQ8-eY8irK-91QtAN-8PFdiG-7xRErp-9bqZAh-cjzTTA-7TEFsa-91RJxr-atN4tt-8PFd9E-eeQSrY-8WbJVn-aKb1Zc-dvm2ea-7Sbk8P-byNopY-byNqgw-bMH4jn-bBxcGt-7CmHS4-bH3nXp-9GVfCr-9GY8bA-9GY8gd-9GY8ib-dvrroW-bn56tR-aWsFUg-aWsQDZ-dTtGTd-814bt2-8XrXmw-8XrXhm-8XoTpT-8XrXZq-8XrY1L-7QhZDj-7QhZxh-9TiuDt-7Nai59/">ChristiNYCa</a>/Flickr)</span></i></div> <p></p>
+
+<p>It&apos;s a known fact that workers in low-wage fast food jobs can&apos;t live on their pittance of a salary alone&#x2014;heck, <a href="https://web.archive.org/web/20150508124039/http://gothamist.com/2013/07/16/mcdonalds_helpfully_illustrates_tha.php">even their employers know it</a>! But two new studies reveal that the burden falls squarely on taxpayers to help support workers who can&apos;t make enough money on their own. In New York State, taxpayers dish out to the tune of $708 million a year in public assistance. That&apos;s <a href="https://web.archive.org/web/20150508124039/http://gothamist.com/2013/03/06/taste_test_taco_bell_cool_ranch_dor.php">a lotta loco tacos</a>. </p>
+
+<p>According to a study by the <a href="https://web.archive.org/web/20150508124039/http://laborcenter.berkeley.edu/publiccosts/fastfoodpovertywages.shtml">UC Berkeley Labor Center</a>, 60% of families in New York who rely on a fast food salary must use public assistance programs to supplement their meager income. The study also concludes that 67% of &quot;core front-line fast-food workers&quot; are adults over the age of 20, debunking the myth perpetuated by fast food companies that most of their workers are teens cutting their teeth in the food industry.</p>
+
+<p>A separate report by the <a href="https://web.archive.org/web/20150508124039/http://www.nelp.org/page/-/rtmw/NELP-Fast-Food-Super-Sizing-Public-Costs.pdf?nocdn=1">National Employment Law Project</a> further breaks down the low-wage fast food/taxpayer burden scenario, revealing that McDonald&apos;s leaves taxpayers responsible for $1.2 billion annually (on a national scale) with YUM! Brands (KFC, Taco Bell, etc.) costing taxpayers $648 million annually. Even more staggering, the McDonald&apos;s corporation raked in $5.46 billion last year in profits with an extra $5.5 billion in dividends and stock buyback; they also pay their CEO Donald Thompson $13.7 million per year.</p>
+
+<p>Fast food workers <a href="https://web.archive.org/web/20150508124039/http://gothamist.com/2013/08/20/fast_food_workers_to_stage_nationwi.php">nationally</a> and <a href="https://web.archive.org/web/20150508124039/http://gothamist.com/2013/07/30/i_make_a_smile_why_cant_i_get_to_sm.php">locally</a> have staged walkouts demanding a living wage in addition to better working conditions. With one in five families trying to survive on a fast-food salary living below the poverty line&#x2014;with 43% with incomes two times the federal poverty level or less&#x2014;activists say it&apos;s vitally important to address the current federal minimum wage, especially since the Affordable Care Act has officially become law. </p>					
+										
+									
+				

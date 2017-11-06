@@ -1,0 +1,19 @@
+---
+author: Jen Carlson
+date: April 13, 2011 12:33 PM
+title: [UPDATED] Community Board Votes To Ban Concerts On Williamsburg's Waterfront (But They're Happening Anyway!)
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-right" style=" width:365px; "> <img alt="wburgwaterfrontconcert0411.jpg" src="https://web.archive.org/web/20110515093535im_/http://gothamist.com/attachments/arts_jen/wburgwaterfrontconcert0411.jpg" width="365" height="244"> <br> <i><span class="photo_caption">Photo by Jen Carlson/Gothamist</span></i></div> <strong>[UPDATED BELOW]</strong> Last night one part of the Williamsburg community rose up against another, possibly more &quot;social&quot; part of the Williamsburg community. This all went down at the CB1 meeting, where much of the night was spent discussing <a href="https://web.archive.org/web/20110515093535/http://gothamist.com/2011/04/08/liquor_license_moratorium_in_willia.php">that proposed moratorium</a> on all new liquor licenses in the area (more on that later). The shocker came at the end of the meeting, however, when community board members voted unanimously to ban all concerts from the Williamsburg Waterfront!<p></p>
+
+<p>According to <a href="https://web.archive.org/web/20110515093535/http://brooklyn11211.com/2011/04/top-the-music/">Brooklyn11211</a>, the well-attended meeting ended with a bang... after most of the media already left the building. At the end of the night residents complained about the concerts at East River State Park, which produce &quot;Loud music... Crowds of people walking to and from concerts... a regular shitshow 10 or 15 times each summer.&quot; The board then voted unanimously to ban waterfront concerts. RIP Williamsburg! It was fun while it lasted.</p>
+
+<p>We&apos;ve contacted the OSA for comment and will update if we hear back. They ran the concerts with JellyNYC last year, and we had already heard rumors that the latter would not be returning with their <a href="https://web.archive.org/web/20110515093535/http://gothamist.com/tags/poolparties">Pool Parties</a>... but now the pay-for shows are banned too! Which means the only sounds we&apos;ll be hearing from the waterfront this summer will be coming from <a href="https://web.archive.org/web/20110515093535/http://gothamist.com/2011/03/24/cue_tiny_violins_for_williamsburg_l.php">those tiny violins</a>.</p>
+
+<p>Why didn&apos;t anyone call <a href="https://web.archive.org/web/20110515093535/http://gothamist.com/2010/02/02/schumer_saved_the_pool_parties.php">Chuck Schumer</a>&apos;s red phone during all of this?</p>
+
+<p><strong>UPDATE:</strong> It&apos;s unclear what the board&apos;s vote last night has <em>really means</em>, if anything. We have contacted the State Parks Department to get some clarity, and will update when we hear back.</p>
+
+<p><strong>UPDATE II:</strong> The State Parks Department&apos;s press rep got back to us, but only with his own question, &quot;What&apos;s a community board?&quot; Oh Albany! We await another update from their end as they research this matter, but in the meantime, the OSA tells <a href="https://web.archive.org/web/20110515093535/http://www.brooklynvegan.com/archives/2011/04/there_will_be_c.html">Brooklyn Vegan</a> that last night&apos;s vote isn&apos;t stopping them from hosting 15 concerts at the waterfront this summer.</p>
+
+<p><strong>UPDATE III:</strong>The State Parks Department has now confirmed with us that they have a contract with the OSA for the summer, which will allow them to host the aforementioned concerts. So in the end this means that no matter how many people vote for a ban on concerts on the waterfront, THEY ARE STILL HAPPENING. The end.</p>

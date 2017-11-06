@@ -1,0 +1,13 @@
+---
+author: Jen Chung
+date: June  3, 2008  4:50 PM
+title: "Contrite" Emperors Club Manager Will Plead Guilty
+---
+
+<p><img alt="2008_06_csuwa.jpg" src="https://web.archive.org/web/20120606140006im_/http://gothamist.com/attachments/jen/2008_06_csuwa.jpg" width="209" height="264" class="left">The 23-year-old woman who helped run the prostitution ring that counted <a href="https://web.archive.org/web/20120606140006/http://gothamist.com/2008/03/10/governor_spitze_1.php">former governor Eliot Spitzer as a customer</a> is <a href="https://web.archive.org/web/20120606140006/http://www.nypost.com/seven/06032008/news/regionalnews/madams_squealing__dealing_113728.htm">pleading guilty</a> to money laundering charges.  </p>
+
+<p>Cecil Suwal, who <a href="https://web.archive.org/web/20120606140006/http://www.nydailynews.com/news/ny_crime/2008/06/03/2008-06-03_plea_in_spitzer_hooker_case.html">went to a NJ prep school</a> (yearbook photo pictured), started working for the Emperors Club after answering an ad.  She later become involved with owner Mark Brener, 62.  Brener is pleading innocent and is awaiting trial.  Temeka Rachelle Lewis, the ring&apos;s booker, <a href="https://web.archive.org/web/20120606140006/http://gothamist.com/2008/05/14/emperors_club_b.php">pleaded guilty last month</a> and another employee Tanya Hollander pleaded innocent but <a href="https://web.archive.org/web/20120606140006/http://ap.google.com/article/ALeqM5gvseu7uDYI9vGyMHJCo51IdS-4twD912LVUG0">has been negotiating a plea bargain</a>.</p>
+
+<p>Suwal&apos;s lawyer issued a statement saying, &quot;Ms. Suwal agreed to come to terms with the government and will accept responsibility for her involvement in the operations of the Emperor&apos;s Club VIP. She is contrite and she is determined to right her wrongs in a manner that is just and fair...This is the first step in the process of putting this chapter of her life behind her. She deeply regrets her actions. She is remorseful.&quot; </p>
+
+<p>And here&apos;s an <a href="https://web.archive.org/web/20120606140006/http://gothamist.com/2008/03/12/spitzers_kriste.php">Ashley Alexandre Dupre</a> update: Lawyers for Girls Gone Wild founder Joe Francis has <a href="https://web.archive.org/web/20120606140006/http://www.tmz.com/2008/06/02/ggw-lawyers-to-grill-spitzers-girl/">subpoenaed her</a>, in hopes of knocking down her <a href="https://web.archive.org/web/20120606140006/http://gothamist.com/2008/04/28/kristen_aka_ash.php">$10 million lawsuit</a>.  </p>

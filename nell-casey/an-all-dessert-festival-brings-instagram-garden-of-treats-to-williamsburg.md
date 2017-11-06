@@ -1,0 +1,19 @@
+---
+author: Nell Casey
+date: Sep 14, 2016 2:32 pm
+title: An All-Dessert Festival Brings 'Instagram Garden' Of Treats To Williamsburg
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="091416dessert.jpg" src="https://web.archive.org/web/20161021133945im_/http://gothamist.com/attachments/nyc_nellcasey/091416dessert.jpg" width="640" height="466"> <br> <i> (<a href="https://web.archive.org/web/20161021133945/https://www.facebook.com/JaeNYCEats/photos/a.189186371467873.1073741828.188207421565768/230547367331773/?type=3&amp;theater">Facebook</a>)</i></div> <p></p>
+
+<p>There have been tasting festivals dedicated to <a href="https://web.archive.org/web/20161021133945/http://gothamist.com/2016/04/04/grilled_cheese_competition_big_chee.php">grilled cheese</a> and <a href="https://web.archive.org/web/20161021133945/http://gothamist.com/2015/11/30/great_northeast_cheese_fest_flushin.php">plain cheese</a>, <a href="https://web.archive.org/web/20161021133945/http://gothamist.com/2016/01/07/donut_fest_williamsburg.php">doughnuts</a> and <a href="https://web.archive.org/web/20161021133945/http://beta.gothamist.com/2016/09/02/weekend_food_roundup_83.php">other breakfast foods</a>, and now it&apos;s time for one centered around dessert. In October, a new fest, <a href="https://web.archive.org/web/20161021133945/http://www.dessertgoals.com/">Dessert Goals</a>, swoops in for a social media-fueled celebration of all things sugary. Dessert = <a href="https://web.archive.org/web/20161021133945/https://www.theguardian.com/music/2015/aug/11/squadgoals-whitesplaining-black-culture-taylor-swift">squad</a> here? We need a <a href="https://web.archive.org/web/20161021133945/http://gothamist.com/2015/04/23/world_war_z.php">Gen Z</a> translator.</p>
+
+<p>Organizers are promising over 20 different sugar pushers and so far eight have been announced. <a href="https://web.archive.org/web/20161021133945/https://www.instagram.com/jaenyceats/">Jae NYC Eats</a>, who make the &quot;artisanal Twinkies&quot; seen above, will be joined by <a href="https://web.archive.org/web/20161021133945/http://www.meltbakery.com/">Melt Bakery</a>; those wild egg waffle creations from <a href="https://web.archive.org/web/20161021133945/http://wowfulls.com/">Wowfulls</a>; <a href="https://web.archive.org/web/20161021133945/http://macaronparlour.com/">Macaron Parlour</a>; dragonfruit bowls by <a href="https://web.archive.org/web/20161021133945/http://www.babacoolbrooklyn.com/">Baba Cool</a>; mini cakes by <a href="https://web.archive.org/web/20161021133945/https://www.instagram.com/minimelanienyc/">Mini Melanie</a>; bubble tea by <a href="https://web.archive.org/web/20161021133945/https://www.facebook.com/bobaguys/">Boba Guys</a>; and mochi from <a href="https://web.archive.org/web/20161021133945/https://mochidoki.com/">Mochidoki</a>. </p>
+
+<p>Most importantly, there&apos;s going to be a &quot;photo garden dedicated specifically to Instagram needs.&quot; We&apos;re not sure how that will work, but we assume it includes your friend begrudgingly using their iPhone as a light source, a <a href="https://web.archive.org/web/20161021133945/https://www.instagram.com/p/BJQhRsVheUc/?taken-by=mochi_doki">hand model</a>, a filter concierge, a fully-automated #hashtaggenerator and someone to forcibly remove your phone from your hand and throw it down a well. Or so we imagine. </p>
+
+<p><a href="https://web.archive.org/web/20161021133945/http://www.dessertgoals.com/tickets/">Tickets</a>&#x2014;which include only entry, desserts need to be purchased separately&#x2014;are $10 until September 27th, when the price jumps up to $15. There&apos;s no additional cost for the photo garden except the cost to your soul. </p>					
+										
+									
+				

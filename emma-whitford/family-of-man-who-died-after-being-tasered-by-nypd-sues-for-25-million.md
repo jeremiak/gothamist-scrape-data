@@ -1,0 +1,33 @@
+---
+author: Emma Whitford
+date: Mar 16, 2016 3:23 pm
+title: Family Of Man Who Died After Being Tasered By NYPD Sues For $25 Million
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left"> <img alt="031616_Paul.jpeg" src="https://web.archive.org/web/20170424055333im_/http://gothamist.com/attachments/nyc_ewhitford/031616_Paul.jpeg" width="300" height="453"> <br> <i style=" width:300px; ;display:block"> Anthony Paul II (<a href="https://web.archive.org/web/20170424055333/http://obits.dignitymemorial.com/dignity-memorial/obituary.aspx?n=Anthony-Paul&amp;lc=7339&amp;pid=175268536&amp;mid=6514840">via</a>).</i></div> At a press conference during the height of the <a href="https://web.archive.org/web/20170424055333/http://gothamist.com/2015/08/13/k2_crackdown_ny.php">K2 scare</a> last summer, Police Commissioner Bill Bratton <a href="https://web.archive.org/web/20170424055333/http://www.buzzfeed.com/nicolasmedinamora/despite-what-the-nypd-says-synthetic-pot-will-not-turn-you-i#.acEMJOg3V">described an encounter</a> between his officers and a Bronx man suspected of being high on the synthetic drug. The man allegedly locked himself inside of his apartment, prompting officers to hack at the door with an electric saw. &quot;This individual was so out of it, he grabbed the electric saw with both hands and was totally impervious to the pain,&quot; Bratton told reporters. &quot;It took quite a few efforts on the part of our officers to ultimately subdue him.&quot;<p></p>
+
+<p>Bratton did not name the man, or clarify that 29-year-old Anthony Paul II died of cardiac arrest hours after he was tasered and handcuffed. Paul&apos;s family announced on Wednesday that they are filing a $25 million lawsuit against the NYPD, EMS and North Central Bronx Hospital claiming violation of civil rights, use of excessive force, wrongful death and negligence. <br>
+ <br>
+Officers responded to a 911 call about an emotionally disturbed person who had &quot;apparently&quot; overdosed on drugs shortly after 9:45 p.m. on the night of July 1, 2015, according to the NYPD. Paul allegedly refused to let officers into his apartment, prompting the police to call for EMS backup shortly after 10:00. At 10:20, a hostage negotiation team was called in and at 12:30, officers used an electric saw to break down the door. </p>
+
+<p>Paul was allegedly &quot;confrontational and aggressive&quot; with officers, prompting them to administer the taser. Officers then front-cuffed him and transported him to North Central Bronx Hospital. He suffered cardiac arrest in the emergency room at 1:39 a.m. </p>
+
+<p>According to Derek Sells, the attorney for the Paul family, the City&apos;s autopsy report determined that Paul did not have K2 in his system when police encountered him. A subsequent blood and urine test turned up the same result. &quot;The police commissioner gave his press conference almost three weeks after the lab had already determined that there was no K2 in Mr. Paul&apos;s body,&quot; Sells told us on Wednesday. </p>
+
+<p>Sells believes that excessive tasering caused Paul&apos;s cardiac arrest. According to the attorney, EMS and hospital staff failed to give Paul a sedative to calm his heart rate. &quot;Mr. Paul was bleeding profusely. He had 30 cuts on his body from the saw, had been tasered multiple times, and was handcuffed,&quot; Sells said. &quot;A person in that situation will have high heart rate.&quot; </p>
+
+<p>During the same August press conference where Bratton made anecdotal reference to Paul, the NYPD used clips of a circa-2003 <a href="https://web.archive.org/web/20170424055333/http://gothamist.com/2015/08/05/all_drugs_are_same.php">episode of <em>COPS</em></a> shot in Des Moines, Iowa to illustrate the effects of K2. The man featured in the clip is high on PCP. The NYPD later stated that the video was &quot;shown to depict the type of behavior sometimes associated with &apos;excited delirium syndrome,&apos;&quot; and that it was &quot;never, ever said that it was K2 that the people were on.&quot;</p>
+
+<p>The Paul family suit also alleges that the NYPD is withholding video footage of the arrest, and that officers entered Paul&apos;s room &quot;without justification&quot;&#x2014;that Paul was not presenting &quot;any immediate threat&quot; to himself or others behind his locked door. &quot;They said that Anthony was nude,&quot; Paul&apos;s father, Paul Sr., <a href="https://web.archive.org/web/20170424055333/http://www.ny1.com/nyc/all-boroughs/criminal-justice/2016/03/15/nypd-being-sued-over-death-of-emotionally-disturbed-man.html">told NY1</a>. &quot;When somebody doesn&apos;t have clothes on them, they can&apos;t pull out a gun from somewhere. They can&apos;t pull out a knife.&quot; </p>
+
+<p>Police arrested Paul at his temporary home, a three-quarter house at 2846 Briggs Avenue in the Bronx. Paul had recently finished serving prison time, and did not have a history of mental health issues, according to his attorney. The three-quarter house was one of several operated by the <a href="https://web.archive.org/web/20170424055333/http://gothamist.com/2015/12/28/three-quarter_housing_still_decrepi.php">notorious rehab provider</a> <a href="https://web.archive.org/web/20170424055333/http://www.ag.ny.gov/press-release/ag-schneiderman-announces-indictment-nonprofit-narco-freedom-and-its-top-executives">Narco Freedom</a>. </p>
+
+<p>The NYPD confirmed on Wednesday that a taser was used on Paul the night of his death, but would not clarify how many shocks were emitted. The NYPD patrolman&apos;s guide mandates that officers in &quot;no situation [use] more than three standard discharge cycles against any subject.&quot; According to a spokeswoman for the department, Paul&apos;s death certificate indicated cardiac arrhythmia and &quot;possible drug intoxication.&quot; </p>
+
+<p>An <a href="https://web.archive.org/web/20170424055333/http://obits.dignitymemorial.com/dignity-memorial/obituary.aspx?n=Anthony-Paul&amp;lc=7339&amp;pid=175268536&amp;mid=6514840">online obituary</a> recalls Paul&apos;s &quot;handsome smile, big hugs, and a playful energy.&quot; When he died, the Nyack native was working as a telemarketing analyst and a warehouse assistant by day, and studying to be a personal trainer by night. </p>
+
+<p>The NYPD did not respond to a request for comment on the allegations. </p>					
+										
+									
+				

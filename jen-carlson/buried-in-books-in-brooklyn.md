@@ -1,0 +1,11 @@
+---
+author: Jen Carlson
+date: June  7, 2008  3:10 PM
+title: Buried in Books in Brooklyn
+---
+
+<p><img alt="20806unbooks.jpg" src="https://web.archive.org/web/20111111210502im_/http://gothamist.com/attachments/arts_jen/20806unbooks.jpg" width="350" height="252" class="right">Books can be the perfect place to stick an orphaned piece of paper; bills, to-do lists, unsent notes often get discarded in between pages -- so it&apos;s not a surprise when an unknown scrap comes floating out of a used book. Adam Tobin, owner of <a href="https://web.archive.org/web/20111111210502/http://www.unnameablebooks.net/">Unnameable Books</a> in Brooklyn, has now created a display inside his store for just such found objects.</p><blockquote>&#x201C;It&#x2019;s a motley assortment,&#x201D; he said. &#x201C;We&#x2019;ve been doing it for about two years since opening the store. The display quickly took over the back wall and now it&#x2019;s spreading to other places, and there&#x2019;s a backlog of stuff that we haven&#x2019;t put up yet. There are postcards, shopping lists, and concert tickets but my favorites are the cryptic notes. They are often deeply personal and can be very moving.&#x201D;<p></p>
+
+<p>&#x201C;It&#x2019;s easy to find things in books that are very dated,&#x201D; explained Adam,&#x201D; Such as a newspaper advert for elastic bands from the 19th century. My personal favorite is an ad from the 1950s that reads &#x2018;Rinsing Dacron Curtains in Milk Makes Them Crisp, Stiff, Just Like New.&#x2019;&#x201D;</p></blockquote>Tobin has even found a letter written by CS Lewis! <a href="https://web.archive.org/web/20111111210502/http://www.abebooks.com/docs/Community/Featured/found-in-books.shtml">AbeBooks</a> has an assortment of tales of what other booksellers have found -- including one who sold a microwave cookbook containing $40,000 (the buyer didn&apos;t return the money). What&apos;s fallen out of your used books? Hopefully not bacon, a strip of which one seller found amongst some tattered pages. <p></p>
+
+<p><span class="photo_caption">Photo of Unnameable Books via <a href="https://web.archive.org/web/20111111210502/http://www.flickr.com/photos/tracy_collins/2050707205">threecee&apos;s flickr</a>.</span></p>

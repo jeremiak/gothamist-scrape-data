@@ -1,0 +1,11 @@
+---
+author: Jen Carlson
+date: March  1, 2011  2:13 PM
+title: Holy Crap: Writer Posting Novel Offline, On Lampposts
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-right" style=" width:365px; "> <img alt="evnovel030111.jpg" src="https://web.archive.org/web/20120503191838im_/http://gothamist.com/attachments/arts_jen/evnovel030111.jpg" width="365" height="274"> <br> <i><span class="photo_caption">via NY Post</span></i></div> After all the press (s)he&apos;s getting, we&apos;re guessing the person posting pages of their novel on East Village lampposts is currently setting up a Tumblr account. According to <a href="https://web.archive.org/web/20120503191838/http://www.nypost.com/p/news/local/manhattan/light_reading_Vv4kQtNNsiM9xibr9kEMUP#ixzz1FMg8y6Sj">the NY Post</a> (who ripped the story <a href="https://web.archive.org/web/20120503191838/http://evgrieve.com/2011/02/page-7.html">from EV Grieve</a>), there are currently at least 8 pages of a novel, titled <em>Holy Crap</em>, posted around the neighborhood. After tracking down a couple of pages, they believe it&apos;s about becoming a new parent, with passages reading, &quot;Then the baby is on a chest. She is wrapped in a white blanket with green trim.&quot; At the bottom of each page, the reader is directed to a new location, where the following page is posted.<p></p>
+
+<p>At least one local curmudgeon is fully against this expression of creativity, and told the paper, &quot;Honestly, I don&apos;t like the idea. I hate it when people just post things everywhere. They have the Internet, why don&apos;t they use that?&quot;</p>
+
+<p>Hopefully the project will continue offline; if you want to follow the storyline, the 8th page is on St. Marks Place between 1st and 2nd avenues&#x2014;if you spot any others around, send a photo and location <a href="https://web.archive.org/web/20120503191838/mailto:tips@gothamist.com">our way</a>! And here&apos;s another photo from <a href="https://web.archive.org/web/20120503191838/http://evgrieve.com/2011/03/write-this-way.html">EV Grieve</a>.</p>

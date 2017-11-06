@@ -1,0 +1,13 @@
+---
+author: Nell Casey
+date: May  9, 2012  6:27 PM
+title: Sixpoint Hooks Up With Local Farm For Delicious Beer Cheese Creation
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="050912sxpointcheese.jpg" src="https://web.archive.org/web/20120514145625im_/http://gothamist.com/attachments/nyc_nellcasey/050912sxpointcheese.jpg" width="640" height="480"> <br> <i> Not the &quot;Point of Origin,&quot; cheese but a similar washed-rind variety (via <a href="https://web.archive.org/web/20120514145625/http://www.flickr.com/photos/sproutcreekfarm/4730082299/in/photostream">SproutCreekFarm</a>&apos;s Flickr)</i></div> <p></p>
+
+<p>You&apos;ve heard of <a href="https://web.archive.org/web/20120514145625/http://gothamist.com/2011/10/20/cooking_with_beer.php">beer and cheese</a> pairings, but now you can enjoy the two entities fused together, in a new cheese that&apos;s been basted with the boozy beverage. <a href="https://web.archive.org/web/20120514145625/http://www.sproutcreekfarm.org/">Sprout Creek Farm</a>, a Poughkeepsie cheese maker, has partnered with Red Hook&apos;s <a href="https://web.archive.org/web/20120514145625/http://sixpoint.com/">Sixpoint Ales</a> to create <a href="https://web.archive.org/web/20120514145625/http://www.nytimes.com/2012/05/09/dining/a-cheese-washed-in-brooklyn-beer.html?partner=rss&amp;emc=rss">&quot;Point of Origin,&quot;</a> the first of what will be a series of washed-rind cheeses from the collaboration.</p>
+
+<p>Washed-rind cheeses are a familiar variety to European cheese hounds but not until recently has the trend caught on in the United States. The cheeses are continually dunked or wiped with liquid&#x2014;sometimes a brine or, in this case, a beer&#x2014;to produce a more pungent rind. For this incarnation, Sixpoint supplied their Brownstone Brown Ale to be basted over a raw cow&apos;s milk cheese from Sprout Creek. The result is a more mellow version of a typical washed-rind cheese, which are often of the more <em>aromatic</em> variety, that has a subtle zing and a smooth texture.</p>
+
+<p>You can pick up a creamy hunk at your local Whole Foods but it won&apos;t come cheap! The fromage rings in at $24.99 a pound, making it more suitable to special occasions rather than an everyday snack. You could pair it with the Brownstoner Brown Ale, of course, but Sixpoint&apos;s <a href="https://web.archive.org/web/20120514145625/http://gothamist.com/2012/05/01/sixpoint_brewery_releases_a_new_whe.php">new seasonal Apollo</a> is now in rotation and the crisp, fruity brew would help to cut the richness of the decadent dairy. </p>

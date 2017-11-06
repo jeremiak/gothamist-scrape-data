@@ -1,0 +1,23 @@
+---
+author: Nell Casey
+date: Apr 17, 2017 11:45 am
+title: Taste Street Food From Around The World Under One Roof & More Weekly Eats
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="041717streets.jpg" src="https://web.archive.org/web/20171015110806im_/http://gothamist.com/attachments/nyc_nellcasey/041717streets.jpg" width="640" height="427"> <br> <i> (courtesy STREETS Eats)</i></div> <p></p>
+
+<p>Sample street food from around the world on Tuesday at the 10th annual <strong><a href="https://web.archive.org/web/20171015110806/https://events.r20.constantcontact.com/register/eventReg?oeidk=a07edsrxect5c00bafa&amp;oseq=&amp;c=&amp;ch">STREETS Eats</a></strong> benefit for the STREETS non-profit in Vietnam that trains disadvantaged youth in cooking and restaurant hospitality. NYC chefs include Floyd Cardoz (Paowalla), Leah Cohen (Pig &amp; Khao), Daniel Holzman (The Meatball Shop), and King Phojanakong (Kuma Inn) will be preparing global street foods available for sampling at the walk-around tasting event. There will also be an open bar with beer, wine and cocktails. <a href="https://web.archive.org/web/20171015110806/https://events.r20.constantcontact.com/register/eventReg?oeidk=a07edsrxect5c00bafa&amp;oseq=&amp;c=&amp;ch">Tickets cost $150</a> and the event will take place at the <a href="https://web.archive.org/web/20171015110806/http://www.ice.edu/about-us/facilities-technologies">Institute of Culinary Education (ICE) at Brookfield Place</a> in Battery Park City.</p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="041717piora.jpg" src="https://web.archive.org/web/20171015110806im_/http://gothamist.com/attachments/nyc_nellcasey/041717piora.jpg" width="639" height="480"> <br> <i> (courtesy Piora)</i></div> <p></p>
+
+<p>A sandwich pop-up has arrived at <a href="https://web.archive.org/web/20171015110806/http://pioranyc.com/">Piora</a> in the West Village. Tuesday to Friday from noon to 2:30 p.m., chef Chris Cipollone will operate &quot;Cipolloni,&quot; selling a variety of sandwiches ($15) influenced primarily by Italy. Options include a Porchetta with provolone, cherry pepper relish, spicy broccoli rabe and oregano mojo, and the American Hero, with American-made prosciutto, local mozzarella, kale pesto and marinated peppers. </p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="041717delmonicos.jpg" src="https://web.archive.org/web/20171015110806im_/http://gothamist.com/attachments/nyc_nellcasey/041717delmonicos.jpg" width="640" height="437"> <br> <i> Farmers Cheese Dumplings (courtesy Delmonico&apos;s)</i></div> <p></p>
+
+<p>NYC&apos;s <a href="https://web.archive.org/web/20171015110806/http://gothamist.com/2017/01/19/demonicos_nyc_history.php#photo-1">first fine dining restaurant</a>, <a href="https://web.archive.org/web/20171015110806/http://www.delmonicosrestaurant.com/">Delmonico&apos;s</a>, marks a milestone in restaurant history with the introduction of a new guest chef series where female chefs design and executes a lunch menu, commemorating the restaurant&apos;s admission of unaccompanied female diners in the late 1860&apos;s. From April 20th to April 30th, Delaware &amp; Hudson&apos;s Patti Jackson will be the chef of honor, creating special dishes including Farmer&apos;s Cheese Dumplings with flowering wild mustard ($13) and Long Island Duck Breast with rhubarb, celery pecan gratin and sauteed spinach ($32). </p>
+
+<p>Eataly&apos;s new <a href="https://web.archive.org/web/20171015110806/http://gothamist.com/2017/03/30/manzo_eataly_reboot.php#photo-1">meat-centric restaurant</a> Manzo reboot will be the inspiration for a total site takeover on Friday. From 8 p.m. to midnight, Eataly&apos;s flagship Flatiron store will turn into <strong><a href="https://web.archive.org/web/20171015110806/https://www.eataly.com/us_en/meat-me-at-eataly-an-all-access-pass-to-wine-dine-manzo-style-2017-04-21-2686">Meat Me at Eataly</a></strong>, with Manzo dishes offered at stations around the store, in addition to hands-on demos like pasta- and mozzarella-making, and more Italian bites including freshly-sliced prosciutto, and olive oil samplings. <a href="https://web.archive.org/web/20171015110806/https://www.eataly.com/us_en/meat-me-at-eataly-an-all-access-pass-to-wine-dine-manzo-style-2017-04-21-2686">Tickets $95</a>.</p>					
+										
+									
+				

@@ -1,0 +1,11 @@
+---
+author: Jen Chung
+date: May 25, 2009 2:46 pm
+title: Gassy Mastiff 1, Soledad O'Brien 0
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="2009_05_neamas.jpg" src="https://web.archive.org/web/20141117072800im_/http://gothamist.com/attachments/jen/2009_05_neamas.jpg" width="140" height="128" class="image-right"> </span>A Chelsea co-op&apos;s attempt to evict a family over its &quot;gassy&quot; Neapolitan Mastiff <a href="https://web.archive.org/web/20141117072800/http://www.nypost.com/seven/05242009/news/regionalnews/dog_stays_by_odor_of_the_court_170770.htm">has been thrown out by a judge</a>.  In January, the Post detailed the plight of the Lyons family, who were <a href="https://web.archive.org/web/20141117072800/http://gothamist.com/2009/01/18/soledad_obrien_hates_neighbors_gass.php">shunned and hated by their neighbors</a>&#x2014;including CNN anchor Soledad O&apos;Brien&#x2014; because their mastiff Ugo is smelly. Though the West 26th building allows pets, the co-op board (with board secretary O&apos;Brien) became fed up and moved to evict the Lyonses, who tried to address the issue by grooming him three times a month and spraying him with deodorizer.   Now the <a href="https://web.archive.org/web/20141117072800/http://www.nypost.com/seven/05242009/news/regionalnews/dog_stays_by_odor_of_the_court_170770.htm">Post reveals that Ugo can stay</a> because the Lyonses &quot;were not properly served in the suit.&quot; The Lyonses&apos; lawyer said, &quot;<strong>The board is trying to evict a family, and it can&apos;t even serve the initial papers correctly. Maybe the board should be put on a leash.</strong>&quot;  Since news of Ugo&apos;s plight attracted many supporters, O&apos;Brien has suffered a bit of opposition; she resigned from the co-op board in February, explaining, &quot;After discussions with neighbors and others, [my husband] and I have become increasingly concerned about my personal safety.&quot;  The Post also has a <a href="https://web.archive.org/web/20141117072800/http://www.nypost.com/seven/05242009/photos/010_graphic.jpg">chart comparing O&apos;Brien&apos;s and Ugo&apos;s characteristics</a>.</p>					
+										
+									
+				

@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: August 28, 2008 10:34 AM
+title: Not All Schools Were Created with Equal Parking for Teachers
+---
+
+<p><img alt="2008_08_parking.jpg" src="https://web.archive.org/web/20130317012816im_/http://gothamist.com/attachments/jen/2008_08_parking.jpg" width="85" height="129" class="right">As the city is <a href="https://web.archive.org/web/20130317012816/http://www.nypost.com/seven/08272008/news/regionalnews/city_class_action_strips_teachers__parki_126306.htm">stripping away 50,000 teachers&apos; parking permits</a>, out of the current 63,390 (apparently there are only 10,000 parking spaces near schools), now principals are faced with potentially many unhappy teachers.  The <a href="https://web.archive.org/web/20130317012816/http://www.nytimes.com/2008/08/28/nyregion/28parking.html?ref=nyregion">NY Times finds</a> that some schools have extra parking spaces while others have to share spaces with other schools.  The the principal of P.S. 21/Crispus Attucks School in Bed-Stuy explained why many of his teachers drive, though the subway is a block away, &#x201C;<strong>There&#x2019;s a lot of shootings around here. They take cars because of the chances they take walking through the neighborhood. I hope they understand when they don&#x2019;t get parking permits.</strong>&#x201D;</p>

@@ -1,0 +1,25 @@
+---
+author: Jen Carlson
+date: Jul 21, 2013 4:22 PM
+title: The Brooklyn Apartments That Have A Titanic History
+---
+
+
+                            
+                            
+                            
+                            <p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="behrmansion0713.jpg" src="https://web.archive.org/web/20130822142633im_/http://gothamist.com/attachments/arts_jen/behrmansion0713.jpg" width="640" height="621" class="image-none"> </span><br>
+<span class="photo_caption">Photo by Jen Carlson/Gothamist</span></p>
+
+<p>There&apos;s a lot of history around Brooklyn Heights&#x2014;<a href="https://web.archive.org/web/20130822142633/http://gothamist.com/2010/05/10/capote_1.php#photo-1">Truman Capote</a> wrote many of his novels there, Martin Luther King, Jr. <a href="https://web.archive.org/web/20130822142633/http://www.brooklyneagle.com/articles/plymouth-church-marks-50th-anniversary-martin-luther-king-jr%E2%80%99s-visit">spoke at Plymouth Church</a>, and Robert Moses once tried to build the BQE <a href="https://web.archive.org/web/20130822142633/http://gothamist.com/2012/07/16/the_brooklyn_promenade.php#photo-1">straight through the neighborhood</a>. But did you know it has some ties to the Titanic as well? Last week <a href="https://web.archive.org/web/20130822142633/http://instagram.com/gothamist">on our Instagram</a> we posted this photo of the Behr Mansion at 82 Pierrepont Street with <a href="https://web.archive.org/web/20130822142633/http://instagram.com/p/b9z_kyrECr/">a short history</a> of the building&#x2014;here&apos;s the longer version.</p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="php3Q6CSTAM.jpg" src="https://web.archive.org/web/20130822142633im_/http://gothamist.com/attachments/arts_jen/php3Q6CSTAM.jpg" width="242" height="168" class="image-right"> </span>The house was built around 1888 by architect Frank Freeman, and has been called &quot;the city&apos;s finest Romanesque Revival house&quot;&#x2014;containing &quot;terra cotta and rockfaced sandstone with crazy animal ornament reminiscent of modern, violent comic books&#x2014;grimacing lizards, lions and dragons.&quot; It belonged to industrialist Herman Behr and his family, including sons Karl (a tennis player) and Max (a golfer). The family owned the home until moving upstate around 1919, and it was there where Karl returned after surviving the Titanic tragedy. As the story goes&#x2014;and <a href="https://web.archive.org/web/20130822142633/http://www.amazon.com/Starboard-Midnight-Helen-Behr-Sanford/dp/0878502009/ref=sr_1_2?ie=UTF8&amp;qid=1374328404&amp;sr=8-2&amp;keywords=karl+behr">there&apos;s an entire book about it</a>&#x2014;Behr bought a ticket on the Titanic to be close to his romantic interest, Helen Newsom. Her family was attempting to separate her from Behr, and he was trying to continue the courtship. When the ship hit the iceberg, Behr <a href="https://web.archive.org/web/20130822142633/http://www.encyclopedia-titanica.org/lifeboat-not-filled-karl-behr-declares.html">told the story</a> of what happened: </p>
+
+<blockquote>&#x201C;I knew exactly where the lifeboats were, so we went to the top deck. All was perfectly calm. We waited while the first boat was being filled and lowered. We went in the second boat. At that time we supposed there were plenty of lifeboats for all the passengers. One of the ladies asked Mr. Ismay whether the men could go with her. I heard Mr. Ismay reply quietly: &apos;Why, certainly, madam.&#x2019; We all got go into the boat. Even then it was not filled, and Mr. Ismay ordered an officer and two or three more of the crew to join us. We were apparently the last passengers on the top deck.&#x201D;</blockquote>
+
+<p>Behr reportedly proposed to Newsom on the lifeboat, and the following year they were married. Years later the Behr family would sell the Brooklyn Heights home.</p>
+
+<p>Around 1919, an expansion was made, adding on to the rear of the property, and it became the Palm Hotel, which <a href="https://web.archive.org/web/20130822142633/http://www.nytimes.com/2008/10/03/arts/03expl.html?pagewanted=all&amp;_r=0">the NY Times</a> once recalled was &quot;a bordello. Bars and rowdy taverns crowded the streets, prowled by sailors and ruffians from down by the water.&quot; Following that, in 1961, it became housing for Franciscan monks, and was then converted into rental apartments in 1977. It last sold in 2008 for $10,980,000, and though <a href="https://web.archive.org/web/20130822142633/http://www.brooklynpaper.com/stories/30/37/30_37expensive.html">the broker was hoping</a> a family would convert it back into a home, it currently holds 26 apartments... a handful are rent-controlled. As of a couple years ago, a 1-bedroom with a balcony was going <a href="https://web.archive.org/web/20130822142633/http://www.brownstoner.com/blog/2011/05/rental-of-the-d-173/">for $2,900/month</a>.</p>
+                            
+                            
+                            

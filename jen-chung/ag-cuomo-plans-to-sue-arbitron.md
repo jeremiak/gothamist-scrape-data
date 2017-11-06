@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: October  7, 2008  8:47 AM
+title: AG Cuomo Plans to Sue Arbitron
+---
+
+<p><img alt="2008_10_radio.jpg" src="https://web.archive.org/web/20110611045339im_/http://gothamist.com/attachments/jen/2008_10_radio.jpg" width="110" height="126" class="right">Attorney General Andrew Cuomo was unsparing in his criticism of radio ratings measuring company Arbitron, which just rolled out new measuring devices.  Cuomo&apos;s <a href="https://web.archive.org/web/20110611045339/http://www.oag.state.ny.us/media_center/2008/oct/oct6d_08.html">statement reads</a>, &quot;<strong>Arbitron&apos;s decision to release its unreliable and unaccredited radio ratings system is an affront to racial and ethnic minorities in New York and around the country.</strong>.. Arbitron&apos;s unwillingness to defend the validity of their system on its merits proves it places its own economic incentives over the interests of minority broadcasting,&quot; and warns radio broadcasters and advertisers against using the devices.  The <a href="https://web.archive.org/web/20110611045339/http://www.nytimes.com/2008/10/07/nyregion/07arbitron.html?ref=nyregion">NY Times reports</a> the AG&apos;s office doesn&apos;t think the new system &quot;adequately account[s] for young African-Americans and Hispanics, people who do not speak English, and cellphone-only households&quot; and will sue Arbitron later this week.</p>

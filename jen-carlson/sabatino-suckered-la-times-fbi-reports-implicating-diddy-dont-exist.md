@@ -1,0 +1,13 @@
+---
+author: Jen Carlson
+date: March 26, 2008  2:51 PM
+title: Sabatino Suckered LA Times? FBI Reports Implicating Diddy Don't Exist
+---
+
+<p><img alt="200803sabatino.jpg" src="https://web.archive.org/web/20110629195124im_/http://gothamist.com/attachments/arts_jen/200803sabatino.jpg" width="250" height="183" class="right">Last week&apos;s <a href="https://web.archive.org/web/20110629195124/http://www.latimes.com/news/nationworld/nation/la-naw-quad17mar17,0,4451053.story">LA Times</a> article about the Tupac shooting of 1994 (occurring just two years before his murder), led to a lot of <a href="https://web.archive.org/web/20110629195124/http://gothamist.com/2008/03/18/biggie.php">chatter about the rapper&apos;s death</a> and those who may have been involved. The finger was now being pointed at Sean &quot;Diddy&quot; Combs, who maintained he was not involved. </p>
+
+<p>Today, <a href="https://web.archive.org/web/20110629195124/http://www.thesmokinggun.com/archive/years/2008/0325081sabatino1.html">The Smoking Gun</a> calls the paper out by saying their scoop was a scam. Their main resource, James Sabatino (pictured), has likely fabricated evidence and forged FBI reports that were used by the paper. Not a hard story to swallow given Sabatino is a con man (and former consultant for Diddy&apos;s Bad Boy Records) currently residing behind bars. </p>
+
+<p>TSG reports that the LA Times fell victim to a hoax, and that the FBI reports &quot;are nowhere to be found in the bureau&apos;s computerized Automated Case Support database.&quot; It is believed that Sabatino fabricated them, as they &quot;share remarkably similar spelling deficiencies.&quot; Sabatino, who has long tried to implicate himself in some of hip-hop&apos;s big shootings, claims the reports were provided to him and told TSG, &quot;there is a lot of lies circulating around right now. But this is all going to backfire on Puff. I know him too well.&quot;</p>
+
+<p><a href="https://web.archive.org/web/20110629195124/http://gawker.com/372466/lats-tupac-shooting-scoop-based-on-a-hoax">Reportedly</a> The LA Times is launching an investigation to get to the bottom of these new claims. The paper&apos;s new editor, <a href="https://web.archive.org/web/20110629195124/http://cityroom.blogs.nytimes.com/2008/03/26/report-on-1994-rapper-shooting-in-doubt/">Russ Stanton, said</a> they are &#x201C;taking this very seriously.&quot;</p>

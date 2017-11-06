@@ -1,0 +1,7 @@
+---
+author: Jen Carlson
+date: December 22, 2009  3:25 PM
+title: Is Ashanti's Stalker Too Crazy To Convict?
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <a href="https://web.archive.org/web/20130613020606/http://gothamist.com/attachments/arts_jen/ashantitina1209.jpg"> <img alt="ashantitina1209.jpg" src="https://web.archive.org/web/20130613020606im_/http://gothamist.com/assets_c/2009/12/ashantitina1209-thumb-242x247-467128.jpg" width="92" height="93" class="image-right"> </a> </span>Devon Hurd &#x2014; <a href="https://web.archive.org/web/20130613020606/http://gothamist.com/2009/12/17/ashanti_stalker.php">the sexting</a>, <a href="https://web.archive.org/web/20130613020606/http://gothamist.com/2009/12/10/celeb_sexting.php">stalking creeper</a> who has been harassing both singer Ashanti and her mother (<em>and</em> other family members) &#x2014; is, surprise, crazy! At least, according to an alternate juror on the case, who told <a href="https://web.archive.org/web/20130613020606/http://www.nypost.com/p/news/local/ashanti_fan_nut_juror_BY19TMU4Pkr1mGkMQbGcCK">the NY Post</a>, &quot;He clearly seemed delusional. I have no idea what that jury is going to do, but I hope they don&apos;t convict.&quot; To convict 31-year-old, they&apos;ll need to prove he had intent to harrass... but it&apos;s possible he&apos;s &quot;too kooky to convict,&quot; as the paper says.</p>

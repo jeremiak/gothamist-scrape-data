@@ -1,0 +1,17 @@
+---
+author: Jen Chung
+date: Jul 21, 2010 9:45 am
+title: "Commie" Teacher Banned For Illegal School Trips To Cuba
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:220px; "> <img alt="2010_07_cuba.jpg" src="https://web.archive.org/web/20150422205838im_/http://gothamist.com/attachments/jen/2010_07_cuba.jpg" width="220" height="272"> <br> <i>Fidel Castro, in a Cuban government released photo, last Friday</i></div> Time to flashback to 2007, when a history teacher at the Beacon School <a href="https://web.archive.org/web/20150422205838/http://gothamist.com/2007/04/16/class_trip_not.php">was in hot water for arranging a class trip</a> to Cuba.  See, there are travel restrictions to Cuba and the kids were detained by customs agents from their way back to New York.  Now, showing how slowly bureaucracy moves, the Department of Education <em>finally</em> released its report on the incident and decided to ban teacher Nathan Turner from the school system.<p></p>
+
+<p>Among the highlights of the DOE investigator&apos;s report (<a href="https://web.archive.org/web/20150422205838/http://www.nypost.com/r/nypost/2010/07/20/news/media/sci_report.pdf">PDF</a>): How Turner was told to cancel the trip by the DOE and his principal, Ruth Lacey, but he still went with the kids; parents were aware of the trip and knew the <a href="https://web.archive.org/web/20150422205838/http://www.nydailynews.com/ny_local/education/2010/07/21/2010-07-21_please_let_me_see_fidel_hs_teach_who_led_trip_to_cuba_a_castro_fan.html">school didn&apos;t sponsor it</a> (though it was listed on the school&apos;s website); and Turner telling Lacy that he&apos;s a Communist and had to visit Cuba &quot;to see Castro one more time before he died.&quot;  The school <a href="https://web.archive.org/web/20150422205838/http://gothamist.com/2007/04/17/its_10_oclock_d.php">had trips to Cuba since 2000</a> (even Governor David Paterson&apos;s stepdaughter went on one!), but in 2007, Lacey claimed to worry that Castro&apos;s declining health might prompt &quot;instability&quot; in the country.  </p>
+
+<p>Turner, who parents said was popular with students (and why not&#x2014;he was taking them to Cuba!), quit in 2008, but the decision to ban him was made with the release of the report. DOE Investigations Commissioner Richard Condon told the Daily News, &quot;He put these students in some jeopardy of suffering either civil or criminal penalties..If he were not a teacher he would not have had access to those students. and we don&apos;t think he should have made the trip.&quot; Condon <a href="https://web.archive.org/web/20150422205838/http://www.nypost.com/p/news/local/manhattan/teacher_reason_for_controversial_GzUuz7dAKxjv5sfVutlP2H?CMP=OTC-rss&amp;FEEDNAME=">also said to the Post</a> that the principal acted appropriately, &quot;<strong>I don&#x2019;t think [Lacey] could have done anything more to stop the trip except stand at the border with a gun in her hands.</strong>&quot;</p>
+
+<p>Last week, the <a href="https://web.archive.org/web/20150422205838/http://gothamist.com/2010/07/15/teacher_fired_school_disciplined_fo.php">DOE fired a teacher</a> for taking her students on a field trip to Long Beach, where a student drowned as no lifeguards were on duty; the school&apos;s assistant principal was demoted and the principal was disciplined. </p>					
+										
+									
+				

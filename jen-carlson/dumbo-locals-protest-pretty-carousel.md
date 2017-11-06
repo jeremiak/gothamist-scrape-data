@@ -1,0 +1,11 @@
+---
+author: Jen Carlson
+date: April 12, 2010  3:40 PM
+title: DUMBO Locals Protest Pretty Carousel
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-right" style=" width:225px; "> <img alt="janescarousel0410.jpg" src="https://web.archive.org/web/20111118045429im_/http://gothamist.com/attachments/arts_jen/janescarousel0410.jpg" width="225" height="300"> <br> <i><span class="photo_caption">Photo via <a href="https://web.archive.org/web/20111118045429/http://www.flickr.com/photos/urbanshoregirl/2940134370/">urbanshoregirl&apos;s flickr</a></span></i></div> Jane Walentas (hitched to developer David Walentas) has been fighting to bring <a href="https://web.archive.org/web/20111118045429/http://www.janescarousel.com/">her antique carousel</a> into Empire Fulton Ferry Park, which is currently closed off as it faces a merger with the new Brooklyn Bridge Park. She&apos;s happy to pay for the installation, so who <em>doesn&apos;t</em> want a free pretty carousel sprucing up area filled with modern day <a href="https://web.archive.org/web/20111118045429/http://gothamist.com/2010/04/07/brooklyn_bridge_parks_playground_wi.php">metallic orbs</a> that burn children? The people leaving these flyers around, that&apos;s who. <a href="https://web.archive.org/web/20111118045429/http://ny.curbed.com/archives/2010/04/12/dumbo_resident_declares_war_on_the_walentas_whirligig.php">Curbed</a> spotted and transcribed the opponent&apos;s posted protest, which reads in part:<blockquote>The Carousel: Boycott this thoughtless project of a rich individual&apos;s boredom. In order to install the carousel in the park...<br>
+<ul><li>A majestic tree will be chopped down<br>
+</li><li>Nature all around will be destroyed<br>
+</li><li>As will the peace and quiet we&apos;ve enjoyed<br>
+</li><li>No more geese - either chased or terrified by the racket and the crowds</li></ul></blockquote>The scaremongerers also note that the presence of the carousel will turn the area into a mini amusement park, attracting junk food, annoying crowds of people, and rats! Carousels, <a href="https://web.archive.org/web/20111118045429/http://gothamist.com/2010/03/24/get_on_your_dancing_shoes_dumbo.php">dancing</a>... what will the heathens bring to DUMBO next?<p></p>

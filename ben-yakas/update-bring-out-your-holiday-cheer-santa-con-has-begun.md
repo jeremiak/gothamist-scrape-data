@@ -1,0 +1,21 @@
+---
+author: Ben Yakas
+date: December 10, 2011  6:00 PM
+title: [UPDATE] Bring Out Your Holiday Cheer: SantaCon Has Begun!
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="121011santacon.jpg" src="https://web.archive.org/web/20130515165822im_/http://gothamist.com/attachments/byakas/121011santacon.jpg" width="640" height="425"> <br> <i>A reveler from last year&apos;s event (<a href="https://web.archive.org/web/20130515165822/http://www.flickr.com/photos/jimkiernan/5254160760/in/set-72157625456621499">jim kiernan&apos;s flickr</a>)</i></div> <p></p>
+
+<p>You better not pout, you better not cry, you probably should wear pants: <a href="https://web.archive.org/web/20130515165822/http://gothamist.com/tags/santacon">SantaCon</a>, the annual tradition of drinking while under the influence of being jolly, has begun! The day-long Santa pub crawl/food drive <a href="https://web.archive.org/web/20130515165822/http://nycsantacon.com/">just kicked off at</a> 10 a.m. this morning. Holiday-attired participants are asked to bring two non-perishable food items to one of the two starting points: in Manhattan at the North Cove Marina at World Financial Center, and in Brooklyn at Brooklyn Bridge Park at the intersection of Old Fulton Street and Water Street. Here&apos;s <a href="https://web.archive.org/web/20130515165822/http://nycsantacon.com/bk.png">the bar map for Brooklyn</a> (including DUMBO mainstays Rebar, Superfine, 68 Jay Street and Galapagos) and Merchants River House &amp; PJ Clarke&#x2019;s are open for Manhattan Santas. <strong>UPDATE BELOW</strong></p>
+
+<p>You can follow along with all the <a href="https://web.archive.org/web/20130515165822/https://twitter.com/#!/santacon">updates on the crawl here.</a> So get your frisky sugarplum gingerbread <a href="https://web.archive.org/web/20130515165822/http://nmcglynn.com/post/14014271023/santacon-has-begun-taken-with-instagram-at">costume on</a> (&quot;Anyone caught attending SantaCon without a FULL costume will be pelted with reindeer droppings and receive coal in their stocking.&quot;) and get out there for a day of mirthful drinking, charitable spirits, and falalucking walking. We&apos;ll have pictures from the event later today, but until then, let LeShawn the Elf get you in the SantaCon spirit:</p>
+
+<p><iframe width="640" height="360" src="https://web.archive.org/web/20130515165822if_/http://www.youtube.com/embed/PZy3FgF1Kro" frameborder="0" allowfullscreen></iframe></p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="121011santa1.jpg" src="https://web.archive.org/web/20130515165822im_/http://gothamist.com/attachments/byakas/121011santa1.jpg" width="640" height="480"> <br> <i>(Katie Sokoler/Gothamist)</i></div> <p></p>
+
+<p><strong>Update</strong>: As you can see from the picture of Grand Central above, SantaCon brought out hundreds of <a href="https://web.archive.org/web/20130515165822/https://twitter.com/#!/bowerypresents/status/145634612213846016">&quot;drunken glassy-eyed&quot; Santa-suited revelers</a> today. The festivities caught the eye of everyone from Rachel Maddow (<a href="https://web.archive.org/web/20130515165822/https://twitter.com/#!/maddow/status/145604121402163202">who tweeted</a>, &quot;Being caught out in the middle of #Santacon is making me feel under-festive. Also, sober.&quot;) to Kelly Cutrone (<a href="https://web.archive.org/web/20130515165822/https://twitter.com/#!/peoplesrev/status/145618784022036480">who tweeted</a>, &quot;It&apos;s fun explaining to a 9 year old why there are 500 drunk Sanats on the street #santacon - #anothernynightmare&quot;). </p>
+
+<p>We&apos;ll have lots of great photos of today&apos;s event&#x2014;taken by <a href="https://web.archive.org/web/20130515165822/http://colormekatie.blogspot.com/">Katie Sokoler</a>&#x2014;tomorrow, but to tide you over until then, check out a video from Grand Central below:</p>
+
+<p><iframe src="https://web.archive.org/web/20130515165822if_/http://player.vimeo.com/video/33463301?title=0&amp;byline=0&amp;portrait=0" width="640" height="361" frameborder="0" webkitallowfullscreen="" mozallowfullscreen="" allowfullscreen></iframe></p>

@@ -1,0 +1,29 @@
+---
+author: Emma Whitford
+date: Apr 18, 2016 3:39 pm
+title: M Train Repairs Could Displace Dozens Of Bushwick Residents For Six Months Or More
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="041816_Ditmars.jpeg" src="https://web.archive.org/web/20161017160637im_/http://gothamist.com/attachments/nyc_ewhitford/041816_Ditmars.jpeg" width="640" height="347"> <br> <i> Two-family row houses on Ditmars Street in Bushwick, where residents could be displaced for six months at least (Google Maps). </i></div> <p></p>
+
+<p>The MTA recently confirmed its plans to <a href="https://web.archive.org/web/20161017160637/http://gothamist.com/2016/03/18/f_the_m_to_the_l.php">shut down sections of the M train</a> north of Myrtle Avenue in anticipation of an onslaught of <a href="https://web.archive.org/web/20161017160637/http://gothamist.com/2016/01/13/l_train_tunnel_closure_years.php">L train refugees</a>. And while about 60,000 riders are expected to be inconvenienced, their future shuttle bus commutes pale in comparison to this latest aftershock&#x2014;Bushwick residents and businesses on a one-block stretch of Ditmars Street and the corner of Myrtle Avenue near the Myrtle-Broadway J/M/Z subway station could be displaced for at least six months. </p>
+
+<p>An internal MTA document <a href="https://web.archive.org/web/20161017160637/http://www.newsday.com/news/new-york/m-line-work-to-displace-dozens-in-bushwick-mta-document-says-1.11701180">acquired by Newsday</a> contained information about the impacted residential and commercial buildings, which include a row of two-family homes on Ditmars Street between Broadway and Myrtle Avenue, a five-unit apartment building on the corner of Myrtle and Ditmars, and a smattering of small businesses&#x2014;including the coffee shop <a href="https://web.archive.org/web/20161017160637/http://littleskips.com/locations/">The Other Little Skips</a>, and <a href="https://web.archive.org/web/20161017160637/http://www.harvestcyclery.com/">Harvest Cyclery</a>. </p>
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-right"> <img alt="041816_Ditmars2.jpeg" src="https://web.archive.org/web/20161017160637im_/http://gothamist.com/attachments/nyc_ewhitford/041816_Ditmars2.jpeg" width="320" height="297"> <br> <i style=" width:320px; ;display:block"> The impacted area from above (Google Maps). </i></div> Some of the impacted buildings come within less than 10 feet of a curved, elevated train track that is one focus of the M train repair work, in addition to a section near the end of the line in Maspeth, Queens, near Middle Village. Work on the Middle Village section of the track is expected to start as soon as summer 2017, according to the MTA. The Bushwick work would begin after the first phase is completed. <p></p>
+
+<p>According to Newsday, 26 residential units could be displaced for at least six months and &quot;potentially much longer.&quot; The MTA also confirmed plans to hire a relocation specialist for the impacted residents, and says it will pay market value for homes if building owners decided they&apos;d prefer to sell. Acquired buildings would be resold by the MTA after work is complete. </p>
+
+<p>MTA spokesman Kevin Ortiz confirmed the plan to us on Monday. &quot;We have made initial contact with the affected residents, as we were recently authorized to do by the MTA Board,&quot; he said in a statement. &quot;The next step will be to begin a series of individual meetings in which MTA&#x2019;s real estate professionals and a highly trained relocation specialist will begin to tailor plans to the specific needs and circumstances of each tenant and property owner.&quot; </p>
+
+<p>But many of the residents and local business owners said they were in the dark on the plans until Newsweek reporters approached them. One anonymous homeowner said that she had let MTA workers into her yard to look at the elevated tracks, but that there had been no mention of relocation. &quot;They told me nothing,&quot; she said. &quot;How can I do that [relocate]? How can I move out like that?&quot; </p>
+
+<p>1158 Realty Incorporated, which owns the building that contains both the coffee shop and the bike shop, <a href="https://web.archive.org/web/20161017160637/http://bushwickdaily.com/2016/04/bushwick-residents-and-businesses-will-be-displaced-for-6-10-months-or-more-during-m-train-work/">told Bushwick Daily</a> on Monday that they hadn&apos;t heard anything from the MTA. AJ Nichols, the owner of Harvest Cyclery, vented his frustration. &quot;When the train&apos;s down, you would want to ride a bike, but oh well,&quot; he said. </p>
+
+<p>&quot;We understand the serious inconvenience that each of these individuals are likely to experience in order to allow us to undertake this critical infrastructure project and we will do everything we can to minimize the distress,&quot; Ortiz said. </p>
+
+<p>MTA officials are formally meeting this week to discuss the possibility of L train tunnel closures in the <a href="https://web.archive.org/web/20161017160637/http://gothamist.com/2016/04/16/mta_may_start_l_train_tunnel_shutdo.php#photo-1">first quarter of 2019</a>. The MTA has yet to confirm how long the shutdown will last, or whether it might impact <a href="https://web.archive.org/web/20161017160637/http://gothamist.com/2016/04/04/williamsburg_l_train_why_god.php">subway stops in Manhattan</a> as well. Based on the <a href="https://web.archive.org/web/20161017160637/http://gothamist.com/tags/ltrain">steady leak</a> of potentially disruptive repair work news since January, we&apos;re already bracing for what&apos;s next. </p>					
+										
+									
+				

@@ -1,0 +1,11 @@
+---
+author: Jen Chung
+date: May 15, 2008  6:06 PM
+title: WNBC is 4 Sue Simmons
+---
+
+<p><img src="https://web.archive.org/web/20110623132111im_/http://gothamist.com/attachments/nyc_toby/Sue_Montage_01.jpg"></p>
+
+<p><a href="https://web.archive.org/web/20110623132111/http://www.amny.com/news/ny-etsue0515,0,4898683.htmlstory">Newsday&apos;s Verne Gay reports</a> WNBC 4 &quot;released another statement&quot; today that apologizes for Sue Simmons&apos; <a href="https://web.archive.org/web/20110623132111/http://gothamist.com/2008/05/13/sue_simmons_unw.php">unexpected f-bomb during a Monday night promo</a>.  Gay believes the statement is &quot;designed to dash media speculation that Simmons&apos; 28-year tenure was imperiled by the outburst.&quot;  Here&apos;s the statement:</p><blockquote>&quot;Sue Simmons is a highly valued 30-year veteran of WNBC.  Sue, along with WNBC, remains deeply sorry for her offensive remark on Monday night for which she quickly apologized. It was an unfortunate mistake that she truly regrets.&quot;</blockquote>Simmons was unhappy with the Post for <a href="https://web.archive.org/web/20110623132111/http://gothamist.com/2008/05/14/sue_simmons_fbo.php">implying she was drinking</a> between shows; <a href="https://web.archive.org/web/20110623132111/http://www.nypost.com/seven/05152008/news/regionalnews/sue_fumes_over_news_of_booze_110910.htm">via e-mail, she told the tab</a>, &quot;I haven&apos;t had an alcoholic drink between shows for at least 15 years or more...I understand more now why many people don&apos;t trust the media.&quot;<p></p>
+
+<p>She also confirmed the theory she and fellow anchor Chuck Scarborough thought their promo was being taped: &quot;I got caught on air dropping the F-bomb.<strong> I thought we were taping a spot . . . turns out it was very live</strong>.&quot;  And fellow newscasters are coming to her defense--<a href="https://web.archive.org/web/20110623132111/http://soupcans.blogspot.com/2008/05/brian-williams-isnt-sailor-nor-is-he.html">Soup Cans writes</a> that on Late Night with Conan O&apos;Brien, Brian Williams used &quot;a few f-words of his own,&quot; calling her &quot;fantastic&quot; and a friend, and called it &quot;a mistake.&quot;</p>

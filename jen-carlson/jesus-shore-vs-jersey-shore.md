@@ -1,0 +1,7 @@
+---
+author: Jen Carlson
+date: August  3, 2010  3:40 PM
+title: Jesus Shore vs. Jersey Shore
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="jesusshore.jpg" src="https://web.archive.org/web/20130321234500im_/http://gothamist.com/attachments/arts_jen/jesusshore.jpg" width="150" height="109" class="image-right"> </span>Who will save us from Snooki? Jesus will! Turns out Seaside Heights <em>isn&apos;t</em> all about fist pumps and hair poofs. Yesterday two groups, Abundant Grace Church and Move the Earth hosted a free concert called, wait for it: <a href="https://web.archive.org/web/20130321234500/http://www.jesusshore.com/">Jesus Shore</a>. (Their motto is: For the sexy, for the ugly, for the pagan, for the pure. Yes, really.) The event featured Christian rapper Teon &quot;Brother Remix&quot; Willis as well as a Christian tattoo contest&#x2014;but it doesn&apos;t look like the <a href="https://web.archive.org/web/20130321234500/http://gothamist.com/tags/jerseyshore">MTV reality show</a>&apos;s cast showed up. <a href="https://web.archive.org/web/20130321234500/http://www.myfoxny.com/dpp/entertainment/jersey_shore/jesus-shore-vs-jersey-shore-20100802">Fox5</a> reports that &quot;the concert attracted a few dozen people.&quot; In comparison, <em>Jersey Shore</em> filming attracts hundreds every day.</p>

@@ -1,0 +1,13 @@
+---
+author: Ben Yakas
+date: September 14, 2011  2:39 PM
+title: Female Bus Driver Punched By Man On Cursed Bus Route
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="91411bus.jpg" src="https://web.archive.org/web/20111224160909im_/http://gothamist.com/attachments/byakas/91411bus.jpg" width="640" height="426"> <br> <i>The Bx9 (<a href="https://web.archive.org/web/20111224160909/http://thebergennetwork.com/na/ny/mtanyct/bus/newflyer3.php">via Bergen Network</a>)</i></div> <p></p>
+
+<p>For the <a href="https://web.archive.org/web/20111224160909/http://gothamist.com/2011/06/22/teen_flies_into_rage_when_bus_drive.php">second time this summer</a>, a female bus driver on the Bx9 line has been attacked by an irate passenger at Fordham Plaza. Driver Maria Hogan says that a 6-foot-tall male passenger punched her because she didn&apos;t pull over for his stop. &quot;The punch hit me on the right side of my face, right next to my ear. I ended up on the seat. I tried to push him away with my legs,&quot; Hogan <a href="https://web.archive.org/web/20111224160909/http://www.nydailynews.com/news/ny_crime/2011/09/14/2011-09-14_bx_rider_bashes_lady_bus_driver.html">told the News</a>.</p>
+
+<p>The incident occurred late Saturday morning&#x2014;Hogan said she had made several announcements that the 192nd St./Kingsbridge Road stop was closed because of construction and riders would have to get off at Fordham Plaza. But after she passed that stop, the man yelled at her to stop. At the Fordham stop, Hogan says the man quietly waited for her to finish helping a passenger in a wheelchair leave the bus...and then punched her right in the face, and then tried to drag her off the bus by her legs. </p>
+
+<p>In June, driver Marlene Bien-Aime <a href="https://web.archive.org/web/20111224160909/http://gothamist.com/2011/06/23/video_bus_driver_talks_about_teen_a.php">was assaulted by</a> a 17-year-old after she told the passenger she couldn&apos;t carry her dog in her jacket onto the bus. Overall, 59 drivers were assaulted from January to August, an increase of seven over the same time period last year: &quot;It&apos;s very disturbing and worrisome,&quot; said Tony Aiken, an acting bus division chairman with the union. Irate passengers should consider more positive ways of dealing with their anger, such as <a href="https://web.archive.org/web/20111224160909/http://gothamist.com/2011/06/26/video_woman_with_loud_phone_on_b62.php">respectful discussions</a> or <a href="https://web.archive.org/web/20111224160909/http://gothamist.com/2011/01/17/video_do_smoking_scofflaws_deserve.php">sharing a cigarette.</a></p>

@@ -1,0 +1,13 @@
+---
+author: Ben Yakas
+date: August  3, 2011  4:40 PM
+title: Supervisor Charged With Strangling Autistic Patient To Death
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:250px; "> <img alt="8311jawara.jpg" src="https://web.archive.org/web/20110804143629im_/http://gothamist.com/attachments/byakas/8311jawara.jpg" width="250" height="271"> <br> <i>Jawara Henry (family photo)</i></div> A Staten Island psychiatric facility supervisor <a href="https://web.archive.org/web/20110804143629/http://www.nypost.com/p/news/local/staten_island/psych_facility_boss_charged_with_h3JrL2snmuyv5K4xgwlmxK">has been charged</a> with strangling an autistic patient to death last winter. Erik Stanley, a 37-year-old developmental aide supervisor, surrendered to police today in connection with the death of Jawara Henry, who died of asphyxia by neck and chest compression.<p></p>
+
+<p>Henry, 27, <a href="https://web.archive.org/web/20110804143629/http://www.silive.com/obituaries/index.ssf/2010/12/jawara_henry_27.html">died on</a> December 4 while staff members at the South Beach Psychiatric Center were trying to subdue him. The death was ruled a homicide by the medical examiner, and an eight-month investigation followed. Ultimately, SI District Attorney Daniel Donovan <a href="https://web.archive.org/web/20110804143629/http://www.nydailynews.com/news/ny_crime/2011/08/03/2011-08-03_psychiatric_facility_supervisor_charged_with_strangling_autistic_patient_to_deat.html">came to the conclusion</a> that Stanley, &quot;did not follow protocol nor use proper techniques while trying to restrain Henry...and caused Henry&apos;s death by using excessive pressure on the patient&apos;s neck and torso.&quot;</p>
+
+<p>Henry had been at the Staten Island facility for about a year at the time of his death; <a href="https://web.archive.org/web/20110804143629/http://www.wpix.com/news/wpix-autistic-man-death-homicide,0,2740184.story">according to</a> family lawyer Gary Douglas, he functioned at the level of a young child but had no history of outbursts. Henry&apos;s mother had said at the time that she had seen other bruises on her son, and added she couldn&apos;t &quot;believe that something like this can happen in this day and age and in this city...He didn&apos;t deserve to be murdered like this.&quot;</p>
+
+<p>Stanley will be charged with criminally negligent homicide and endangering the welfare of an incompetent or physically disable person.</p>

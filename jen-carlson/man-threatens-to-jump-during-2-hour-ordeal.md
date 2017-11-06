@@ -1,0 +1,7 @@
+---
+author: Jen Carlson
+date: September  3, 2010  5:10 PM
+title: Man Threatens To Jump During 2-Hour Ordeal
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="balconyjumper.jpg" src="https://web.archive.org/web/20110611051725im_/http://gothamist.com/attachments/arts_jen/balconyjumper.jpg" width="130" height="112" class="image-right"> </span>Around 8 a.m. this morning we received an alert that a man was threatening to jump from his balcony on the Lower East Side. Now <a href="https://web.archive.org/web/20110611051725/http://www.nypost.com/p/news/local/manhattan/lower_east_side_balcony_rescued_6emmrVabZXFK2RFD0M8QGJ?CMP=OTC-rss&amp;FEEDNAME=#ixzz0yVBIzSx9">the NY Post</a> has more details (and a photo), reporting that the incident took place at <a href="https://web.archive.org/web/20110611051725/http://maps.google.com/maps?hl=en&amp;q=257+Clinton+Street+ny&amp;ie=UTF8&amp;hq=&amp;hnear=257+Clinton+St,+New+York,+10002&amp;gl=us&amp;ei=GWCBTNOdJsG88gb_nPBM&amp;ved=0CBQQ8gEwAA&amp;ll=40.711516,-73.98747&amp;spn=0.008393,0.017295&amp;t=h&amp;z=16&amp;iwloc=A">257 Clinton Street</a>, where the unidentified man was hanging from a 16th floor balcony allegedly readying to jump. But by 9:50 a.m. he was safely in police custody after he &quot;gave up and he decided to go back into the apartment&quot;&#x2014;not before pointing to one of the Post&apos;s photographers, however.</p>

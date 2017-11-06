@@ -1,0 +1,13 @@
+---
+author: Jen Carlson
+date: October 28, 2010  3:20 PM
+title: Girl Gives Dirt On Jersey Shore Castmate
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-right" style=" width:245px; "> <img alt="notdtfjerseyshore.jpg" src="https://web.archive.org/web/20110412163742im_/http://gothamist.com/attachments/arts_jen/notdtfjerseyshore.jpg" width="245" height="261"> <br> <i><span class="photo_caption">Annabelle DeSisto: not DTF</span></i></div> <a href="https://web.archive.org/web/20110412163742/http://gothamist.com/tags/jerseyshore"><em>Jersey Shore</em></a> may be in between seasons right now, but people are still talking about it... specifically, Annabelle DeSisto, one of the ladies who was lured back to the cast&apos;s Miami pad by Mike Sorrentino, a full grown adult who has given himself the nickname &quot;The Situation.&quot; <p></p>
+
+<p>The two met at nightclub Space (which was sort of set up by producers) and yadda yadda yadda, DeSisto ends up in The Situation&apos;s bed. When he finds out she&apos;s not DTF (&quot;down to fuck&quot;), he tosses her out and does <em>not</em> come across very well in doing so. Now DeSisto has told her entire story <a href="https://web.archive.org/web/20110412163742/http://www.bestweekever.tv/2010-10-27/exclusive-interview-jersey-shores-annabelle-desisto-reveals-the-situations-pick-up-line-can-you-just-shut-up-and-blow-me/">to Best Week Ever</a>, and we find out just how much fleeting stardom has inflated The Situation&apos;s ego. Also, question for aspiring actresses with boyfriends who go home with reality show stars at 4 a.m. just to get some screen time: what do you <em>think</em> you are going back there for? Anyway, read the entire interview over at BWE, but here&apos;s a little taste:</p>
+
+<blockquote>He kept saying, &#x201C;I&#x2019;m bad, I&#x2019;m bad. I&#x2019;m bad, I&#x2019;m bad, and I&#x2019;m the baddest.&#x201D; He also asked me if I was wearing underwear a lot. And then he&apos;s like, &#x201C;Do you like getting your hair pulled? I need to know later when I &#x2018;F&#x2019; you.&#x201D; I was like, &#x201C;Oh god!&#x201D; That&#x2019;s how it was for the entire night, him saying weird stuff. He kept asking me if I wanted to change clothes, like to get into something more comfortable like pajamas. I&apos;m like, &#x201C;Does everything you own have a rhinestone bulldog or dragon or Ed Hardy logo on it?&#x201D; And he&#x2019;s like &#x201C;Yeah, of course!&#x201D; And I was like, &#x201C;Then I&#x2019;m not changing clothes.&#x201D; He was like, &#x201C;Can you just shut up and blow me?&#x201D;</blockquote>
+
+<p>His grandchildren are going to have so much fun with Google one day.</p>

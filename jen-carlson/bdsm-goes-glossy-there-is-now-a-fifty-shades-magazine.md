@@ -1,0 +1,15 @@
+---
+author: Jen Carlson
+date: Aug 31, 2012 11:15 am
+title: BDSM Goes Glossy: There Is Now A Fifty Shades Magazine
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="fiftyshades0812.jpg" src="https://web.archive.org/web/20151224045716im_/http://gothamist.com/attachments/arts_jen/fiftyshades0812.jpg" width="640" height="563" class="image-none"> </span></p>
+
+<p>This week <a href="https://web.archive.org/web/20151224045716/http://www.50shadesofgrey.com/50-shades-new-publication-fifty-shades-of-american-women-who-love-the-book-and-live-the-life/">a new magazine</a> hit newsstands, called: <a href="https://web.archive.org/web/20151224045716/http://www.scribd.com/doc/103988748/50SHADES-Cover-FINAL-No-Pantone">Fifty Shades Of American Women Who Love The Book And Live The Life</a>. That is a terribly lengthy name for a magazine, but if you slap the words &quot;<a href="https://web.archive.org/web/20151224045716/http://gothamist.com/tags/fiftyshadesofgrey">Fifty Shades</a>&quot; on anything these days you&apos;re sure to move some product. The publisher of the glossy reportedly got the blessing from EL James&apos;s reps, which is sort of hard to believe considering she could have cashed in on this herself... but who cares about the ins and outs of the deal when we could be talking about important things like how to release our inner goddesses? This magazine features 80 pages on that topic alone! When did porn get so <em>wordy</em>?</p>
+
+<p>You&apos;ll also get a poll that shows 93% of women want to spice up their relationship with role play, and <a href="https://web.archive.org/web/20151224045716/http://gothamist.com/2012/07/23/fifty_shades_1.php">a list</a> of twenty books &quot;even steamier than Fifty Shades&quot; (traitors!). The official <a href="https://web.archive.org/web/20151224045716/http://crushable.com/other-stuff/fifty-shades-of-grey-magazine-sex-tips-948/#ixzz258ReeI48">description reads</a>:</p><blockquote>&quot;For those &apos;Who Love the Book and Live the Life,&apos; Fifty Shades comprises the true recipe for magazine success: part tabloid (with predictions for the actors that will play the novel&#x2019;s characters in the eventual film), part Cosmopolitan (with tips on how to write a flirty email, a spread featuring 20 of the best-loved sex toys, and a feature from a woman who&#x2019;s been both a domme and a sub, but prefers now to just &apos;cuddle and makeout&apos;), and part Shape (with tips on how to get Ana&#x2019;s butt and how to &apos;eat like a sex goddess&apos;).&quot;</blockquote>The magazine will be available at places like Barnes &amp; Noble and Walgreens for $6.99. But if you&apos;re just in this for the hardcore BDSM, <a href="https://web.archive.org/web/20151224045716/http://gothamist.com/2012/08/28/congrats_everyone_new_yorkers_seeki.php">stick to YouPorn</a>&#x2014;you know what they say: &quot;Reading about porn is like dancing about architecture.&quot;<p></p>					
+										
+									
+				

@@ -1,0 +1,11 @@
+---
+author: Jen Carlson
+date: July 27, 2009 11:05 AM
+title: Is Dov Charney Firing Ugly Employees?
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:300px; "> <img alt="dov_charney0709.jpg" src="https://web.archive.org/web/20111230043203im_/http://gothamist.com/attachments/arts_jen/dov_charney0709.jpg" width="300" height="246"> <br> <i><span class="photo_caption">Dov Charney: Hot or Not?</span></i></div> While it&apos;s probably not too unbelievable that American Apparel has a certain aesthetic they like to portray to their legions of customers donning mesh v-necks, it may be more surprising to hear that... actually this isn&apos;t that surprising either. According to a <a href="https://web.archive.org/web/20111230043203/http://gawker.com/5323472/we-predict-more-lawsuits-in-dov-charneys-future">Gawker</a> tipster, <a href="https://web.archive.org/web/20111230043203/http://gothamist.com/tags/dovcharney">Dov Charney</a> &quot;is demanding the firing of employees he deems unattractive and thus detrimental&quot; to said aesthetic.<p></p>
+
+<p>The tipster, an employee of AA, claims that Charney recently freaked out due to a dip in sales (and that big check he has to write <a href="https://web.archive.org/web/20111230043203/http://gothamist.com/2009/05/18/woody_allen_3.php">to Woody Allen</a>), and as such made every store send in a group photograph of the staff. The ones labeled unattractive by the head honcho were encouraged to be fired&#x2014;allegedly something many managers were scared <em>not</em> to due lest they get fired themselves. This isn&apos;t new to the world of retail, last month <a href="https://web.archive.org/web/20111230043203/http://jezebel.com/5289492/abercrombie-banishes-girl-with-prosthetic-arm-to-storeroom-because-she-doesnt-fit-the-look-policy">an Abercrombie &amp; Fitch employee</a> was banished to the stock room for having a prosthetic arm.</p>
+
+<p>We reached out to AA for a comment, but have yet to hear back. To be fair, it&apos;s still early on the West Coast and they probably need their beauty sleep.</p>

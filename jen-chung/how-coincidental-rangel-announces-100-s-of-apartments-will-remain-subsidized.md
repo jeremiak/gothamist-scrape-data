@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: August 13, 2008  4:40 PM
+title: How...Coincidental: Rangel Announces 100s of Apartments Will Remain Subsidized
+---
+
+<p><img src="https://web.archive.org/web/20120311171545im_/http://gothamist.com/attachments/jen/2008_07_rangelc10.jpg" class="right">Yesterday, Representative Charles Rangel announced that he and other lawmakers, <a href="https://web.archive.org/web/20120311171545/http://www.nypost.com/seven/08132008/news/regionalnews/its_the_lease_rangel_can_do_124257.htm">per the NY Post</a>, &quot;persuaded landlords in four of six &apos;at-risk&apos; buildings not to opt out of Section 8 government-subsidy contracts.&quot;  Which meant Rangel--of the <a href="https://web.archive.org/web/20120311171545/http://gothamist.com/2008/07/11/congressman_charles_rangel_and_his.php">four (now three) rent-stabilized apartments</a>--had an <a href="https://web.archive.org/web/20120311171545/http://www.nytimes.com/2008/08/13/nyregion/13rangel.html?ref=nyregion">opportunity to be photographed with supporters</a> holding up signs like &quot;Champion of preservation&quot; and for City Council member Inez Dickens to tell him, &quot;You have our back, and now we are here for you.&quot;  Not everyone was happy with Rangel--one person told the NY Times, Rangel &quot;wants we all to think that he&#x2019;s there for the people, but deep down inside, he doesn&#x2019;t care.&#x201D;</p>

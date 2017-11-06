@@ -1,0 +1,17 @@
+---
+author: Jen Chung
+date: Dec 21, 2009 9:54 am
+title: NYC Region Deals With Snow Storm Aftermath
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none" style=" width:640px; "> <img alt="2009_12_snow22.jpg" src="https://web.archive.org/web/20171021221447im_/http://gothamist.com/2009_12_snow22.jpg" width="640" height="427"> <br> <i>Photograph by <a href="https://web.archive.org/web/20171021221447/http://www.flickr.com/photos/41923316@N03/4201150162">hoyachicknyc on Flickr</a></i></div> <p></p>
+
+<p>After Saturday-Sunday&apos;s <a href="https://web.archive.org/web/20171021221447/http://gothamist.com/2009/12/20/winter_wonderful_wallop_for_the_cit.php">big snow storm</a> that hit the East Coast, folks are getting back to their routines as best they can.  While the city&apos;s roads are <a href="https://web.archive.org/web/20171021221447/http://ny1.com/1-all-boroughs-news-content/top_stories/110768/commuters-return-to-work-on-slippery-streets">relatively cleared up</a> (and schools are open), hundreds of flights have been delayed or cancelled, causing some holiday travelers to panic, thanks to <a href="https://web.archive.org/web/20171021221447/http://www.nydailynews.com/ny_local/2009/12/20/2009-12-20_travelers_worst_nightmare.html">snow dumped at airports</a>&#x2014;14 inches at JFK, 11 inches at Newark and 9 inches at Laguardia.</p>
+
+<p>The <a href="https://web.archive.org/web/20171021221447/http://www.nypost.com/p/news/local/flakes_superior_H48z1LxlDaUNwfNGpuS9uJ">NY Post spoke</a> to Jessica Dude, 26, who was planning on flying to LA: She &quot;sobbed&quot; to the reporter, &quot;<strong>I&apos;m going to have Christmas in Brooklyn for the first time</strong>... I just don&apos;t understand. New York and LA are two really big cities. How are there no flights until Christmas?&quot; And Bonnie Serbaia, a grandmother from San Diego, California who was planning on heading to Paris, was <a href="https://web.archive.org/web/20171021221447/http://www.nydailynews.com/ny_local/2009/12/20/2009-12-20_travelers_worst_nightmare.html">stranded at JFK Airport with her grandson</a>: &quot;Serabia gave [grandson] Thomas the Paris trip as a high school graduation present. But by Sunday morning, the duo said American Airlines officials gave them an unimaginable itinerary for getting there -- fly back to Los Angeles, then catch a plane to London, then heading to Paris.&quot;</p>
+
+<p>NYC Sanitation Commissioner John Doherty was <a href="https://web.archive.org/web/20171021221447/http://www.nydailynews.com/ny_local/2009/12/21/2009-12-21_sanit_chiefs_been_citys_cleanup_guy_for_50_years.html">pleased with his department&apos;s cleanup</a> efforts, &quot;It wasn&apos;t as bad as we expected. We were talking 14 to 16 inches. ... We thought it would be worse.&quot;  Well, it was worse elsewhere: There was record snowfall on Long Island&#x2014;Upton, NY (where there is a National Weather Service center) <a href="https://web.archive.org/web/20171021221447/http://www.nytimes.com/2009/12/21/us/21snow.html?ref=nyregion">got 26.3 inches</a>&#x2014;and residents and business are still digging themselves out. (There have been quite a few car accidents there.)  </p>					
+										
+									
+				

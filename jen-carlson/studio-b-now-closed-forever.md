@@ -1,0 +1,11 @@
+---
+author: Jen Carlson
+date: Dec 19, 2008 1:21 pm
+title: Studio B Now Closed Forever!?
+---
+
+	
+										<p><img alt="siren.gif" src="https://web.archive.org/web/20150702072528im_/http://gothamist.com/attachments/arts_jen/siren.gif" width="125" height="125" class="right">The other day we caught wind that <a href="https://web.archive.org/web/20150702072528/http://gothamist.com/2008/12/17/greenpoint_nightclub_studio_b_4_sal.php">Studio B in Greenpoint is on the market</a>, but now we&apos;ve received an email from <a href="https://web.archive.org/web/20150702072528/http://profile.myspace.com/index.cfm?fuseaction=user.viewProfile&amp;friendID=74558212">JD Productions</a> (who put on events there) stating: <strong>&quot;It is with deep regret that we have to announce that the owner of Studio B has decided to close it&apos;s doors effective immediately.&quot;</strong> IMMEDIATELY! Okay, composure. Mr. John Davis&apos;s email continues: &quot;It seems that after a great start, the club had struggled to keep promoters and develop their nights quickly enough. By the time I had put the Sunday Shoutin! event together, it was clear that the club was in deep trouble. <strong>I did make an attempt to buy the space from the owner but his asking price was completely unrealistic. This is the second time in 6 months he has suddenly closed the club and in doing so has damaged his reputation amongst patrons and promoters.</strong>&quot; Studio B is keeping mum at the moment, but if they <em>ever</em> return our request for a comment we&apos;ll update the post. For now, just remember <a href="https://web.archive.org/web/20150702072528/http://www.clubplanet.com/Galleries/251700">the good times</a>. <strong>UPDATE:</strong> Mr. Davis sent out an email <em>seconds ago</em> stating &quot;due to contractual agreements Studio B will be operating this Saturday and also for NYE and New Years Day, after which time it will cease operations. Sorry for any confusion but the club just informed me of these updates.&quot; So like three more shows, then closed <em>forever</em>!</p>					
+										
+									
+				

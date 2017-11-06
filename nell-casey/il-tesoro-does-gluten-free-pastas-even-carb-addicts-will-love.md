@@ -1,0 +1,25 @@
+---
+author: Nell Casey
+date: Mar 4, 2014 11:30 am
+title: Il Tesoro Does Gluten-Free Pastas Even Carb Addicts Will Love
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-none"> <img alt="030414iltesoro2.jpg" src="https://web.archive.org/web/20150427164241im_/http://gothamist.com/attachments/nyc_nellcasey/030414iltesoro2.jpg" width="640" height="425"> <br> <i> <span class="photo_caption">(via <a href="https://web.archive.org/web/20150427164241/https://www.facebook.com/iltesoronyc/photos/pb.146445435379847.-2207520000.1393945293./573846279306425/?type=3&amp;theater">Facebook</a>)</span></i></div> <p></p>
+
+<p>There has never been a pasta dish I wouldn&apos;t eat should it cross my path, including fluorescent mac and cheese product and deli steam table crapola. In fact, my favorite solo dinner consists of thick spaghetti tossed in olive oil, butter and nothing else. I may have a <a href="https://web.archive.org/web/20150427164241/http://gothamist.com/tags/newrestaurantandbarradar">big girl job</a> but I&apos;ll still eat like a six-year-old if there&apos;s nothing else going on. </p>
+
+<p>This was the carb-loving mindset I was in when asked to check out Upper East Side Italian restaurant <a href="https://web.archive.org/web/20150427164241/http://iltesoro.com/">Il Tesoro&apos;s</a> gluten-free pasta offerings with a friend who&apos;s been off the wheat products for several years. Other than a bag of brown rice &quot;pasta&quot; that&apos;s languished in my cabinet for several years, this would be the closest I&apos;ve come to sampling what Celiac sufferers have been forced to endure if they want a semblance of the noodle dishes I fervently inhale. I was dubious, but relented; after all, it&apos;s literally my job.</p>
+
+<p>Chef AJ Black opened his first restaurant in Italy at just 19 after growing up with his family&apos;s restaurant in Rome. The chef then crossed the pond, opening up an Il Tesoro restaurant in both Martha&apos;s Vineyard (now closed) and Florida before opening the NYC location in 2011 (he&apos;d also operated Villa Pazzo on Bleecker Street). Though it might sound counterintuitive, Italy has actually become a <a href="https://web.archive.org/web/20150427164241/http://www.huffingtonpost.com/dominic-siano/italy-the-land-of-pasta-n_b_1213753.html">champion of gluten-free dining</a>, even going so far as to test every child for Celiac disease at an early age. For his part, Chef Black began preparing gluten-free products for his daughter, who suffers from an allergy. He didn&apos;t want her to miss out on the pastas and breads she&apos;d grown up with, thus he set about finding ways to make good-tasting nut and legume pastas that mimic their wheat predecessors in both flavor and texture. </p>
+
+<p>Rice-based pastas are common on grocery store shelves but (I&apos;m told) they don&apos;t offer the same kind of chew or bite that defines traditional pastas. Il Tesoro makes most of their in-house pastas using chickpea flour (Farina de Ceci), pistachios and roasted pecans. The results are toothsome noodles with a faint yet distinctive nuttiness similar to but lighter than a whole wheat pasta.  Farina de Riso (rice flour) and even Farina di Castagna (chestnut flour) are often used to fortify and hold up the nut pastas.</p>
+
+<p>Of the shapes and recipes we tried, the penne had the most familiar texture and flavor, especially when paired with the housemade bolognese, which had generous hunks of meat enveloped in a bright and tangy tomato sauce. The tagliatelle&#x2014;which we ordered with a rich truffle cream sauce with mushroosm peas, prosciutto and radicchio&#x2014;broke apart more easily than a wheat flour-based version but retained a nice chew and actually helped balanced out the heaviness of the cream sauce.</p>
+
+<p>With the exception of stuffed pastas, any of the restaurant&apos;s sauces can be employed using the gluten-free pastas, which came in spaghetti, penne and tagliatelle during our visit. In the spring, Chef Black wants to offer more seafood-based dishes, including some gluten-free ravioli and other filled pastas to lighten up for the season. </p>
+
+<p>I don&apos;t plan on kicking my buttered noodle habit in favor of nut pastas but gluten-free advocates and curious diners could certainly do worse than the dishes I sampled at Il Tesoro. My gluten-free friend dubbed them the &quot;best she&apos;s had,&quot; noting that fresh versus dried pastas make a big difference. The prices are a little steep for a casual dinner&#x2014;pastas range $17 - $23, though generous half portions are available&#x2014;but it&apos;s a solid option for a quiet date or a dinner with the fam. They also make a killer Negroni&#x2014;guaranteed gluten free.</p>					
+										
+									
+				

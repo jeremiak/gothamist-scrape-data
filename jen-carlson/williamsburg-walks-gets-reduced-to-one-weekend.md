@@ -1,0 +1,11 @@
+---
+author: Jen Carlson
+date: April  6, 2010  2:02 PM
+title: Williamsburg Walks Gets Reduced To One Weekend
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:350px; "> <img alt="wburgwalks410.jpg" src="https://web.archive.org/web/20120119093322im_/http://gothamist.com/attachments/arts_jen/wburgwalks410.jpg" width="350" height="263"> <br> <i><span class="photo_caption">Photo via <a href="https://web.archive.org/web/20120119093322/http://www.flickr.com/photos/bitchcakes/3695784395/">bitchcakes&apos; flickr</a></span></i></div> Williamsburg: of the six Saturdays that were scheduled, you are only getting one weekend for your pedestrian plaza this summer. The good news is, there&apos;s someone to direct your anger towards! According to <a href="https://web.archive.org/web/20120119093322/http://www.freewilliamsburg.com/archives/2010/04/bedford_ave_bus.html">FreeWilliamsburg</a>, A &amp; G Merch&apos;s Jill Goldhand is the leader of the movement that took down fest&#x2014;in fact, she recently told the <a href="https://web.archive.org/web/20120119093322/http://www.brooklynpaper.com/stories/33/15/33_15_as_williamsburg_walks_cut.html">Brooklyn Paper</a>: &quot;Thank God they&#x2019;ve cut it.&quot; <p></p>
+
+<p>Goldhand, as well as other merchants on the strip, complained they lost sales during the Williamsburg Walks events, which typically shuts down a stretch of Bedford Avenue for a  few summer Saturdays. Will sales pick up again this year or do people in the area just not care that much about <a href="https://web.archive.org/web/20120119093322/http://www.aandgmerch.com/index.php?product=A46-386/5&amp;c=1000065">$450 chandeliers</a>? Time will tell!</p>
+
+<p>Meanwhile, organizers at Neighbors Allied for Good Growth say this year&apos;s event will take place on June 26 and 27th&#x2014;and they&apos;re &quot;confident [it] will be fantastic and we will establish a sustainable model for the years to come.&quot; If not, then you can look forward to future summers of driving your car over to <a href="https://web.archive.org/web/20120119093322/http://gothamist.com/2010/03/05/starbucks_confirmed_on_bedford_in_w.php">the new Starbucks</a>.</p>

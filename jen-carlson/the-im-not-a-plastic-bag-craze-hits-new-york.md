@@ -1,0 +1,21 @@
+---
+author: Jen Carlson
+date: Jul 18, 2007 12:09 pm
+title: The "I'm Not A Plastic Bag" Craze Hits New York
+---
+
+	
+										<p><img alt="2007wfoods.jpg" src="https://web.archive.org/web/20150422150205im_/http://gothamist.com/attachments/arts_jen/2007wfoods.jpg" width="200" height="254" class="right">Yesterday we mentioned London designer Anya Hindmarch&apos;s <em>I&apos;m Not A Plastic Bag</em> was finally <a href="https://web.archive.org/web/20150422150205/http://www.wholefoodsmarket.com/stores/bowery/">arriving at Whole Foods</a> today. The canvas tote was made popular by a combination of things including <a href="https://web.archive.org/web/20150422150205/http://www.imnotobsessed.com/category/petra-nemcova/">celebrity</a> and unavailability. Hindmarch told the <a href="https://web.archive.org/web/20150422150205/http://www.nytimes.com/2007/07/18/dining/18bags.html?_r=1&amp;oref=slogin">NY Times</a> &#x201C;To create awareness you have to create scarcity by producing a limited edition. I hate the idea of making the environment trendy, but you need to make it cool and then it becomes a habit.&#x201D;</p>
+
+<p>We&apos;re all for everyone using reusable bags, but why spend hundreds of dollars on this particular one? That&apos;s the going rate <a href="https://web.archive.org/web/20150422150205/http://search.ebay.com/search/search.dll?from=R40&amp;_trksid=m37&amp;satitle=i%27m+not+a+plastic+bag&amp;category0=">on eBay</a>, where we&apos;re sure some New Yorkers will be making their rent money later (the retail price is $15). When the bags hit LA last month, <a href="https://web.archive.org/web/20150422150205/http://www.laist.com/2007/06/21/im_not_a_plasti.php">LAist</a> and <a href="https://web.archive.org/web/20150422150205/http://www.tmz.com/2007/06/23/im-not-a-plastic-bag-just-a-fool-for-waiting-for-one/">TMZ</a> reported from the front lines. Bags sold out there by 2pm, however here in New York  at the Columbus Circle location (with 3,000 bags in stock) they were sold out <a href="https://web.archive.org/web/20150422150205/http://www.ecorazzi.com/?p=3358">in 29 minutes</a>. Even in the morning downpour! The Ecorazzi also report that &quot;a fight broke out on line as a woman pushed her way to the front, feeling she should have priority because she works for the NYC schools. Another woman is said to have fainted.&quot; </p>
+
+<p><img alt="2007wholefoods.jpg" src="https://web.archive.org/web/20150422150205im_/http://gothamist.com/attachments/arts_jen/2007wholefoods.jpg" width="170" height="224" class="left">Of course, there are many options for reusable bags that can be obtained without violence: Trader Joe&apos;s sells a variety of <a href="https://web.archive.org/web/20150422150205/http://www.flickr.com/photos/pondblue/475601019/">reusable bags</a> for a few bucks, and even rewards customers who use any reusable bag with a monthly lottery for free groceries. The website <a href="https://web.archive.org/web/20150422150205/http://www.reusablebags.com/">Reusable Bags</a> has a ton of great eco-friendly options. And there&apos;s always the reactionary <a href="https://web.archive.org/web/20150422150205/http://www.ekmpowershop4.com/ekmps/shops/frommarissav/index.asp?function=DISPLAYPRODUCT&amp;productid=24">&quot;I&apos;m Not A Smug ____&quot;</a> imitation bag. </p>
+
+<p>Whether you stand in line for 3 hours to get the next big &quot;It&quot; bag at Whole Foods or not, keep the facts about plastic bags in mind next time you&apos;re buying groceries. Over 380 billion plastic bags are consumed in the U.S. each year, they take about 500 years to degrade and less than 1% reuse them. Get the facts <a href="https://web.archive.org/web/20150422150205/http://www.reusablebags.com/facts.php">here</a>, and then get your own canvas bag and <a href="https://web.archive.org/web/20150422150205/http://www.wearewhatwedo.org/do_something/actiondetails.php?pid=1">&quot;just say no&quot; to plastic</a>. </p>
+
+<p>Update: <a href="https://web.archive.org/web/20150422150205/http://www.youtube.com/watch?v=oXaLdRdMK-M">Here&apos;s a video of the craziness</a>.</p>
+
+<p><em>Photos via <a href="https://web.archive.org/web/20150422150205/http://www.ecorazzi.com/">Ecorazzi</a>, by Melissa Rosenberg.</em></p>					
+										
+									
+				

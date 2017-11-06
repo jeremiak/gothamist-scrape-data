@@ -1,0 +1,17 @@
+---
+author: Jen Chung
+date: Apr 3, 2009 2:38 pm
+title: Subway Platform Rape Victim Speaks Out
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:240px; "> <img alt="2009_04_besedri.jpg" src="https://web.archive.org/web/20160522181420im_/http://gothamist.com/attachments/jen/2009_04_besedri.jpg" width="240" height="180"> <br> <i>Maria Besedin</i></div> After a judge <a href="https://web.archive.org/web/20160522181420/http://gothamist.com/2009/04/01/g_train_platform_rape_victim_loses.php">threw out a rape victim&apos;s negligence suit</a> against the MTA and its workers for not helping stop the rape, the victim has now gone public to express her amazement at the ruling.  <a href="https://web.archive.org/web/20160522181420/http://www.nydailynews.com/news/2009/04/03/2009-04-03_subway_rape_victim_comes_forward_after_s.html">Maria Besedin said</a>, &quot;I&apos;m honestly still in shock. It&apos;s so hard for me to process this whole thing because I just really wanted everyone out there to be safe, to never have to experience anything like I did.&quot;<p></p>
+
+<p>In 2005, Besedin, now 25, was <a href="https://web.archive.org/web/20160522181420/http://gothamist.com/2005/06/07/subway_platform_rape.php">raped on the platform</a> of the G train&apos;s 21st Street stop around 3 a.m.  She tried to escape the attacker and <a href="https://web.archive.org/web/20160522181420/http://www.nypost.com/seven/04032009/news/regionalnews/my_unending_rape_horror_162724.htm">cried out for help to a station agent</a> but station agent John Koort just called the central command center and stayed in the token booth.  Besedin said yesterday, &quot;<strong>I held [Koort&apos;s] gaze for at least five seconds, yelling, screaming, &apos;Help! Help!&apos; I saw him and I thought, &apos;Oh gosh, he&apos;s gonna see me, it&apos;s gonna be okay&apos; and - nothing.</strong>&quot;  </p>
+
+<p>The rapist then dragged her down the stairs; Besdein explained, &quot;I had been violated and raped on the stairs on the lower level and then dragged over to a tool-box kind of thing [on the platform] and raped. I had lost all my dignity.&quot;  A subway pulled into the station, but even though conductor Harmodio Cruz saw her, he called command and let his train continue through the station.  It took police 10 minutes, after receiving calls from MTA command, to arrive.  Besedin, an NYU graduate who dropped out of Fordham&apos;s graduate psychology program after the attack, said, &quot;By the time somebody came, I mean, I had lost all my dignity, and it was over.&quot;  The rape suspect has never been found.  </p>
+
+<p>Here&apos;s <a href="https://web.archive.org/web/20160522181420/ttp://abclocal.go.com/wabc/video?id=6742426">video of her press conference</a>.  Her lawyer says they will appeal, with <a href="https://web.archive.org/web/20160522181420/http://www.nypost.com/seven/04032009/news/regionalnews/my_unending_rape_horror_162724.htm">Besedin adding</a>, &quot;I thought the judge would be able to see how crucial an issue it is. <strong>Especially now that the MTA wants to charge us even more to ride their unsafe trains.</strong>&quot;</p>					
+										
+									
+				

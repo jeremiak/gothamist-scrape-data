@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: October  5, 2008  6:29 PM
+title: Smuggled Mob Sperm Baby Can't See Dad
+---
+
+<p><img alt="2008_10_spermplush.jpg" src="https://web.archive.org/web/20130313215307im_/http://gothamist.com/attachments/jen/2008_10_spermplush.jpg" width="121" height="122" class="right">A woman is upset her daughter <a href="https://web.archive.org/web/20130313215307/http://www.silive.com/news/index.ssf/2008/10/miracle_mob_baby_longs_to_visi.html">can&apos;t visit her mobster dad in prison</a>.  Regina Granato and Colombo family associate husband Kevin Granato <a href="https://web.archive.org/web/20130313215307/http://abcnews.go.com/2020/story?id=123680&amp;page=1">managed to smuggle his sperm</a>--taken in the middle of his 25-year prison sentence--out for her to conceive now 9-year-old Gianna. (Prison officials found out about the scheme when the baby came to visit and Granato said it was his daughter.)  Regina Granato tells the Staten Island Advance that her husband was suddenly moved from a Pennsylvania federal prison to one in Oregon, making it impossible to visit him because doctors advise Gianna, who has a heart condition, not take long trips.  Regina Granato, who served 9 months probation and a hundred hours of community service, says little Gianna is devastated she can&apos;t see her dad, &quot;<strong>They hate us for what we did. They hate us just because she was born.</strong>&quot;</p>

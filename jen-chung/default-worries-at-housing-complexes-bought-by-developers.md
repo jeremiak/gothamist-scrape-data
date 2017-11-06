@@ -1,0 +1,7 @@
+---
+author: Jen Chung
+date: August 27, 2008  8:48 AM
+title: Default Worries at Housing Complexes Bought by Developers
+---
+
+<p><img alt="2008_08_stuytown.jpg" src="https://web.archive.org/web/20110611054507im_/http://gothamist.com/attachments/jen/2008_08_stuytown.jpg" width="130" height="105" class="right">After a Monday article about how the middle-class Harlem housing complex Riverton Houses&apos; owners <a href="https://web.archive.org/web/20110611054507/http://www.nytimes.com/2008/08/25/nyregion/25riverton.htm">might default on their loan</a>, the NY Times now looks <a href="https://web.archive.org/web/20110611054507/http://www.nytimes.com/2008/08/27/business/27default.html?_r=1&amp;pagewanted=1&amp;ref=nyregion&amp;oref=slogin">other big real estate deal that might go sour</a>.  Like the Riverton Houses, Stuyvesant Town was bought by a big real estate company who hoped to convert more rent-stabilized units to market rates and make a profit (but it&apos;s been <a href="https://web.archive.org/web/20110611054507/http://gothamist.com/2008/07/23/revenues_at_stuyvesant_town_are_dow.php">slow-going so far</a>).  And there are other possible victims, like Harlem&apos;s Savoy Park, a development bought by Credit Suisse.  A Citizens Housing and Planning Council fellow tells the Times, &quot;[Financiers] all got caught up in the bubble mentality.&#x201D;</p>

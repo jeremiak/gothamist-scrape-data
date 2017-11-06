@@ -1,0 +1,17 @@
+---
+author: Ben Yakas
+date: Sep 17, 2011 1:50 pm
+title: Hope You're Not Pregnant! 1.4 Million Packages Of Birth Control Pills Recalled
+---
+
+	
+										<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> </span></p><div class="image-left" style=" width:275px; "> <img alt="91711birthcontrol.jpg" src="https://web.archive.org/web/20150502174414im_/http://gothamist.com/attachments/byakas/91711birthcontrol.jpg" width="275" height="204"> <br> <i><a href="https://web.archive.org/web/20150502174414/http://www.shutterstock.com/cat.mhtml?lang=en&amp;search_source=search_form&amp;version=llv1&amp;anyorall=all&amp;safesearch=1&amp;searchterm=birth+control&amp;search_group=&amp;orient=&amp;search_cat=&amp;searchtermx=&amp;photographer_name=&amp;people_gender=&amp;people_age=&amp;people_ethnicity=&amp;people_number=&amp;commercial_ok=&amp;color=&amp;show_color_wheel=1#id=15610108&amp;src=c9c45feeae7c0b47c1368a43a2d28cfc-1-85">Deklofenak/Shutterstock</a></i></div> This just seems like it could get messy: a pharmaceutical company which specializes in generic drugs <a href="https://web.archive.org/web/20150502174414/http://www.cnn.com/2011/09/16/health/birth-control-recall/">is recalling 1.4 million packages</a> of birth control pills. And while there are no immediate health risks to women who have taken pills with the &quot;packaging error,&quot; you may be in store for an unexpected surprise: &quot;The unintended consequence of pregnancy is really the issue. That&apos;s why the company took a drastic action,&quot; said spokesman Kevin Wiggins. That seems pretty bad, but at least there&apos;s nothing wrong with <a href="https://web.archive.org/web/20150502174414/http://www.nydailynews.com/news/world/2011/09/17/2011-09-17_chinese_condoms_too_small_for_south_africa_judge_rules.html">our backup Chinese condoms.</a><p></p>
+
+<p>The not quite aptly-named Qualitest Pharmaceuticals issued the massive recall not to boost the gynecological industry, but rather because &quot;select blisters (found inside the pill box) were rotated 180 degrees within the card, reversing the weekly tablet orientation.&quot; This left the pills&apos; lot number, as well as the expiration date, &quot;no longer visible,&quot; and as a result of the error, &quot;the daily regimen for these oral contraceptives may be incorrect and could leave women without adequate contraception, and at risk for unwanted pregnancy,&quot; the company said.</p>
+
+<p>The company issued a statement saying, &quot;The source of the error is currently under investigation and the company is committed to rectifying the issue in a timely manner.&quot; As <a href="https://web.archive.org/web/20150502174414/http://jezebel.com/5841319/the-massive-birth-control-recall-and-how-it-affects-you">Jezebel points out</a>, it&apos;s not always a simple thing to rectify an unexpected pregnancy, especially of the Peggy Olsen-variety. But then again, maybe this&apos;ll make for appointment TV reenactments!</p>
+
+<p><iframe id="dit-video-embed" width="640" height="360" src="https://web.archive.org/web/20150502174414if_/http://static.discoverymedia.com/videos/components/dhc/8e802771829c4f994ef0334cc25e2b4ff80422e0/snag-it-player.html?auto=no" frameborder="0" scrolling="no" allowtransparency="true"></iframe></p>					
+										
+									
+				

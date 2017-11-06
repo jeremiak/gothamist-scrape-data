@@ -1,0 +1,14 @@
+---
+author: Jen Carlson
+date: June 13, 2008 11:18 AM
+title: Friday the 13th is National Pigeon Day!
+---
+
+<p><img alt="phpk4Xh1MAM.jpg" src="https://web.archive.org/web/20110611053232im_/http://gothamist.com/attachments/arts_jen/phpk4Xh1MAM.jpg" width="640" height="424"><br>
+<span class="photo_caption">Photo by <a href="https://web.archive.org/web/20110611053232/http://www.flickr.com/photos/dietrich/901698340">Dietrich</a>.</span></p>
+
+<p>Sunday may be Father&apos;s Day, but today is reserved especially for what Woody Allen dubbed &quot;rats with wings&quot; (the New York Bird Club is still <a href="https://web.archive.org/web/20110611053232/http://blogs.villagevoice.com/runninscared/archives/2008/02/recruit_woody_a.php">demanding an apology</a> from him).</p>
+
+<p><a href="https://web.archive.org/web/20110611053232/http://tierneylab.blogs.nytimes.com/2008/06/13/its-national-pigeon-day/">The NY Times</a> has some ways to celebrate the pigeon on this Friday the 13th (wonder how the <a href="https://web.archive.org/web/20110611053232/http://gothamist.com/2008/05/29/pigeons_1.php">pigeon coop keepers</a> will be celebrating); the main event being the <a href="https://web.archive.org/web/20110611053232/http://nationalpigeonday.blogspot.com/2008/04/national-pigeon-day-itinerary.html">National Pigeon Day</a> celebration, which will take place from 4 to 8 p.m. at Pilgrim Hill in Central Park (5th Avenue and 72nd Street). Expect &quot;entertainment, political activism, materials distribution&quot; and (you can&apos;t make this stuff up) &quot;candlelight prayer service with guitar accompaniment and pigeon shaped cookies.&quot; Along with a flock of performers and speakers, Nellie McKay will even be on hand to perform &quot;Feed the Birds&quot; on her ukelele. </p>
+
+<p>Felicitously named founder of the New York Bird Club, Anna Dove, explained the June 13th date <a href="https://web.archive.org/web/20110611053232/http://happylolday.blogspot.com/2008/01/create-national-pigeon-day.html">in a letter</a> lobbying elected officials to make today for the birds, so to speak. It was chosen to commemorate the death of <a href="https://web.archive.org/web/20110611053232/http://www.homeofheroes.com/wings/part1/3b_cherami.html">Cher Ami</a>, a messenger pigeon who died on this very day in 1919 from war wounds (her letter ends, &quot;we respectfully request that June 13th be declared National Pigeon Day in honor of pigeons who are war heroes&quot;). While pigeons today have managed to stay out of Bush&apos;s Iraq, why not toss them some crumbs anyway, though it <a href="https://web.archive.org/web/20110611053232/http://gothamist.com/2008/03/20/city_fines_man.php">may land you a fine</a>.</p>

@@ -1,0 +1,11 @@
+---
+author: Jen Carlson
+date: September 24, 2009  9:50 AM
+title: Caught on Tape: Boozy Construction Workers
+---
+
+<p><span class="mt-enclosure mt-enclosure-image" style="display: inline;"> <img alt="phpfDH2SoAM.jpg" src="https://web.archive.org/web/20130705053150im_/http://gothamist.com/attachments/arts_jen/phpfDH2SoAM.jpg" width="271" height="167" class="image-right"> </span>Hot on the heels of <a href="https://web.archive.org/web/20130705053150/http://gothamist.com/2009/09/18/clubs.php">their undercover work</a> at the city&apos;s trendy nightclubs, <a href="https://web.archive.org/web/20130705053150/http://www.insideedition.com/news.aspx?storyId=3415">Inside Edition</a> heads to a much less glamorous scene: the construction site. </p>
+
+<p>The show reports that workers at a 14-story tower being built on the West Side of Manhattan for the John Jay College of Criminal Justice would frequently take their lunch at a bar, in liquid form, in <em>alcoholic liquid form</em>. &quot;On a dozen different days, undercover producers saw workers down at least three drinks each in just 45 minutes.  And although it&apos;s a lunch break, few of them ate anything.&quot; The thing is, soon after they would return to the job site and be perched many, many stories above grandmas and babies and puppies and kittens and other innocent pedestrians walking beneath them. </p>
+
+<p>Earlier this year <a href="https://web.archive.org/web/20130705053150/http://gothamist.com/2009/06/28/some_wtc_construction_workers_enjoy.php">the Post</a> caught the same type of behavior further downtown; the real shocker here though is that some of them even took &quot;to-go cups&quot; back to work (aka: vodka in a Vitamin Water bottle). The manager of the site, Turner Construction Company, told them they&apos;d be doing their own detective work, and &quot;any worker found intoxicated or consuming alcohol during the performance of their job will be removed from this job.&quot; Let&apos;s keep the on-the-clock drinking reserved for cubicle work, m&apos;kay?</p>

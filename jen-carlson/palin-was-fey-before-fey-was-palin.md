@@ -1,0 +1,7 @@
+---
+author: Jen Carlson
+date: September 15, 2008  4:54 PM
+title: Palin was Fey, Before Fey was Palin
+---
+
+<p><img alt="palinfey.jpg" src="https://web.archive.org/web/20111117120129im_/http://gothamist.com/attachments/arts_jen/palinfey.jpg" width="110" height="103" class="right">This past Saturday Tina Fey delivered a frighteningly accurate portrayal of Governor Sarah Palin on <a href="https://web.archive.org/web/20111117120129/http://gothamist.com/2008/09/14/snl_is_back.php">Saturday Night Live&apos;s season opener</a>. This is the first time Palin has been impersonated on the show, and word has come in that she was in fact watching it live via satellite TV on her flight to Denver. <a href="https://web.archive.org/web/20111117120129/http://thecaucus.blogs.nytimes.com/2008/09/14/palin-on-fey-quite-funny/">The NY Times</a> reports that the candidate has spent her time on the campaign plane &quot;ensconced at the front with family members and top aides, tucked away behind a curtain that separates everyone -&#x2013; reporters, included &#x2014; in the back.&quot; However, she has now spoken out (albeit through a spokesperson) about the SNL sketch, saying <strong>she &#x201C;thought it was quite funny,&quot; and has <em>allegedly</em> dressed up as Tina Fey for Halloween.</strong></p>
